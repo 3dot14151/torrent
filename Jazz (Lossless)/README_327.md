@@ -1,3 +1,177 @@
+###  Публикация: 1728886   (108169) от 09.06.2024
+
+Jack McDuff & Friends - Color Me Blue (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let the Sun Catch You Cryin' [6:29]
+02. Mo' Candy [6:50]
+03. Color Me Blue [8:32]
+04. Almost Like Being in Love [5:09](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B94B453CB8F09F045B50C13E23A1A8523214196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728881   (108162) от 09.06.2024
+
+Lee Ritenour - Rit/2 (1982) 2005, Collectables [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross My Heart [3:47]
+02. Promises, Promises [4:06]
+03. Dreamwalkin' [4:12]
+04. Keep It Alive [4:52](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1030F7C1B5FCCE08E7A4B9ABF36BA2D63FDC4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728875   (108159) от 09.06.2024
+
+Dizzy Gillespie - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocktails for Two [2:43]
+02. Cognac Blues [2:42]
+03. Moon Nocturne [3:04]
+04. Sabla y blu [3:06](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE9E06859D36757BB8BA11AED2EFB6683E1C339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728876   (108150) от 09.06.2024
+
+Sonny Stitt - 1951 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Cover the Waterfront [2:42]
+02. Don't Worry 'Bout Me [2:47]
+03. Down with It [2:34]
+04. For the Fat Man [2:58](   Читать дальше...   )Жанр: BopПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CD401ED22429407BC9F3E7A9BFBC188CB40450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728879   (108147) от 09.06.2024
+
+Etta Jones - 1944 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salty Papa Blues [2:58]
+02. Evil Gal Blues [2:59]
+03. Blow Top Blues [2:36]
+04. Long, Long, Journey [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90C853AB65BCA59AA79612E5605653FB94BBE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729599   (108046) от 12.06.2024
+
+VA - Jazzy Covers 80's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neja - Last Night a DJ Saved My Life (3:58)
+02. Ely Bruna - Smalltown Boy (3:14)
+03. Boogeyman - All Around The World (4:01)
+04. Banda Brasileira - If You Love Somebody Set Them Free (4:38)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435278BB18A7BDB7468C3D55929A98AFE41E7324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729600   (108045) от 12.06.2024
 
 VA - Jazzy Covers 90's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop>
@@ -569,180 +743,6 @@ Jimmie Noone - Apex Blues (1928 - 1930) 1994, Decca Jazz [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1CF224CDA86CFC33FFD9B9D89944BCCF61CBF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731066   (107786) от 19.06.2024
-
-Erroll Garner - The Erroll Garner Collection, Vol.4,5: Solo Time! (1954) 2CD, 1990, Emarcy [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Man River [6:54]
-02. I'll Get By [4:24]
-03. Medley: April in Paris/The Last Time I Saw Paris [5:06]
-04. Sleepy Lagoon [5:09](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B435DF74C4A9356C759E414E1C32F393A15EC58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731267   (107737) от 20.06.2024
-
-Johnny Griffin - Masters Of Jazz (1964 - 1989) 2006, Storyville Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wee Dot [4:50]
-02. Exactly Like You [10:00]
-03. A Night In Tunesia [8:31]
-04. Blues Up And Down [10:50](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64873155ED15758B9F6A20833FCAF22C0A724E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731577   (107710) от 21.06.2024
-
-Ben Tankard - The Godfather Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolutely! (3:43)
-02. Shudda-Sed-Sompin-Din (Vocal Mix) (4:32)
-03. Higher Groove (feat. Tribe of Benjamin) (3:46)
-04. Black Butterfly (feat. Mark Kibble & Take 6) (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D937AA61CCC6028C8BD9ACBA43544CFC30B483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731398   (107683) от 21.06.2024
-
-Aretha Franklin - Bob Marley Performance Centre Jamaica 1982 Live (1982) Remaster, 2024, The Media Champ[FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Live) [00:01:33]
-02. Hold On I'm Coming (Live) [00:04:42]
-03. Love Me Forever (Live) [00:03:50]
-04. It's Your Thing (Live) [00:04:10](   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7224FBB071864C1CC663093C56E78A3C5632000F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731611   (107680) от 21.06.2024
-
-Lowell Hopper - Precious Moments (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Caught Up (4:14)
-02. Reflection (4:13)
-03. Smooth And Spicy (3:57)
-04. What Could Have Been (4:36)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B97DB64259CEDC31E2AC91B739E7C3CC2AE9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731574   (107659) от 21.06.2024
-
-Another 247 Production and Dayrod - Blast (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Tight (3:37)
-02. Always (4:07)
-03. Brighter Day (4:10)
-04. Designed for You (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C45AB045F56EAD9B3A814783726C4CF5138F51
 ```
 
 https://mybot314.ru/tekegram_catalog/

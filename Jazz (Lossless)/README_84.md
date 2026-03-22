@@ -1,3 +1,32 @@
+###  Публикация: 1391938   (770690) от 23.06.2020
+
+Oscar Peterson - The Will To Swing 1949-1971 (1991) 2CD, Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770690.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Fine And Dandy [4:38]
+02. Tenderly [5:45]
+03. Fascinatin' Rythm [2:57](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0724C532CD3509B5CE25D10C7C30A580CBCC17C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016636   (770525) от 14.05.2016
 
 Tom Grant - Mystified (1976) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Piano Jazz>
@@ -716,35 +745,6 @@ Michel Legrand/Stephane Grappelli - Legrand/Grappelli (1992) [FLAC|Lossless]<Con
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213745   (767414) от 18.03.2018
-
-Howard McGhee - Maggie: The Savoy Sessions (1948-1952) 1995, Savoy [APE|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Lee [02:07]
-02. Short Life [01:58]
-03. The Talk of the Town [02:52]
-04. Bass C Jam [02:58](   Читать дальше...   )Жанр: BopПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4C5C61EFEB6BE87C7177635CEFC481926EC2B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

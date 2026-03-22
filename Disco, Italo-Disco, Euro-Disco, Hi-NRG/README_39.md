@@ -1,3 +1,32 @@
+###  Публикация: 1490675   (238383) от 21.08.2021
+
+Rod McKuen - Amor, Amor - Slide... Easy In (1977) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amor (5:49)
+02. The Wind Of Change (Aranjuez) (5:27)
+03. Never Been A Horse (3:13)
+04. Don't Drink The Orange Juice (3:16)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E430E83C93F47029F32332E45BBAB7295DD3C060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629295   (238302) от 26.04.2023
 
 VA - Keep It Disco Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
@@ -716,35 +745,6 @@ Slang - Slang (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Space Rock, Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B12729EE8554A840F79CE477A1A04044021F833F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342040   (225394) от 01.12.2019
-
-Margaret Singana - Tribal Fence (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Afrobeat, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Rhythm (3:26)
-02. Why Did You Do It? (3:25)
-03. It's A Man's World (2:52)
-04. Have You Ever Seen The Rain (2:42)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Afrobeat, DiscoПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9AE32EB31A19C31C4534330F620C2D1BBC78FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

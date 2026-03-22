@@ -1,3 +1,32 @@
+###  Публикация: 1169272   (403061) от 27.09.2017
+
+VA - Big Box Store Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues, Lyric>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403061.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Los Lonely Boys - Heart Won't Tell A Lie
+002. Stevie Ray Vaughan - Lookin' Out The Window
+003. Rob Tognoni - Brave
+004. The Joey Gilmore Band - Man Of My Word(   Читать дальше...   )Жанр: Blues, Rock Blues, LyricПродолжительность: 10:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B119ACAACC804850C0B36FA8EC4BB5208BB9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171396   (396671) от 04.10.2017
 
 VA - Trombone Jazz (2016) [MP3|320 Kbps] <Jazz>
@@ -725,35 +754,6 @@ VA - In the Name of the Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F037161CA1F0C0D6751B9BE0490C7ABDBAEC4A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072746   (349731) от 14.11.2016
-
-VA - Romantic Soul Jazz (2016) [MP3|320 Kbps] <Smoot Jazz, Soft Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Tesser & The New Jazz Affair - I Want You to Stay
-02. Alaнde Costa - Pra Tania
-03. Jazz for Study Music Academy - Soft Jazz: Best Background Music
-04. Mazelo Nostra - Smooth Night - Original Mix(   Читать дальше...   )Жанр: Smoot Jazz, Soft JazzПродолжительность: 06:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3392128F27C4B52EAE6F6177AAD52BF197D6D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

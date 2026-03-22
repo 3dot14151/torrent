@@ -1,3 +1,264 @@
+###  Публикация: 926880   (531721) от 11.08.2015
+
+Roz Vitalis - Compassionizer (2007) [WavPack|image+.cue]<Avantgarde, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tragic Fate 07:05
+02. Autumn Of Hypocrisy 03:59
+03. Compassionizer 05:21
+04. Elusive Goodness 04:24(   Читать дальше...   )Жанр: Avantgarde, Prog RockПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB392B74CDFDA8CFD92A9F907715E8C7C37D8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926866   (531715) от 11.08.2015
+
+Roz Vitalis - Patience Of Hope (2012) [WavPack|image+.cue]<Avantgarde, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patience Of Hope 06:44
+02. The Unfading Sun (The Loved Version) 02:50
+03. To Stir Up Your Pure Minds 03:10
+04. Seeds Fell Among Thorns 06:18(   Читать дальше...   )Жанр: Avantgarde, Prog RockПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C12A50BA013B54EBB7B8538D7F25B895A40182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926845   (531625) от 11.08.2015
+
+Roz Vitalis - Lavoro D'Amore (2015) [WavPack|image+.cue]<Avantgarde, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Acknowledgement Day 04:35
+02. Lavoro D'amore 04:35
+03. Unanticipated 05:44
+04. Il Vento Ritorna 04:06(   Читать дальше...   )Жанр: Avantgarde, Prog RockПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18B8B964CA71D20AD5637B03DC49265ECB912ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927604   (524845) от 13.08.2015
+
+Би-2 - #16 Плюс (2014) [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дайте огня (feat. Альянс)
+02. Нэпман
+03. Робот (feat. Yuri Usachev)
+04. Хипстер (nu disco mix by Fun2mass Records)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A24A2C2697A8DCB6D28E0127E6E21D660F054BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559606   (524416) от 25.06.2022
+
+KAUAN - Pirut Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmospheric Black Metal, Post Rock, Funeral Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I (4:59)
+02. II (4:42)
+03. III (5:22)
+04. IV (7:54)(   Читать дальше...   )Производство: Artoffact RecordsЖанр: Dark Folk, Atmospheric Black Metal, Post Rock, Funeral DoomПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970C54112EC9217E49FE07EC0C1C488A04015180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313554   (523644) от 09.07.2019
+
+Ночные Снайперы - Невыносимая легкость бытия (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. разбуди меня (3:03)
+ 02. нелюбовь (3:26)
+ 03. раскаленные (3:40)
+ 04. грустные люди (2:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8C637D13F607EA0FFA1A2BCD51A3D63302FC7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559433   (523480) от 26.06.2022
+
+Виталий Дубинин - Бал-Маскарад (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Бал-маскарад
+03. Бес в твоих глазах
+04. Русский сон(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01FF28EFDECF996C86591FB63E10ACA720FFC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313760   (522961) от 10.07.2019
+
+Stigmata - Калейдоскоп (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Истории (3:14)
+ 02. Цунами (4:22)
+ 03. До девятой ступени (4:23)
+ 04. Сожжённый дотла (4:11)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E012CAF505DD6FF6A58B525F2246D14B16DE7C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313903   (522311) от 11.07.2019
+
+VA - Вечное Лето (2004) [FLAC|Lossless|tracks] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Netslov - Ветер свободы
+02.Найк Борзов - Ангел и змея
+03.LP - Люби
+04.Ундервуд - Покуситесь на президента(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F529B6AD17274E7C49BCC1259AAB17204500A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928862   (521469) от 17.08.2015
 
 АлисА - БлокАда (1987) Remastered /2015, Мистерия Звука/ [FLAC|image+.cue]<Rock>
@@ -493,270 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F9B55ED77CE8EBB72345DDC7C4C943831F76F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315917   (510849) от 22.07.2019
-
-Александр Устюгов & Ekibastuz - Обнуляю (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Обнуляю (3:15)Жанр: RockПродолжительность: 00:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8201214D201267B848FB67BBC1145C6E89E78C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316120   (508906) от 23.07.2019
-
-Ракоший Нелч - Мы (2010) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы (3:53)
- 02. Мы Теряем Силу (3:11)
- 03. Мы с Изумлением Смотрим (5:04)
- 04. Мы Дети Незаконченной Войны (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213033E47911C2463A62A6EFBF5CA233E8B97AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316114   (508901) от 23.07.2019
-
-Ракоший Нелч - Зелёный Альбом (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты Видел (3:58)
- 02. Мир Катится ко Всем Чертям (3:54)
- 03. Власть (3:38)
- 04. Комната с Зелёными Шторами (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4271EB8693414652A0AA09E88DBBBCE3B56C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316121   (508899) от 23.07.2019
-
-Ракоший Нелч - Немного Теплее (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последние Вздохи Июля (3:57)
- 02. Молитва (4:40)
- 03. Хранитель Маяка (3:11)
- 04. Баланс (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:428DC0878B8FB70B4892B8D298C04E8A58A6F9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592616   (508850) от 29.08.2015
-
-Король и Шут - Акустический Альбом (1999) третье издание, ОРТ Рекордс [APE|lossless] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_508850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукла колдуна (03:23)
-02. Наблюдатель (04:44)
-03. Бедняжка (04:10)
-04. Прыгну со скалы (03:12)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316124   (508833) от 23.07.2019
-
-Ракоший Нелч - Религия (2009) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антифашизм (3:19)
- 02. Наши Победы (3:19)
- 03. Христианская Вера (5:07)
- 04. Беда (4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E3E9167517CE604F627CD679A7D5F216508176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316151   (508720) от 23.07.2019
-
-Вася Обломов - Этот прекрасный мир (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rap, Alternative Сhanson>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508720.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Добро пожаловать
-2. Двери закрываются
-3. Жизнь сложная (feat. Андрей Макаревич)
-4. Недоросль(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D31E9272D7E821A75442F3CAB436C48BEB6A665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538771   (508501) от 24.08.2012
-
-V.A. - A Tribute to Чёрный Обелиск XXV (2012) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biorate - Нервы (4:35)
-02. П.оС.Т. feat Михаил Сидоренко - Земля К Земле (4:41)
-03. Sphinx - Странная Песня (6:01)
-04. Троя - Сука (разговоры ...) (2:53)
-05. Ветви Прошлого - Пепел (3:37)
-06. Nortia - Капли Дождя (3:59)
-07. Волчья Сотня - Исход (4:44)
-08. Санктум - Другие Герои (3:55)
-09. Атом-76 - Прощай И Прости (4:06)
-10. Вольная Стая - Рок Стар (3:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932681   (507729) от 30.08.2015
-
-Ленинград - Пираты XXI Века (2002) [FLAC|image+.cue]<Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестой студийный альбом ска/панк-рок-группы «Ленинград». «Пираты XXI века» стали одним из самых успешных альбомов группы. Песня «WWW» вывела Ленинград на вершину хит-парада «Чартова дюжина», на неё был снят анимационно-коллажный клип.01. WWW
-02. Бл*ди
-03. П*дарасы
-04. Комон Эврибади(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B691549B70140E6FED82591362C38E5618BBF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1032117   (646173) от 07.07.2016
+
+VA - Mykonos Summer Guide (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sir Felix - Maybe (feat Hero Baldwin - Nora en Pure Extended Vocal Mix)
+02. Sons Of Maria - Feels Like Summer (Radio Mix)
+03. Me & My Toothbrush - Living for the Moment (Radio Mix)
+04. Croatia Squad & Lika Morgan - Make Your Move (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2433CC04F84D760723E59247C6E3F4AC8D6B7398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032312   (646169) от 07.07.2016
+
+VA - Baila Verano (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toni G - Indiana (Original Mix) (feat. Nayma Bustamante) (03:18)
+02. Miguel Saez - Traketea (Original Mix) (03:11)
+03. Mario Mendes - Pa La Disco (Original Mix) (03:36)
+04. Mr. Padi - Vamonos Pa La Playa (Radio Edit) (feat. Yamil) (03:49)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEC96670F0312E325D70106888D34428D3753F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032418   (646166) от 07.07.2016
+
+VA - Masters of Chillhouse (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiffre 100 - Take a Chance
+02. Rhythmphoria - Reverse Sights
+03. Chillelektro - Cassis
+04. Rey Salinero - Jerez de la Frontera(   Читать дальше...   )Жанр: HouseПродолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EABF4C01B803BD429EB2C2467F66A8A015B36C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032227   (646164) от 07.07.2016
+
+VA - Ibiza 2016 - Hot Tunes Vol.1 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daviddance - Just You (Remastered version)
+02. Mauro Cannone & Daviddance - No More (original mix)
+03. Mauro Cannone & Daviddance - Trumpet Tromba (original mix)
+04. Hakan Dundar - All We All(   Читать дальше...   )Жанр: HouseПродолжительность: 02:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E220743FC54FAFC7C9DC979255E784C3C5BDA2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032132   (645955) от 07.07.2016
+
+VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocketpunk - The Warning Wheel
+02. Dr. Ruth - Piano Sonata (Benny Knox Remix)
+03. Circuito Zeta - En Directo
+04. Mario Sacco DJ - Frenesia(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906367   (645539) от 08.06.2015
 
 VA - Ibiza Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
@@ -612,157 +757,6 @@ CD1: 01:09:42
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45D82941522116EB2ED1689DFE6FD454B4B7C67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143447   (635507) от 18.06.2017
-
-VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJGus - Sky Passage
-02. Psychopathic - X File
-03. PhiNek - Savage
-04. Stephen Barcella - Strong(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7974AD1CE7A23B1ABC670D67A78AD67C8115DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143463   (635384) от 18.06.2017
-
-VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 Kbps] <House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635384.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Housework - Loose My Mind (Hypnotic Slide mix) (06:20)
-2. Cachar - Don't Stop The Houseparty (The Rough cut) (07:48)
-3. Cinematic - Airflow (Chillhouse mix) (07:05)
-4. Adriatic Grooves - Zoom Zone (Ibiza Flow mix) (06:25)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 06:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B072089AA96B4693CDDB53A9D31C45B7D06308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034054   (634367) от 13.07.2016
-
-VA - A House Is Not A Home Without A Dog #01 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634367.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roland'Sousa - Feeling This Music (7:19)
-2. Andy Caz - Morning Theme (8:11)
-3. Fragoso - Mint (7:28)
-4. Ruben B Goode - Mind & Soul (6:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A1829ECAF64FA48A3BE657C90B842618C6A4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519134   (633884) от 08.07.2012
-
-VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazem Beltagui - Macarize (Intro Mix) 06:36
-02. Alandanat - Voyager (Original Mix) 07:08
-03. Outlook - Airplane (Original Mix) 06:30
-04. Aleksey Yakovlev - Space Odyssey (Original Mix) 07:08
-05. Eximinds - August (Original Mix) 07:56
-06. Mick Elsa - Significant Others (Original Mix) 08:07
-07. Vitodito - Pisha (Original Mix) 06:42
-08. Allan V. - What If (Original Mix) 07:56
-09. Michael Elliot - Pool Splash (Original Mix) 08:00
-10. Domestic Technology - Californian (Original Mix) 05:44Жанр: Progressive HouseПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB4446902292901A5084B5B1F4D23F22B097AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907606   (633864) от 14.06.2015
-
-VA - Deep House Ibiza - Vol 1 (2015) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pirupa - I can C through U feat. Manuela - Original Mix (06:16)
-02. Barbara Tucker - You Want Me back - Paolo Madzone Zampetti 2015 Vibe Rmx (06:40)
-03. BAG - Back It Up feat. Taka Boom - Rickie Snice Rmx (06:25)
-04. Paolo Madzone Zampetti - Close Your Eyes - Original Mix (07:03)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7A75A9D9011322EEC53C8F01CCCB1B633C458
 ```
 
 https://mybot314.ru/tekegram_catalog/

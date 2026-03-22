@@ -1,3 +1,147 @@
+###  Публикация: 1181188   (323507) от 07.11.2017
+
+David Bowie, Reeves Gabrels, Xavier Despas - Omikron: The Dreamers (Omikron: The Nomad Soul OST) (2000) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction
+02. Omikron
+03. Anekbah
+04. Ganhar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5C499B112B75489064C01F4C97D2DFD25313EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181062   (323498) от 07.11.2017
+
+Olga Stankevich (Ольга Станкевич) - Dreamway (2011) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contiguity (Соприкосновение)
+02. Path Towards the Dream (Путь к мечте)
+03. Downtown Ballet (Городской балет)
+04. Etude (Этюд)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B191176DA43508DC0F0CE5044A1E28236E23CD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074988   (323446) от 21.11.2016
+
+VA - Скалолазка и Последний из Седьмой колыбели (2007) [MP3|128 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ёлка - Три пути
+02. Мурат Насыров - Алена (Восточная мелодия)
+03. Bond
+04. Военная(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473264FAC93E1C2400FCC231A32DF5D6CF73BABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075029   (323436) от 21.11.2016
+
+Loretta Lynn - White Christmas Blue (2016) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Christmas Blue (02:48)
+02. Country Christmas (02:25)
+03. Winter Wonderland  (02:25)
+04. Away in a Manger (02:51)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F32076F80DE26CCAED3720F6CDB768DF8B91A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181345   (323363) от 07.11.2017
+
+Olga Stankevich (Ольга Станкевич) - Дискография (2010-2014) [MP3|320 Kbps] <Instrumental Pop, Piano, Experimental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inspiration (3:39)
+02. Inspiration (Justin Fry Radio Edit) (4:00)
+03. Inspiration (Justin Fry Extended Mix) (6:13)Жанр: Instrumental Pop, Piano, ExperimentalПродолжительность: 02:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3496A52A2067D956E2CB0F691CC45392B27885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181326   (323361) от 07.11.2017
 
 VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -605,145 +749,6 @@ The O’Neill Brothers - An O’Neill Brothers’ Christmas: Relaxing Piano (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2F627AA5283B3E04F80A3EC69DD398F14FDC974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259748   (316632) от 05.11.2018
-
-Monica Williams - Journey of Tears (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raining Tears (5:05)
-02. Conversations Within (3:54)
-03. New Horizons (3:45)
-04. Unconditional Love (2:36)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9E3D8DC90CF9DC24C143DBC7593264343FC387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259967   (316589) от 05.11.2018
-
-Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethnic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Sky (03:39)
-02. Lakota Lullaby (05:52)
-03. Before Dawn (05:24)
-04. Sanjuan Wayanay (04:28)(   Читать дальше...   )Жанр: Native american, Ethnic, WorldПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28B3B077F85FE63E4EE42BA55CB1D0E929EAA4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264787   (315882) от 01.12.2010
-
-Ennio Morricone - Deluxe Edition 2CD (2006) [APE|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:19:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265016   (315727) от 01.12.2010
-
-VA - Ocean Music Love. Best Relax And Sex Music (2010) [MP3|128-256 kbps]<Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RelaxПродолжительность: 08:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B327FEEB3CB5E0963A8B1B52317E39ECC0D4E2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421981   (315126) от 06.11.2020
-
-Ennio Morricone - Morricone Segreto (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание, охватывает творческий период конца 60-х – начала 80-х годов. В основе сборника - малоизвестные экспериментальные и новаторские работы Мастера написанные для кино, в числе которых семь ранее никогда не издававшихся произведений.01. Vie-Ni (From «Quando l’amore è sensualità»)
-02. Fantasmi grotteschi (From «Stark System»)
-03. Vita e malavita (From «Storie di vita e malavita»)
-04. Tette e antenne, tetti e gonne (From «La smagliatura»)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EEACDFF4142686D8F7872873AD1B08B6E7A326
 ```
 
 https://mybot314.ru/tekegram_catalog/

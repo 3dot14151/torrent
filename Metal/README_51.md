@@ -1,3 +1,119 @@
+###  Публикация: 911389   (616578) от 23.06.2015
+
+Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Disturbed Unconscious Mind
+2. Fallen From The eye
+3. Nothings Gonna Change
+4. Mad Happiness(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05E4345D8013584EBB19CBE94A53D3407EEFA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911208   (616577) от 23.06.2015
+
+Rosetta - Quintessential Ephemera (2015) Japanese Edition [MP3|320 кб/с]<Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Funeral
+02. (Untitled I)
+03. (Untitled II)
+04. (Untitled III)(   Читать дальше...   )Жанр: Post-MetalПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4744BDEA9DB0880B95308ECB3BA31BADEE248419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911336   (616576) от 23.06.2015
+
+Downfall - A Place In Existence (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning Of The End
+02. Lights Out
+03. Mutual Demise
+04. My Path(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74289C3EC212D7BE2D9DC69491CD917B74BA1A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911204   (616574) от 23.06.2015
+
+Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addiction
+02. Mirror Of Pain
+03. Ascension: 6 To 7
+04. Apophis(   Читать дальше...   )Жанр: Traditional Doom MetalПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62126E4AE47C18998514A42B9B8324A64B933DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911376   (616572) от 23.06.2015
 
 Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
@@ -629,122 +745,6 @@ Tulsadoom - Storms Of The Netherworld (2015) [MP3|320 кб/с]<Black Metal, Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FA59290417BC8B5F82DF79C94A32D73B2A22340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911891   (612919) от 25.06.2015
-
-Telergy - 3 альбома (2011-2015) [MP3|192-320 кб/с]<Epic / Symphonic / Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into The Past
-2. Enslavement
-3. Pleading
-4. Plagues(   Читать дальше...   )Жанр: Epic / Symphonic / Progressive MetalПродолжительность: 03:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE91CCE6E5D8C14585985D977E49BC8A4F52D357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911704   (612811) от 25.06.2015
-
-Chaos Synopsis - Seasons Of Red (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Burn Like Hell
-2. Gods Upon Mankind
-3. The Scourge Of God
-4. Red Terror(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED916B9D6D788F247B67F221115CDB7FC4CA8FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912341   (612797) от 25.06.2015
-
-Sinister - Dark Memorials (2015) [MP3|320 кб/с]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Malicious (Intro)
-02. Beneath The Remains (Sepultura Cover)
-03. Exhume To Consume (Carcass Cover)
-04. Unleashed Upon Mankind (Bolt Thrower Cover)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D810B450C00205F845F1CF9FA49D56AFE15559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912022   (612567) от 25.06.2015
-
-Thy Art Is Murder - Holy War (2015) [MP3||~245 кб/с (V0)]<Technical Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolute Genocide (04:26)
-02. Light Bearer (03:56)
-03. Holy War (04:01)
-04. Coffin Dragger (Feat. Winston McCall Of Parkway Drive) (02:56)(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1757E4E131705FF5C6E21E3D7842C1DF3FA8268
 ```
 
 https://mybot314.ru/tekegram_catalog/

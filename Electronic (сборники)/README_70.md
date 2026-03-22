@@ -1,3 +1,90 @@
+###  Публикация: 1018595   (756032) от 20.05.2016
+
+VA - Wine Lounge, Vol. 3 (25 Bar Lounge Tunes) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblique Style - Relax Yourself (Baia Mix) (05:30)
+02. Adrienne Gowan - Sunrise (04:04)
+03. Danny Hay - By and By (Fantastic World Mix) (05:48)
+04. Zip Love - Replace (Melbourne Mix) (04:14)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119B5F3DB959AB13C797F8F9692B531F01BA77C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018582   (756031) от 20.05.2016
+
+VA - Pictures Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - On the Lake
+02. Don Gorda Project - Daydreaming
+03. Baghira - Way Too Long
+04. Aquarius - Fly Away(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96366B994DFD5A2D0BA4C164602B1DB8F91EF882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018514   (756021) от 20.05.2016
+
+VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756021.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Lounge Unlimited Orchestra - Violet
+002. Xeno Sound System - Free Run
+003. MrV - Sunset Landscapes
+004. Dario J - The Lounge Again(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53230EFAB216FA6C4F01E3E5B683C48B8032DD79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018388   (756016) от 20.05.2016
 
 VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -659,93 +746,6 @@ VA - Cosmic Machine (2013) [MP3|320 кб/с] <Electronic, Experimental, Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C10853AF061561C8817E60CFCA91807E0684ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018999   (752331) от 22.05.2016
-
-VA - Sun Revelation: Relax Edition (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752331.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gjc - On the Floor - Chill Version
-002. Sun & Sadness - On a Beach - Sexy Sunset del Mar Mix
-003. Jarome Adam - Apue (Chilling Mix)
-004. Amy More - Brighton Beach Dreams(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF7AFCB036FC71A528D41B32292EBD2065C908F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019025   (752328) от 22.05.2016
-
-VA - Electroshock Vol. 07 (2016) [MP3|320 кб/с] <House, Electro House, Trance, Electrorock>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VNV Nation - Lost Horizon 5:17
-02. Solitary Experiments - Delight 4:49
-03. SITD - Purgatorium 5:54
-04. Nachtmahr - Tanzt Fur Mich 4:34(   Читать дальше...   )Жанр: House, Electro House, Trance, ElectrorockПродолжительность: 03:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18EA39CAC6EBEAA46C640E1DDECFB67CFE33422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019358   (752265) от 22.05.2016
-
-VA - Trance 100 Symmetry Nostalgic (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Markus Schulz Ft Lady V - Erase You (Omair Mirza Remix) 6:08
-002. Arman Dinarvand & Bager - Hope (Astuni Re-Lift) 6:51
-003. Chris Schweizer - Scorpion (Extended Mix) 5:55
-004. Ben Gold - Im In A State Of Trance (Asot 750 Anthem) (Extended Mix) 7:44(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 11:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5057FD9C67377E6BCF404C5397660545EF0D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

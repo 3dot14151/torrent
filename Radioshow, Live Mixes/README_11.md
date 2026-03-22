@@ -1,3 +1,90 @@
+###  Публикация: 1312596   (530957) от 05.07.2019
+
+Daniel Lesden - Live @ Night Terrace, Aglomerat Moscow, Russia 2019-06-28 [MP3|320 Kbps] <Trance, Progressive House. Psy Trance>>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Cell – Mute The Silence (Pacco & Rudy B Remix)
+02. Ewan Rill, K Loveski – Elau (Subandrio Remix)
+03. Ivanshee – Serpantine (Luciano Scheffer Remix)
+04. San – Ultima Thule (Matan Caspi Remix)(   Читать дальше...   )Жанр: Trance, Progressive House. Psy TranceПродолжительность: 02:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5E02588A8DE4E3F6A5D7D316E60457D818AFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558658   (530184) от 21.06.2022
+
+39 Kingdom - Live @ Curonian Spit, Russia (2022-05-29) [MP3|320 Kbps] <Progressive House, Deep House, Indie Dance, Nu Disco>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goom Gum - Aposch
+02. Anturage & DJ Skif & Ira Ange - La Cassette
+03. Anturage & Alar - Singapore
+04. Airsand & TuraniQa - Take You Home(   Читать дальше...   )Жанр: Progressive House, Deep House, Indie Dance, Nu DiscoПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EEFD7E8A9B052F304525CC88BDA21BD530702B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558482   (530081) от 21.06.2022
+
+David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2022-06-12) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix) (Intro Edit)
+02. Shouse - Love Tonight (David Guetta Remix)
+03. Eurythmics - Sweet Dreams (David Guetta Remix)
+04. David Guetta ft. Ne-Yo & Akon - Play Hard (David Guetta & MORTEN Future Rave Remix) w/ Tiësto - The Business (Acappella)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD227A3CFEAF8AF069A07CDA5057820AA2611D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558434   (528856) от 22.06.2022
 
 Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 Kbps] <Big Room>
@@ -653,93 +740,6 @@ DubVision @ S2O Songkran Music Festival Korea, South Korea 2022-07-10:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D404249E1B34B47FDF0964EA70AFCEAAF99300FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563958   (501573) от 17.07.2022
-
-Tiesto - Big Beat Radio 200 (Hot In It Summer 2022 Mix) (2022-07-11) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto & Charli XCX - Hot In It
-02. Imanbek & BYOR - Belly Dancer
-03. Sigala - Melody (Tiësto Remix)
-04. Obskür - In Da Club Quarantined X(   Читать дальше...   )Жанр: Dance, Electro Pop, Tech HouseПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826EEE632556A5F14F897D4AB7EAD1D0F862974A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317899   (492849) от 07.08.2019
-
-Paul Denton - Live @ Trance Room, Bahrein Club Buenos Aires, Argentina 2019-06-22 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key4050 - Intersect
-02. Mike Oldfield - Far Above The Clouds (Jam & Spoon Deep Inside The Club Remix)
-03. Ruben de Ronde & PROFF ft. Deirdre Mclaughlin - Fade Away With Me (Key4050 Remix)
-04. Paul Denton - Curtain Call(   Читать дальше...   )Жанр: TranceПродолжительность: 02:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732798C780E766532790C040CAF31747244129DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158807   (490183) от 17.08.2017
-
-VA - Ori Uplift & Kevin 3Ngel - Uplifting Only 235 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.BREAKDOWN OF THE WEEK: Suplifth - Victory (AirLab7 Remix)
-02.PRE-RELEASE PICK: New World - Ikigai
-03.Follow Focus - Synchronous Idle (EXCLUSIVE PREMIERE)
-04.James Kelly & Craig Johnstone - Return To Reality(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC21A01AD96DA8A279E984767E8376FF655AA2D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

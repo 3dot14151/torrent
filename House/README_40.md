@@ -1,3 +1,148 @@
+###  Публикация: 1302286   (581308) от 15.05.2019
+
+VA - Vintage Deep House '19 (2019) [MP3|320 Kbps] <House, DeepHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Carroll - In Da House (Original Mix) 4:58
+02. Kevin Fishler - What Is House (Original Mix) 4:38
+03. Sebastian Grey - Lets Move On (Original Mix) 4:57
+04. Soul Masters - Look Back (Original Mix) 4:40(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 03:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B197456BA8EA943E23134EC35FFE7ECCEF90B23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041928   (580592) от 11.08.2016
+
+VA - La Nuit (Delicious Chill House Lounge Vol 2) (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Mar y carino (Eivizzards Mix) (6:22)
+02. Hein+Klein - Sylt (7:03)
+03. Mark Oakland - Something Beautiful (5:27)
+04. Aandra - Sunset Deep (5:34)(   Читать дальше...   )Производство: KarmawhiteЖанр: Deep House, Chill HouseПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95A045825AE33341034C8490AF890BDAFE575D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042064   (580587) от 11.08.2016
+
+VA - Poolside Ibiza (Mixed by Ghassemi & Televisor) (2016) [MP3|320 Kbps] <Electro House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghassemi - Saturate (Feat. River) 03:49
+02. Televisor - Sound Of Love (Feat. River) 02:58
+03. Satin Jackets - Feel Good (Feat. Scavenger Hunt) (Keljet Remix) 04:38
+04. Sneaky Sound System - All I Need (Club Mix) 05:40(   Читать дальше...   )Жанр: Electro House, Deep HouseПродолжительность: 05:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F6A59C82376B9DF938463767AB3EDE0AB93D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042309   (579594) от 12.08.2016
+
+VA - Anjunadeep In Ibiza 2016 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yotto - The Owls (07:56)
+02. Cubicolor - Mirror Play (05:57)
+03. Way Out West - Tuesday Maybe (I:Cube's Sunrise Remix) (07:11)
+04. Lane 8 - Fingerprint (06:45)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69F49DA09CCBD8B4AC5CE427A3FB1C05C5BFB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042744   (578516) от 13.08.2016
+
+VA - Super Duper Deep House Tunes Vol.4 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funkadeluxe - Insanity - Waxston & Astoria Mix
+02. Patrick Bee - Down and Deep - Monroe & Johnson Mix
+03. Faber Vegas - Sleep Walk - Tenerife's Beats Mix
+04. Lola's Park - Memories - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB85CB88349F8823CC833B27BC8AF4998F505076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042759   (578511) от 13.08.2016
 
 VA - Soulful Deep and Groovy Vol.3 (2016) [MP3|320 Kbps] <Deep House>
@@ -612,151 +757,6 @@ VA - Poolside Tech House Sundays, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580CA89F6B75F5EC6752571CF64C88C279D590EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234533   (571032) от 05.07.2018
-
-VA - The Fitness Series, Vol. 3 (2018) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley Walters - Soundcheck (Shock-Force Remix) 07:39
-02. Audio Hedz - Just Another (Original Mix) 08:31
-03. Noath - The Cataclyms (Original Mix) 06:41
-04. Systemic Noise - The Devil (Original Mix) 07:20(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 06:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0B7151B6400222EAAF7A250141192475DBF522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151903   (570198) от 20.07.2017
-
-VA - Tomorrowland 2017: Amicorum Spectaculum (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren - Tomorrowland 2017 Continuous Mix  34:55
-02.  Dimitri Vegas & Like Mike - Tomorrowland 2017 Continuous Mix  26:24
-03.  Lost Frequencies - Tomorrowland 2017 Continuous Mix  30:25
-04.  Martin Garrix - Tomorrowland 2017 Continuous Mix  30:34(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 07:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040EFFC4D3AE3532A1ED64B42712C079FE2392CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303762   (570082) от 22.05.2019
-
-VA - Deep House Hits: Ibiza 2019 – Armada Music (2019) [MP3|320 Kbps] <House, DeepHouse, ClubHouse, ProgressiveHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies feat. Flynn - Recognise 03:06
-02. Zack Martino - Mood 02:48
-03. Garibay - Phone Down 03:12
-04. Kokiri feat. Joe Killington - Friends 02:59(   Читать дальше...   )Жанр: House, DeepHouse, ClubHouse, ProgressiveHouseПродолжительность: 02:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A0E8E4BAA95D507DF6D72FE3B94D39C7200BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234540   (569288) от 06.07.2018
-
-VA - Sports Music City Edition (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dayana - Camuto 03:10
-02. Cymbal - Dation 03:10
-03. Corteza - Scent 03:10
-04. Clickbank - Eternal 03:10(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2200930CE7F1FC47445D3CA4350CA81F941ACA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152126   (569017) от 21.07.2017
-
-VA - Ready For Summer 2017 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony La Porte - Out Of Thrill (original mix) (06:04)
-02. Wild Dee - Sunny (original mix) (04:29)
-03. Softmal & Rey Vercosa - Quer Danone (original mix) (06:30)
-04. Nytron & DJ MauMau - Hit The Flow! (original mix) (05:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79615D25588483CE9BB969FF9BB1CC88150C095
 ```
 
 https://mybot314.ru/tekegram_catalog/

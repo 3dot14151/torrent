@@ -1,3 +1,148 @@
+###  Публикация: 1775045   (29889) от 24.01.2025
+
+VA - Winter Car Music Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VOLB3X - Don't Leave Me (2:42)
+02. SEEAR - Hanuma (2:05)
+03. Hylost - Nomad (2:46)
+04. MIRAC SARI - Lost (2:37)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381752A302FDFFDF766C33980C95F125A7E597D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775883   (29499) от 28.01.2025
+
+VA - Fitness Motivation 50 Hits to Get You Started 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - Hot In It (feat. Charli XCX) (2:09)
+02. David Guetta - Forever Young (2:36)
+03. Robin Schulz - Only Way Is Up (feat. Izzy Bizu) (2:29)
+04. Madonna - Hung Up (5:37)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64863AD94FF34041CBA16969C4B7CD96536D162A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780230   (27306) от 17.02.2025
+
+Blond:ish - Never Walk Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Walk Alone [00:03:08]
+02. Can't Let You Go [00:02:34]
+03. Self Love [00:02:52]
+04. Shout It Out [00:03:08](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4BDA5699778D916CEB88B7EA9E42774046F878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780794   (26993) от 20.02.2025
+
+VA - BC2 Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Baffa - Geminis (Dany Dz Remix) [7:30]
+02. Thomas Ferell - Ghostship (Original Mix) [8:00]
+03. Nikola Jovanovic - Amnesia (Original Mix) [7:11]
+04. AOVA - Tavernia (Original Mix) [7:35](   Читать дальше...   )Жанр: HouseПродолжительность: 08:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077577D9C4A26C012C215E876E4388C93E64FA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780928   (26991) от 20.02.2025
+
+Dionigi - Space Disco (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Di Di Disco (6:34)
+02. Space Sequencer (5:45)
+03. Kevlar Sequencer (4:55)
+04. Base 80 (8:08)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 01:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E8EF4F9A012BF23FE1997BD58C6B097AC3E438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781611   (26570) от 24.02.2025
 
 VA - House Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -599,148 +744,6 @@ State Azure + Data Rebel - Core (2025) EP [FLAC|Lossless|Web-DL|tracks] <Techno,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1388AF2A19F6D47F8A7AB33935FA484CA170CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800311   (15831) от 02.06.2025
-
-VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. V-Sta - Highend Fashion (Original Mix) [5:20]
-02. Filizola - Get Me (Original Mix) [5:47]
-03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
-04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9066A12A3888F4ACAE6030217392BD83B7D83CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800439   (15730) от 03.06.2025
-
-VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex A - Solar (Stream Edit) (3:15)
-02. Jerry Ropero - In Time (6:36)
-03. Hi.5 - Right Now (Extended Mix) (5:38)
-04. W.A.N. - Bay Of Love (Thomas Montevideo Remix) (9:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171449BC84C52C94292EEC78B072F1BE68C87900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800558   (15664) от 04.06.2025
-
-Anyma - The End Of Genesys (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucente (1:53)
-02. Voices In My Head (2:26)
-03. Hypnotized (3:00)
-04. Taratata (3:22)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6DA0DCFB96ECEB8D6B49F48D9C0751A03FD037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800583   (15657) от 04.06.2025
-
-Filatov & Karas - Collection (2014-2025) [FLAC|Lossless|tracks] <House, Deep House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filatov & Karas - Ты Всё Ещё Снишься (03:46)Жанр: House, Deep House, Electro HouseПродолжительность: 05:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C598B625FEB20F75CCB4A34BBF794E26F575E33F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800732   (15438) от 06.06.2025
-
-Robin Schulz - Uncovered (2017) [FLAC|Lossless|image + .cue] <Electronic, Dance-Pop, Tropical House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [2:08]
-02 - Unforgettable (with Marc Scibilia) [3:46]
-03 - Shed A Light (with David Guetta & Cheat Codes) [3:13]
-04 - Oh Child [3:18](   Читать дальше...   )Жанр: Electronic, Dance-Pop, Tropical HouseПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F5C8B22DEC4AC4D43C464896AF14966D6DD37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1647972   (208281) от 22.07.2023
+
+Blur - The Ballad Of Darren (2023) Deluxe Edition [FLAC|Lossless| tracks+.cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad (3:37)
+02. St. Charles Square (3:55)
+03. Barbaric (4:09)
+04. Russian Strings (3:38)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D7CFC8EBB684B425D3448CD9D1602DAD778AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615758   (206312) от 27.02.2023
+
+Gorillaz - Cracker Island (2023) Deluxe Edition [FLAC 2.0|44.1/48/24|WEB-DL|tracks] <Alternative-Rock, Trip-Hop, Leftfield, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_206312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracker Island (feat. Thundercat) (3:34)
+02. Oil (feat. Stevie Nicks) (3:50)
+03. The Tired Influencer (3:31)
+04. Silent Running (feat. Adeleye Omotayo) (4:26)(   Читать дальше...   )Жанр: Alternative-Rock, Trip-Hop, Leftfield, ElectronicПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155B7630E2AD3F1F0CD1AE1F8A9F2D368357E1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583496   (205854) от 15.10.2022
+
+Alter Bridge - Pawns & Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_205854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This is War
+02. Dead Among the Living
+03. Silver Tongue
+04. Sin After Sin(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2EA0A259011B6E04D5C16C7A6D0A5EE2D826C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654437   (205790) от 21.08.2023
+
+3 Doors Down - Away From The Sun (2002) Deluxe Edition, Remaster, 2023, Universal Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - When I'm Gone (2023 Remaster) [00:04:23]
+02 - Away From The Sun (2023 Remaster) [00:03:54]
+03 - The Road I'm On (2023 Remaster) [00:04:01]
+04 - Ticket To Heaven (2023 Remaster) [00:03:26](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D681DA99D0411B58936E017EF7AC8482458438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654497   (205150) от 21.08.2023
 
 The Offspring - Rise And Fall, Rage And Grace (2008) 15th Anniversary Deluxe Edition, 2023, Round Hill Music (Offspring) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop Punk Rock>
@@ -626,122 +742,6 @@ How About I Be Me - 2012Жанр: Alternative, Pop RockПродолжитель�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C54F6A55ACC42DF1F4D9CF20D68F75E1A6E019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657231   (193155) от 02.09.2023
-
-Mind Swell - Mind Swell (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Beatdown, Deathcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Painted Worlds
-02. Memories
-03. Hands of Fire
-04. Sever the Hand(   Читать дальше...   )Жанр: Beatdown, Deathcore, HardcoreПродолжительность: 00:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0769CD553093C8328E25384739C51E4737815879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657197   (193117) от 02.09.2023
-
-Sprain - The Lamb as Effigy (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Post-Hardcore, Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man Proposes, God Disposes [00:07:09]
-02. Reiterations [00:06:42]
-03. Privilege of Being [00:05:28]
-04. Margin For Error [00:24:36](   Читать дальше...   )Жанр: Noise Rock, Post-Hardcore, Experimental RockПродолжительность: 01:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8948E64657E03B6B49459B60177DF795780A019F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587225   (193019) от 30.10.2022
-
-Dr. Acula - Dr. Acula (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epilogue [00:01:00]
-02. Apotheosis [00:01:47]
-03. The Abominable Snowman of Pasadena [00:02:36]
-04. How to Kill a Monster [00:02:40](   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12891E0077C0B6F965C223537A32E0538B9C2DA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587236   (192965) от 30.10.2022
-
-The Damned - A Night of a Thousand Vampires (Live in London) (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beauty of the Beast (Live in London) [00:03:45]
-02. Wait for the Blackout (Live in London) [00:04:06]
-03. Plan 9 Channel 7 (Live in London) [00:04:49]
-04. Standing on the Edge of Tomorrow (Live in London) [00:04:15](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 01:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC210CAD1A260E68705CEC9BC1620D6C168DD8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

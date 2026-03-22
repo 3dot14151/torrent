@@ -1,3 +1,32 @@
+###  Публикация: 1265327   (275225) от 27.11.2018
+
+David Boydell - City Music (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Music (4:10)
+02. Jet Lag (3:03)
+03. Tokyo (2:54)
+04. Use Your Body (3:49)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F047F8D0D55E217D48B2373605129620371EBBC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265340   (275224) от 27.11.2018
 
 Loleatta Holloway - Love Sensation (1980) Charly Records, Reissue 1995 [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -713,35 +742,6 @@ VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193865   (261799) от 23.12.2017
-
-VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Elvin  -  Luggi, Luggi, Ludwig  5:26
-02.  First Cut  -  Tell Me Tell Me  7:14
-03.  Thai Break  -  Flowers In The Rain  5:38
-04.  Kenny Masters  -  Time To Fly (Sing My Song)  6:02(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
 ```
 
 https://mybot314.ru/tekegram_catalog/

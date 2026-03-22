@@ -1,3 +1,32 @@
+###  Публикация: 1723491   (55720) от 22.05.2024
+
+VA - Piece of Blues (blues instrumental) (2024) [MP3|320 Kbps] <Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55720.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Jeff Healey Band - Nice Problem to Have [04:50]
+002. Al Kooper, Michael Bloomfield - Albert's Shuffle [06:55]
+003. Good City Music Band - Give You Everything [03:57]
+004. Jimmy Thackery - Blues 'Fore Dawn (Instrumental) [04:54](   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 10:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D163BFB0272FC9BF3E56D0751CF4C15557E4141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728181   (53962) от 08.06.2024
 
 VA - Biker Blues, Hard Times (2024) vol.2 [MP3|320 Kbps] <Blues, Blues Rock>
@@ -716,35 +745,6 @@ VA - Midnight Halloween Jazz (2024) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE6380355C0FBEA92CCAEF88DBBCDDDE0720D2E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758066   (38716) от 31.10.2024
-
-VA - Blues for Autumn Time (2024) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Kloot - Fingerprints [04:33]
-02. Magnolia Electric Co., Jason Molina - Almost Was Good Enough [09:14]
-03. Nine One One - No Love [03:47]
-04. Ghinzu - This Light [04:22](   Читать дальше...   )Жанр: BluesПродолжительность: 05:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C28DBCAE7007B79955921E47B37F13320007452
 ```
 
 https://mybot314.ru/tekegram_catalog/

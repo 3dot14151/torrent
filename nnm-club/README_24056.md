@@ -1,31 +1,24 @@
-###  Публикация: 487360   (100490) от 25.04.2012
+###  Публикация: 1752986   (103897) от 03.10.2024
 
-Before The Dawn - Rise Of The Phoenix (2012) [MP3|256 кб/с]<Melodic Death Metal>
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й.  Ливерпуль (Англия) - Болонья (Италия) (02.10.2024) IPTV [H.264/1080p]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100490.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exordium (1:28)
-02. Pitch-Black Universe (4:44)
-03. Phoenix Rising (4:43)
-04. Cross To Bear (3:30)
-05. Throne Of Ice (6:31)
-06. Perfect Storm (4:43)
-07. Fallen World (4:22)
-08. Eclipse (5:39)
-09. Closure (3:45)
-10. Unbreakable (2012 Version) (Bonus Track) (3:18)(   Читать дальше...   )2012Жанр: Melodic Death MetalПродолжительность: 00:51:32
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Ливерпуль (Англия) - Болонья (Италия) (02.10.2024)
+СУДЬЯ Дабанович Никола (Черногория)
+СТАДИОН «Энфилд» (Ливерпуль)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:46:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:582F7C1D171283879AB3554AE71F1E7E54A3D674
+magnet:?xt=urn:btih:79636CE613441307EA87C366F4181B734C41EFC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +26,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486215   (100485) от 25.04.2012
+###  Публикация: 1753007   (103896) от 03.10.2024
 
-Alpha Kawu - Cryogenic time (2011) [MP3|320 кб/с]<Ambient / Easy listening / Experimental / IDM>
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лилль (Франция) - Реал (Мадрид, Испания) (02.10.2024) IPTV [H.264/1080p]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100485.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Black and white 02:48
- 2. Aufstehen 01:57
- 3. Sirius 06:20
- 4. Frozen Karl-Johans 05:43
- 5. ill gift 01:50
- 6. Kawu Sun 09:16
- 7. Cano Cristales 05:50
- 8. Sennacherib 06:53
- 9. The citadel 04:14
- 10. To nowhere (part one) 07:35(   Читать дальше...   )Жанр: Ambient / Easy listening / Experimental / IDMПродолжительность: 01:15:16
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лилль (Франция) - Реал (Мадрид, Испания) (02.10.2024)
+СУДЬЯ Мариани Маурицио (Рим, Италия)
+СТАДИОН «Вилльнев д-Аск» (Лилль)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:51:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49A796EEF607EFD71F937492289E02186BE247D5
+magnet:?xt=urn:btih:84FAA98C4A3CAE511822C1F2A355E1192892346A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,34 +54,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487620   (100483) от 25.04.2012
+###  Публикация: 1753083   (103895) от 03.10.2024
 
-VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Pop,Dance>
+Виктор Дандре | Портреты с натуры. Анна Павлова (2021) [MP3, Александр Бордуков]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100483.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
-002 Gravitonas - Call Your Name
-003 Matisse & Sadko Vs. Mark Knight - Sveska Got A Love (Duher & D-Frost Bootleg)
-004 Pitbull Ft. Havana Brown - We Run The Night
-005 Baccara - Cara Mia
-006 Atlantica - La Vie Est Belle
-007 Bobina - You Belong To Me
-008 Dj Sandro Escobar Feat. Katrin Queen - Mi Amor (Radio Mix)
-009 Fumin - After Party (Starz Angels Remix)
-010 Vanguarde - Gimme Gimme Gimme (Abba)2012Жанр: Pop,DanceПродолжительность: 07:07:54
+Серия/Цикл: Портреты с натуры.
+Самая знаменитая балерина прошлого столетия  Анна Павлова (1881–1931). В детстве её считали слишком худой и нескладной, в её успех не верил практически никто, никто, кроме самой Анны Павловой. Оказавшись однажды с матерью на балете в Мариинском театре, девочка буквально «заболела» танцами. С мечтами о них она засыпала и просыпалась, (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 12:48:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6DB178260E4FD160ED95E54704907935F9E34B1
+magnet:?xt=urn:btih:E1861476922BD7978C171736A45C0A74691C943F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,34 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487520   (100481) от 25.04.2012
+###  Публикация: 1753001   (103894) от 03.10.2024
 
-VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
+Heart 2 Heart - Alley of Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100481.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. DJ Sergey Fisun - History 2012
-002. David DeeJay feat. Ami - Magnetic
-003. Medina - Gutter
-004. Robert M And Dirty Rush - Heart Of You (Radio Edit)
-005. Ne-Yo - She Uses Me (Masturbation)
-006. Linkin Park - Wretches And Kings
-007. Maroon 5 Feat. Christina Aguilera - Moves Like Jagger (Bit Error Radio Mix)
-008. Ronski Speed feat. Renee Stahl - Out Of Control (club mix)
-009. Chuckie feat. Gregor Salto - What happens in Vegas
-010. Deepside Deejays - Never Be Alone (Radio Edit)(   Читать дальше...   )2012Жанр: Pop. DanceПродолжительность: 06:55:43
+01. The Arrival (0:22)
+02. Alley of Dreams (4:06)
+03. Carles Salse - 2.000 Miles (3:53)
+04. Stay (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E69D30F858E998FFAAD013A088F011D4851EEAAE
+magnet:?xt=urn:btih:6D5C92839C451374F1E9C84E7C71A13189B4C3A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,25 +110,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487934   (100478) от 25.04.2012
+###  Публикация: 1753088   (103893) от 03.10.2024
 
-Wise Registry Cleaner 7.16 Build 454 Final + Portable [Multi(Rus)]
+Игорь Грабарь | Портреты с натуры. Валентин Серов (2023) [MP3, Александр Бордуков]
 
->>Архив торрентов
->>Архив Программ
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100478.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Registry Cleaner - бесплатная утилита для чистки реестра Windows. Программа сканирует реестр и ищет в нем некорректную и устаревшую информацию, после удаления которой операционная система работает более быстро. После того, как программа проанализирует проблемы вашей системы, вы можете сами просмотреть каждую найденную неполадку и посмотреть ее детальное описание. Имеется возможность автоматической корректировки таких проблем. Все изменения, внесенные программой в реестр, могут быть отменены за два клика мышью. Также стоит отметить, что интерфейс программы переведен на множество языков, включая русский.Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
+Серия/Цикл: Портреты с натуры.
+Имя великого русского художника прославленного портретиста и одного из крупнейших мастеров европейской живописи XIX века – Валентина Александровича Серова (1865–1911), без преувеличения известно всем.
+Его знаменитые «Девочка с персиками» и «Девушка, освещенная солнцем» одни из самых значимых произведений в коллекции Третьяковской галереи. (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 04:35:51
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B6AD23A7D3F7D5C21BC120F28B206B164C3F2FB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,30 +138,525 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487810   (100474) от 25.04.2012
+###  Публикация: 1753057   (103892) от 03.10.2024
 
-StudioTan - StudioTan (2012) [FLAC|Lossless]<Fusion, Jazz-Funk, Chillout>
+Сатисъ | Сокровенный сердца человек. Жизнь и труды священномученика Серафима (Звездинского) (2001) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заглавием книги стали слова из Послания Апостола Петра: «… сокровенный сердца человек в нетленной красоте кроткого и молчаливого духа» (1 Пет. 3, 4). Житие священномученика Серафима (Звездинского); его труды, собранные в этой книге, являют нам духовный путь святителя, удостоившегося от Господа мученического венца и стяжавшего нетленную красоту кроткого духа. В одной (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6A25306E00A82EE4963E013C28CB30F4EC914C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753061   (103891) от 03.10.2024
+
+Футбол. Лига Чемпионов Online 2024/2025. Основной турнир. Тур 2-й. Обзор матчей (02.10.2024) HDTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов Online 2024/2025. Основной турнир. Тур 2-й. Обзор матчей (02.10.2024)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D2961A730826A1810ADB11EDBA78AFF389DC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753059   (103890) от 03.10.2024
+
+Сатисъ | Три праведницы: схимонахиня Макария, блаженная Матрона Московская, блаженная Любушка Сусанинская (2009) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103890.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о трех праведных старицах, две из которых уже прославлена в лике святых: схимонахине Макарии, блаженной Матроне Московской и Любушке Сусанинской. Все их внешне не яркие жизни были непрерывным служением и прославлением Господа нашего Иисуса Христа и Пресвятой Владычицы Богородицы.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3A57B442045885CA4220730FD0D6200B4F635E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753149   (103889) от 03.10.2024
+
+Walter Smith III - three of us are from Houston and Reuben is not (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. seesaw (6:09)
+02. Gangsterism on Moranish (4:03)
+03. 24 (2:40)
+04. Misanthrope's Hymn (6:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C1CEB95A3C222941FDFEF1FE48DDBDDEBACB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753051   (103888) от 03.10.2024
+
+Свято-Филаретовский институт | Восстань на помощь нам. Молитвы за Россию (2017) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое издание – и сборник уникальных документов по истории нашей страны, и практический молитвослов для всех, кто болеет душой за судьбу России. В книге собраны молитвы, написанные известными иерархами, прославленными святыми Русской православной церкви: патриархами Ермогеном и Тихоном, епископом Афанасием (Сахаровым), святым праведным Иоанном Кронштадтским, (   Читать дальше...   )Жанр: ПравославиеИздательство: Свято-Филаретовский институтФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00120CF7B5521E979C93B954BFF384CF90D9740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753131   (103887) от 03.10.2024
+
+Sleeper's Keep - Tales Beyond the Past (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing the Dream (3:53)
+02. Ascension (4:10)
+03. Ghost Harmony (3:44)
+04. Winter's Call (3:04)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15219A4E248DF15B684B0A693BDA5C33D328FE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753030   (103886) от 03.10.2024
+
+Morgana Lefay (a.k.a. Lefay) - Studio Albums (10 releases) (1993-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Morgana Lefay - шведская трэш/пауэр-метал-группа из Боллнеса. В 1986 году была образована группа "Damage", которая в 1989 сменила название на "Morgana Lefay". В 1997 году группа разделилась, причём право на оригинальное название осталось у одной части, а желание исполнять музыку — у другой. В результате новая группа получила название "Lefay" (   Читать дальше...   )1993 - Knowing Just as I
+1993 - The Secret Doctrine
+1995 - Sanctified
+1996 - Maleficium(   Читать дальше...   )Жанр: Power/Thrash/Groove MetalПродолжительность: 09:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23A1FF9892AF579EFB3DC2FE988F2AC4B90003B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753000   (103885) от 03.10.2024
+
+Glorious Bankrobbers - Rock'n'Roll Church (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock'n'Roll Church (2:42)
+02. Schoolgirl (3:10)
+03. Demolition Boy (2:54)
+04. The Long Drink (2:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4584C73AE047D15E9DB47FBBC760E44AD4E6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753124   (103884) от 03.10.2024
+
+Randall Bramblett - Paradise Breakdown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Down In Our Souls (5:21)
+02. We Had It All The Time (4:55)
+03. Throw My Cane Away (5:03)
+04. Down In The Wilderness (4:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A59BC809CE9DA39FE763E4125C978D5C33270C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753009   (103883) от 03.10.2024
+
+JD McPherson - Nite Owls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine Getaway (2:55)
+02. I Can’t Go Anywhere with You (2:50)
+03. Just Like Summer (3:44)
+04. Nite Owls (3:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D1A22E4E10D72BBE9A9832399802EA3C4607FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753142   (103882) от 03.10.2024
+
+The Wayback Machine - Future History (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Pleasure Knowing You (3:39)
+02. It's Probably Me (3:27)
+03. The Better Days (4:42)
+04. Lost in the Shadow (4:56)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27E117BBC23FB8FDE14733D685D7F94A9036D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753052   (103881) от 03.10.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Штурм (Австрия) - Брюгге (Бельгия) (02.10.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Штурм (Австрия) - Брюгге (Бельгия) (02.10.2024)
+СУДЬЯ Агаев Алияр (Азербайджан)
+СТАДИОН «Меркур Арена (Либенау, Арнольд Шварценеггер)» (Грац)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F98BE8C4D7415C3819B3AFAE557A4EA1DB926C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753135   (103880) от 03.10.2024
+
+Soul Asylum - Slowly But Shirley (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only Thing I'm Missing (2:31)
+02. High Road (3:09)
+03. You Don't Know Me (4:55)
+04. Freeloader (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3A67547012775AF8CC97C93C1FA208DACF03C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753058   (103879) от 03.10.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лейпциг (Германия) - Ювентус (Италия) (02.10.2024) WEB-DL [H.264/720p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лейпциг (Германия) - Ювентус (Италия) (02.10.2024)
+СУДЬЯ Летексье Франсуа (Франция)
+СТАДИОН «Ред Булл Арена (Лейпциг Штадиум)» (Лейпциг)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86076183302B3724D90D6DBFFD41B2A680E011AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753003   (103878) от 03.10.2024
+
+Sonny Stitt - Stitt's Bits: The Bebop Recordings (1949 - 1952) 3CD, 2006, Prestige [FLAC|Lossless|tracks + .cue] <Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pets
-02. Where ever U go
-03. Hot summer
-04. Blues for Sofie
-05. Loungeloop
-06. Ocean drive
-07. Long island
-08. Gino
-09. Time 2 go home
-10. You and me(   Читать дальше...   )2012Жанр: Fusion, Jazz-Funk, ChilloutПродолжительность: 00:48:07
+01. Jeepers Creepers [2:58]
+02. Imagination [3:28]
+03. Cherokee [2:35]
+04. 'Round About One A.M. [3:06](   Читать дальше...   )Жанр: BopПродолжительность: 03:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613DE630808AB96057332009A619561CC8E0AF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753056   (103877) от 03.10.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Динамо (Загреб, Хорватия) - Монако (Франция) (02.10.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Динамо (Загреб, Хорватия) - Монако (Франция)  (02.10.2024)
+СУДЬЯ Осмерс Харм (Ганновер, Германия)
+СТАДИОН «Максимир» (Загреб)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF9CA7CBD4378102B33BBB663C2C0860384D705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753010   (103876) от 03.10.2024
+
+Kant - Paranoia Pilgrimage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Serpent (5:01)
+02. Baba Yaga (3:49)
+03. Book Of Creation (3:18)
+04. Traitor's Lair (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B9D37E5E3D7F24BE024C79A42453E8D13F4622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753281   (103875) от 04.10.2024
+
+K-Lite Codec Pack Update 18.5.7 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103875.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC0F76543929961C3D7E40C170FCBE540E1D0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753198   (103874) от 04.10.2024
+
+Оно слушает / AfrAId (2024) WEBRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_103874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кёртис, сотрудник маркетинговой фирмы, которая собирается продвигать революционный ИИ, соглашается на испытание продукта в собственном доме. Система называется Айа, и через установленные по всему дому датчики она подстраивается под нужды своей новой семьи — Кёртиса, его жены и троих детей. Первоначальный скепсис домашних сменяется восторгом, когда система показывает (   Читать дальше...   )Производство: Великобритания, США / Columbia Pictures, Blumhouse Productions, Depth of FieldЖанр: фантастика, триллерРежиссер: Крис ВайцАктеры: Джон Чо, Кэтрин Уотерстон, Кит Кэрредин, Гавана Роуз Лю, Лукита Максвелл, Эшли Романс, Давид Дастмалчян, Уайатт Линднер, Айзек Бэй, Беннетт Каррен и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:02Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
@@ -199,25 +668,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487994   (100471) от 25.04.2012
+###  Публикация: 1753339   (103873) от 04.10.2024
 
-Disfunktion - Snooki (2011) [H.264/720р] WEBRip
+Сергей Бобунец - Концерт в «Фабрике» (2024) WEBRip [H.264/2160p]
 
->>Архив торрентов
->>Архив Музыкального Видео
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100471.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: TranceПродолжительность: 00:05:33
+Сергей Бобунец показал масштабное сольное шоу «Концерт в Фабрике». Во время выступления были исполнены двадцать пять композиций – хиты группы «Смысловые Галлюцинации» и известные сольные песни музыканта в актуальном звучании. Мероприятие состоялось 1 марта в Екатеринбурге. Альбом вышел в двух форматах – аудио и видео. Впервые у всех появилась возможность увидеть (   Читать дальше...   )Производство: Россия / Творческое объединение Вечно молодой, Teleclub GroupЖанр: концерт, рок, попРежиссер: Василий Устюжанин, Виталий МасловАктеры: Сергей Бобунец, Евгений Никулин, Дмитрий Фоменко, Александр Вольхин, Анна Воробьёва, Мане НагапетянПеревод: Не требуетсяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:02:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83C93425535CC9F8798A11239A3200504186315E
+magnet:?xt=urn:btih:C2075CBD2BF49289BFE97B97676D141B43EEDB02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,574 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488208   (100470) от 25.04.2012
+###  Публикация: 1753443   (103872) от 04.10.2024
 
-VA - The Dance Cube XXXXIII (3 CD) (2012) [MP3|320 кб/с]<Trance>
+Erotica - Serene Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100470.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1 | Продолжительность: 01:15:08
-
-01.  Andrew Wonder - Eleonora (Undercontrol Remix)
-02.  Albert A-Yellow & Bartlett Bros - Analogik (Erick Strong Remix)
-03.  DJ Shy - Mother Love (Ilya Soloviev Light Mix)
-04.  Invalyd - Beat by Beat (Stoneface & Terminal Remix)
-05.  Matt Bukovski - Alterations (Cramp Remix)
-06.  Aaron Camz - Wrong Place, Right Time (Original Mix)
-07.  Chris Turner & Lost Emotions feat Amelia - Rain (Eximinds Dub)
-08.  Tangle & Mateusz - Monumental (Original)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:46:51
+01. Feel (3:55)
+02. Open The Heart (3:00)
+03. Lover and Soul Mate (2:50)
+04. Life del Mar (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8C30C7993310AAA6F861561E3F0C2A4116B02B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488187   (100468) от 25.04.2012
-
-Журнал | Школа гастронома №9 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа гастронома - журнал для тех, кто любит готовить. В каждом номере журнала - кулинарные рецепты с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному шедевру, будь то яичница-глазунья или замысловатый французский соус, иллюстрирован цветными фотографиями. Все рецепты подобраны так, чтобы входящие в них продукты могла позволить себе средняя семья.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C24FED8A479BA40C0741F80DF55334482A4D26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488130   (100466) от 25.04.2012
-
-DJ Kocmoc - Electro Sensation vol.26 (23.04.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100466.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Linkin Park - Somewhere I Belong (Tyler Clark Remix)
-2. Anya vs. Klaas & Bodybangers - Fool Me (DJ Alex Up & Le-Roi Mash-Up)
-3. Ase Of Base - All that she want's (DJ Max Payne remix 2012)
-4. Global Deejays - Hardcore Vibes (Twisted Society Edit)
-5. Igor Bagdasar - Ola-Ola
-6. Groove Coverage feat. Rameez - Think About The Way (Rob & Chris Remix)
-7. Sasha Dith & Steve Madana Ft. Sasha Zvereva - Superboy (Greysound Remix)
-8. Michel Telo - A Se Eu Re Pego (Mr. Da-Nos Bootleg Mix)
-9. Plastik Funk - Ready Or Not (Extended Mix)
- 10. Danko- Московская Ночь (Slash Junior Remix)(   Читать дальше...   )23.04.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5043E2DDD9E9F38254174D8AA5432BA623FDB7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488191   (100464) от 25.04.2012
-
-VA - Dancefloor Matrix 2012 (2012) [MP3|320 кб/с]<Club, House, Dance, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laurent Veix & Eric Sanchez - Love People 2012 (Radio Edit)
-02. DJ RM & Luke Jeferson - Bing Bagaboum (Fred De F Radio Mix)
-03. Joshua Grey & Bernie X & Terri Bjerre - I Need This Rhythm (DTD Remix)
-04. Eric Sanchez - Turn Off The Bass (Radio Edit)
-05. Andrew Phillips - They Got The Funk (Ian Osborn & Jeremy Reyes & Nicolas Francoual Remix)
-06. David Mas - Turn Around (Radio Edit)
-07. Tony Marquez - In Love With The Music (Feat Phylly - Radio Edit)
-08. Chris Luce - Save My Life (Feat Emmanuel Grimaldi - Luke Jeferson Radio Edit)
-09. DJ Crazy - Dreamcode (Feat Vicky Verssace - Bomb Hard Original Mix)
-10. Danny S - Keep Me Hanging On (Klaas Mad Saw Mix)(   Читать дальше...   )2012Жанр: Club, House, Dance, TranceПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBDEAE19F64A1A586C5FF15D0E3157CE52E056C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487615   (100462) от 25.04.2012
-
-VA - Весенняя Атмосфера Танцевальная (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100462.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Градусы - Кто ты (Pheromons Project Radio Edit) (4:26)
-2. Chris Parker - Space 1977 (4:39)
-3. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Radio Edit) (3:03)
-4. Richard Durand feat. Kash - Explode (2:51)
-5. Размер Project - Россия Рулит (Dj Maxsimum Remix Club Mix) (4:55)
-6. Milena - Goroda (MaXimA Radio Edit) (3:29)
-7. Serebro - Mama Lyuba (Gennady Adamenko Remix) (5:08)
-8. Aruba Ice & Cheeky Bitt - Планета Любовь (Denis Kenzo Remix) (6:24)
-9. Вера Брежнева и Потап - Пронто (DJ Miv & DJ Hit Ural Mix) (2:40)
-10. Анна Семенович - Не Мадонна (Dj Vengerov Remix) (3:01)2012Жанр: PopПродолжительность: 06:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B7CD08D1E4021AB828337E9692D1F25854FEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487827   (100461) от 25.04.2012
-
-Fear Factory - Recharger [Single] (2012) [MP3|256 кб/с]<Death Industrial / Groove>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100461.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Recharger2012Жанр: Death Industrial / GrooveПродолжительность: 00:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD4BF189C6D8AAF14890B4B2B5A4D884B48EEC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488161   (100459) от 25.04.2012
-
-Вечерний Ургант. Выпуск №7 (2012.04.25) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5760C0CD263E03E120C077643C5C66199F1F7FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488125   (100458) от 25.04.2012
-
-DJ Kocmoc - Electro Sensation vol.25 (17.04.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100458.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ugostar & Daxto feat. Lyya Rokk - Dont Go (Emanuel Kosh Remix)
-2. Base Attack - Techno Rocker (Dimasound Remix)
-3. Purple Cocktail feat. Anna Star - I'm Alive (Original Mix)
- 4. Markanera Nita - Watching The Sun Go Down (Extended Mix)
-5. Paul Johns - It's Over (DJ Naytove Remix)
-6. Dimasound - Fall in love
-7. DJ DimixeR - We Want Summer (Original mix)
-8. Hotfunkboys feat. Melillavox - Smackdown (DJ Solovey Remix)
-9. Ramada - Clap Your Hands (Ser Twister Remix)
-10. Sergey Forks - Summer Days (Original Mix)(   Читать дальше...   )17.04.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487929   (100457) от 25.04.2012
-
-Журнал | Любимая дача №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6FA900E94A11C7A51DD62B2B13E939873E28F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487796   (100456) от 25.04.2012
-
-Журнал | Простые рецепты здоровья №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для всех, кто стремится быть здоровым. Выпуск посвящён витаминам, их полезным свойствам, а также болезням, прогрессирующих из-за их нехватки.апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4968B6559780BAC13B8F6178E6BD2616AB33A686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487912   (100455) от 25.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1200 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC186262482C6EC934A6A712D1D07D5F685A872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487534   (100453) от 25.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1280х1024 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DF21A4FD51B372C784E19F894B7686184F77F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487549   (100452) от 25.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (25.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 3000х2050
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B699B059F03F59845FB00D98C56838FC4E3FDDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487385   (100449) от 25.04.2012
-
-Lumus - Bacchus Curse (2012) [MP3|192 кб/с]<Gothic Metal/Symphonic Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aoede 01:32
- 02. The Burning Plain 04:44
- 03. Scales Of Justice 05:11
- 04. The Cave 04:21
- 05. Lost Child 04:04
- 06. No Trace 02:51
- 07. Challenge 05:42
- 08. Bacchus' Curse I: Curse 00:59
- 09. Bacchus' Curse II: Possession 04:01
- 10. Bacchus' Curse III: Maenad 04:12(   Читать дальше...   )2012Жанр: Gothic Metal/Symphonic MetalПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFD8B20DF93537965FD14A7B3E6397E9F29A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487677   (100448) от 25.04.2012
-
-Motorcitysoul - Technique (2008) [MP3|320 кб/с]<Deep House, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motorcitysoul - Technique (2008)
-Год: 2008
-Жанр: Deep House, Tech House
-Продолжительность: 01:05:46
-Лейбл: Simple Records
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6497036A572BA4BFEA08079E2B3FD840A61C3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487910   (100447) от 25.04.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100447.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 4
-Название: Nature Desktop Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEB5C0D3ECF2F58005B23523EA8C34D42EFC041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487629   (100442) от 25.04.2012
-
-VA - На Вершине Музыкальных Чартов 4 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100442.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ёлка - Знаки Вопроса
-002. Аника Далински - От Заката До Рассвета
-003. Любэ, Корни И In2nation - Просто Любовь
-004. Джиган - Нас Больше Нет
-005. Вера Брежнева - Ищу Тебя
-006. Пальчики Оближешь - Интрига
-007. Николай Басков - Странник
-008. Aslan Feat. Misty - Знаю, Знаю
-009. Юрий Шатунов - Это Лето
-010. Виа Гра - Алло, Мам2012Жанр: PopПродолжительность: 05:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBBDA8D2206577EAEF275531DC967B9B5204063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488069   (100441) от 25.04.2012
-
-[Wallpapers] Space Wallpapers (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83668095240496819AEC985AE81B24FD47EDCAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487688   (100440) от 25.04.2012
-
-VA - Case One (1999) [MP3|256 кб/с]<Intelligent, Artcore, Jungle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100440.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Case One (1999)
-Год: 1999
-Жанр: Intelligent, Artcore, Jungle
-Продолжительность: 01:11:18
-Лейбл: Secret Operations
-Страна: SwedenКодек: MP3
-Битрейт: 256 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055E7E5D63E15DA40CF0F1849753D8B3B307ADAD
+magnet:?xt=urn:btih:C4BA2958B73372417D6E85941160619B71D6DA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

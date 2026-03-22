@@ -1,3 +1,32 @@
+###  Публикация: 1121285   (800500) от 02.04.2017
+
+Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah and Volmer (04:35)
+02. Nobody Ever Leaves (01:49)
+03. Bicycle (02:00)
+04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121071   (800498) от 02.04.2017
 
 Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -372,6 +401,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 49378   (799510) от 03.04.2017
+
+G.E.N.E. [Полная дискография] [1991-2000] [MP3|160 CBR] <New Age, Ethnic, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_799510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Ethnic, MeditativeФормат: MP3Продолжительность: 59:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273797   (799396) от 03.01.2019
 
 Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
@@ -684,67 +739,6 @@ Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507287   (798447) от 04.11.2021
-
-David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798447.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Wilson (22.09.1945) - американский скрипач и музыкант, известный своими стилизованными аранжировками, как популярной музыки, так и оригинальных композиций. Кроме скрипки играет еще на фортепиано, гитаре, аккордеоне и флюгельгорне. Работал в оркестре Henry Mancini в последние годы его жизни. Его дискография насчитывает десять альбомов, у меня же в коллекции (   Читать дальше...   )01. Everybody Loves Somebody Sometime (4:06)
-02. Am I Blue (3:41)
-03. Go Away Little Girl (4:02)
-04. Come Rain or Come Shine (4:30)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507320   (798415) от 04.11.2021
-
-Clannad - Studio Albums (1973 - 2013) 13 CD [APE|Lossless|image + .cue] <Celtic, Irish Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clannad (Кла́ннад) — ирландская музыкальная группа.
-Музыку Clannad можно охарактеризовать как синтез кельтского фолка, рока, нью-эйдж и джаза. Поют на гэльском (ирландском) и английском языках.
-
-В состав группы входят Мойя Бреннан (Máire Brennan), её родные братья Кирон Бреннан (Ciarán Brennan) и Пол Бреннан (Pól Brennan), и двоюродные дяди Ноэль (   Читать дальше...   )1973 — Clannad (The Pretty Maid)
-1975 — Clannad 2
-1976 — Dúlamán
-1980 — Crann Úll(   Читать дальше...   )Жанр: Celtic, Irish Folk, New AgeПродолжительность: 09:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED50D7A15E5D5F8E5B641A6843E8AA292A09E11
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1390368   (782990) от 15.06.2020
+
+Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alba Mundi: The Sound of the Planets (432 Hz version) (3:07)
+ 02. Life (432 Hz version) (2:46)
+ 03. Stardust - (432 Hz version) (3:18)
+ 04. Perdutamente (432 Hz version) (3:48)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EE87121340583ACD1DC4F37FD22243E75789CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205803   (782852) от 12.02.2018
+
+Armik - Discography (32CD) (1994/2018) [MP3|320 Kbps] <Nuevo Flamenco, Spanish Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Nuevo Flamenco, Spanish GuitarПродолжительность: 03:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6714181B2F524AD5DA0CE9B42B1E5A11728630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390677   (782694) от 16.06.2020
 
 The Byrds - Sweetheart Of The Rodeo (1968) Remastered 1997 [FLAC|Lossless|tracks + .cue] <Folk Rock, Country Rock>
@@ -684,64 +739,6 @@ Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209214   (779125) от 28.02.2018
-
-Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. ODIN SPHERE's Theme [1:48]
-02. Opening Title [0:55]
-03. Attic Archive [3:15](   Читать дальше...   )Жанр: ScoreПродолжительность: 02:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209648   (779089) от 28.02.2018
-
-Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wakanda Origins (01:44)
-02. Royal Talon Fighter (04:01)
-03. Wakanda (02:20)
-04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B386E49946407D2CAC2A9FD5CE600852152D165B
 ```
 
 https://mybot314.ru/tekegram_catalog/

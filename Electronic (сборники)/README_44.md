@@ -1,3 +1,61 @@
+###  Публикация: 1004820   (834840) от 08.04.2016
+
+VA - Miami Electro (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuckie - Burn 04:54
+02. Chuckie - Bang! (feat. Hyper Crush) 04:16
+03. Dirty Audio - Chiefin 03:08
+04. Cut N Slice - Utopia 04:02(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C42D9B6810B281A49A25B4A7A828195F5A8D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004905   (834832) от 08.04.2016
+
+VA - EDM Volume 2 Heads Phone (2016) [MP3|320 кб/с] <Electro House, Big Room, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon (Ltn Remix) 03:20
+02. Third Party & Sentinel - Real Sound (Extended Mix) 05:34
+03. Dj Antoine - Thank You (Paolo Ortelli & Luke Degree Remix) 04:31
+04. Dave Emanuel - You & Me (Original Extended Mix) 04:33(   Читать дальше...   )Жанр: Electro House, Big Room, ProgressiveПродолжительность: 03:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1A26AA00E5D3FB00210959EC10D70C00C14A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005208   (834831) от 08.04.2016
 
 VA - Heavens Waiting: Chillout Session (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -688,64 +746,6 @@ VA - Feeling Good Vol.3 Positive Chill Grooves (2016) [MP3|320 кб/с] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00EC18B8A51187472C90BE3B355F93D67BA63A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005865   (831190) от 10.04.2016
-
-VA - Lounge by Night: The Best Cocktail and Chillout Music for Your Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ajad Samskara - Byron Bay
-02. Clay - Everyday - William Stark Re-Edit
-03. Mike Lucini - Keep on Mambo
-04. Ajad Samskara - The Club(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC28D7CA087F5F6D8F796C4194DA37C7C779BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005751   (831189) от 10.04.2016
-
-VA - Bigroom Club Hits 2K16 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empir3 ft Pit Bailay - Ride Like The Wind (Jane Vogue Remix Edit) 03:16
-02. DJ Schwede - Here We Go Again 2K16 (Naxwell Remix) 04:05
-03. Naxwell - Fade To Grey (Native U Remix) 05:20
-04. DJ Worris - Higher State Of Consciousness (Vortecs Remix Edit) 04:10(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B776FDC10B8A03FC821A78A2640900387DC560D
 ```
 
 https://mybot314.ru/tekegram_catalog/

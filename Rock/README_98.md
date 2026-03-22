@@ -1,3 +1,167 @@
+###  Публикация: 464928   (80980) от 09.03.2012
+
+Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80980.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Продолжительность: 01:16:00
+01. Pictures Of Matchstick Men
+02. Ice In The Sun
+03. Down The Dustpipe
+04. In My Chair
+05. Paper Plane
+06. Mean Girl
+07. Caroline
+08. Break The Rules(   Читать дальше...   )2005Жанр: RockПродолжительность: 02:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC33053F836F39B4773AFB688509ADC49CC2CE2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455788   (77775) от 22.02.2012
+
+Elvis Presley - ELVIS GOLD - The Very Best Of The KING (1995) [MP3|320 kbps]<Rock'n Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77775.jpg" />
+</div>
+
+
+###  Подробнее
+
+ELVIS GOLD - The Very Best Of The KING
+
+DISK 1 - 00:47:11
+
+01. Heartbreak Hotel - 2:11
+02. My Baby Left Me - 2:13
+03. Tutti Frutti - 2:00
+04. Hound Dog - 2:17
+05. Don't Be Cruel - 2:03
+06. Love Me Tender - 2:42(   Читать дальше...   )1995Жанр: Rock'n RollПродолжительность: 1:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6314EC852F4C784DC01F2CD4F4FA472A3B310E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443148   (77055) от 19.02.2012
+
+UFO - Seven Deadly (2012), Too Hot To Handle: The Very Best Of UFO (2012) [MP3|320 kbps]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77055.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Doctor Doctor (Live)
+02. Only You Can Rock Me (7" Version)
+03. Let It Roll
+04. Shoot Shoot (Live)
+05. Too Hot To Handle
+06. Young Blood
+07. Lonley Heart
+08. Let It Rain
+09. When It's Time To Rock(   Читать дальше...   )2012Жанр: Classic RockПродолжительность: 02:37:09 (01:18:19/01:18:50)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B8D185332294957DC173FF4979148687CEC4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453080   (76771) от 17.02.2012
+
+Chris Norman & Suzi Quatro - Stumblin' In (1978-1979) (Singles Maxi 2009) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_76771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stumblin' In (with Suzi Quatro) (03:59)
+02. A Stranger With You (with Suzi Quatro) (03:51)
+03. I Need Your Love (with Suzi Quatro) (05:34)
+04. Stumblin' In (Norman & CC Catch) (04:07)
+05. Stumblin' in (2009) (04:00)2009Жанр: RockПродолжительность: 00:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37A1AFBA2BB2F2FF0E9DA7E0AFC96EB9627E2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770594   (71893) от 06.01.2025
+
+Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine on you crazy diamond [13:24]
+02. Medley time / breath reprise [06:20]
+03. The great gig in the sky [05:35]
+04. Money [08:17](   Читать дальше...   )Жанр: Rock, Alt RockПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396A8FB48DA1B7F7BB03AD8AF3E6A71BC9EC380A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773260   (71670) от 17.01.2025
 
 Blood, Sweat & Tears - Sweet Dreams (Live Amsterdam 1970) (2025) [MP3|320 Kbps] <Jazz Rock>
@@ -600,151 +764,6 @@ Samsara Blues Experiment - 3 Albums (2011-2020) [MP3|320 Kbps] <Psychedelic Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27A4E3FA8F8CBAE8D2FCCEB46F5D1E80A19A4518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802796   (65974) от 19.06.2025
-
-Around The World in 80 Days - Euphoria (2014) [MP3|320 Kbps] <Post-Rock, Ambient, Space-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Last War [5:40]
-02 - Shock [3:15]
-03 - Gravity [5:40]
-04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F5C99149C1B78C0CD449FD2E21C45D596823B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803406   (65856) от 22.06.2025
-
-Obiymy Doschu - Vidrada (2025) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Діти (07:02)
- 02 - На відстані (05:08)
- 03 - Буревій (05:34)
- 04 - Відрада (06:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB1E3B1CF00E075F48020EAB56C133357693CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804321   (65622) от 29.06.2025
-
-Styx - Circling From Above (2025) [MP3|320 Kbps] <AOR, Progressive Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circling From Above (01:56)
-02. Build And Destroy (03:52)
-03. Michigan (03:03)
-04. King Of Love (03:29)(   Читать дальше...   )Жанр: AOR, Progressive Rock, Hard Rock, Pop RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6415679B6ECA1577CE64C6FD19735338C9988AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805247   (65515) от 04.07.2025
-
-Tim Morse - Transformation (20th Anniversary Edition) (2025) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Present Moment - Remastered 2025 (06:17)
- 02 - To Set Sail - Remastered 2025 (07:12)
- 03 - Prelude - Remastered 2025 (03:26)
- 04 - Goodbye - Remastered 2025 (05:25)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DECA80F7EB95424A793F0D507DBAA3FCA8894A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807730   (65096) от 20.07.2025
-
-Guana Batz - Rockin' Banshee (2025) [MP3|~245 Kbps (V0)] <Rock, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65096.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Corridors [00:02:43]
-2. Rockin' Banshee [00:02:22]
-3. No Way Out [00:02:33]
-4. Run To The Promised Land [00:02:55]Жанр: Rock, PsychobillyПродолжительность: 00:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333EFF84CCF0089DE20863DABE728B370BBFD70D
 ```
 
 https://mybot314.ru/tekegram_catalog/

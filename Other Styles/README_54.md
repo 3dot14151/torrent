@@ -1,3 +1,61 @@
+###  Публикация: 1280320   (762003) от 02.02.2019
+
+Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Condor Pasa
+02. Ave Maria
+03. Amazing Grace
+04. Don't Cry for Me Argentina(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280247   (761997) от 02.02.2019
+
+Paul Mauriat - Diamond Collections (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Home Et Femme
+02. Melodie
+03. Moulins De Mon Coeur
+04. Love Story(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEE6AC6697B3585E45E20229FAA37AC4E5275FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214930   (761465) от 24.03.2018
 
 Snatam Kaur - Beloved (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -687,64 +745,6 @@ Ennio Morricone - The Best Of 50 Years Of Music (2010) [FLAC|Lossless|tracks] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7651EF9B044F701476E98B8249115B3CCD7EBE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216015   (754590) от 28.03.2018
-
-Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, Lounge, Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashem Vohu
-02. Aem Moi Idâ / Ye Vâxshayâns
-03. Jasa Me Avange Mazdao
-04. Humata(   Читать дальше...   )Жанр: Ethno folk, Lounge, JazzПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575824AD045301F2E7D6F3F9AA8D3BB47B062B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281043   (753251) от 07.02.2019
-
-Tom Holkenborg (Junkie XL) - Alita: Battle Angel (2019) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discovery (03:14)
-02. I Don’t Even Know Y Own Name (05:44)
-03. What’s Your Dream? (03:17)
-04. Double Identity (01:54)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C4D15BE6545D09D92BF56B68B68162DEFFC2AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

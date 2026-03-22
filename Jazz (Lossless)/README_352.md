@@ -1,3 +1,177 @@
+###  Публикация: 1791275   (67865) от 13.04.2025
+
+Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pour Some Sugar on Me [4:21]
+02 - 50 Ways to Leave Your Lover [3:35]
+03 - Say You'll Be There [3:22]
+04 - One Week [2:41](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE53329A5F37BAD0110773CF1A91AC84E8F9C549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791270   (67841) от 13.04.2025
+
+Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Good Luck, Babe! [3:21]
+02 - Rag Doll [2:59]
+03 - A Bar Song (Tipsy) [3:53]
+04 - It Must Have Been Love [4:28](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98EF431334C3854C8BB17DC4393EA4EAB57DFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791121   (67833) от 13.04.2025
+
+Evgeny Rang Quartet - Midnight Cool (2024) Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen To You [5:56]
+02. Giant Steps [7:42]
+03. Round Midnight [5:58]
+04. Ladies In Mercedes [4:28](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39713A01226AECBB480E9AB162BA01130213042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791342   (67829) от 13.04.2025
+
+Charlie Mingus - Four Classic Albums: Second Set (1956, 1957) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haitian Fight Song [12:03]
+02. Blue Cee [7:55]
+03. Reincarnation Of A Lovebird [8:34]
+04. The Clown [12:17](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C75942D7A9D25DB24FF7626690F1E34657331D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791537   (67801) от 14.04.2025
+
+Michel Legrand - Michel Legrand By Michel Legrand (2002) Decca [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Wait For You [5:42]
+02. The Windmills Of Your Mind [5:40]
+03. The Summer Knows [4:51]
+04. How Do You Keep The Music Playing_ [3:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA071091D7EC51EE59387AA4CF4E3309365E16AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791754   (67778) от 15.04.2025
+
+The Oscar Peterson Quartet - City Lights: Live in Munich (1994) 2024, Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Will Never Be Another You [8:49]
+02. The Gentle Waltz [11:11]
+03. Kelly's Blues [8:49]
+04. Love Ballade [10:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FCC1310BAD955D6A15B52BFFBCE3EEA7E4901E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791801   (67773) от 15.04.2025
 
 Frankie Campofelice - Every Night at Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -570,180 +744,6 @@ Michel Legrand - Happy Radio Days (2004) Erato [FLAC|Lossless|tracks + .cue] <Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA73CA8385BBD9443710488420943F6BE82066C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794309   (67287) от 28.04.2025
-
-Larry Vuckovich - City Sounds, Village Voices (1981) 2003, Quicksilver Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Herb's Herbs [5:45]
-02. Besame Macho [7:55]
-03. Soultrane [5:34]
-04. Bouncing with Bud [6:14](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC658F388ECD146264F25613FF54F86234A2311C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794534   (67254) от 29.04.2025
-
-Ellen Lebowitz - Invitation to Yesterdays (1998) Rockmoss Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays [4:16]
-02. Dindi [6:09]
-03. Lush Life [5:50]
-04. Water to Drink (Agua de Beber) [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77D9DEDC1678153EAB0CD38B6F36C7B88848BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794529   (67235) от 29.04.2025
-
-Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Never Land/Pure Imagination [5:12]
-02. Walking on the Moon [5:03]
-03. Summer Night [5:25]
-04. Gabrielle [7:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD48D262380C47552DAE31AB6EC86401416DFFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794844   (67215) от 01.05.2025
-
-Saori Yano - 02 (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laird Baird [4:39]
-02. Suna to Skirt [6:56]
-03. Lover Man [6:13]
-04. Rizlla [5:34](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F9106A98AFC886D9792B6612EB0862DC51E68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794840   (67214) от 01.05.2025
-
-Saori Yano - Saori Yano (2003) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confirmation [4:54]
-02. Blue Bossa [5:44]
-03. When You're Smiling [5:47]
-04. How to Make a Pearl [4:15](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7631BA1868E5CBBD0AB466569ACA873710AE2838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794784   (67213) от 01.05.2025
-
-Bettye Lavette - Interpretations: The British Rock Songbook (2010) [FLAC|Lossless|tracks + .cue] <Soul, Rhythm & Blues, Rock, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Word    [0:03:37.12]
-02. No Time To Live
-03. Don't Let Me Be Misunderstood
-04. All My Love    [0:04:11.11](   Читать дальше...   )Жанр: Soul, Rhythm & Blues, Rock, FunkПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFC3D5029C8414CE9ED657D05EF30A30C0DE0B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

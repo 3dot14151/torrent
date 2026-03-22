@@ -1,3 +1,61 @@
+###  Публикация: 1348579   (141626) от 29.12.2019
+
+VA - Cafe Del Mar Ibiza (2010) 8 CD [FLAC|Lossless|tracks + .cue]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goldfrapp - Utopia ( New Ears Mix )
+02. Thomas Newman - Any Other Name
+03. Afterlife - Sunrise ( DJ Thunda & K-20 Allstars Remix )
+04. Dido - Worthless(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 10:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EF130DA11DA75C6FF9CA4941CC69497C9E3CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934467   (140298) от 29.12.2018
+
+VA - FreeZone vol. 1-7 (1994-2001) SSR Records [FLAC|Lossless|tracks+.cue]<Downtempo, Ambient, Future Jazz, Trip Hop, D&B, Deep House, New Age>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Of Apples - Prairie Oyster (05:04)
+ 02. Audiomontage Vs Shur-I-Kan - The Freezone (07:17)
+ 03. The Ananda Project Feat. Terrance Downs - Justice, Mercy (06:02)
+ 04. dZihan & Kamien - Nargileh (05:01)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Future Jazz/Downtempo/AmbientПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3962E389D47896D82A1111991EE2A97F858133D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436240   (139530) от 30.12.2020
 
 VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
@@ -684,64 +742,6 @@ Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:109F6110BD63D3F66021F3EA23738B6BE038E438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690730   (123827) от 08.01.2024
-
-VA - Музыка для сна и прослушивания перед сном (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.I.B. - Games Rain (Chillout Mix) (7:28)
-02. S.A.T - Dream Of The Sea (Chillout Mix) (6:25)
-03. Soulalive - After Sun (Chillout Mix) (6:25)
-04. Seven24 - The Journey (Chris Wonderful Remix) (3:41)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B205BFE085203FC882D718EBEFCEC654DFF1D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691067   (123553) от 10.01.2024
-
-V.A. - Chill Out Cafe 60 Essentials Classics (25 Years Celebration) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Nu Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ltj X-perience - Moon Beat (5:12)
-02. The Black Mighty Orchestra - Ocean Beach (Cybophonia Cinematic Remix)
-03. Le Berry - El Verde Amanacer
-04. Zeb - From The Distance(   Читать дальше...   )Жанр: Chill Out, Downtempo, Nu JazzПродолжительность: 05:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA65035E8432CC5F0C5559A83ADDBA3FBDDD41B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

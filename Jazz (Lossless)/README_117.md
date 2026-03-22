@@ -1,3 +1,177 @@
+###  Публикация: 1225362   (660748) от 15.05.2018
+
+Swingrowers - Outsidein (2018) [FLAC|Lossless|image + .cue] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Strings Attached
+02. Follow Me
+03. Selfie Face
+04. My Mood(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E91AC22BE0CD76DF8D3ADD90BF2DB98DD6FB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902931   (660364) от 29.05.2015
+
+Bobby Hutcherson - Live At Montreux (2012) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton's Bail [13:44]
+02. The Moontrane [10:49]
+03. Farallone [13:25]
+04. Song Of Songs [14:04]Жанр: Jazz, Post-BopПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A64020C83768CE4AE44213B6CFE78D25742027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538982   (660331) от 23.03.2022
+
+Junior Mance Trio - Happy Time (1962) 1999, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Time [6:18]
+02. Jitterbug Waltz [5:22]
+03. Out South [5:28]
+04. Tin Tin Deo [4:42](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD75948E074A2282A8A6D25A081D8E80D51E228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902759   (660282) от 29.05.2015
+
+Billie Holiday - Cheek To Cheek (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheek to Cheek [03:31]
+02. Let's Call the Whole Thing Off [03:23]
+03. A Fine Romance [03:32]
+04. April in Paris [03:01](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221B1BF0F201C2B597BDE4D0A30388D612DD37E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139382   (660277) от 02.06.2017
+
+Tom Schuman - Designated Planets (2013) Jazzbridge Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Designated Planets [04:34]
+02. A Piece Of Me [04:01]
+03. Against The Odds [04:52]
+04. Sweet Surrender [04:25](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0A9495086405EDBB7CF9654B184C4E6F7F5AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902771   (660226) от 29.05.2015
+
+Bill Evans - Autumn Leaves (1969) /2015, Studio Songs Japan/ [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emily (5:51)
+02. A Sleeping Bee (5:00)
+03. Alfie (5:31)
+04. Who Can I Turn To (6:00)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18F3CA4324FDC64F1FF32ACFF49498128C467E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225526   (659847) от 16.05.2018
 
 Lee Morgan - Expoobident (1960) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -588,180 +762,6 @@ Jack Teagarden - 1941 - 1943 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4201272EAB563EE9C2943E5F05529C30BCEABAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226230   (657138) от 19.05.2018
-
-Curtis Peagler & The Modern Jazz Disciples - Disciples Blues (1959, 1960) 2001, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone [06:06]
-02. Disciples Blues [07:16]
-03. Slippin' & Slidin' [05:11]
-04. A Little Taste [06:44](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3CEA803AF54FAF89507BF76F6DC9C9CF7C98CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903782   (657094) от 01.06.2015
-
-Francesca Palamidessi - In Other Words I Am Three (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz, Contemporary>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Tide
-02. Eclipse
-03. Sue's Changes
-04. Portrait(   Читать дальше...   )Жанр: Vocal Jazz, ContemporaryПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE05915B6AABA35545DDE2033D58FF86BD48D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903993   (657090) от 01.06.2015
-
-Dave Holland Big Band - What Goes Around (2002) [FLAC|Lossless]<Jazz, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triple Dance [09:53]
-02. Blues for C.M [09:05]
-03. The Razor's Edge [06:19]
-04. What Goes Around [17:25](   Читать дальше...   )Жанр: Jazz, Post-Bop, Big BandПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D13BD771DC0F8AAE04FF8A111AB2F992649AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903640   (657089) от 01.06.2015
-
-Milt Jackson & Coleman Hawkins - Bean Bags (2012) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close Your Eyes [06:57]
-02. Stuffy [05:47]
-03. Don't Take Your Love From Me [04:55]
-04. Get Happy [05:33](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B71B56297B713FECC7303559B37DAC344E70E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226034   (657080) от 19.05.2018
-
-Dave Brubeck - Interchanges '54 (1991) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audrey
-02. Jeepers Creepers
-03. Pennies From Heaven
-04. Why Do I Love You(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B1331275DC10BD61D0204B8ADEB2F8BADFA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226103   (657076) от 19.05.2018
-
-Hubert Laws - Say It With Silence (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Baron [05:55]
-02. False Faces [06:20]
-03. Love Gets Better [05:09]
-04. It Happens Everyday [07:42](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35A5B9AC36DC8C3FF7362AC110D7308870AE205
 ```
 
 https://mybot314.ru/tekegram_catalog/

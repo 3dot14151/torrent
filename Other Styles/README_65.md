@@ -1,3 +1,119 @@
+###  Публикация: 1132586   (701126) от 09.05.2017
+
+Timothy Wenzel - What We Hold Dear (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murmuration (feat. Josie Quick & Jordan Schug)
+02. What We Hold Dear (feat. Josie Quick & Jordan Schug)
+03. Appalachian Waters
+04. Ascension (feat. Jordan Schug)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC5CC93C49FD00E21A8175B2D8FCEEA12B8DC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132572   (701115) от 09.05.2017
+
+Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .cue] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine Works I (3:18)
+02. Ancient Person Of My Heart (5:52)
+03. O'Ecclesia (3:35)
+04. Interlude I (1:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A76F53AEAE67879E5DD966EA714194E2B8E6BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132422   (700997) от 09.05.2017
+
+Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Origins of Murder Victim Jane Doe (01:33)
+02. Hide You in Ezekiel’s Blood (01:18)
+03. I Am the Chorus of Screams! (02:03)
+04. You Don’t Have to Hide (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926FF174363ACFAE1B1D390379C751C00094834B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132495   (700848) от 09.05.2017
+
+D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svoboda 5:51
+02. The Mountain Song (Pritouritze Planinata) 6:54
+03. Optaki 4:54
+04. Sebastien's Song 3:29(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A645B0E24C51365D53ED5F8240258C7A967D138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132580   (700846) от 09.05.2017
 
 Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -635,122 +751,6 @@ VA - Horizon Zero Dawn (Original Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D38AAE636F5B7BBBAA34B1F2ED98E6B155A539BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027189   (698462) от 18.06.2016
-
-John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From "The Nice Guys" (02:01)
-02. Kids Today (03:23)
-03. Disco Party Fight (04:00)
-04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E90FB61B9FBCA93A4FBA5C3BE58FD75CE5989D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027190   (698242) от 18.06.2016
-
-John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From "The Nice Guys" (02:01)
-02. Kids Today (03:23)
-03. Disco Party Fight (04:00)
-04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C3E580776AB4719E290A3672AA33D9CA439196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027103   (698122) от 18.06.2016
-
-Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelpcake (00:46)
-02. Finding Dory (Main Title) (00:55)
-03. Lost at Sea (01:36)
-04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C728B895B0797A921083FB96EE41D8716E8B43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027169   (697914) от 18.06.2016
-
-Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен против Супермена: На заре справедливости (2016) [FLAC|24/44.1|WEB-DL|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood of My Blood (04:31)
-02. Vigilante (04:02)
-03. May I Help You, Mr. Wayne?(03:34)
-04. They Were Hunters (02:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DE33AA3018E7306E791535A573B88BBE885392
 ```
 
 https://mybot314.ru/tekegram_catalog/

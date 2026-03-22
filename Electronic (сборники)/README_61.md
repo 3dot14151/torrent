@@ -1,3 +1,90 @@
+###  Публикация: 1390972   (781843) от 18.06.2020
+
+VA - Chillout Top 100: The Best Relaxing Music (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781843.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. S.A.T feat. Angel Falls - Endless Summer (Alastair Pursloe Remix) 4:31
+002. Desib-L - It's Only Just (Last Midnight Train Remix) 5:09
+003. Iris Dee Jay feat. Maria Opale - For You (Rayan Myers Remix) 4:12
+004. VetLOVE - Voice (Dub Mix) 4:28(   Читать дальше...   )Жанр: Downtempo, ChillOut, Ambient, Deep-House, Balearic, Relax, ElectronicПродолжительность: 08:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4DCA7B9A390694F36DEF4707015393B58891E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206666   (781737) от 15.02.2018
+
+VA - Jammer Electro Mix: Dance Generation (2018) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781737.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raul Del - I Like To Looking (Original Mix)
+002. Alfrenk - Lord (Original Mix)
+003. TekanismTheory - Black Force (Original Mix)
+004. Adrien Kepler - Following the Girl (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 11:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847C7860F8D4FDFF5767295C93C864F0F55DAB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206707   (781735) от 15.02.2018
+
+VA - Cryptic House 11 (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Deep House, Tech House, Tribal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nico Sun  -  Arra  7:35
+02.  Boshoco  -  Warda (Anatolian Sessions Remix)  6:48
+03.  Sous Sol  -  Gyaan  8:12
+04.  Quatri (Syr)  -  La Mer Orientale  8:03(   Читать дальше...   )Жанр: Deep House, Tech House, Tribal HouseПродолжительность: 03:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF63DF58DA7FE308493C9A1DBA17E04817A6F625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206758   (781734) от 15.02.2018
 
 VA - Psychedelic Bass (Compiled by ZeByte) (2018) [MP3|256-320 Kbps] <Psydub, Psychill, Psyglitch>
@@ -658,93 +745,6 @@ VA - The Sounds Of The Underground 11 (Compiled and Mixed by Deeper82) (2018) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D70166F45A0551380C1BB3E7BEE90AD83491FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208860   (779685) от 24.02.2018
-
-VA - Double Environment: Progressive House Garden Music (2018) [MP3|320 Kbps] <Progressive, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marsh - Face To Face (Airdraw Intro Remix)
-002. Sunlight Project - Tierra Del Fuego (Original Mix)
-003. Zoo Brazil - From A Distance (feat. Wolf & Moon)
-004. Freedome - I Feel You (ReWorked Radio Edit)(   Читать дальше...   )Жанр: Progressive, Tech HouseПродолжительность: 10:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CFEE8E91C158F8D8126B37063815852A1EDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209058   (779684) от 24.02.2018
-
-VA - The Official UK Top 40 Singles Chart 23.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake – God’s Plan 3:19
-02. Rudimental – These Days (Feat. Jess Glynne, Macklemore & Dan Caplen) 3:31
-03. Dua Lipa – Idgaf 3:38
-04. Portugal. The Man – Feel It Still 2:43(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220FF452A8450D219384E9E9D0D9669DE6EFD535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209060   (779671) от 24.02.2018
-
-VA - Record Super Chart #525 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maruv & Boosin  -  Drunk Groove (Kolya Funk & Mephisto Radio Mix)  3:43
-02.  Vanotek feat. Eneli  -  Back To Me (DJ Mexx & DVJ Karimov Radio Remix)  3:02
-03.  Holl & Rush  -  Don't Know  3:49
-04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F521F89B167313EA0C9B3AD5E011916106E75C
 ```
 
 https://mybot314.ru/tekegram_catalog/

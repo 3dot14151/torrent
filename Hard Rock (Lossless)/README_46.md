@@ -1,3 +1,189 @@
+###  Публикация: 936241   (496069) от 11.09.2015
+
+Lez Zeppelin - Lez Zeppelin (2007) [FLAC|Lossless]<Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Lotta Love
+02. The Ocean
+03. On The Rocks
+04. Since I've Been Loving You(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DDFDCF03B2CE54632CDD2ABF6137C61761467A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543125   (495485) от 05.09.2012
+
+Kiss - Destroyer (Resurrected) (1976/2012) [FLAC|Lossless]<Hard Rock/Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detroit Rock City (5:16)
+02. King Of The Night Time World (3:22)
+03. God Of Thunder (4:17)
+04. Great Expectations (4:24)
+05. Flaming Youth (3:00)
+06. Sweet Pain (3:21)
+07. Shout It Out Loud (2:51)
+08. Beth (2:49)
+09. Do You Love Me? (3:40)
+10. Rock And Roll Party (1:27)(   Читать дальше...   )Жанр: Hard Rock/Glam RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542967   (495224) от 05.09.2012
+
+VA - Classic Rock Presents: ZZ Top & The Best Of The Year So Far (2012) [FLAC|Lossless]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZZ Top – I Gotsta Get Paid (4:05)
+02. The Darkness – Nothing’s Gonna Stop Us (2:26)
+03. Cory Branan – Survivor Blues (3:34)
+04. Tremonti – Leave It Alone (4:40)
+05. Howlin Rain – Strange Thunder (8:53)
+06. Def Leppard – It’s All About Believin’ (4:22)
+07. Phantom Limb – Gravy Train (4:15)
+08. Von Hertzen Brothers – Let Thy Will Be Done (4:48)
+09. Squackett – Storm Chaser (5:27)
+10. Joe Bonamossa (feat. Jimmy Barnes) – Too Much Ain’t Enough Love (5:37)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565344   (494996) от 23.07.2022
+
+Lonerider - Attitude (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Imagination (3:20)
+02. Lonerider (3:39)
+03. Hard Heart To Break (4:13)
+04. Fast Train (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC66CD26AFDFA6755A7D8149268D5F89F195F77F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565316   (494986) от 23.07.2022
+
+Iconic - Second Skin (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast As You Can (4:38)
+02. Ready For Your Love (4:12)
+03. Second Skin (5:4)
+04. All I Need (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFEA8AB31F0B522E2FC547AB6A1003225D0DDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565352   (494913) от 23.07.2022
+
+Galleyboyz - Galleyboyz (1990) 2xCD, Reissue , 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494913.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Galleyboyz:
+01. You Get What You Pay For (3:36)
+02. Nothin’ To Lose (3:46)
+03. One Step Up (4:24)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23782874B5BAED83F5E4103ADC42AE9A638E4A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565307   (494912) от 23.07.2022
 
 Ousey / Mann - Is Anybody Listening (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -583,180 +769,6 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E07E4735B2DB6AD76F5BCA7BA94F2D5379D9C970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405932   (479277) от 01.09.2020
-
-Merzy - Rock the Blues (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times (04:12)
-02. Out On The Highway (03:43)
-03. Give Me What You Got (06:10)
-04. Dead & Gone (05:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020AF18B37843A4AC149D06255DE779D127D8643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204103   (478815) от 01.09.2020
-
-John Wetton & Geoffrey Downes - 25 albums, 29 CD (1980-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Art Rock, AOR, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Уэттон является одним из наиболее маститых музыкантов в истории прогрессивного рока. Его основным инструментом всегда была бас-гитара, вряд ли кто-то ещё из музыкантов может похвастаться таким послужным списком! В числе проектов, в которых участвовал Джон Уэттон: Mogul Thrash, Family, King Crimson, Roxy Music / Bryan Ferry, Uriah Heep, UK, Asia, Wishbone Ash. (   Читать дальше...   )--------------------------
-
-01. Prelude (2:15)
-02. Skyscraper Souls (18:09)(   Читать дальше...   )Жанр: Art Rock, AOR, Progressive Rock, Pop Rock, Synth-pop |Продолжительность: 25:17:34 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9775EABAACFD1A9537F8DFEE7151B1746080BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566746   (478639) от 31.07.2022
-
-Madhouse - Down 'N' Dirty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down 'n' Dirty
-02. Hard Luck
-03. Kiss And Tell
-04. Passionkiller(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7F50393F6370B4A18D2167B782BAE92EC8D1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566901   (478489) от 31.07.2022
-
-Michael Schenker Group - Universal (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergency
-02. Under Attack
-03. Calling Baal
-04. A King Has Gone(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14030C808CBC715AE9C01AB0C6D6DCC8E4D27328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160118   (478120) от 23.08.2017
-
-Burning Rain - 3 альбомa (1999-2013) Discography [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burning Rain - американская хард-рок-группа, основанная гитаристом Дагом Олдричем (экс-Lion, Bad Moon Rising, в дальнейшем - Dio, Whitesnake) и певцом Китом Сент-Джоном (экс-Medicine Wheel, Sun King, Big Trouble, St. John) в 1998 году. Также в состав группы вошли сессионный барабанщик Алекс Макарович (записывался со Steelheart) и бас-гитарист Йен Майо (экс-Hericane (   Читать дальше...   )Список альбомов:
-1999 | Burning Rain
-2001 | Pleasure To Burn
-2014 | Epic ObsessionЖанр: Hard Rock, Hard'n'Heavy |Продолжительность: 03:03:00 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7D32C1CF0DE5A6617EA2B0AE729293E5E01422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056892   (477712) от 27.09.2016
-
-Fаir Wаrning - Рimр Yоur Раst (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longing For Love
-02. One Step Closer
-03. Out On The Run
-04. When Love Fails(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432A278FC88240E4DB152F61C923E0FC6BC55088
 ```
 
 https://mybot314.ru/tekegram_catalog/

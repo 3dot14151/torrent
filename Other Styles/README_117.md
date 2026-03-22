@@ -1,3 +1,148 @@
+###  Публикация: 1170205   (400578) от 30.09.2017
+
+Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Anthem
+02. Crystal Light
+03. Free
+04. That June Feeling(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C9FB4D9394A7BF477964735423B32D783CB122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170058   (400521) от 30.09.2017
+
+Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowland
+02. Mindscapes
+03. Old Glow
+04. Panoramas(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6368FD23C843FA5F5F38170818BFC9447C52F489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169978   (400505) от 30.09.2017
+
+Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sovereign
+02. Dreamweaver
+03. Unbroken
+04. Daybreak(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51EDDB4FCF4153C873707FB5EDA37F804A1FDDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169976   (400314) от 30.09.2017
+
+Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps] <Ambient, New-Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magnetic Fields, Pt. 1  17:59
+02.  Magnetic Fields, Pt. 2  3:59
+03.  Magnetic Fields, Pt. 3  4:11
+04.  Magnetic Fields, Pt. 4  6:25(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 03:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78663E68EB41F7DC3F6FBBAB0CD53E83D819281E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170506   (399533) от 01.10.2017
+
+Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song For Sienna (4:09)
+ 02. Lavender Hills (3:09)
+ 03. Crimson Sky (4:59)
+ 04. The Secret Letter (3:07)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC7A0C2AB82F8EE713A236C386EB1BF916FF0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170590   (399481) от 01.10.2017
 
 Johannes Linstead - Azul (2017) [MP3|320 Kbps] <New Age>
@@ -624,162 +769,6 @@ Roger Subirana - The Round Dimension (2017) [FLAC|Lossless|WEB-DL|tracks] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC79164D03FD232B4FA9DCE4A96449813417D54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172131   (393924) от 07.10.2017
-
-Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [FLAC|Lossless|WEB-DL|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Deal With The Devil
-02. Don't Deal With The Devil (Instrumental)
-03. Introduction
-04. Tutorial(   Читать дальше...   )Жанр: Score / Jazz, Stage & ScreenПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF54F5712F7A5197C9EEBCC355F5FF90483DB00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171826   (393706) от 07.10.2017
-
-Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по лезвию 2049 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2049 (03:37)
-02. Sapper's Tree (01:36)
-03. Flight to LAPD (01:47)
-04. Summer Wind (02:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D319390D819994669DC890EB4553B645D45D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172136   (392902) от 08.10.2017
-
-Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Deal With The Devil
-02. Don't Deal With The Devil (Instrumental)
-03. Introduction
-04. Tutorial(   Читать дальше...   )Жанр: Score / Jazz, Stage & ScreenПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340C29F5700769848F3D079CC5F558A91FD55DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149390   (391971) от 05.11.2009
-
-Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 kbps]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_391971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 My Guardian Angel 07:31
-02 Just Harmony 06:52
-03 Heart of Love 05:07
-04 Light Touch 06:50
-05 Space of Peace 07:01
-06 Deep in My Soul 08:27
-07 Heavenly Spheres 07:51
-08 Heaven and Earth 04:47
-09 Sun Salutation 10:53Жанр: New age, MeditativeПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569447   (391533) от 03.11.2012
-
-Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391533.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Awakening (05:40)
-2. Belly Of The Beast (02:38)
-3. Requiem (02:15)
-4. Legacy (02:29)
-5. Faithless (05:02)
-6. Haven (05:44)
-7. Nemesis (03:31)
-8. Ascendancy (04:19)
-9. Solace (04:45)
-10. To Galaxy (04;57)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC5F1F9FC0B9ECC98877D3C7FE8673749AB969C
 ```
 
 https://mybot314.ru/tekegram_catalog/

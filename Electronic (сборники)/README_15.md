@@ -1,3 +1,61 @@
+###  Публикация: 1353171   (992680) от 17.01.2020
+
+VA - Dub House: Electro Party (2020) [MP3|320 Kbps] <Dub House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nailbiter - Char
+02. Dyi Mob - Massive Dynamic
+03. Torn - Nothing
+04. Lawbrakr - Heist(   Читать дальше...   )Жанр: Dub House, ElectroПродолжительность: 06:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD35D6FC3C6DB7FF42366FF9C8EE8BD6CA604D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353172   (992679) от 17.01.2020
+
+VA - Electronic New Season (2020) [MP3|320 Kbps] <Electronic, EDM, Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992679.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sonic Moon - Funk Flow
+002. Lento Violento - Lost
+003. Mount Palomar - The King's Gambit
+004. Diefaust - Curiosite Coupable(   Читать дальше...   )Жанр: Electronic, EDM, SyntheticПродолжительность: 12:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7B4FE76015EB0ADAB2EFAD0EBCB4591D4186EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353170   (992627) от 17.01.2020
 
 VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
@@ -740,70 +798,6 @@ VA - Cosmospace House (2020) [MP3|320 Kbps] <Progressive, Deep, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CC4809D65E1D13F0E33BBFFB511AFBAC704FDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607627   (989612) от 30.01.2013
-
-DJ Stinger - Minimix For Time2Bass Radio-Show (Time 2 Bass) (12.05.2010) [MP3|160 кб/с]<Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 D-Kay & DJ Lee - Tuning VIP
-02 Xample & Lomax - Rushin Dragon
-03 Spor - Halogen
-04 Drumsound & Bassline Smith - Fire (Burning)
-05 Sub Focus - Triple X
-06 DC Breaks - Halo
-07 J-Majik - Mosquito
-08 Prolix - Watch Ur Step
-09 Noisia - Deception
-10 Heist - Search Party(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D41E0A08191E0D89F70ABB056882F33988EA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354179   (989060) от 21.01.2020
-
-VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Prodeeboy - Ultimate Destination
-002. Marcus Caballero - Serenity (Original Mix)
-003. Caleb Weiss - London Rhythm (Original Mix)
-004. Daniele Frate - Are You Ready(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 13:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E5BE938CEC7453348B55202F8EB83E535F8738
 ```
 
 https://mybot314.ru/tekegram_catalog/

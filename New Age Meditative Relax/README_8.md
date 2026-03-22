@@ -1,3 +1,32 @@
+###  Публикация: 1217096   (744865) от 03.04.2018
+
+Doug Blair - The End of Chaos (2018) [MP3|320 Kbps] <New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karmic Harmonic (3:09)
+02. Coming Home (3:29)
+03. Ambient Neon (3:39)
+04. Cool Waters (3:37)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE661458007C569EDD56E0C4BB87B0E9C48ACF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217433   (743359) от 04.04.2018
 
 Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
@@ -716,35 +745,6 @@ Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37D5E982E40354523EB2ACFBC92613AB2D19A457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024936   (714134) от 10.06.2016
-
-Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Joy of Quiet Rain Mix
-02. Soft Focus Ocean Mix
-03. Velvet Morning Rain Mix
-04. In Fields of Peace Ocean Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B50D5D512837B0C2FFE67D04A0860F69449DE52
 ```
 
 https://mybot314.ru/tekegram_catalog/

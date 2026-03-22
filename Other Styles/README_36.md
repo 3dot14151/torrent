@@ -1,3 +1,32 @@
+###  Публикация: 1381318   (824693) от 08.05.2020
+
+Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824693.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Divine Healing 04:30
+2. Yoga Exercises 02:56
+3. Art of Meditation 02:56
+4. Sacred Prayers 03:05(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EC54587855C90A3F9F762B91B6DFDB815CF731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381516   (824690) от 08.05.2020
 
 Asian Zen - Peaceful Zen Lullabies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -715,35 +744,6 @@ VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0C65AE022A32D0C413C8E979FFB3CFF932B302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117043   (820916) от 21.03.2017
-
-Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing You (2:52)
-02. It’s Goodbye and So Long to You (3:11)
-03. Windy City (3:16)
-04. I Never Cared for You (2:46)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848C99D12D3E5B3FA66C0859A5B92553747C1753
 ```
 
 https://mybot314.ru/tekegram_catalog/

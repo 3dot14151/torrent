@@ -1,3 +1,235 @@
+###  Публикация: 1670587   (171672) от 22.10.2023
+
+VA - Rock For All Times (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rage Against The Machine - Killing In The Name [05:14]
+02. Bachman - You Ain't Seen Nothing Yet [03:58]
+03. Linkin Park - Somewhere I Belong [03:34]
+04. Electric Light Orchestra - Do Ya [03:45](   Читать дальше...   )Жанр: RockПродолжительность: 03:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D669115F906F9DD95C1663FF1FEB4ECBFBACC51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596507   (169565) от 10.12.2022
+
+Guns N’ Roses - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169565.jpg" />
+</div>
+
+
+###  Подробнее
+
+С творчеством Guns N Roses я познакомился в 96 году. Услышал альбом 93 года The Spaghetti Incident и с первых нот он сразу залетел в душу. До этого слышал только песню Don’t Cry. Энергетика у музыкантов бешеная. К сожалению, Spaghetti Incident стал последним крутым детищем группы. Записаны и сведены альбомы в среднем качестве. Послушал ремастеры и звучание не понравилось. (   Читать дальше...   )01. Welcome To The Jungle
+02. It's So Easy
+03. Nightrain
+04. Out Ta Get Me(   Читать дальше...   )Жанр: RockПродолжительность: 04:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE225A931AEE27BB59C8CBD72A37D81F51C684F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595807   (169096) от 11.12.2022
+
+Doc Holliday - Compilation (2022) [MP3|320 Kbps] <Rock, Southern Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Cat
+02. City Night
+03. Last Ride
+04. Farmer's Tan(   Читать дальше...   )Жанр: Rock, Southern RockПродолжительность: 01:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76FCE2265F7C8775C19034698A24DE3ED870DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672353   (168966) от 28.10.2023
+
+VA - The Message Of The Dark Angel (2023) [MP3|320 Kbps] <Death, Black, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Whirlwind - Red September [04:51]
+002. Attest - No Sacred Blood [03:06]
+003. Ticinum - Bargniff [06:54]
+004. Dead Sun Rising - Slough [02:55](   Читать дальше...   )Жанр: Death, Black, Heavy MetalПродолжительность: 11:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F251A0EA60E2FC158886B3BE2448AFDBB4ECC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344896   (168209) от 13.12.2019
+
+VA - Mastiff: Hard Rock Music (2019) [MP3|320 Kbps] <Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168209.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. No Home - Separation
+002. It Prevails - Lair Hill
+003. Leeway - I'm Your Pusher
+004. Smeltz - Nemesis(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D47BE1E903CA59B8628A9C1BF2C8C97A0742C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515845   (167899) от 09.12.2021
+
+VA - Raise Your Flag: Rock Worlds Fest (Vol.02) (2021) [MP3|320 Kbps] <Progressive Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следует настроиться на позитивный лад во время прослушивания данного сборника. Правда, позитив этот будет немного заполитизированный, социально направленный и меланхоличный, что подстать состоянию природы за окном.001. White Moth Black Butterfly - Under The Stars
+002. Afi - Tied To A Tree
+003. 187 Strassenbande - Vielen Dank
+004. Professor Electric - Emerging Forth Into The Light(   Читать дальше...   )Жанр: Progressive Rock, Punk, AlternativeПродолжительность: 10:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC383F6AD4A019A3CE3BE0052CCF7E4E7DFE635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515999   (167888) от 09.12.2021
+
+VA - Rebel Rock Box: Punk & Progressive Mix (CD.02) (2021) [MP3|320 Kbps] <Rock Punk, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167888.jpg" />
+</div>
+
+
+###  Подробнее
+
+В наше время панк-рок воспринимается зачастую как стиль, который уже давно пережил свои лучшие годы и музыкальная сцена этого жанра музыки изрядно поредела. Но в последнее время интерес к панк-року начал возрождаться и возможно, причина тому - ответ насилием на насилие, которое происходит в мире и сама обстановка, сложившаяся в мировой политике.001. Graduating Life - Fine
+002. Haexan - Skeletons
+003. Andrйs Calamaro - Jugar Con Fuego Con Raphael
+004. Faro - Down(   Читать дальше...   )Жанр: Rock Punk, Progressive RockПродолжительность: 08:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127A1053EF3B0AC9C6E3B0A64A25DC16AD47B130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515839   (167825) от 09.12.2021
+
+VA - Buste And Flow: Feery Compilation (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агрессивная музыка с философским подтекстом на треках сборника "Buste And Flow". Где каются грешники? Вопрос на который пытаются ответить исполнители песен лонгплея. И есть ли прощение в аду. Но ответа на эти вопросы мы так и не услышим.001. Hail The Sun - Misfire
+002. Dreamwell - Sayaka
+003. Flesh Worship - Anathema I. Solipsistic Stupor
+004. Hostages - No Justice(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 09:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9F62B133582FF40EF41320A07E53AACEA78454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515819   (167814) от 09.12.2021
 
 VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -513,238 +745,6 @@ VA - Лучшие хитовые треки в стиле Industral Rock & Nu Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E02430F9D63C7B8F5F33986E718E82C2BE9988DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434132   (153556) от 23.12.2020
-
-Ivanhoe - Last Warning (2020) 2xCD, Compilation, Japan Edition [MP3|320 Kbps] <Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153556.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Symbols Of Time (05:53)
- 02. Human Letargo (06:12)
- 03. No Sorrow (04:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC072BBC03062906D1C0B29BFC52B207948CDB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434222   (153246) от 23.12.2020
-
-VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это возвращение к ушедшим ощущениям музыкантов: от чувства единения с природой до личных эмоций. Это реинкарнация ранних мелодий, которые звучат по-другому в постоянно меняющемся мире вокруг нас. Мелодические эмоции похожи на дежавю - вы ранее уже чувствовали что-то подобное, но эти ощущения новые, еще более воодушевляющие.001. Fire In The Radio - Rewind
-002. Fours - Is This The Night
-003. Lewis Capaldi - Fade
-004. Tim Burgess - Empathy For The Devil(   Читать дальше...   )Жанр: Rock Indie, AlternativeПродолжительность: 07:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B459051EA7ACEC9C653A4DAFE8874325C81577B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434218   (153014) от 23.12.2020
-
-VA - Rock Classics 60s-80s: Remastered Version (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок - это, пожалуй, единственный стиль, интерес к которому не угасает с годами, а рок-хиты никогда не выходят из моды. Подтверждением тому служит большое количество ремиксов и кавер-версий на знаменитые рок-хиты всех времен. Представляем вам сборник рок-композиций, ставших уже классическими, но не утратившими своей популярности среди современных меломанов.001. The Everly Brothers - Cathy's Clown
-002. The Band - This Wheel's On Fire
-003. Genesis - Invisible Touch
-004. The Clash - Police On My Back(   Читать дальше...   )Жанр: RockПродолжительность: 12:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073B42FE511388AF03E6777C10B6F43C984125A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347324   (151568) от 23.12.2019
-
-Suzi Quatro - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil Gate Drive
-02. Cat Size
-03. 48 Crash
-04. Official Suburbian Superman(   Читать дальше...   )Жанр: RockПродолжительность: 02:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7FDC893B5C1C0AA318572E9A51CC711E43953C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677532   (150503) от 18.11.2023
-
-VA - The Gate Of Oblivion (2023) [MP3|320 Kbps] <Metal, Hard-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Whirlwind - Cannons Of Infuriation
-002. Attest - Reign Of Nil
-003. Ticinum - Il Muto Dall'accia Al Collo
-004. Aphyxion, Immerse - Heavy Shadows(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 09:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691276103A63D83D47D221034C29D49C627CAFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677435   (150341) от 18.11.2023
-
-Firehouse - Collection (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firehouse — самая любимая команда, ещё юности. Первые 2 альбома невероятно сильные. Все песни хитовые. Вокалист улётный, очень круто валит. Гитарные партии просто чума. Энергетика бешеная. Впервые услышал альбом 92 года, Hold Your Fire, в середине 90х, у друга на бобине. И на следующий день купил кассету SONY HF и побежал в звукозапись. У нас в студиях был только (   Читать дальше...   )01. Reach For The Sky
-02. Rock You Tonight
-03. Sleeping With You
-04. You're Too Bad(   Читать дальше...   )Жанр: RockПродолжительность: 05:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00315206AE9089CDEEED58066F1052EC4278003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969330   (149121) от 26.12.2015
-
-VA - Nuclear Blast Presents: Best Metal (2015) [MP3|320 кб/с] <Heavy Metal, Sympho Metal, Thrash Metal, Groove Metal, Power Metal, Industrial Metal, Melodic Death Metal, Gothic Black Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slayer - Repentless
-02. Nightwish - Йlan
-03. Thy Art Is Murder - Holy War
-04. Battle Beast - Touch in the Night(   Читать дальше...   )Жанр: Heavy Metal, Sympho Metal, Thrash Metal, Groove Metal, Power Metal, Industrial Metal, Melodic Death Metal, Gothic Black MetalПродолжительность: 01:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7D5B0F7B27B3F80DDB4B9293F9D6A99FEF9FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677583   (149086) от 19.11.2023
-
-David Hallyday - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive
-02. J'ai Quelque Chose À Vous Dire
-03. Move
-04. Ooh La La(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BCF5868A60058242B3968ED58762780BBCF189
 ```
 
 https://mybot314.ru/tekegram_catalog/

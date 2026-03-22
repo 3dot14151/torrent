@@ -1,3 +1,119 @@
+###  Публикация: 1218295   (723018) от 09.04.2018
+
+30 Seconds To Mars - America (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk on Water (3:05)
+ 02. Dangerous Night (3:20)
+ 03. Rescue Me (3:38)
+ 04. One Track Mind (3:52)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213AB09F99F6851833EA85D061834CA5C8161DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129259   (722400) от 28.04.2017
+
+Body Count - Bloodlust (2017) [FLAC|Lossless|tracks + .cue] <Rapcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Civil War (feat. Dave Mustaine) (04:24)
+02. The Ski Mask Way (03:36)
+03. This Is Why We Ride (05:26)
+04. All Love Is Lost (feat. Max Cavalera) (03:36)(   Читать дальше...   )Жанр: Rapcore, HardcoreПродолжительность: 41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4EA07E0C573C6B2645E5F638766CC3D6256FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400117   (721412) от 04.08.2020
+
+Black Orchid Empire - Semaphore (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt.Rock, Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emissaries (0:53)
+02. Singularity (2:53)
+03. Natural Selection (3:15)
+04. Motorcade (4:06)(   Читать дальше...   )Жанр: Alt.Rock, Alt. MetalПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27084F00E6B3A1C4969AB7C3E89869CBA1A62D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285588   (721194) от 26.02.2019
+
+WIZO - Bleib Tapfer / Für'n Arsch (1992) Compilation [FLAC|Lossless|tracks + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bleib Tapfer 
+01. Bei Dir (1:32)
+ 02. Mein Tod (3:25)
+ 03. Nice day (4:20)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6901C7F69C0F07783E9A94AC0BDA289840E4C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129560   (720713) от 29.04.2017
 
 Feist - Pleasure (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -630,122 +746,6 @@ Guano Apes - Offline (2014) [FLAC|Lossless]<Rock, Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F98B2C4D70E76BB8E5FABB818DFE2F7A8C976B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287012   (707431) от 05.03.2019
-
-Attila - Chaos (2016) SharpTone Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignite (3:27)
- 02. Bulletproof (3:33)
- 03. Public Apology (3:41)
- 04. Obsession (3:25)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22B66C4ADD8CF71FDBF8B0BB0B7E12F4458789D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286625   (707430) от 05.03.2019
-
-Guignol - Ash Land (2019) [FLAC|Lossless|tracks + .cue] <Gothic Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger
-02. 1000 Tyrants
-03. The Masque
-04. Chemical City(   Читать дальше...   )Жанр: Gothic Rock, Post-PunkПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE51790A42B39A122229F789748F24677E84617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286921   (707332) от 05.03.2019
-
-Methyl Ethel - Triage (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruiner (04:20)
-02. Scream Whole (04:13)
-03. All the Elements (04:24)
-04. Trip the Mains (03:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A0DB8738777DD2B9BC27503872B768330CB7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287018   (707309) от 05.03.2019
-
-Attila - Villain (2019) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdition (1:44)
- 02. Villain (2:47)
- 03. Blackout (2:59)
- 04. New Addiction (3:13)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955D7FA8BBF9ECA363ED5135CF06C9B65D7ED575
 ```
 
 https://mybot314.ru/tekegram_catalog/

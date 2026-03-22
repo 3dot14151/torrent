@@ -1,3 +1,321 @@
+###  Публикация: 600340   (998896) от 08.01.2013
+
+Osibisa - Live At The Marquee 1983 (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт одной из первых африканских групп, добившихся мировой известности(об участии их перкуссионистов в записи LP Uriah Heep "Look at Yourself", в частности, известно немногим), в лондонском клубе Marquee 5 апреля 1983 года.
+Несмотря на свое лондонское происхождение группа "Osibisa" была основана чернокожими музыкантами – тремя африканцами и (   Читать дальше...   )01. Fire
+02. Life
+03. Ayioko
+04. Paper / Match(   Читать дальше...   )Жанр: Концерт, Progressive Rock, JazzПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F3BA316232B6E55881088D210AE1DCF8E6272B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600409   (998826) от 08.01.2013
+
+VA - Tribute to Led Zeppelin (35th Kennedy Center Honors) (2012) HDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Награждение группы Led Zeppelin за выдающийся вклад в мировую и американскую культуру. Зал Kennedy Center Honors 2012г. при церемонии были исполнены каверы лучших песен группы.01. Foo Fighters - Rock and Roll
+02. Kid Rock - Babe I'm Gonna Leave You, Ramble On
+03. Lenny Kravitz - Whole Lotta Love
+04. Heart (with Jason Bohnam) - Stairway to HeavenЖанр: Концерт, RockПродолжительность: 00:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0A7F725C1A30B0D6ACE2901B192DAA8F85C178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600406   (998798) от 08.01.2013
+
+Рождественские встречи Аллы Пугачевой  (2013.01.07) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998798.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Рождественские встречи" - ежегодный концерт-фестиваль, который с 1988 года в конце декабря проводит Алла Пугачева. С тех пор, проект считается одним из самых популярных у зрителей и одним из самых престижных для многих представителей отечественного шоу-бизнеса. В разные годы "Рождественские встречи" подарили нам многих звезд – Владимира Преснякова (   Читать дальше...   )Жанр: Тв-ШоуПродолжительность: ~ 02:22:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600306   (998790) от 08.01.2013
+
+Adele - Live At The Royal Albert Hall (2011) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Adele в The Royal Albert Hall состоявшийся 22 сентября 2011 года...01. Hometown Glory
+02. I'll Be Waiting
+03. Don't You Remember
+04. Turning Tables
+05. Set Fire To The Rain
+06. If It Hadn't Been For Love
+07. My Same
+08. Take It All
+09. Rumour Has It
+10. Right As Rain(   Читать дальше...   )Жанр: R&B, Soul, Gospel, BluesПродолжительность: 01:41:43 + 00:08:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600262   (998768) от 08.01.2013
+
+Стинг. Рождественский концерт в Кафедральном соборе Дарема / Sting - A Winter's Night... Live From Durham Cathedral (2009) HDTV 1080i
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в Даремском кафедральном соборе Христа и Святой Девы Марии.
+Стинг:
+"Мне очень приятно находиться в этом месте – в Кафедеральном соборе Дарема, и особенно приятно, что сегодня я выступаю на своей Родине. У меня редко появляется возможность посетить места, где я вырос, и сегодняшний концерт для меня – своеобразное возвращение домой. Символично, что это происходит зимой, потому что это самое загадочное время года. Время, когда мы ощущаем историческую связь с поколениями, жившими до нас; с семьями, из которых мы вышли; мы вспоминаем о наших корнях, обращаемся к зову сердца, который ведёт нас домой – к теплу домашнего очага, домой, где мы чувствуем себя в безопасности. И это чувство, питаемое нашей памятью, выросшее из детских впечатлений, неизменно ассоциируется именно с горящим камином, с детской колыбелью, с семьей, с церковными торжествами. Поэтому мне доставляет особую радость петь сегодня вечером в этом прекрасном Соборе в честь этого загадочного времени года, которое дарит нам снег, мороз и длинные (   Читать дальше...   )Жанр: Folk/ClassicalПродолжительность: 01:30:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600169   (998759) от 08.01.2013
+
+Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Adele в The Royal Albert Hall состоявшийся 22 сентября 2011 года...01. Hometown Glory
+02. I'll Be Waiting
+03. Don't You Remember
+04. Turning Tables(   Читать дальше...   )Жанр: R&B, Soul, Gospel, BluesПродолжительность: 01:39:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600635   (998559) от 09.01.2013
+
+Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600638   (998531) от 09.01.2013
+
+Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600636   (998523) от 09.01.2013
+
+EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubstepПродолжительность: 00:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1E6DE4071AC9AEFDD14683D39FC5FF1DF46E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599448   (998520) от 09.01.2013
+
+U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rev-Raptor
+02. Dominator
+03. Thunderball
+04. Leatherhead
+05. Independence Day
+06. Screaming For A Love-Bite
+07. Heart Of Gold
+08. Vendetta
+09. Princess Of The Dawn
+10. I Give As Good As I Get(   Читать дальше...   )Жанр: Heavy MetalРежиссер: Geffen RecordsАктеры: Udo Dirkschneider, Igor Gianola, Fitty Wienhold, Francesco Jovino, U.D.O.
+
+Пересобранный  BluRay. За исходный Blu-Ray cпасибо -Перевод: ОтсутствуетПродолжительность: 2:25:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601103   (998364) от 10.01.2013
+
+DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDB77D3B6DCD95C35D4DF8B6B6B9E7E5D1203F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601102   (998332) от 10.01.2013
 
 Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
@@ -415,326 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95AAA22B4811144D8911AD5E22BC06E7F182F8D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605384   (995809) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Country) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carrie Underwood - Cowboy Casanova
-02. Caitlin Rose -  Own Side
-03. Chad Brownlee - Carried Away
-04. Chris Cagle -  What A Beautiful Day(   Читать дальше...   )Жанр: Музыка, CountryПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334837832A4569BF43B28D1E8CAAB4232D137AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604785   (995794) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Blues) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alvin Youngblood Hart - Illinois Blues
-02. B.B. King - Rock Me Baby
-03. Blues Brothers & Ray Charles - Shake a tailfeather
-04. Big Bad Blues -  Furthur(   Читать дальше...   )Жанр: Музыка, Blues, Blues-rockПродолжительность: 01:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B17F7A6C30583BD1AE734FC6E026A4B3A2ACE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605457   (995789) от 19.01.2013
-
-Лучшие клипы / The best videos of all time (Glamrock) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Accept - Teutonic Terror
-02. Aerosmith - Crazy
-03. Alice Cooper - Bed of nails
-04. Antony Bellicourt - Glam Rock(   Читать дальше...   )Жанр: Музыка, GlamrockПродолжительность: 01:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720963E7CE5D0B53030A6C78FCEBF540E7424B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605139   (995761) от 19.01.2013
-
-Дискотека 80-х 2012 Rock & Dance.Полная версия-оригинал 2 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, Pop, RockРежиссер: Актеры: Zodiac, Gorky Park, Silent Circle, Bad Boys Blue, Вячеслав Бутусов, C.C.Catch, Chris Norman, Boney MПеревод: ОтсутствуетПродолжительность: 02:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594FC61CD192717B0C3F0616FA894E32D6F0DD5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605119   (995749) от 19.01.2013
-
-Дискотека 80-х 2012 Rock & Dance.Полная версия-оригинал 1 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, Pop, RockРежиссер: Актеры: Zodiac, Gorky Park, Silent Circle, Bad Boys Blue, Вячеслав Бутусов, C.C.Catch, Chris Norman, Boney MПеревод: ОтсутствуетПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5C0AACF013F9CFD24BC4A381B31FD9C1135F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604523   (995702) от 19.01.2013
-
-Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995702.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
-Magrao - один из пионеров видеомикс-направления.
-Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
-002 - Dr.Alban - Look Who's Talking
-003 - Dr.Alban - Away From Home
-004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605410   (995498) от 20.01.2013
-
-ABBA - ABBA (Deluxe Edition) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ABBA In Australia (Television Special)
-a. Mamma Mia
-b. Hasta Mañana
-c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605356   (995480) от 20.01.2013
-
-Duran Duran - A Diamond In the Mind (2011) [720] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в центре Манчестера, одиннадцатиметровая арена .была черной, когда начался концерт. Очень эффектным стал выход группы на сцену в струях белого дыма струйка белого дыма, Duran Duran
-Великолепные визуальные эффекты и и инсталляции на протяжении всего концерта и приглашенные звезды сделали шоу поистине незабываемым.
-Ле Бон написал позднее в Twitter: ""Я просто люблю музыку, здесь мы все на одной стороне!"01. Return to Now
-02. Before the Rain
-03. Planet Earth
-04. View to a Kill
-05. All You Need Is Now
-06. Blame the Machines
-07. Safe (In the Heat of the Moment)
-08. The Reflex
-09. Man Who Stole a Leopard
-10. Girl Panic!(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605831   (995443) от 20.01.2013
-
-Лучшие клипы / The best videos of all time (Enigmatic) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era  - Come Into My World
-02. Messiah project -  Insomnia
-03. Enigma - Sadeness
-04. Devaldi - Indian Sunrise(   Читать дальше...   )Жанр: Музыка, EnigmaticПродолжительность: 01:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDA46B161AA648515988428CC1A1EC60D5B318D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605938   (995439) от 20.01.2013
-
-Лучшие клипы / The best videos of all time (Disco) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - He Is Your Brother
-02. Donna Summer - I feel love
-03. Arabesque - Friday Night
-04. Bad Boys Blue - Come Back And Stay(   Читать дальше...   )Жанр: Музыка, DiscoПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605619   (995416) от 20.01.2013
-
-Дискотека 80-х лучшее за 10 лет (2002-2011)-2 часть (DVD-9)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаАктеры: TRANS-X, СЛАДКИЙ СОН, BAD BOYS BLUE, GLORIA GAYNOR, ВЯЧЕСЛАВ БУТУСОВ, KIM WILDE, DEMIS ROUSSOS, СЕРГЕЙ МИНАЕВ и др.Перевод: ОтсутствуетПродолжительность: 03:22:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

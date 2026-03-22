@@ -1,3 +1,136 @@
+###  Публикация: 703774   (461254) от 25.09.2013
+
+Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' Blues - Livin' Blues Boogie
+02. Nazareth - Morning Dew
+03. Atomic Rooster - Break Through
+04. Guru Guru - Oxymoron(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E41BC1703639272C2EA8432A6C724A804B70D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549841   (460735) от 21.09.2012
+
+Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R'n'bПродолжительность: 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BF24A3B0B5456E3AF542827DEFF31F06B2E43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550362   (460733) от 21.09.2012
+
+Sika - Love Kills (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BBE52770AD5858BE2EE0BAF78E76675997EB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549839   (460729) от 21.09.2012
+
+Antonia - Jameia (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A240E1535DB1AE0D46D7D4D37CF23BC686A40D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549837   (460572) от 21.09.2012
+
+Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Female Vocal / Hard Rock / Post-GrungeПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3C545DA3FD8DB2005585ECFF7D458E5B63ABE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549831   (460330) от 21.09.2012
 
 INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
@@ -565,139 +698,6 @@ Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D69685E22BD73416FC7763E257CD5FF611A63DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390016   (451413) от 20.09.2011
-
-C.C.Catch - Catch The Hits - Ultimate video collection (2005) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов популярной и легендарной певицы 80-х, 90-х  C.C.Catch.Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49950984D61DF6AAC0EDE5DD5D20714279470836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551839   (451408) от 25.09.2012
-
-Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9C9E62A2AA1B1AA402B0CCCE0588F40F1728A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942906   (451364) от 02.10.2015
-
-VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 02 октября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе использованы официальные видеоролики.01. Justin Bieber - What Do You Mean  (4:58)
-03. R. City - Locked Away ft. Adam Levine  (4:25)
-04. Calvin Harris & Disciples - How Deep Is Your Love  (4:21)
-05. The Weeknd - Can t Feel My Face  (3:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD40758EADD23E0671FFDD593EFFF1ABB53EEA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551914   (448413) от 26.09.2012
-
-Cinnamon Chasers (2009-2011) [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectronicПродолжительность: 00:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B412144D340C5E69A01ECA5EA823799774CABE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552162   (448163) от 26.09.2012
-
-Альборада Дель Инка / Alborada Del Inka - Восход Инков (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень красивая этническая музыка на фоне природы запада Южной Америки (Перу). Приятно как посмотреть так и просто пустить фоном. Ребята весьма талантливы!Жанр: Folk/Panflute/InstrumentalПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B490202F7D72A090FD608189B73250C686D5B66A
 ```
 
 https://mybot314.ru/tekegram_catalog/

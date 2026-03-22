@@ -1,3 +1,177 @@
+###  Публикация: 1332297   (311804) от 21.10.2019
+
+Tony Mills - Beyond The Law (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Westside  (4:12)
+02. Beyond The Law (4:05)
+03. Running Guns  (4:39)
+04. F.B.I.  (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472A2F018AAD591FA2CD8A34CD2E5FD381ACAAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175844   (311145) от 21.10.2019
+
+Tito & Tarantula - 8 albums, 10CD (1997-2019) [FLAC|Lossless|image + .cue, tracks + .cue] <Latin Rock, Stoner Rock, Chicano Blues Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311145.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Tito & Tarantula» — группа, играющая в стиле латинский рок. Она была основана в Голливуде, Калифорния, в 1992. Группа наиболее известна, как исполнитель песен «After Dark», «Back to the House That Love Built», «Strange Face of Love», и «Angry Cockroaches», а также благодаря появлению в фильме Роберта Родригеса От заката до рассвета в роли группы, выступающей (   Читать дальше...   )--------------------------
+
+01. As Worlds Collide (3:13)
+02. It's Alright Now (3:46)(   Читать дальше...   )Жанр: Latin Rock, Stoner Rock, Chicano Blues Rock |Продолжительность: 08:43:58 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DE3BF7470896FBD6A4C5D4A7DBBADAE755FD69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422324   (310901) от 08.11.2020
+
+Taskaha - Taskaha (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Date (0:08:47)
+02. Distressed (0:05:24)
+03. Reframe! (0:06:14)
+04. Daylight's Fading (0:08:35)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DC7E96C7A69EFA24308B480268C5C1FD64E8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422256   (310807) от 08.11.2020
+
+Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone To Love
+02. Mystified
+03. Love's Blind
+04. Without You(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ECCE3EE42387FDB8ED26A2E68538CA772BA743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422275   (310708) от 08.11.2020
+
+Whitesnake - Love Songs (2020 Remix) (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Set You Free (4:07)
+02. The Deeper The Love (4:01)
+03. All I Want, All I Need (5:41)
+04. Too Many Tears (6:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE2D288EE45BD66474879FEF9BEEDCEC4F2496D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422371   (310435) от 08.11.2020
+
+AC/DC - Power Up (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Realize
+02. Rejection
+03. Shot in the Dark
+04. Through The Mists Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116355C390BBACDCBEEA4349FCB1932226AA401D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152382   (310372) от 08.11.2020
 
 Ken Hensley (pre Uriah Heep) - The Gods: 2 альбома, 3CD, Toe Fat: 2 альбома, Weed: 1 альбом, Нead Machine: 1 альбом, 2CD (1968-1971) [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock, Classic R ...
@@ -568,180 +742,6 @@ Reece (ex.Accept) - Universal Language (2009) [FLAC|image+.cue]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:632960661E6079E0C575F85BFCD710A907DE3110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961138   (300932) от 01.12.2015
-
-AC/DC - Highway To Hell (1979) Japanese Edition, 1989, Atlantic [FLAC|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway To Hell (3:28)
-02. Girls Got Rhythm (3:24)
-03. Walk All Over You (5:10)
-04. Touch Too Much (4:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD955ECD48E4B527F9491C1C0054586898940EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334042   (299127) от 27.10.2019
-
-Hartmann - Home (2007) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Home To You (4:04)
-02. The Sun's Still Rising (4:29)
-03. My Everything (3:20)
-04. Somewhere Someday (4:46)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EADAD96868A0269E9A6F04A687A129B995E17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961515   (299082) от 02.12.2015
-
-Bangalore Choir - Metaphor (2012) [FLAC|image+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Damage Done 3:49
-02. Trojan Horse 3:35
-03. Silhouettes on the Shade 3:32
-04. Metaphor 3:33(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D72F2F7CAD57EC2A36C8F79473AF74232EEB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334071   (298945) от 27.10.2019
-
-Blacktop Mojo - Under the Sun (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay It on Me (04:23)
-02. Set It Free (03:27)
-03. Come Get Your Coat (04:28)
-04. Keep (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C7DD2B847E055BACC1AC23DE386627CBDEE66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961704   (298719) от 02.12.2015
-
-Def Leppard - Def Leppard (2015) Japanese Edition [FLAC|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Go [05:02]
-02. Dangerous [03:26]
-03. Man Enough [03:54]
-04. We Belong [05:06](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFDE0018A3E61EEC9EC8C3AE16746163FC84BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423697   (298070) от 14.11.2020
-
-Phil Campbell And The Bastard Sons - The Age Of Absurdity (2018) 2xCD, Jараn Еditiоn [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298070.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Ringleader
-02. Freak Show
-03. Skin and Bones(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877B8C5FDFEE43E62F8428CF7CDA092694913897
 ```
 
 https://mybot314.ru/tekegram_catalog/

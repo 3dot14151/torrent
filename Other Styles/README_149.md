@@ -1,3 +1,154 @@
+###  Публикация: 1513062   (227376) от 27.11.2021
+
+Gary Ryan - Midnight Guitar (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mallorca Op.202 (6:45)
+02. Recuerdos De La Alhambra (4:35)
+03. Lute Suite No. 4 in E Major (BWV 1006a) - Prelude (4:45)
+04. Lute Suite No. 4 in E Major (BWV 1006a) - Gavotte En Rondeau (2:54)(   Читать дальше...   )Жанр: Instrumental, Guitar, ClassicalПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401CDCD016800A0848B0FB71C0DB7680B8F044A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586661   (227334) от 09.12.2012
+
+A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227334.jpg" />
+</div>
+
+
+###  Подробнее
+
+(09:21) 01. Cerca Del Arroyo IV
+(05:18) 02. Bonshai
+(04:54) 03. Lacricum
+(03:16) 04. El Jardin De Las Esencias
+(04:11) 05. Asia Lounge
+(04:47) 06. Dreams
+(05:53) 07. Crystal
+(10:24) 08. Otro Dia
+(10:09) 09. Anestes I
+(08:47) 10. Anestes II(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3999ED2BC3E9F5C4C31D002B28E73B7047FC407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513159   (227324) от 27.11.2021
+
+Blackmore’s Night - Here We Come A-Caroling (2020) EP [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_227324.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Here We Come A-Caroling
+2. It Came Upon A Midnight Clear
+3. O Little Town Of Bethlehem
+4. Silent NightЖанр: Folk RockПродолжительность: 00:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE9C83C88CD9D98F94857189E545956CE93C5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583739   (227308) от 16.10.2022
+
+VA - Piano Relaxation Covers (2022) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_227308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Schultz - Fix You (02:22)
+02. Henry Smith - Shallow (Piano Version) (02:37)
+03. Flying Fingers - Blinding Lights (Piano Version) (02:01)
+04. Henry Smith - Perfect (04:32)(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 07:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1EB82E8F7A29FF6ECD6AD7A288D4C2456D9CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340714   (226714) от 30.11.2019
+
+Grand Theft Auto IV - Vladivostok FM (2008) [FLAC|Lossless|tracks+ .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_226714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liberty City: The Invasion
+02. РЭП
+03. Мама
+04. Никого не жалко(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A2D6C320C1144923FFBC0D261A1E1BC3FD822D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267558   (226423) от 11.12.2018
 
 Willie Nelson - For the Good Times: A Tribute to Ray Price (2016) [FLAC|Lossless|tracks + .cue] <Country>
@@ -600,151 +751,6 @@ Amure (Alexey Khatsko) - Geo (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enig
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BAFB477885A7B964656228CFE2F5874D8CE0887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269285   (221207) от 14.12.2018
-
-Хелависа - Люцифераза (2018) Deluxe Edition [MP3|320 Kbps] <Folk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кракатук
-2. Поверь
-3. Шей
-4. Дорога в огонь(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188892C453E405F28819EAD8EEFAC9AD8F341AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966159   (221064) от 17.12.2015
-
-Tom Barabas - Sedona Suite (1992) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. More than Words 4:16
- 2. Free Spirit 5:35
- 3. Moon Dust 5:28
- 4. Sedona Suite (Sunrise/Prayer/Joy/Sunset) 12:23(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAADF2E89100C4632778ECE748E06277EEE5CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425643   (220574) от 21.11.2020
-
-Faith Hill - It Matters To Me (1995) Warner W2 45872 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone Else’s Dream (3:38)
- 02. Let’s Go to Vegas (3:10)
- 03. It Matters to Me (3:17)
- 04. Bed of Roses (3:04)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D0F606A43E7539030EAF62CF8AA1AA61B0CBED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084209   (220505) от 18.12.2016
-
-Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 3 (Music From The Showtime Original Series) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Master (02:43)
-02. New Mexico (04:25)
-03. Las Cruces (02:26)
-04. Dr. Jekyll (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843E1C979723BC3193E22375AC6BBADD376745E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084210   (220326) от 18.12.2016
-
-Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 3 (Music From The Showtime Original Series) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Master (02:43)
-02. New Mexico (04:25)
-03. Las Cruces (02:26)
-04. Dr. Jekyll (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E779B025F094867A68CBEC4693E445A284C8C8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

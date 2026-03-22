@@ -1,3 +1,154 @@
+###  Публикация: 933964   (504501) от 03.09.2015
+
+Riverside - Love, Fear and the Time Machine (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost (Why Should I Be Frightened By A Hat?)
+02. Under The Pillow
+03. Addicted
+04. Caterpillar And The Barbed Wire(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57C693E96B3F39F8E5D291FEAEF5442AF5910C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540078   (504500) от 28.08.2012
+
+Creedence Clearwater Revival - The Best Of C.C.R. (Japanese Edition) (1985) [MP3|320 кб/с]<Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504500.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Suzie Q (4:40)
+ 2. I Put A Spell On You (4:30)
+ 3. Proud Mary (3:05)
+ 4. Green River (2:34)
+ 5. Bad Moon Rising (2:20)
+ 6. Down On The Corner (2:46)
+ 7. The Midnight Special (4:13)
+ 8. Travellin' Band (2:08)
+ 9. Up Around The Bend (2:41)
+ 10. Who'll Stop The Rain (2:29)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22566A8844DFA8C2FC9F972425D698E2122078E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563514   (503714) от 15.07.2022
+
+Beth Hart - Livе Аt Тhе Rоуаl Аlbеrt Наll (2018) 2xCD [MP3|320 Kbps] <Rock, Blues Rock, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503714.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. As Long As I Have A Song (02:43)
+ 02. For My Friends (04:21)
+ 03. Lifts You Up (03:57)(   Читать дальше...   )Жанр: Rock, Blues Rock, SoulПродолжительность: 02:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF9CEB0CB04B6EAF34C4041DB262BA884EC425A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563849   (502765) от 16.07.2022
+
+Lucid Grave - Cosmic Mountain (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, Dark>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cosmic Mountain
+02 Old Spirit
+03 I'm Still High
+04 I Feel the Fire(   Читать дальше...   )Жанр: Heavy Psych, Stoner, Doom, DarkПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D98D8023038E196D2F48872C6999203A0A74C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563846   (502764) от 16.07.2022
+
+Josiah - We Lay On Cold Stone (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rats (To The Bitter End)
+02 Saltwater
+03 Let The Lambs See The Knife
+04 Cut Them Free(   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED94A9C42ABD02918758CC5EDA2814DA8BB45F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563850   (502713) от 16.07.2022
 
 Supasonic Fuzz - Cobracadabra (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
@@ -605,151 +756,6 @@ Carlotta Valdes - Praha (2022) [MP3|320 Kbps] <Prog-Metal, Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2105FD14155BE8F216FFF30200A1A2B603316A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564586   (499589) от 19.07.2022
-
-O.A.K. (Oscillazioni Alchemico Kreative) - Lucid Dreaming and the Spectre of Nikola Tesla (2022) [MP3|320 Kbps] <RPI, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything is Light
-02. Oscillation Alkemy Kreativity
-03. Learn to Run in Your Dreams
-04. The Comet and the Dreamer(   Читать дальше...   )Жанр: RPI, Progressive RockПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE31F163DE232A6F890985CDE650F76D809A7459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317780   (499445) от 02.08.2019
-
-Yes - Yes 50 Live (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499445.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Close To The Edge (Live 2019)
-2. Nine Voices (Longwalker) (Live 2019)
-3. Sweet Dreams (Live 2019)
-4. Madrigal (Live 2019)(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E4B3D956477474C3860ACE42A081C5B6B447B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317669   (499378) от 02.08.2019
-
-Creedence Clearwater Revival - Live at Woodstock (2019) [MP3|320 Kbps] <Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born On The Bayou (Live At The Woodstock Music & Art Fair / 1969) (05:33)
-02. Green River (Live At The Woodstock Music & Art Fair / 1969) (03:16)
-03. Ninety-Nine And A Half (Won’t Do) (Live At The Woodstock Music & Art Fair / 1969) (04:45)
-04. Bootleg (Live At The Woodstock Music & Art Fair / 1969) (03:37)(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC2469FEB5BD7B4C6D0BFD84B55CB5953AEFD9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564712   (498593) от 20.07.2022
-
-Lowdrive - Roller (2018) [MP3|320 Kbps] <Heavy Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Last Stand [00:03:38]
-02 Roller [00:05:23]
-03 Left for Dead [00:03:32]
-04 Fallen Saviour [00:04:43](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B69FFADF6F12AC707F61EC6DF99FBA9E08B08B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564770   (498586) от 20.07.2022
-
-Regressor - Crescent Spoon (2022) [MP3|320 Kbps] <Progressive Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pillowcase [00:01:19]
-02. Fruit Crush [00:05:06]
-03. The Squid King [00:05:46]
-04. Garden Party [00:04:44](   Читать дальше...   )Жанр: Progressive Rock, FusionПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38BB2AEE7FABC27BA61689E5D1E755BE43C18C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

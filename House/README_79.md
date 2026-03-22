@@ -1,3 +1,168 @@
+###  Публикация: 487228   (90429) от 24.04.2012
+
+Naked Music Recordings - Коллекция (21 диск, 35 винилов) (1999-2010) [MP3|~148-320 кб/с]<Deep House, Downtempo, Future Jazz, Nu Disco, Lounge>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Naked Music– это звукозаписывающий лейбл танцевальной музыки, расположенный в Нью-Йорке и Сан Франциско. Появился в 1992 году как Нью-Йоркская звукозаписывающая компания, когда Дэйв Буншофт (Dave Boonshoft) и Джей Дэйнс (Jay Danes) добились стремительного успеха на андерграунд сцене со своими релизами на таких независимых лейблах как OM, Francois Kevorkian's Wave imprint и UKs XL records. Naked Sound был рожден как пересечение дэнса, соула и электронной музыки. В 1998 году компания стала настоящим звукозаписывающим лейблом.
+Лейбл известен сериями миксов и компиляций Nude Dimensions и Carte Blanche, а также сольными альбомами таких артистов как Blue Six, Miguel Migs и Lisa Shaw01. Blue Six - Luxury (4:09)
+02. Blue Six - You Play Too Rough (4:45)
+03. Blue Six - If You Turn Your Back On Love (4:38)
+04. Blue Six - You Used To Rock (4:33)
+05. Blue Six - C'Mon (4:19)
+06. Blue Six - Noesis (4:50)
+07. Blue Six - I Tried To Tell You (5:08)
+08. Blue Six - Anything Is Possible (3:38)
+09. Blue Six - Bittersweet (4:21)
+10. Blue Six - One More Night (5:48)(   Читать дальше...   )Продолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305E63EE709EF123F52561791F671F8BD417F9EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476712   (85989) от 02.04.2012
+
+Sweet DJs - Happy New Year Mix (2006-2010) [MP3|128-320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85989.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Кирилоff
+01. Justin Ferier - Surrounded By Light (Extended Mix)
+02. BBE ft. Zoexenia - 7 Days & One Week ft. Zoexenia (Genji Yoshida Remix)
+03. Alex M.O.R.P.H ft. Simon - No Regrets (Chriss Ortega Sunrise Remix)
+04. Second Left - Sculpt & Define (Original Mix)Жанр: House, Electro House, Progressive HouseПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51EF67D82CCAAFC0EBE0DE4B7CC7E311C9338C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474488   (84902) от 28.03.2012
+
+Катя Чехова - Сердце тебе в ответ (Сингл) (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84902.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Оригинал
+2. Лёгкая версия
+3. Агент Смит клаб микс
+4. Акапеллп2012Жанр: HouseПродолжительность: 00:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467607   (82054) от 14.03.2012
+
+DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Gate, Andrew Bayer - Nothing Ever Lasts (Extended Intro Mix)
+2. Cristian Poow ft. Valessa - Rhythm Is A Dancer (Extended Mix)
+3. Freza - Moonlight (Avo Remix)
+4. Reunited - Rapture (Global Deejays Remix)
+5. Hugcaro - Creating Havoc (James Hurr Remix)
+6. Stafford Brothers - Falling ft. Ollie James (Original Mix)
+7. Juicy, David Martini - Babe I Need You (Original Version)
+8. Lunde Bros - Tell Me (Alex Anthin Remix)
+9. Kobana, Yane3Dots - Woosh (Original Mix)
+10. Leach - Crying (Jekke Remix)(   Читать дальше...   )2012Жанр: Progressive HouseПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B2346876707875E86D7E55BFB0674AE2A32572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459541   (79141) от 29.02.2012
+
+VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_79141.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Mixed by James Grant [01:16:31]
+01. Dusky - Stick By This [3:39]
+02. Martin Roth - Beautiful Life [5:30]
+03. Vincenzo - Get To Know You [6:13]
+04. Laura Jones - Love In Me (Maceo Plex Remix) [4:39]
+05. Andrew Bayer - You [6:57]
+06. Paronator - No Gravity (Tom Middleton Liquatech Mix) [5:24]
+07. Dusky - Lost Highway [4:37]
+08. Above & Beyond - Prelude (Andrew Bayer & James Grant Remix) [6:24]
+09. Full Tilt - Take Me Away (Andrew Bayer & James Grant Remix) [5:23](   Читать дальше...   )Жанр: HouseПродолжительность: 02:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87646B79AA462D70BBDD7CDE0D43AB824B1FD87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454869   (77284) от 20.02.2012
 
 VA - More Than Miles: Dream House '96 (1996) [MP3|320 kbps]<Dream House>
@@ -604,151 +769,6 @@ VA - Exploration Tales #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E4008905CAFA14ADA7DF08DAD6DAA099509DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779855   (70565) от 15.02.2025
-
-VA - Best of Trippy Code Melodic Techno & Progressive House Vol.1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimi Python & Iida Niini - Ghost (Original Mix) [5:53]
-02. Y do I - Live 2 B Free (Original Mix) [7:49]
-03. Deviu - Moon Landing (Original Mix) [5:01]
-04. Raul Ron - Defcon 5 (Original Mix) [7:20](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 04:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA4F78782D10CB07450049A152B63FD3C648253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781267   (70241) от 22.02.2025
-
-VA - Milk & Sugar Winter Sessions 2025 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar - Higher & Higher (Illyus & Barrientos Extended Remix) (5:39)
-02. Moya - Always Needed feat. MOYA (The AMF Club Mix) (5:08)
-03. David Morales - Needin' U (Extended Mix) (6:11)
-04. David Penn - Deep Inside feat. Sheilah Cuffy (Jay Vegas Extended Remix) (6:19)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A4E1F6093D2F7BE97B5E75411F07CF90D713F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781493   (70206) от 23.02.2025
-
-VA - Groove Paradise (The Deep-House Collection), Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krumm & Schief - Everything Is Right (Unforgettable Extended Mix) [06:40]
-02. Luis Hermandez - Diamond Eyes (Original Mix) [03:49]
-03. PAAEEDS - Like You Do [03:24]
-04. Millan Seritos - Sometimes (Mai Jay Instrumental) [04:54](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812EE67C54A0B278D3F40590C10C8DF33DB2CB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781702   (70163) от 24.02.2025
-
-Dionigi - Hot Oxygen (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Mermaid (5:37)
-02. White Sand (4:48)
-03. Summer Is Coming (5:34)
-04. Sunny And Hot (4:57)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133A39351A92FC95882A0C9183FDFC6209BAE55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781699   (70158) от 24.02.2025
-
-Dionigi - Space Disco (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Di Di Disco (6:34)
-02. Space Sequencer (5:45)
-03. Kevlar Sequencer (4:55)
-04. Base 80 (8:08)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BE0CE97AE9FDE70FBBB7520E011EE87587B67E
 ```
 
 https://mybot314.ru/tekegram_catalog/

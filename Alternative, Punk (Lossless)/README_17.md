@@ -317,6 +317,93 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018151   (757358) от 19.05.2016
+
+Evanescence - The Open Door (2006) [FLAC|Lossless|image + .cue] <Alternative Rock, Goth Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Sacrifice    03:05
+02. Call Me When You're Sober    03:34
+03. Weight Of The World    03:37
+04. Lithium    03:44(   Читать дальше...   )Жанр: Alternative Rock, Goth Rock, Symphonic RockПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899CF4AC5E941846DB31B0383032E66E2C1B8779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280841   (757097) от 05.02.2019
+
+Tiny Ruins - Olympic Girls (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olympic Girls (04:38)
+02. School of Design (04:05)
+03. How Much (04:03)
+04. Sparklers (03:46)(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7863FFD44D949AC9A59A49E90E7BD0199DD11073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280842   (757093) от 05.02.2019
+
+Deep Cut - Different Planet (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No (04:11)
+02. Still Counting (01:59)
+03. Washed Up (05:15)
+04. Hanging Around (03:07)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1699416B47C2AB29D24085B7B539069CADBCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280840   (756971) от 05.02.2019
 
 Broods - Don't Feed the Pop Monster (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -658,91 +745,6 @@ Deerhunter - Why Hasn't Everything Already Disappeared? (2019) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4327B639073035734353C36360F9EF37C5815ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282323   (745408) от 12.02.2019
-
-Tunic - Complexion (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Nothing
-02. Envious
-03. Getting Sick
-04. Evan(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FA02C4A3B65631FDC4CA20866170E21FDA51D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282299   (745404) от 12.02.2019
-
-Angelo De Augustine - Tomb (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomb 04:18
-02. All to the Wind (02:52)
-03. You Needed Love, I Needed You (03:25)
-04. I Could Be Wrong (04:09)(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFBECCEF494964F1423DF5F170C2E22A3CE8E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282458   (745403) от 12.02.2019
-
-10,000 Maniacs - Trouble Me (1989) Mini-Single [FLAC|Lossless|tracks + .cue] <Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble Me (LP Version) (03:08)
-02. The Lion's Share (LP Version) (03:00)Жанр: Folk Rock, Alternative RockПродолжительность: 06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2AD4082AF1DD3C2267D87B48DFB352E7DEDFE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

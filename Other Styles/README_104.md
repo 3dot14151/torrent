@@ -1,3 +1,148 @@
+###  Публикация: 1159138   (487735) от 18.08.2017
+
+VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorna - Tu Gatita (feat. Henry Mendez) (Remix) 03:26
+02. Papi Wilo - La Reina de la Discoteca (feat. Duran The Coach & Kevin Roldan) (Remix) 03:42
+03. Alex Roy, Matt Houston - Dime 03:09
+04. Martin Sangar - Me Enamore (feat. Angel & Khriz) 03:22(   Читать дальше...   )Жанр: Reggaeton, Bachata, KizombaПродолжительность: 03:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3843583A124FD0817C978C1F1F3FD78A9D400F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158944   (487725) от 18.08.2017
+
+Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Blade (Instrumental) [03:05]
+02. Dark Harbor (Instrumental) [03:16]
+03. Earth Rising (Instrumental) [03:22]
+04. Master of Shadows (Instrumental) [03:04](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7D11D39F0F9C2E3EEA0A8DD3B63D571A307C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937730   (487329) от 15.09.2015
+
+Отава Ё - Лучшие песни 2006-2015 (2015) [MP3|320 кб/с]<Neo-Folk, Celtic-Slavic Folk, Post-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник «Лучшие песни 2006-2015» - промежуточный итог творческой деятельности Отавы Ё, в который вошли не только песни со всех четырёх студийных альбомов, но и два новых, ранее не издававшихся трека. Это «Сумецкая», главный на сегодняшний день хит группы, а также кавер-версия песни «В роще», записанная в рамках готовящегося трибьюта проекту «Иван Купала».01. Про Ивана groove
+02. Сумецкая
+03. Дворник
+04. На речке, на речке(   Читать дальше...   )Жанр: Neo-Folk, Celtic-Slavic Folk, Post-FolkПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404955   (487020) от 28.08.2020
+
+Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole New Mess (03:42)
+02. Too Easy (Bigger Than Us) (02:32)
+03. (New Love) Cassette (02:50)
+04. (We Are All Mirrors) (02:36)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319256   (486809) от 10.08.2019
+
+Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Lies Beneath [02:07]
+02. Legion [02:19]
+03. Fear [02:40]
+04. Power of Imagination [02:16](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FA50C4D820A7E6B1655E07F21D121D536BEAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 383479   (486725) от 04.09.2011
 
 Billy Vaughn - 3 альбома (1987-2005) [FLAC|Lossless]<Instrumental | Orchestra | Sax>
@@ -613,169 +758,6 @@ Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Medi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE876DF0E7477BE7965717D1461AEFD39971BF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545525   (482909) от 11.09.2012
-
-VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Марш.
-002-Нiченька-циганка.
-003-Ми зустрiлись на веснi.
-004-Мама тихо говорила.
-005-Ой лелеки-лелеченьки.
-006-Де ти.
-007-Дiвчино кохана.
-008-Оксана.
-009-Летiли гуси.
-010-Чому,козаче, сумний ходиш.(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 06:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEA559E37370FBFB01794350D1F94E3F7EA5C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544769   (482906) от 11.09.2012
-
-Capella Gregoriana - Mystic Gregorian Pop Songs & Ballads (2CD) (2005) [MP3|320 кб/с]<New age, Chorus, Gregorian chant>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482906.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-1. Mystic Pray (4:51)
-2. Hallelujah (Dance Version) (7:36)
-3. Sanctus (II) (Pop version) (6:00)
-4. Pater Noster (Dance In Trance) (8:40)
-5. Dance Of Sacrifice (5:57)
-6. The Prophecy Of Light: Creator alme siderum (5:15)
-7. The Evening Prayer: Agnus Dei (5:50)
-8. Sounds From Heaven (6:50)Жанр: New age, Chorus, Gregorian chantПродолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13B0B97FCE45961AF35EB34413B72B4E595B039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544993   (482760) от 11.09.2012
-
-Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [MP3|320 кб/с]<Folk / Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Христос Воскрес!
-02. Разлад
-03. Монолог собаки
-04. Появились молодые...
-05. Перед атакой
-06. Бабулька
-07. Ой, кума
-08. Чырвона ружа
-09. Я лишь поэт
-10. Тем, кто помнит(   Читать дальше...   )Жанр: Folk / RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7E2BB294CD00C9FED63BF08CE4AB451954C898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319330   (482698) от 12.08.2019
-
-Omar Akram - Destiny (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482698.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Take Me Away (4:23)
-2.Destiny (4:01)
-3.My Promise To You (4:19)
-4.Nomad (4:22)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5234CB3A44AB2B138BE6BBF8B3BB165F10E4776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 699983   (482491) от 15.09.2013
-
-101 Strings Orchestra - 3 альбома (1996-2007) [FLAC|Lossless|image, tracks + .cue] <Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koi Nobori (BoysFestival Song) [02:31]
-02. Oshogatsu - Yuki (Snow and New Year) [02:42]
-03. Mura Matsuri (Village Festival Song [03:30]
-04. Orobo Zukiyo [01:45](   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 03:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CA0DADCB7D6FB3BE5E08F5B90930938D13FC69
 ```
 
 https://mybot314.ru/tekegram_catalog/

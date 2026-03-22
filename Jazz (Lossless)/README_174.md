@@ -1,3 +1,183 @@
+###  Публикация: 1161006   (469810) от 27.08.2017
+
+Nina Simone - The Amazing Nina Simone (2005) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Prelude (3:22)
+02. Children Go Where I Send You (2:53)
+03. Tomorrow (We Will Meet Once More) (3:03)
+04. Stompin' At The Savoy (2:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DFDC6ABAF50F406047E3842BD8155A616B03A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386807   (469535) от 12.09.2011
+
+Wes Montgomery - Bumpin' On Sunset (2007) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Day In The Life (5:45)
+02. The Shadow Of Your Smile (2:18)
+03. Up And At It (4:15)
+04. Bumpin' On Sunset (4:50)
+05. The Joker (3:27)
+06. Movin' Wes (Pt. 1) (3:30)
+07. Impressions (5:05)
+08. Milestones (4:10)
+09. The Surrey With The Fringe On Top (5:20)
+10. Angel (2:48)(   Читать дальше...   )2007Жанр: JazzПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940384   (469355) от 24.09.2015
+
+Ray Bryant - Through The Years, vol.2 (1992) /1992, Nippon/[FLAC|image+.cue]<Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You The Night And the Music [06:29]
+02.Shake A lady [05:54]
+03.Satin Doll [08:16]
+04.Oleo [04:26](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E364F0771D8298ADDEA8A979DFA82229091F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940468   (469350) от 24.09.2015
+
+Анатолий Берестов (Anatoli Berestov) - Незатейливые фантазии на темы И.С. Баха (1996) /GEL/[FLAC|tracks+.cue]<Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sarabanda from Partita N 2 c-moll [02:16]
+02.Invention 2-voc N 4 d-moll [03:04]
+03.Invention 2-voc N 6  E-dur [05:18]
+04.Invention 2-voc N 15 H-moll [04:55](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5A322CEF80D66355C484F891F5280387C0D727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940467   (469340) от 24.09.2015
+
+Kathy Sanborn - Lights Of Laniakea (2015) [FLAC|image+.cue]<Vocal Jazz, World>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Catcher
+02. Follow The Light
+03. Soul Dancing
+04. Someday(   Читать дальше...   )Жанр: Vocal Jazz, WorldПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D9699C4D2A4191F779093E02A15A599764A5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940388   (469321) от 24.09.2015
+
+The Alan Broadbent Trio - Pacific Standard Time (1995) /PAR Media Music/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Summer Night [06:15]
+02.This One's for Bud [06:02]
+03.Easy Living [07:30]
+04.Easy to Love [04:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C344F517D9B3796FDA1C7071A4B3EF9884EF566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940379   (469155) от 24.09.2015
 
 Louis Armstrong - Hear Me Talkin' To Ya (1995) /Castle Communications/[FLAC|tracks+.cue]<New Orleans Jazz, Dixieland, Vocal Jazz>
@@ -583,186 +763,6 @@ Slim Gaillard & Slam Stewart - Slim & Slam: The Groove Juice Special (1938 - 194
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7049135778C6910EF59153D4199EEA1021FB482E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568115   (466018) от 06.08.2022
-
-V.A. - So Amazing and Beautiful Moments Relaxing Tunes for Two of Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eJazz Artistry – You're Makin' Me High
-02. Kool&Klean – I Can Only Imagine
-03. Chillaxonic – Together We Fly
-04. Chillaxing Jazz Kollektion – Into You(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 01:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55ED666095CB864B405CF186AE5A1FD4BC85A7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246221   (465750) от 09.09.2018
-
-Ike Quebec - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiny's Exercise [3:42]
-02. She's Funny That Way [4:29]
-03. Indiana [4:00]
-04. Blue Harlem [4:38](   Читать дальше...   )Жанр: BopПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4395BB7B4BF99BCA317DD52F028E78A175ADFCF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161676   (465705) от 29.08.2017
-
-John Surman - Flashpoint: NDR Jazz Workshop, April 1969 (2011) Cuneiform [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mayflower [08:41]
-02. Once Upon A time [08:41]
-03. Puzzle [05:57]
-04. Gratuliere [08:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1996173B5DABD93D9213B225E4DBBCA7E727D8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246017   (465686) от 09.09.2018
-
-Peter Bernstein - Solo Guitar - Live At Smalls (2013) [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465686.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Django
-2 I Love You
-3 Crepuscule With Nellie
-4 Pannonica(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601EEAD4FA10299206D9B0A084B84FA8FB92E712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320895   (465520) от 21.08.2019
-
-Pat Martino - Mission Accomplished: Interchange / Nightwings (1994) 2CD, 1999, 32 Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465520.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Catch [7:07]
-02. Black Glass [6:52]
-03. Interchange [10:37](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF3AEB6C327285D2CA15FC294D84FFC7DEC75F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548791   (465183) от 19.09.2012
-
-VA - Ladies First (2012) [FLAC|Lossless]<Jazz Vocal, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - I Will Always Love You [04:26]
-02. Celine Dion - The Power Of Love [04:49]
-03. Bette Midler - From A Distance [04:41]
-04. Faith Hill - There You'll Be [03:43]
-05. Linda Lonstadt - Desperado [03:36]
-06. Beverly Craven - Promise Me [03:38]
-07. Lisa Stansfield - All Around The World [04:28]
-08. Susan Boyle - I Dreamed A Dream [03:12]
-09. Sarah McLachlan - I Will Remember You [04:50]
-10. Cyndi Lauper - True Colours [03:50](   Читать дальше...   )Жанр: Jazz Vocal, Jazz-PopПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

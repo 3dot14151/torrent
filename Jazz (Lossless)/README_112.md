@@ -1,3 +1,183 @@
+###  Публикация: 508872   (676805) от 11.06.2012
+
+Oscar Peterson Piano Solo - Tracks (1971) [FLAC|Lossless]<Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_676805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me The Simple Life (4:03)
+02. Basin Street Blues (4:19)
+03. Honeysuckle Rose (3:10)
+04. Dancing On The Ceiling (5:11)
+05. Child Is Born (2:41)
+06. If I Should Lose You (5:23)
+07. Little Jazz Exercise (2:47)
+08. Django (5:20)
+09. Ja Da (4:21)
+10. Just A Gigolo (5:27)1971Жанр: Piano JazzПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536340   (676694) от 11.03.2022
+
+Howard Alden And Bucky Pizzarelli - In A Mellow Tone (2003) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In  A Mellow Tone [7:32]
+02. Do Nothing Till You Hear From Me [7:05]
+03. Tangerine [4:59]
+04. Snow Fall [5:23](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3411919055F0858ADDE1FF7AFCF37389E06424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290782   (676684) от 21.03.2019
+
+Lars Gullin - First Walk, Vol.5 (1951, 1952) 2002, Dragon Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's It [2:55]
+02. Gull in a Gulch [2:43]
+03. All Yours [3:01]
+04. Deep Purple [2:35](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D468E7E2B6AE23D7A85C90F8C0864C93A4C6AFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029933   (676682) от 29.06.2016
+
+VA - Milestones - Un incontro in Jazz (2007) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time After Time (4:45)
+02. Sapore Di Sale (6:18)
+03. Vivere Ancora (5:12)
+04. I Fall In Love Too Easily (5:01)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6EA92E1D7C13A52F79F78D99933391DCFA8145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029927   (676678) от 29.06.2016
+
+Tim Bowman - Tim Bowman (2008) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Sundays (03:45)
+02. High Def (04:54)
+03. For You, My Love (04:02)
+04. Motor City Shuffle (04:13)(   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EDA8ABE2F8838A821850F041024FD57519871D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290753   (676598) от 21.03.2019
+
+Bo Kaspers Orkester - Hittills (1999) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svart att saga nej (3:25)
+02. Ett & noll (4:08)
+03. Allt ljus pa mig (4:12)
+04. Det gar en man omkring i mina skor (2:38)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47A6A1306CDA4EBD9C6B6A0CEA64CB3549BE636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029975   (676408) от 29.06.2016
 
 Tim Bowman - Smile (2000) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
@@ -577,180 +757,6 @@ Duke Ellington - Solos, Duets And Trios (1932, 1941, 1967) 1990, Bluebird [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD454DCDDEAB3B3352D7FB27B26721AF9731D663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136671   (673338) от 23.05.2017
-
-Duke Ellington - S.R.O. (1956, 1961, 1966) 1989, Lester Recording Catalog [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [04:41]
-02. Medley: I Got It Bad and That Ain't Good/Things Ain't What They Used to Be [08:49]
-03. West Indian Pancake [04:36]
-04. Medley: Black and Tan Fantasy/Creole Love Call/The Mooche [09:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7392AE4D504ABCD4F69109F27DE86CC9227868D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136403   (673336) от 23.05.2017
-
-Gerry Mulligan - Midas Touch: Live in Berlin (1995) 2003, Concord Records [FLAC|Lossless|image + .cue] <West Coast Jazz , Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Back of the Barn [11:03]
-02. Intro & Comments by Gerry Mulligan [00:47]
-03. Wallflower [07:45]
-04. Midas Lives [10:08](   Читать дальше...   )Жанр: West Coast Jazz , CoolПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D258A2D34570969F826191DD739E27B8069856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136392   (673335) от 23.05.2017
-
-Duke Ellington - Splendeurs du grand orchestre (1959, 1961, 1966) 3CD, 2009, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673335.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blues in Orbit:
-01. Three J's Blues [02:55]
-02. Smada [02:39]
-03. Pie Eye's Blues [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5463CDE0AE49ED2BDF09778EA21859DE31E9C59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136643   (673333) от 23.05.2017
-
-Alice Babs & Duke Ellington - Serenade To Sweden (1963) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade to Sweden [03:23]
-02. The Boy in My Dreams [02:39]
-03. Stoona [03:02]
-04. La De Doody Doo [02:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC9D80DFE5B621D48E7793B0BF8FA4969A73134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136385   (673331) от 23.05.2017
-
-Duke Ellington - Blue Note Jazz Inspiration (1953 - 1969) 2012, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [03:00]
-02. Flamingo [03:42]
-03. Prelude to a Kiss [03:04]
-04. Just A Sittin' and A Rockin' [03:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A7110FF702FBB11310FFE5145FE01E348D9FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136394   (673329) от 23.05.2017
-
-Simon Rattle & City of Birmingham Symphony Orchestra - Ellington: Mainly Black (1986, 1999) 2010, EMI Classics [FLAC|Lossless|tracks + .cue] <Swing, Modern Creative, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mainly Black: Black, Brown and Beige Suite: Introduction [06:42]
-02. Mainly Black: Black, Brown and Beige Suite: Come Sunday [02:40]
-03. Mainly Black: Black, Brown and Beige Suite: Work Song [07:52]
-04. Mainly Black: Black, Brown and Beige Suite: The Blues (Mauve) [12:31](   Читать дальше...   )Жанр: Swing, Modern Creative, Third StreamПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABDA92B5860E80E2AB22C4A8FF40898096D4C662
 ```
 
 https://mybot314.ru/tekegram_catalog/

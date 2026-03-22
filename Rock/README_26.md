@@ -1,3 +1,32 @@
+###  Публикация: 1213892   (767343) от 18.03.2018
+
+Без Билета - Маяк (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767343.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Пироги
+3. Фонарь
+4. Маяк(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D316331B1CCB50CE3BCA8C4D9366996924FBC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279024   (766811) от 28.01.2019
 
 Axe - Living On The Edge (1980) Unofficial Reissue, 1997, Axepertise Entertainment Ltd. [MP3|320 Kbps] <Arena Rock, AOR, Melodic Hard Rock>
@@ -716,35 +745,6 @@ Brennen Sloan - Brennen Sloan (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:261CD7A743AF21DEB64D156801923660CA48007F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395153   (757261) от 09.07.2020
-
-Ars Pro Vita - Peace (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog.>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Is Peace (13:04)
- 02. Shut up and Shoot!!! (06:37)
- 03. On Bibles and Cannons (05:04)
- 04. The Yellow Cloud (06:19)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog.Продолжительность: 02:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FDB235BE991D25CFA876C758D0FE4AC0959B9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

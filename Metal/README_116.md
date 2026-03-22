@@ -1,3 +1,119 @@
+###  Публикация: 1795564   (67047) от 05.05.2025
+
+Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maniac Attack
+02. Eye of the Night
+03. Call of the Void
+04. KIA(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DD6E5798F85BE300894AAE3D8B2C80FAEA86F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795545   (67046) от 05.05.2025
+
+Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foeman's Flesh
+02. Desolation Hexx
+03. Total Bicep
+04. Violence Dimension(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7C4228EA9B4CD94DD239516240266F91EAAD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795286   (67037) от 05.05.2025
+
+Changeling - Changeling (2025) [MP3|320 Kbps] <Progressive, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introject
+02. Instant Results
+03. Falling In Circles
+04. World? What World?(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAE39CDD118B583AAAEC042918EAD0E9B7247CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795797   (67028) от 06.05.2025
+
+Dredge the Lethe - Blood Metal (2025) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die. Drink. Forget
+02. Blood Metal
+03. Mortal Throne
+04. Triumph Over The Horde(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E616A8B7DF6EA16962CA75AD3EDE4910B6CA4978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795771   (67026) от 06.05.2025
 
 Dessiderium - Keys to the Palace (2025) [MP3|320 Kbps] <Melodic, Progressive Death Metal>
@@ -629,122 +745,6 @@ Monhell - A Last Sigh of Pain (2025) [MP3|320 Kbps] <Melodic Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE87DF3F45D807DE5C5F6F42B77C80AC1F5889F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798293   (66636) от 21.05.2025
-
-Kryuhm - Demoni (2025) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogni Verbo e Diceria (01:08)
- 02. Inside the Mirror (08:08)
- 03. La Casa tra i Rovi (06:32)
- 04. Silente (01:38)(   Читать дальше...   )Жанр: Heavy Metal, Doom MetalПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EA96B5C7C05021DDF7686E211108EA17DFD0C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798711   (66508) от 26.05.2025
-
-Mudslider - Eerie Visions (2025) [MP3|320 Kbps] <Progressive Thrash, Heavy, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chewing Dead
-02. Doppelgänger
-03. Globster
-04. Hanako-san(   Читать дальше...   )Жанр: Progressive Thrash, Heavy, Death MetalПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397E6850FE3C451CDB425B07A4398DC6F07486FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798781   (66505) от 26.05.2025
-
-Necrochakal - Golgothian Orgies of Bestial Lust (2025) [MP3|320 Kbps] <Black, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demonic Invasion to Gethsemane
-02. Satanas Rebirth
-03. Thorns Upon the Head of the Carrion
-04. Scapegoat Crucifixion(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE07F0F127F48EBA01B36881836BDF6752987D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799459   (66489) от 27.05.2025
-
-Chantal - Rainbow Warrior (2025) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Linings (06:35)
-02. Rainbow Warrior (05:51)
-03. Run (09:34)
-04. Canyon (06:01)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D993EFF8C8419D2E11D43A735D7DCF7C932C6095
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1412418   (418363) от 29.09.2020
+
+Chet Baker - Live in Tokyo (1987) 2015, 2CD, King Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418363.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Stella by Starlight [10:52]
+02. For Minors Only [7:42]
+03. Almost Blue [7:54](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DE35AAA9623464C6356FB2B80474C067EFD278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947697   (418266) от 17.10.2015
+
+Miles Davis and Milt Jackson - Quintet / Sextet (1955) /2013, Universal/[FLAC|tracks+.cue]<Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dr. Jackle [08:56]
+ 02.Bitty Ditty [06:38]
+ 03.Minor March [08:18]
+ 04.Changes [07:12]Жанр: Hard Bop, CoolПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68B4A7DCC5286AD041ED2B6B2FD308F1DFC3344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251456   (418037) от 01.10.2018
+
+The Rivington Project - Trip (2006) Counterpart Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Navl Gazr [8:17]
+02. There's No Then in Zen [7:45]
+03. Giant Blues [6:47]
+04. New, as of Yet Unnamed Ballad [6:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32889E7C52FAD3A77DB1C10BE42F42D7B9824588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947300   (417876) от 17.10.2015
+
+The Phil Collins Big Band - A Hot Night in Paris (1999) [FLAC|Lossless]<Jazz, Jazz Fusion, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sussudio [6:52]
+02. That's All [5:34]
+03. Invisible Touch [5:42)]
+04. Hold on My Heart [6:36](   Читать дальше...   )Жанр: Jazz, Jazz Fusion, SwingПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADFEA04D7FB04E73B468AB1E8283F50BA9FC5F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167503   (417579) от 20.09.2017
+
+Freddie Hubbard - High Energy, Liquid Love, Windjammer (1974 - 1976) 2CD, 2012, BGO Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417579.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dastagh [04:20]
+02. Ordem e Progresso [04:25]
+03. Rosenthalia [03:57](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A41AF063227CFF762CC5A7B3BD173B9587058C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167570   (417573) от 20.09.2017
+
+Art Van Damme - A Perfect Match & Martini Time (1953, 1963) 2014, Cheesecake Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Accordion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Blackbird [03:07]
+02. In the Wee Small Hours of the Morning [03:07]
+03. Tickle-Toe [02:29]
+04. Gone with the Wind [03:48](   Читать дальше...   )Жанр: Mainstream Jazz, AccordionПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB8F2AABC186BB3456AD87CF643F37D57A715AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167497   (417411) от 20.09.2017
 
 Bill Evans - Another Time: The Hilversum Concert (1968) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
@@ -571,180 +745,6 @@ Roy Eldridge - Swingin' On The Town (1960) 1999, Verve [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F779000C4942EF57602395B019DB1CFEC129D450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572893   (414917) от 30.08.2022
-
-The Jones Brothers - Keepin' Up With The Joneses (1958) 1999, Verve [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice And Nasty [6:46]
-02. Keepin' Up With The Joneses [6:12]
-03. Three And One [4:57]
-04. Sput 'n' Jeff [6:05](   Читать дальше...   )Жанр: Bop, Hard Bop, Mainstream JazzПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EE85474EBCCB3D20A1304448E86ED3F5E90F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573140   (414916) от 30.08.2022
-
-Sadao Watanabe - Open Road (1973) 2CD, 2000, SME Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414916.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Birds [5:02]
-02. Morning [6:01]
-03. Pastel Morning [7:07](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 01:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3BA8819A826C53516C7801ABC8AA188E6886FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066273   (414771) от 25.10.2016
-
-Nat King Cole - Unforgettable (1954) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Unforgettable [03:12]
- 02.Portrait Of Jennie [03:08]
- 03.What'll I Do? [03:05]
- 04.Lost April [02:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9662D1C975F9331A0DDEF8DF21B9D48248B721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325286   (414681) от 14.09.2019
-
-Anders Widmark Trio - Psalmer (1997) Kaza [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I denna ljuva sommartid [2:44]
-02. Allena Gud i himmelrik [3:02]
-03. Bereden vag for Herran [3:15]
-04. Jag kan icke rakna dem alla [2:08](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7854BF693F6F9685621AE6331B67F63A675A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325291   (414676) от 14.09.2019
-
-Betty Carter - Whatever Happened To Love? (1982) 1989, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Little Moonlight Can Do [10:27]
-02. Cocktails for Two [6:12]
-03. Social Call [2:23]
-04. Goodbye [5:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1758CE4BB65B193FADDA5A65861411B6A2F082A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412832   (413835) от 01.10.2020
-
-Bill Evans Trio - At the Village Vanguard August 17 (1967) 2004, 2CD, Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413835.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Happiness Is a Thing Called Joe [4:26]
-02. In a Sentimental Mood [4:04]
-03. Re: Person I Knew [5:00](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFA3DBD9435FC302A3E90CBC009A27F1BF6608A
 ```
 
 https://mybot314.ru/tekegram_catalog/

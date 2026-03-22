@@ -1,54 +1,24 @@
-###  Публикация: 1802247   (66091) от 15.06.2025
+###  Публикация: 1786845   (68897) от 22.03.2025
 
-Michael Kaeshammer - The Pianist (2015) Self-Released [FLAC|Lossless|tracks + .cue] <Stride, Boogie-Woogie, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago Breakdown [2:24]
-02. Lands End Parade [3:07]
-03. Stomp [2:54]
-04. Autumn Leaves [3:31](   Читать дальше...   )Жанр: Stride, Boogie-Woogie, Piano JazzПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8014EE2606C818F4306ABF1386DFF0D1A69EF56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802232   (66090) от 15.06.2025
-
-Gasoline Lollipops - Kill The Architect (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roots Rock , Blues>
+Forsaken - Tales of Doom and Woe (2010) (Split) [FLAC|24/96|image + .cue|Vinyl-Rip] <Epic Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66090.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tennessee Nights (3:52)
-02.  Holy Rebel (3:20)
-03.  Mercy (4:10)
-04.  Honeysuckle and Poison Oak (3:32)(   Читать дальше...   )Жанр: Roots Rock , BluesПродолжительность: 00:42:16
+Forsaken:
+A1. Visions in Thy Shadow (09:25)
+A2. Solitude (Candlemass Cover) (06:27)Жанр: Epic Doom MetalПродолжительность: 00:35:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A217624A1A032EA1BC93399C9EB7DD6B455BEED
+magnet:?xt=urn:btih:4ADA5D9761A6F576F8F4F4ED01D46333FC8D679F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +26,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802236   (66089) от 15.06.2025
+###  Публикация: 1786833   (68896) от 22.03.2025
 
-Inglorious - V (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66089.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Testify (4:24)
-02.  Eat You Alive (3:42)
-03.  Devil Inside (3:14)
-04.  Say What You Wanna Say (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:09
+A. Where Angels Have Fallen (06:45)
+B. Confessing My Desolation (06:52)Жанр: Epic Doom MetalПродолжительность: 00:13:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3051468623B7A32BD091F3DA81BC346CB63835C
+magnet:?xt=urn:btih:AF9FF58432445197438227242571790583F28E23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802242   (66088) от 15.06.2025
+###  Публикация: 1786878   (68895) от 22.03.2025
 
-Larry McCray - Heartbreak City (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Technical Death Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66088.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Try To Be A Good Man (4:18)
-02.  Heartbreak City (7:24)
-03.  Bye Bye Blues (4:54)
-04.  Bright Side (5:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:46
+01. The Bitter Taste Of Clarity (04:50)
+02. Radiant Ascension (04:03)
+03. Embrace Oblivion (05:55)
+04. Into The Eventide (06:02)(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 00:52:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99964EC9A39AC0CCA8EE7281DBCEFCB0C611B8DB
+magnet:?xt=urn:btih:31D9B697B65D111F24127BB2283EAA5801F778A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802280   (66087) от 15.06.2025
+###  Публикация: 1787088   (68894) от 23.03.2025
 
-Каппадокия: полет на воздушном шаре, подземный город, сырное печенье и турецкая лазанья | «Поедем, поедим!» (14.06.2024) WEBRip [H.264/720p]
+Елена Князева - Выбрала счастье (2024) [MP3|320 Kbps] <Pop>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66087.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Федерико Арнальди в Каппадокии взмыл под облака на воздушном шаре, спустился в подземный город, погулял в музее под открытым небом, посетил пещерный монастырь, а еще полакомился традиционным десертом с сырным печеньем и острым перцем и научился готовить мини-манты и турецкую лазаньюТелекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:42
+01 - Чувства не горят [00:02:54]
+02 - Не твоё дело [00:03:34]
+03 - Зависть и ревность [00:04:02]
+04 - Отключу телефон [00:03:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94DCAFCA729593EE19177B104EAD49A7276BC35A
+magnet:?xt=urn:btih:9D1A8CCC21590490ABAF39D254326F2926E3680D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802082   (66086) от 15.06.2025
+###  Публикация: 1786949   (68893) от 23.03.2025
 
-Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|tracks] <Folk Rock>
+Фоны - Dealjumbo.com - Deeezy - 45 Free Futuristic 3D Backgrounds - 96757 [PNG, JPG]
 
->>Other Styles
->>Folk (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66086.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Star of the County Down    [0:02:42.15]
-02. Irish Heartbeat    [0:03:51.65]
-03. Tá Mo Chleamhnas Déanta    [0:03:31.35]
-04. Raglan Road    [0:04:56.25](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:36:55
+Бесплатные футуристические фоны.Формат: PNG, JPGРазрешение файлов: 6000 x 4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
+magnet:?xt=urn:btih:5DBFFAA2887C4C44A11118836DDC340C66122F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,198 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802263   (66085) от 15.06.2025
+###  Публикация: 1786891   (68892) от 23.03.2025
 
-Tres Pistoleros e Dona Kay - On another level (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blues Is The Mother (4:09)
-02.  Setup For Disaster (3:29)
-03.  Jaded Like Me (2:57)
-04.  Walk In The Sunshine (2:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4831D61C073499E933AEE393E2998E0009F570BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802246   (66084) от 15.06.2025
-
-Van Morrison - Remembering Now (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Down To Joy (3:38)
-02.  If It Wasn’t For Ray (3:17)
-03.  Haven’t Lost My Sense Of Wonder (5:28)
-04.  Love, Lover and Beloved (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00F15B345B1B03760804B52EDD02F5799A274F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802284   (66083) от 15.06.2025
-
-Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, Compilation, Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sabbrabells (1983)
-02 Dog Fight Ep (1985)
-03 Sailing on the Revenge (1986)
-04 Live! (1986)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 07:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D680676158FB82EDE0605E78F45EE79BAA9D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802215   (66082) от 15.06.2025
-
-Своя игра (15.06.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Иван Усольцев, Виталий Захарик, Варвара АртюшинаСубтитры: РусскиеЯзык: РусскийПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70897536471CB62D1BE304AB1DB1143F6C44D8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802107   (66081) от 15.06.2025
-
-Duran & Aytek - In Sight E.P. (2005) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive Breaks>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 First Sight (Original Mix) 8:29
-02 Second Sight (Original Mix) 7:00
-03 Catalepsy (Original Mix) 6:28Жанр: Progressive Trance, Progressive BreaksПродолжительность: 00:21:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B6B93153E47ED9C46A226FE393C294B72F6584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802190   (66080) от 15.06.2025
-
-Первая передача на НТВ. Автомобильная передача (15.06.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание преступного сообщества, взятки, злоупотребление должностными полномочиями: какой приговор вынесли бывшему начальнику ГИБДД Ставропольского края?
- Квадроцикл для подростка — что можно и что нельзя?
- Гараж, который помещается в багажнике: можно ли такой пузырь надуть во дворе многоэтажки?
- Осмотр авто для независимой экспертизы: как оценить ущерб, если страховая (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4856B269175655CD450C3C89FBE6DA9A2199C759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802204   (66079) от 15.06.2025
-
-Ritos Paganos - Eternal Hate (2025) [MP3|320 Kbps] <Death, Thrash Metal, Hardcore>
+Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [MP3|320 Kbps] <Pop>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66079.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eternal Hate
-02. No Pensar
-03. Ritos Paganos
-04. Empty Skull(   Читать дальше...   )Жанр: Death, Thrash Metal, HardcoreПродолжительность: 00:27:42
+01 – I Might Have Been Queen (2015 Remaster)
+02 – What’s Love Got to Do with It (2015 Remaster)
+03 – Show Some Respect (2015 Remaster)
+04 – I Can’t Stand the Rain (2015 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 04:53:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C522D9ED996E78344C918DFE318B217B1DF3A671
+magnet:?xt=urn:btih:FADAE20D67E543C75A973092A96C2304524AA68B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,28 +166,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802256   (66078) от 15.06.2025
+###  Публикация: 1786980   (68891) от 23.03.2025
 
-RPS - Annihilation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Журнал | А почему? №1 (2025) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66078.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sky Rider (4:28)
-02.  Only Waitin' (2:30)
-03.  The Feelings Grown (2:07)
-04.  Save It For Me (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:46
+Журнал А почему? - ежемесячное приложение к журналу "Юный техник" для детей среднего школьного возраста. Журнал для мальчиков, девочек и их родителей о науке, технике, природе, путешествиях и многом другом. Спорт, игры, головоломки.
+Издается с января 1991 года.Жанр: Детский журналИздательство: ООО "Объединенная редакция журнала "Юный техник"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CA15E51A2DC513901F53D1B986F45C045646510
+magnet:?xt=urn:btih:1623912F47431A1C5CF24710E71A91D05E962DBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,25 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802166   (66077) от 15.06.2025
+###  Публикация: 1787002   (68890) от 23.03.2025
 
-Военная тайна с Игорем Прокопенко (14.06.2025) WEBRip [H.264]
+VA - Compilation Part 149 Electronic (2025) [MP3|320 Kbps] <Electronic>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66077.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:01
+01. Jumanov - Take it Easy
+02. Imazee - Were Together
+03. A-Sultan - Desert Rose
+04. Akmalov & A-Sultan - Rest Now(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:20:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:993B3761A48C18EA64F0B8557FDD78FCF8BC7F9E
+magnet:?xt=urn:btih:FE5815E07003B79FD063AE0EDDC0FAAB55531AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,28 +222,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802171   (66076) от 15.06.2025
+###  Публикация: 1786928   (68889) от 23.03.2025
 
-НХЛ. Кубок Стэнли 2025. Финал. 5-й матч. Флорида Пантерз - Эдмонтон Ойлерз (14.06.2025) HDTVRip [H.264/720p]
+П.У. Эткинс | Физическая химия [2 книги] (1980) [DJVU]
 
->>Спорт и активный отдых
->>Хоккей
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66076.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 июня 2025, воскресенье. 03:00 МСК
-Стадион: Роджерс Плэйс (Эдмонтон, Канада), вместимость: 18641
-Финал. 5-й матч. Эдмонтон Ойлерз (Эдмонтон) — Флорида Пантерз (Санрайз)
-Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейЯзык озвучки: русский, английскийПродолжительность: 03:01:20
+Книга является монографией учебного характера по физической химии, в которой излагаются практически все важные вопросы этой области химии, начиная с основ термодинамики и кончая квантовой теорией строения молекул и физическими методами его исследования.
+Имя автора хорошо знакомо советскому читателю по другим его трудам (Спектры ЭПР и строение неорганических радикалов. (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3023290AF6BC9EE1AF868D277CEC8FD111F5068
+magnet:?xt=urn:btih:88D738FC5290E8F8AAD3ED7E12CB5F2693DA300E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,28 +249,160 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802084   (66075) от 15.06.2025
+###  Публикация: 1786947   (68888) от 23.03.2025
 
-The Kinks - Come Dancing With The Kinks: The Best of The Kinks 1977–1986 (1986) [FLAC|Lossless|tracks + .cue] <Rock>
+А.Г. Мерзляк, В.Б. Полонский, М.С. Якир | Алгебра. Учебник для 9 класса (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для изучения алгебры в 9 классе общеобразовательных организаций. В нём предусмотрена уровневая дифференциация, позволяющая формировать у школьников познавательный интерес к алгебре.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7DCAA6ECADE205D4225689BD9BC8403C60D113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786946   (68887) от 23.03.2025
+
+А.Г. Мерзляк, В.Б. Полонский, М.С. Якир | Алгебра. Учебник для 8 класса (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для изучения алгебры в 8 классе общеобразовательных организаций. В нём предусмотрена уровневая дифференциация, позволяющая формировать у школьников познавательный интерес к алгебре.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B562600F56C7EB20950284AD3839A84283057B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786994   (68886) от 23.03.2025
+
+А.В. Топчиев (ред.) | Органические полупроводники (1963) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана сотрудниками лаборатории специальных полимеров Института нефтехимического синтеза АН СССР и группы органических полупроводников Института полупроводников АН СССР, в течение ряда лет совместно работающих в области изучения полупроводниковых полимеров.Жанр: ЭлектроникаИздательство: Издательство Академии наук СССРФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B51F3BA3172633966C35D7731425B955DC6C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787100   (68885) от 23.03.2025
+
+Unit Converter Pro / Конвертер Единиц Pro v2.6.3 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертер единиц Pro это 6-ой набор из коллекции Smart Tools®.
+Это приложение включает курсы обмена валют (денег, биткойнов). Данная версия не содержит рекламы. Вместо рекламы вы увидите полезный текст.Тип издания: ProРелиз состоялся: 23.03.2025Разработчик: Smart Tools co.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2700D9D29609913745E1AC5DFAF13D4E1A4DF558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786981   (68883) от 23.03.2025
+
+Журнал | А почему? №2 (2025) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал А почему? - ежемесячное приложение к журналу "Юный техник" для детей среднего школьного возраста. Журнал для мальчиков, девочек и их родителей о науке, технике, природе, путешествиях и многом другом. Спорт, игры, головоломки.
+Издается с января 1991 года.Жанр: Детский журналИздательство: ООО "Объединенная редакция журнала "Юный техник"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE2DFCAABA35E5596F4E90891867D338F88B2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786892   (68882) от 23.03.2025
+
+Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Contemporary R&B>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66075.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Really Got Me (live)    [0:03:36.32]
-02. Destroyer    [0:03:47.48]
-03. (Wish I Could Fly Like) Superman    [0:03:36.62]
-04. Juke Box Music    [0:03:46.55](   Читать дальше...   )Жанр: RockПродолжительность: 01:09:46
+01. Show Some Respect (Live from NEC, Birmingham, 1985, 2025 Remaster) (00:03:43)
+02. I Might Have Been Queen (Live from NEC, Birmingham, 1985, 2025 Remaster) (00:03:46)
+03. What’s Love Got To Do With It (Live from NEC, Birmingham, 1985, 2025 Remaster) (00:03:59)
+04. I Can’t Stand The Rain (Live from NEC, Birmingham, 1985, 2025 Remaster) (00:03:27)(   Читать дальше...   )Жанр: Pop Rock, Contemporary R&BПродолжительность: 5CD, 04:53:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76E6BFAA4E860A87419132C974E64912741C820B
+magnet:?xt=urn:btih:28E2CF979C43C429DF2EFCEA16DFE06E28A2F461
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,25 +410,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802162   (66074) от 15.06.2025
+###  Публикация: 1787126   (68881) от 23.03.2025
 
-Кое-что из губернской жизни (1983) DVD5
+Бездна Анального Угнетения (Б.А.У.) - Суперспорт (2025) [MP3|320 Kbps] <Alternative Metal, Industrial>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66074.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отечественное искусство знавало много попыток экранизировать прозу Чехова. Режиссерам всегда казалось мало того, что Антон Павлович создал достаточно пьес. Простота и острота его рассказов всегда была необоримым соблазном – воплотить их на экране. Удавалось это с большим или меньшим успехом. «Кое-что из губернской жизни» - образец подобной попытки. Литературной основой (   Читать дальше...   )Производство: СССР, ТО «Экран»Жанр: комедияРежиссер: Борис ГалантерАктеры: Лия Ахеджакова, Андрей Миронов, Юрий Богатырев, Александр Калягин, Татьяна Догилева, Лев Дуров, Татьяна Шмыга, Олег ТабаковСубтитры: отсутствуютПродолжительность: 01:27:09
+01. Про Тюрьму И Воров
+02. Ядерный Чемоданчик
+03. Люди С Разных Областей
+04. Молодость(   Читать дальше...   )Жанр: Alternative Metal, IndustrialПродолжительность: 00:30:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BF765B921540D1222A01C1EDFF2BF068F2EEECD
+magnet:?xt=urn:btih:0EFA9C42D2D6B0248AB39896AE76DDA30A08792F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +439,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802150   (66073) от 15.06.2025
+###  Публикация: 1786772   (68880) от 23.03.2025
 
-Формула 1. Сезон 2025. Этап 10. Гран-при Канады. Квалификация (14.06.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+Кулагины (2022) WEBRip [H.264/720p] (сезон 2, серии 1-50 из 50)
 
->>Спорт и активный отдых
->>Формула 1
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66073.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-14 июня 2025 суббота. 23:00 МСК этап 10, Монреаль. Арена: Автодром имени Жиля Вильнёва. Гран-при Канады. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:23:26
+Команда экспертов и следователей под руководством знаменитого адвоката Леонида Кулагина продолжает распутывать самые сложные преступления, которые оказались не по зубам другим специалистам. Жизнь начальника экспертной группы и дочери Кулагина Алисы налаживается: она делает успехи на службе и кажется, что с отцом они стали ближе. Но беда приходит откуда не ждали - (   Читать дальше...   )Производство: Россия | «Дикси-ТВ»Жанр: Детектив, драма, криминалРежиссер: Мурад Алиев, Ольга НовиковаАктеры: Алёна Спивак, Леонид Кулагин, Дмитрий Блохин, Дмитрий Бедерин, Татьяна Лянник, Виктория Фишер, Валерий Сторожик, Борис Смолкин, Илья Носков, Саша Алексеев и др.Субтитры: РусскиеПродолжительность: ~00:49:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95ACCA2E9E4C6E9F2C76777BF90D2B28F1A00493
+magnet:?xt=urn:btih:1CF146EC8BC7D452B15F810917BF76CED53324E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,28 +465,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802249   (66072) от 15.06.2025
+###  Публикация: 1787021   (68879) от 23.03.2025
 
-Little Barrie & Malcolm Catto - Electric War (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Mia Morgan - Silber (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deutschrock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66072.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Electric War (5:16)
-02.  Zero Sun (3:28)
-03.  Spektator (3:46)
-04.  Creaky (7:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:03
+01. Ein Herz aus Gold und Rosen [00:04:13]
+02. silbertablett [00:03:15]
+03. Niemand [00:03:04]
+04. 1000 KLEINE TODE [00:03:12](   Читать дальше...   )Жанр: DeutschrockПродолжительность: 00:42:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C235038F9E5F989C6D9C17CC4DCF123A2CCDEC8
+magnet:?xt=urn:btih:C9D297A26202E9982E3EFFCDE4A4385FB337D347
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,28 +494,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802240   (66071) от 15.06.2025
+###  Публикация: 1787038   (68878) от 23.03.2025
 
-KinKobra - Kobra's Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Чудо техники с Сергеем Малозёмовым (23.03.2025) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66071.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  29 and Wasted To Tha Bone (3:09)
-02.  Serial (3:29)
-03.  The Bravest One Of All (3:02)
-04.  Planet Boom (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:58
+Секрет вечной молодости, выбор снегоуборочной техники и тест кулинарной станцииТелекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C389D0E3640E19D9095B7AC3198403080995C22F
+magnet:?xt=urn:btih:96154C74F3B3B13CB5808DF5972D23A5913FB24A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,28 +520,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802201   (66070) от 15.06.2025
+###  Публикация: 1786989   (68877) от 23.03.2025
 
-Nostrum - Infernal Tomb (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Sludge Metal>
+Шрифты - Inmagine Lab Pte Ltd - Aviation Cocktail Font + BONUS - 202021732 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем шрифт для этикеток в винтажном стиле под названием "Aviation Cocktail".
+В качестве бонуса - 8 готовых дизайнов футболок в формате EPS10 и изолированные иллюстрации из снимков экрана на белом фоне в EPS10
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190DEE83394B65F16C9F0E2AAEF1EB0617546C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787004   (68876) от 23.03.2025
+
+Avalanch - 30 Aniversario (2025) 2 x CD [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66070.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ember to Ash
-02. ILL WILL
-03. Gravedigger
-04. Sickness of the Mind(   Читать дальше...   )Жанр: Death, Doom, Sludge MetalПродолжительность: 00:44:07
+CD1:
+01. Juego Cruel 6:04
+02. Torquemada 6:25
+03. Pelayo 7:19(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:54:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BF98646B467F3800FC4C18273233FB97488EBE3
+magnet:?xt=urn:btih:DDE29F9D528C4D7C78FF7A55F99D4F86EBB2F5EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,28 +578,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802254   (66069) от 15.06.2025
+###  Публикация: 1786953   (68875) от 23.03.2025
 
-Pleasure Business - Pleasure Business (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
+Растровый клипарт - Dealjumbo.com - Deeezy - Lime Spring - Free 3D Alphabet - 96821 [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66069.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Nightwalk (4:19)
-02.  This Time Around (3:55)
-03.  Closed for the Summer (3:14)
-04.  Lucky Hands (5:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:08
+Бесплатный алфавит-латиница.Формат: PNGРазрешение файлов: 3000 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71FE66C8E7089C731A0245F6EC6A2FDC501FD436
+magnet:?xt=urn:btih:17CAEE3AA935DB5216D9C21E07F9855DF6CCDB9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,28 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802261   (66068) от 15.06.2025
+###  Публикация: 1787040   (68874) от 23.03.2025
 
-SM Society - Conster(nation) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Александр Пушкин | Повести Белкина (1958-1997) [MP3, Александр Слободской и др.]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66068.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Universe (3:29)
-02.  Fatality (1:44)
-03.  Consternation (4:03)
-04.  Raging Bull (2:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:55
+Серия/Цикл: Звучащая библиотека. Детская страничка.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+«Повести покойного Ивана Петровича Белкина» – цикл повестей А.С. Пушкина.
+Предлагаем послушать записи четырех повестей цикла. Запись повести (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 02:11:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DCBF8C7AF4A4ADD133B7DA8C42769309FDD04C8
+magnet:?xt=urn:btih:C2602A92BB8861F55374A7D2AFFA9A6FD701C9CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,28 +633,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802149   (66067) от 15.06.2025
+###  Публикация: 1787118   (68873) от 23.03.2025
 
-Toad the Wet Sprocket - Fear (1991) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+Эрик Фрэнк Рассел | Свидетельствую (2021) [MP3, Puffin Сafe]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66067.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Walk on the Ocean    [0:03:00.07]
-02. Is It for Me    [0:03:24.73]
-03. Butterflies    [0:04:26.22]
-04. Nightingale Song    [0:02:03.20](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:46:37
+Мэт — инопланетянин, выглядящий как кактус и случайно попавший на Землю. Его беда в том, что он не знал земных законов и парализовал нескольких враждебно настроенных граждан, в том числе, полицейского и позаимствовал кое-какие вещи, которые ему не принадлежали. Все осложняется тем, что он читает мысли. Но самая главная его вина в том, что он инопланетянин.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:53:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9C8D754913CA8664AFA6DDE8672AD1D6CEDD836
+magnet:?xt=urn:btih:F7000A0BC564BA92D568B57BC1056C5C749415A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -707,28 +659,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802136   (66066) от 15.06.2025
+###  Публикация: 1786969   (68872) от 23.03.2025
 
-Khold - Du Dommes Til Dod (2024) [FLAC|Lossless|image + .cue] <Black Metal>
+Павел Любимцев | Экзотические страны (2011) [MP3, Николай Савицкий]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66066.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Myrdynk 04:03
-02. Vanviddfaren 03:35
-03. Heks (Du dømmes til død) 04:04
-04. Skoggangsmann 03:38(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:32:57
+Издательство "ОЛМА-ПРЕСС" и телекомпания "Живые новости" представляют первую книгу серии "Путешествия натуралиста". Ее автор - известный всей стране ведущий одноименной телепередачи Павел Любимцев. Книга "Экзотические страны" рассказывает о путешествиях в Индонезию (на острова Бали и Яву), в Таиланд, в Папуа Новую Гвинею и (   Читать дальше...   )Жанр: ПутешествиеИздательство: Нигде не купишьПродолжительность: 08:51:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80EE3545DEA70B4D7C41FAB7CC40A1FBCCE09D68
+magnet:?xt=urn:btih:3496C1FEF7D4ABF26CC5A63FE8D3F3A36EFE9B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787023   (68871) от 23.03.2025
+
+Booka Shade - For Real (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Glass [00:05:02]
+02. Electric Birds [00:05:16]
+03. Save Me [00:04:30]
+04. Glare [00:02:03](   Читать дальше...   )Жанр: HouseПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97809CF68B87746C522033603A3019A6F5FDD818
 ```
 
 https://mybot314.ru/tekegram_catalog/

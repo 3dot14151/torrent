@@ -1,3 +1,32 @@
+###  Публикация: 1141063   (653948) от 08.06.2017
+
+Mc Lane Explosion - Space Music (1977) LP [MP3|320 Kbps] <Electronic, Ambient, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Fly (3:31)
+02. Bilitis (3:37)
+03. Accidental Lover (4:24)
+04. Fire Land (4:17)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-pop, DiscoПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB20783E17BF1F41F8CD10C66DD8CFD31FF6072F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905297   (651209) от 05.06.2015
 
 Crazy P - Walk Dance Talk Sing (2015) [MP3|320 кб/с]<Nu-Disco, Nu-Jazz, House, Electronic>
@@ -716,35 +745,6 @@ Anita Ward - Songs Of Love (1979) Reissue CD, 2013, Big Break Records [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3BE6F8927EB0574062DEE722903615B8031FAF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542443   (637257) от 07.04.2022
-
-Atmosfear - Dancing In Outer Space (2000) Compilation [MP3|320 Kbps] <Electronic, Funk Soul, Jazzdance, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In Outer Space (9:36)
-02. Outer Space (6:07)
-03. Motivation (8:50)
-04. Extract (5:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Jazzdance, DiscoПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF74FFEB181A433FA2A8BB4908641944902D0BEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

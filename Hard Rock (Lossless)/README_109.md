@@ -1,3 +1,177 @@
+###  Публикация: 1815613   (4953) от 31.08.2025
+
+IMKT - Sooner Or Later (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Come True
+02. You're Not Living My Life
+03. Don't Take It Too Serious
+04. Two Hearts(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF64EC66EB450AB6ECBA2A9920540D59A283D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815760   (4924) от 31.08.2025
+
+Lillian Axe - Fields Of Yesterday (1999) Reissue, 2004, CD-Maximum [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Valley Daze 5:16
+02. Do It 4:18
+03. Twilight in Hell 4:12
+04. For Crying Out Loud 4:00(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4335AD27A3A8EF6691F9C6CDE9A0D47B03BF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816309   (4440) от 04.09.2025
+
+Kiss - Unchained & Unmasked (1993) 2 x CD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One:
+01. Creatures Of The Night
+02. Deuce
+03. I Just Wanna(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9391EA341E61CD68D34D26603629DB63DDFDE680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816684   (4127) от 06.09.2025
+
+Glenn Hughes - Chosen (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice In My Head(5:18)
+02. My Alibi(5:01)
+03. Chosen(4:58)
+04. Heal(6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADDE54B211D26F5579D979417D262AF26416296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817439   (3458) от 10.09.2025
+
+November - The Long Way Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tear Down The Kings 04:56
+02. Never Lose Your Hopes (feat. Bumblefoot) 04:26
+03. Skyfall 05:44
+04. One of a Kind 03:49(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DFCBDEBA1C8B43924D7A6DD989DAE256766C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818099   (2777) от 14.09.2025
+
+Sean David Leland - Hear Me Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hear Me Roar (4:59)
+02.  Beating Like A Drum (4:29)
+03.  Part Of The Lonely (4:38)
+04.  I Wanna Be Your Ice Cream Cone (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F2397F6107B03AF9EF438C250908A6D114F637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818112   (2772) от 14.09.2025
 
 Various - Bat Head Soup - Tribute To Ozzy (2000) Japanese Edition, 2023, TOCP, Compilation [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>

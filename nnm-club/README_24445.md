@@ -1,25 +1,22 @@
-###  Публикация: 1771017   (71933) от 05.01.2025
+###  Публикация: 469861   (82841) от 18.03.2012
 
-Pink Floyd - Live At Palais De Sports (Paris, France, 24 June 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+Раз, два - горе не беда (1988) DVD5
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71933.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shine On You Crazy Diamond (Live At Palais De Sports, Paris, France, 24 June 1974) [20:58]
-02 - Raving And Drooling (Live At Palais De Sports, Paris, France, 24 June 1974) [10:16]
-03 - Echoes (Live At Palais De Sports, Paris, France, 24 June 1974) [22:58]
-04 - Speak to Me (Live At Palais De Sports, Paris, France, 24 June 1974) [3:56](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:55:41
+Старший брат Иван, победив Кащея, Горыныча и прочую нечисть, отказался от царской дочери и наград, чтобы вернуться домой и жениться на Марье, с которой давно уже уговорился. Царь (Табаков) дико обиделся, младший брат теперь был назначен специальным богатырем. А обиженный царем заморский принц (Караченцов) объявил войну, прикатив неуязвимое страшилище вроде огромного (   Читать дальше...   )Жанр: Сказка, КомедияРежиссер: Михаил ЮзовскийАктеры: Олег Табаков, Николай Караченцев, Семен Фарада, Марина Яковлева, Андрей Соколов, Владимир Епископосян, Владимир Федоров, Мечислав Юзовский, Виктор Бунаков, Виталий Серов, Татьяна ПельтцерСубтитры: ОтсутствуютПродолжительность: 01:22:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69535DF239675737F24449D959DD073C414B3D23
+magnet:?xt=urn:btih:8F4510A420151D4D08D410DA5C15DDA8630CFA30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771018   (71932) от 05.01.2025
+###  Публикация: 470131   (82838) от 18.03.2012
 
-Pink Floyd - Live At The Empire Theatre (Liverpool, UK, 29 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+Аленький цветочек (1978) DVDRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71932.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Raving And Drooling (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [12:01]
-02 - You've Got To Be Crazy (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [16:27]
-03 - Shine On You Crazy Diamond (Live At The Empire Theatre, Liverpool, UK, 29 November 1974) [21:09]
-04 - Speak to Me (Live At The Empire Theatre, Liverpool, UK, 29 November (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:09:11
+Было у купца три дочери. Отправляясь в заморское странствие, пообещал он им привезти подарки, какие они пожелают. Две старшие попросили себе тканей и красивых безделушек. И лишь меньшая, любимая, Алёна, заказала отцу чудо диковинное, невиданное - аленький цветочек, который видела она во сне.
+Рос тот цветок в далеких краях, во владениях лесного чудовища. Отправился (   Читать дальше...   )Жанр: Русская народная сказкаРежиссер: Ирина ПоволоцкаяАктеры: Марина Ильичёва, Лев Дуров, Алла Демидова, Алексей Чернов, Александр Абдулов, Валентин Гнеушев, Ольга Корытковская, Елена Водолазова, Валентин Гнеушов, Елена ВодолазоваПродолжительность: 01:05:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:283393551E9D6F8C975EAD7D95706CC251BAEBD8
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771252   (71931) от 05.01.2025
+###  Публикация: 469266   (82832) от 18.03.2012
 
-Mariah - Mystic Lady (1975) 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+VA - TOP 100 самые скачиваемые клубные треки by Dj Najim Hassas (18.03.2012) (2012) [MP3|320 kbps]<Electro-House|Club House|Dance|Club|Pop|Trance>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71931.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Hey Mama (3:08)
-02.  Rock and Roll Band (4:13)
-03.  Mystic Lady (2:41)
-04.  Reunion (6:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:50
+001. Р.Набиев feat A-Sen - По ресторанам (Dj Najim Hassas Remix 2012 Exclusive )
+002. Baby Alice - Pina Colada Boy (Crash Project Remix)
+003. Michael Jackson - Thriller 2011(Mister Black Remix)
+004. Катя Чехова - Я тебя люблю (DJ AnD remix)
+005. Calvin Harris - Feel So Close (Dj nErU Remix)
+006. Greg Parys - Get Sexy (Radio Edit)
+007. 50 Cent vs Magic Waves - Disco Inferno 2011  ( Dj Najim Hassas Chillout Remix )
+008. Datsik & Kill The Noise - Lightspeed
+009. 23-45 & 5ivesta Family - Зачем (Tema Tarasov & Alexsey Frolove remix)
+010. Krewella - Life of the Party ft. S-Preme(   Читать дальше...   )2012Жанр: Electro-House|Club House|Dance|Club|Pop|TranceПродолжительность: 10:12:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECC4C0B4BDE412B14238C6CF08FC0877D1E227CF
+magnet:?xt=urn:btih:F8EB69B6CE5C522E7C945758745374800FE7B2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,166 +86,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771033   (71930) от 05.01.2025
+###  Публикация: 469511   (82829) от 18.03.2012
 
-VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Kaspersky Virus Removal Tool 2011 11.0.0.1245 от 16.03.2012 года [русский]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71930.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mongo Santamaria - Grass Roots [00:04:14]
-02. Freddie Hubbard - The Return of the Prodigal Son [00:05:42]
-03. Herbie Mann - Kidnappin' Lover [00:07:40]
-04. Eddie Harris - Time to Do Your Thing [00:06:08](   Читать дальше...   )Жанр: JazzПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05129CC36F14181EBD7F3C3BA162BA0DA5244E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771231   (71929) от 05.01.2025
-
-Архимандрит Лазарь (Абашидзе) | В пещи вавилонской. О грехе блуда (1998) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71929.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Каждому православно-верующему христианину, вероятно, хорошо знакома история прохождения мытарств святой Феодорой Цареградской (Житие ее см. 30 декабря), сколько страха натерпелась она, узнав на собственном опыте, какой грозный экзамен проходит человеческая душа по исходе из сего мира. Но многие ли, читая это Житие, обратили внимание на один весьма значительный эпизод: (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23AA4FE21517542B8F3DC3D643C957BBFB66CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771215   (71928) от 05.01.2025
-
-Сеанс дождливым вечером / Seance on a Wet Afternoon (1964) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по роману Марка Макшейна (1961)... Медиум-самозванка Майра Сэвидж придумывает, как стать знаменитой. Она уговаривает мужа Билли похитить дочь богатых людей, потребовать выкуп, а потом «найти» её. План похищения срабатывает, но Билли вдруг понимает, что супруга не собирается оставлять ребёнка в живых...Производство: Великобритания / Beaver Films, Allied Film Makers (AFM)Жанр: драма, криминал, триллерРежиссер: Брайан ФорбсАктеры: Ким Стэнли, Маргарет Лейси, Мари Бурк, Мария Кэзан, Лайонел Гамлин, Мэриэн Спенсер, Ричард Аттенборо, Годфри Джеймс, Джудит Доннер, Рональд Хайнс, Хэйджни Биро, Марк Иден, Нанетт Ньюман, Диана Ламберт, Франк СингиноПеревод: профессиональный многоголосый (Intra Communications по заказу 100ТВ)Язык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C915A8F384B5C4C61383A2CD50435DBA8EE150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771259   (71927) от 05.01.2025
-
-VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase - Om Shivam (Original Goa Mix) [6:34]
-02. A-Mase & Vika Grand - Fever (Melodic Techno Mix) [5:18]
-03. A-Mase & Sharliz - Beautiful Things 2.0 (Original Mix) [7:04]
-04. A-Mase - Imagine 2.0 (Original Mix) [8:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771010   (71926) от 05.01.2025
-
-Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine On You Crazy Diamond (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [21:58]
-02 - Raving And Drooling (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [12:30]
-03 - You've Got To Be Crazy (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [18:05]
-04 - Speak to Me (Live at Empire Pool, Wembley, London, UK, 16 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198FD7233595B57A073BACF71B3816C9E87A618B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771176   (71925) от 05.01.2025
-
-Николай Гоголь | Мертвые души (2021) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Васильевич Гоголь – знаменитый русский писатель, произведения которого входят в золотой фонд отечественной словесности и являются неизменными составляющими школьной программы по литературе. Его романы, повести и пьесы имеют огромное количество постановок и экранизаций.
+Kaspersky Virus Removal Tool 2011 - это программа для лечения зараженного компьютера от вирусов, троянских и шпионских прогрмамм, а также от любого другого вредоносного ПО. В своей работе Kaspersky Virus Removal Tool использует эффективные алгоритмы обнаружения вредоносных программ из арсенала Антивируса Касперского (например, такие как полнофункциональный антивирусный сканер, технологии обнаружения уязвимостей в установленных программах и операционной системе, технология выполнения скриптов для удаления сложных и составных вирусов).
 
-Одним из самых сильных его произведений является книга «Мёртвые души». Вышел только первый (   Читать дальше...   )Жанр: Русская классика, поэмаИздательство: 1С-ПаблишингПродолжительность: 11:32:43
+Kaspersky Virus Removal Tool 2011 не предназначен для постоянной защиты компьютера. По окончании лечения компьютера программа должна быть удалена с жесткого диска и заменена полноценным антивирусом.
+
+В программе Kaspersky Virus Removal Tool 2011 - отсутствует функция Обновить базы. Чтобы получить программу с актуальным набором баз, ее необходимо каждый раз скачивать и устанавливать на компьютер, предварительно удалив ранее установленную программу.
+
+Преимущества программы
+Kaspersky (   Читать дальше...   )Название программы: Kaspersky Virus Removal Tool 2011Язык интерфейса: русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E64D686A51751E92BF4182623994E1DCC5953667
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,171 +119,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771221   (71924) от 05.01.2025
+###  Публикация: 468012   (82826) от 18.03.2012
 
-НХЛ 2024-2025. Нью-Йорк Рейнджерс - Вашингтон Кэпиталз (04.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71924.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 января 2025, суббота. 20:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Брэд Ковачик (Вудсток, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B3C4D43290AECE33320DD353CBAD3C95E17087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771249   (71923) от 05.01.2025
-
-Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Giant Steps (2:37)
-02.  The Times They Are A-Changin' (2:38)
-03.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - O Amor Em Paz (3:21)
-04.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Sunny (4:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771224   (71922) от 05.01.2025
-
-Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Algebra Anthem (2:50)
-02.  Automatic arithmetic (1:57)
-03.  Coordinate geometry (2:36)
-04.  The geometry (1:49)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AEFEE339C1F26921DF86BBA4BEA552CD0F3269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771206   (71921) от 05.01.2025
-
-Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Death Took a Holiday - 6:36
-02 - Danny - 4:48
-03 - Sonny & Lorraine - 5:40
-04 - Downtown - 3:48(   Читать дальше...   )Жанр: Acid Jazz, Future JazzПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFB0425225DCD523FC49FDA788DE8E8F4BD6AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771267   (71920) от 05.01.2025
-
-Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ain't Misbehavin' (5:14)
-02.  East of the Sun (and West of the Moon) (5:42)
-03.  Out of Nowhere (5:14)
-04.  'S Wonderful (5:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBBFCFE143D39FB00C5AA26E61B64646694A4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771253   (71919) от 05.01.2025
-
-Pacho Brea - 4CD (2013-2019) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
+Soulfly - Enslaved (2012) [FLAC|Lossless]<Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71919.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Corazón helado
-02 Recuerdo amargo
-03 Mi tierra
-04 Más que vivos(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 03:02:15
+01. Resistance (1:53)
+02. World Scum (5:19)
+03. Intervention (3:55)
+04. Gladiator (4:58)
+05. Legions (4:18)
+06. American Steel (4:14)
+07. Redemption Of Man By God (5:15)
+08. Treachery (5:49)
+09. Plata O Plomo (4:52)
+10. Chains (7:18)(   Читать дальше...   )2012Жанр: Groove MetalПродолжительность: 01:05:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A6D3AC84609074368091D8C074F31475A0C0FBF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +154,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771223   (71918) от 05.01.2025
+###  Публикация: 469684   (82825) от 18.03.2012
 
-Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+VA - Hot Break Dance 2CD (2012) [MP3|320 кб/с]<Break Dance, Hip-Hop>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71918.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Lovely Day (3:32)
-02.  It Runs Through Me (3:04)
-03.  Until The End of Time (4:30)
-04.  Stars (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:41
+01. Dazz Band - Joystick (Re-Recorded Remastered)-Pbs
+02. A Tribe Called Quest - Can I Kick It
+03. Dizzee Rascal Feat. Calvin Harris & Chrome - Dance Wiv Me (Agent X Remix)
+04. DJ Jox - Code Darkness
+05. Homeboy Hippie & A Funky Dread - Total Confusion
+06. Sl2 - DJ's Take Control 2012
+07. Lazy L - Raider Maider-Pbs
+08. Flash Back Project - Ease The Pressure
+09. H - What's It Gonna Be (Jamie Duggan Meets Da Booda Refix)
+10. No Break - Factory Of Sensations2012Жанр: Break Dance, Hip-HopПродолжительность: 04:37:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9E642651C4DF980AF9352640FC5EAC9F5F96D0B
+magnet:?xt=urn:btih:0456EA8A89CDD2EB05E8612549B4A4977FCA79A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +189,210 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771270   (71917) от 05.01.2025
+###  Публикация: 469898   (82824) от 18.03.2012
 
-Grace In Sand - Homeless Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Marilyn Manson - No Reflection (Single) (2012) [MP3|320 кб/с]<Alternative, Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. No Reflection (Radio Edit) - 03:30
+2. No Reflection (Album Version) - 04:362012Жанр: Alternative, Industrial RockПродолжительность: 00:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D36375F93D9F6A5AAB926D94D020CA66C437CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469425   (82822) от 18.03.2012
+
+К лучшему / One Good Turn (1955) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норман работает в сиротском приюте. Жизнь течет своим чередом до тех пор, пока председатель правления приюта не вознамерился закрыть учреждение, снести здание и на его месте построить фабрику. А что будет c детьми? Норман начинает действовать…Жанр: КомедияРежиссер: Джон Пэдди КастэйрсАктеры: Норман Уиздом, Джоан Райс, Тора Хёрд, Уильям Расселл, Джоан Ингрэм, Ричард Кэлдикот, Марджори Фендер, Кейт Гилман, Ноэль ХоулеттПеревод: Одноголосый закадровыйПродолжительность: 01:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67E393BC2B6D381F67A62693671560077C69ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469876   (82813) от 18.03.2012
+
+Soen - Cognitive (2012) [FLAC|Lossless]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fraktal 01:11
+02. Fraccions 04:56
+03. Delenda 04:31
+04. Last Light 04:31
+05. Oscillation 06:49
+06. Canvas 06:34
+07. Ideate 04:02
+08. Purpose 04:12
+09. Slithering 05:43
+10. Savia SaveFrom.net 05:532012Жанр: Progressive MetalПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469454   (82812) от 18.03.2012
+
+Серия книг | The Best [2009-2011] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82812.jpg" />
+</div>
+
+
+###  Подробнее
+
+2009-2011Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657D7644F5BC8A738D2A7D053432277FA62370BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469387   (82811) от 18.03.2012
+
+Олег Герантиди | Превосходящими силами (две книги) [2005-2006] [FB2,RTF,TXT]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитлер опоздал.На рассвете 15 июля 1941 года Красная Армия перешла границу и нанесла упреждающий удар по фашисткой Германии и ее союзникам.
+«Так началась новая эра. Эра освобождения».
+Даешь Бухарест!
+Даешь Братиславу!
+Даешь Берлин!
+Это есть наш последний и решительный бой.
+Красные звезды восходят над Европой.
+«И на вражьей земле мы врага разгромим —
+Малой кровью, могучим ударом!»2005-2006Формат: FB2,RTF,TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EB6E012A90100D99A160B2D054B012442C214C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469380   (82810) от 18.03.2012
+
+VA - RCA Victor: 80th Anniversary (1997)[9CD Box Set] [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Original Dixieland 'Jass' Band - Livery Stable Blues (3:09)
+02.Original Dixieland 'Jass' Band - Dixieland 'Jass' Band One Step (2:46)
+03.Charles Mingus - A Colloquial Dream (10:54)1997Жанр: JazzПродолжительность: 09:14:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469903   (82808) от 18.03.2012
+
+Contino - Back Porch Dogma (2012) [WavPack|Lossless]<Modern Electric Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71917.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Get free (2:27)
-02.  Homeless Moon (3:38)
-03.  Sweet Sibilla (3:35)
-04.  Redemption in hell (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:14
+01. Rotgut Run (4:23)
+02. Big Tent (5:06)
+03. V-8 Ford (3:46)
+04. Temptation (4:39)
+05. Zydeco Train (4:30)
+06. Dog Days (4:50)
+07. One Thing (3:29)
+08. Three Cool Cats (3:26)
+09. Tain’t (4:06)
+10. Nothin’ You Can Do (4:32)(   Читать дальше...   )2012Жанр: Modern Electric BluesПродолжительность: 00:55:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:843A427EEA8008662A37AA9C4A5762347C082217
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,28 +400,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770904   (71916) от 05.01.2025
+###  Публикация: 470151   (82806) от 18.03.2012
 
-Reminor - 2 альбома (2011-2013) [MP3|320 Kbps] <Rock>
+Полетим ли мы на Марс? / Can We Make It To Mars? (2011) DVDRip
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71916.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Априори
-02. Затмение
-03. Страна контрастов
-04. Отражения(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:50
+Состоится ли когда-нибудь полёт на Марс и возможен ли он в принципе? На этот вопрос учёные и астронавты пока не могут дать однозначного ответа, ведь на сегодняшний день количество неудавшихся миссий на Марс превышает количество успешных.Жанр: ДокументальныйРежиссер: Джефри МингоПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:36:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07E02AE4211D5C5FF0993FA52E0DC9BEBB3EBB3F
+magnet:?xt=urn:btih:E3FAC16BAB0E38B6B85801CE2FEB28FEA14DD6D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,169 +426,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770989   (71915) от 05.01.2025
+###  Публикация: 469119   (82805) от 18.03.2012
 
-WhoreMother - Slayed in Poland (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Melodic Death Metal>
+Дядюшкин сон / БДТ им. Товстоногова (2011) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Театр и Музыкальное видео
+>>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71915.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bunker 44 [00:03:38]
-02. 13 Plastic Bags [00:04:57]
-03. Devil's Death [00:03:27]
-04. In the Candle Light [00:04:23](   Читать дальше...   )Жанр: Black Metal, Melodic Death MetalПродолжительность: 00:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263FEEAD060356FC2747DE2ABC2D117BA28B5A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770543   (71914) от 05.01.2025
-
-Эсента - Вечность (2018) [MP3|320 Kbps] <Symphonic, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71914.jpg" />
-</div>
-
-
-###  Подробнее
-
-◈ 01 - Не Сейчас (00:04:54)
-◈ 02 - Высь (00:03:38)
-◈ 03 - Путь (00:04:35)
-◈ 04 - На Краю Земли (00:04:42)(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B7CD5810A2263AE63FB2291FF0C36F0A34027B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771264   (71913) от 05.01.2025
-
-The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Crisis (4:42)
-02.  First Light (4:19)
-03.  Latina (4:04)
-04.  Brigitte (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A918C443F12BF82E1F6A74FE8D0A8F1AEC320D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771236   (71912) от 05.01.2025
-
-Святитель Афанасий Великий | Жизнь и наставления преподобной Синклитикии Александрийской (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71912.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Блаженная Синклитикия родилась в Александрии. Семейство, к которому она принадлежала, вело свой род из Македонии, было уважаемо и богато. Услышав об особом благочестии александрийцев, предки преподобной оставили Македонию и переехали в Александрию, где нашли искреннюю веру и истинную любовь к Богу…».Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A765044F405B8E74696C5BDAAAE9DDF0FD5234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771263   (71911) от 05.01.2025
-
-Saedin - Entre Rios (2020) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Castillo rojo
-02 Ni una menos
-03 Corazón nazarí
-04 Entre ríos(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73C40CE5B9CB38EC12803347E2C81BED3D4A285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771175   (71910) от 05.01.2025
-
-Николай Гоголь | Мертвые души (2011) [MP3, Алексей Багдасаров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тонкая ирония, яркие персонажи, великолепный гоголевский текст, неподражаемая игра замечательного актера и режиссера Алексея Багдасарова и абсолютно уникальная музыка Владимира Бруса. Аудиокнига "Мертвые души" не оставит равнодушной ни одну живую душу.
+Спектакль Санкт-Петербургского Большого Драматического театра им.Товстоногова.
 
- Николай Гоголь на NoNaMe ClubЖанр: Русская классика, поэмаИздательство: ВимбоПродолжительность: 12:48:57
+В маленький провинциальный городок Мордасов приезжает престарелый богатый князь, которого местная светская "львица" Марья Александровна Москалева решает женить на своей красавице дочери Зиночке, в которую был влюблён Павел Александрович, племянник князя.
+(   Читать дальше...   )Жанр: трагикомедия, спектакльРежиссер: Темур ЧхеидзеПродолжительность: 01:21:04 + 01:09:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92D587A766E9BB737F1F421F0FDF6D34A6C6F8F2
+magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,28 +455,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771013   (71909) от 05.01.2025
+###  Публикация: 469746   (82801) от 18.03.2012
 
-Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+Юрий Торубаров | Таинственный двойник [2010] [RTF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71909.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shine On You Crazy Diamond (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [22:00]
-02 - Raving And Drooling (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [13:10]
-03 - You've Got To Be Crazy (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [16:25]
-04 - Speak to Me (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [1:13](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:01:59
+Середина XIII века. Большая часть Руси несет на себе тяжкое бремя данника Золотой Орды. Ханские баскаки бесчинствуют в городах и селах. За малейшее неповиновение людей угоняли в рабство и продавали на невольничьих рынках. Вот так и попал в далекую Османскую Порту молодой русич Андрей, сначала как раб, потом стал воином-инородцем Сандом. Через много лет, пройдя сквозь сотни сражений, не раз посмотрев смерти в лицо, Андрей-Санд встретил товарища по несчастью, молодого графа Раймунда Тулузского... О дальнейших приключениях двух отважных воинов читайте в новом приключенческом романе Юрия Торубарова "Таинственный двойник"!Жанр: Исторические приключенияФормат: RTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4BB19E6BEDE15E44FE3F705E0BA411BE55576B0
+magnet:?xt=urn:btih:C5C24E1D870E7B16D124B01955A20F1A1CEF8B89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,28 +481,287 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771012   (71908) от 05.01.2025
+###  Публикация: 469990   (82800) от 18.03.2012
 
-Pink Floyd - Live at Empire Pool (Wembley, London, UK, 17 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+Крепкий сон / Mientras duermes (2011) DVDRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71908.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Raving And Drooling (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [14:20]
-02 - You've Got To Be Crazy (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [16:27]
-03 - Shine On You Crazy Diamond (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [21:37]
-04 - Speak to Me (Live at Empire Pool, Wembley, London, UK, 17 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:13:19
+Главный герой — Сезар, работающий швейцаром в большом жилом доме, в Барселоне. Кажется, что он маленький незаметный человек, который лишь открывает и закрывает двери, но на самом деле он тот, кто замечает и знает про жителей многоквартирного дома абсолютно все. Он глубоко несчастлив и ищет хоть какую-нибудь причину для дальнейшего своего существования. День за днем он выполняет свою работу и, пока на него никто из жителей дома не обращает особого внимания, сам он неустанно наблюдает за ними. Он знает каждую мелочь в их жизнях, все о них, а в особенности про одну из них. Везучая молодая женщина Клара Кинг всегда смотрит на окружающий мир позитивно. Ее легкое отношение к жизни вызывает у Сезара мурашки по коже. Он не будет счастлив пока не сотрет улыбку с лица у нее и у всех остальных, потому что Сезар питается болью других людей. Он весь сияет в лучах невезения и несчастья других и больше всего на свете любит сеять зерна отчаяния и наблюдать за тем, во что те вырастают. Клара кажется ему идеальной мишенью и он (   Читать дальше...   )Жанр: Триллер, УжасыРежиссер: Жауме БалагуэроАктеры: Луис Тосар, Марта Этура, Альберто Сан Хуан, Петра Мартинес, Пеп Тосар, Карлос Ласарте, Ирис Альмейда, Манель Дуэсо, Ориол ХенисПеревод: Любительский (многоголосный)Продолжительность: 01:36:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE53E09F913C5B40521CA0A98BEBB686FE613BE5
+magnet:?xt=urn:btih:90975A04AB90A3C43E49E29797BE53981419E2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469571   (82798) от 18.03.2012
+
+Revolver - Let Go (2012) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let's Get Together
+2. The Letter
+3. When You're Away
+4. Losing You
+5. Wind Song
+6. Still
+7. Cassavetes
+8. 49 States
+9. Parallel Lives
+10. Brothers(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7722A880658689E686CBF9B0DB36DC054167230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469866   (82797) от 18.03.2012
+
+Заключенный Р / R (2010) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82797.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тюрьму, известную на всю Данию своими жесткими условиями содержания, прибывает заключенный по имени Руне. Здесь он будет отбывать срок за насилие. Тюрьма — это параллельный мир, со своими правилами, понятиями о чести и обязанностями. Тут на окнах — решетки, а пол залит кровью. Руне помещают в отсек к самым агрессивным зекам. Здесь ему предстоит найти свое место, научиться перемещаться и бороться за выживание.Жанр: Криминал, ДрамаРежиссер: Тобиас Линдхольм , Майкл НоерАктеры: Йохан Филип Асбек, Дулфи Аль-Джабоури, Роланд Мюллер, Джэкоб Гредстед, Ким УинтерПеревод: Многоголосый закадровый |Продолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FC68D17ABDF804DD56DD170773DA78DF255F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469663   (82796) от 18.03.2012
+
+George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192 kb/s]<Country Rock/Rock`n`Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1981 - 2006Жанр: Country Rock/Rock`n`RollПродолжительность: 00:42:10
+
+01. Twang
+02. Where Have I Been All My life
+03. I Gotta Get To You
+04. Easy As You Go
+05. Living For The Night
+06. Same Kind Of Crazy
+07. Out Of Sight Out Of Mind
+08. Arkansas Dave(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01CED82220A2F68D0E20566438CD391F9E6D9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469883   (82795) от 18.03.2012
+
+Заключенный Р / R (2010) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82795.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тюрьму, известную на всю Данию своими жесткими условиями содержания, прибывает заключенный по имени Руне. Здесь он будет отбывать срок за насилие. Тюрьма — это параллельный мир, со своими правилами, понятиями о чести и обязанностями. Тут на окнах — решетки, а пол залит кровью. Руне помещают в отсек к самым агрессивным зекам. Здесь ему предстоит найти свое место, научиться перемещаться и бороться за выживание.Жанр: Криминал, ДрамаРежиссер: Тобиас Линдхольм , Майкл НоерАктеры: Йохан Филип Асбек, Дулфи Аль-Джабоури, Роланд Мюллер, Джэкоб Гредстед, Ким УинтерПеревод: Многоголосый закадровый |Продолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B011F0F52F9AE9F87A266EB2956D98CFBDCE5FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469938   (82794) от 18.03.2012
+
+Libera - Peace (2010) [FLAC|Lossless]<Chorus, Classical, New Age>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctissima (4:22)
+02. Time (4:17)
+03. Ave Virgo (3:52)
+04. Faithful Heart (3:22)
+05. Gaelic Blessing (Deep Peace) (3:31)
+06. Exsultate (3:44)
+07. How Shall I Sing That Majesty? (4:08)
+08. Lacrymosa (3:34)
+09. Adoro Te (3:51)
+10. Lead Kindly Light (3:55)(   Читать дальше...   )Жанр: Chorus, Classical, New AgeПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B59479029C003379E0D882C0904072B5F11D0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469933   (82793) от 18.03.2012
+
+Битлджус / Beetlejuice (1988) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идиллически счастливая молодая пара погибает в автокатастрофе и становится привидениями в собственном доме в Коннектикуте, в который вселяются не совсем симпатичные им люди. Чтобы выжить их оттуда, супруги-привидения призывают на помощь буйного и наглого злого духа Битлджюса - "консультанта по загробным ужасам". Он - сокрушительная сила шуток, движения и танцев, он меняет форму, пожирает насекомых и не оставляет в покое женщин, как живых, так и мертвых...Жанр: Комедия, Ужасы, СемейныйРежиссер: Тим БёртонАктеры: Алек Болдуин, Джина Дэвис, Энни МакЭнро, Вайнона Райдер, Морис Пейдж, Хьюго Стэнджер, Майкл Китон, Кэтрин О’Хара, Дж. Джей СаундерсПеревод: ДублированныйПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F58A638301170C7CCEF27B00EF295732F9481F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469140   (82787) от 17.03.2012
+
+Помни / Memento (2000) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонард Шелби изысканно и дорого одет, ездит на новеньком «Ягуаре», но проживает в дешевых мотелях. Его цель в жизни - найти убийцу жены.
+Его проблема - редкая форма амнезии, потеря короткой памяти, помня все до убийства, он не помнит, что было пятнадцать минут назад. Его друзья - Тедди и Натали, да и друзья ли они ему. Его спутники - фотоаппарат «Полароид» и татуировки на теле. Главный вопрос - почему наказанных больше, чем виноватых?Жанр: Триллер, Криминал, ДетективРежиссер: Кристофер НоланАктеры: Гай Пирс, Кэрри-Энн Мосс, Джо Пантольяно, Марк Бун Джуниор, Расс Фега, Джоржа Фокс, Стивен Тоболовски, Харриет Сэнсом Харрис, Томас Леннон, Каллум Кит РенниПеревод: ДублированныйПродолжительность: 01:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA16707606F9F77DE9058F5E0E8B96C4A0ACB48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469443   (82783) от 17.03.2012
+
+Resident Evil 4 HD: The Darkness World (RePack) [Ru] 2007 (2011) | Mr. Vansik
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ракунский ад остался позади. Шесть лет прошло после уничтожения города и всех его обитателей, давно переставших быть людьми. Леон Кеннеди, некогда служивший в полиции Ракун-Сити и прошедший от начала до конца кошмар второй части "Resident Evil", нашел себе спокойную работу. По крайней мере, служба в секретном отделении при президенте страны не доставляла особых хлопот, пока у главы государства не похитили дочь. Расследование привело Леона в богом забытую европейскую деревушку. Ну что в ней может быть страшнее бородатых типов с автоматами, укравших президентское чадо? Кажется, ничего, однако деревня оказалась не только забыта, но и проклята… К "Resident Evil 4" сериал не зря шел долгие годы. Четвертая часть - апогей творчества Capcom. Медлительные, недалекие зомби остались в прошлом, новый противник силен, агрессивен, коварен, но… кто он? Обветшалое село бдительно охраняет ответы. Сможете проникнуть в его тайны? В версии для PC эта лихо закрученная детективная история будет украшена новыми подробностями. Игроков ждут 5 дополнительных глав с неожиданным сюжетным поворотом, ведь главной героиней станет Ада Вонг, таинственно исчезнувшая шесть лет назад. Также среди многочисленных бонусов – новое оружие и уникальные костюмы для персонажей игры.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский (только видео)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7084AD2C13FF8D1D6F08E5E0A360E52CB0C60FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468593   (82782) от 17.03.2012
+
+Твин Пикс / Twin Peaks (1990-1991) DVDRip [H.264] (Сезон 1-2, серии 0-30 из 30 + Log Lady Intro) [ОРТ + Ю. Живов + Ю. Сербин]
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистический сериал-загадка. Кто убил Лору Палмер? В 1990 году этим вопросом было взбудоражено все население Соединенных Штатов, доселе не подозревавшее о существовании городка Твин Пикс.Производство: СШАЖанр: Драма, Мистика, ДетективРежиссер: Дэвид ЛинчАктеры: Кайл МакЛоклен, Майкл Онткин, Дэна Эшбрук, Ричард Беймер, Лара Флинн Бойл, Шерилин Фенн, Медкен Эмик, Уоррен Фрост, Пегги Липтон, Эверет МакГиллПеревод: Многоголосый профессиональный закадровый (ОРТ), Авторский  (Живов Юрий - только первый сезон кроме пилота),  Авторский (Сербин Юрий)Язык субтитров: РусскийПродолжительность: ~ 27:20:20
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

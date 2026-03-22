@@ -1,3 +1,119 @@
+###  Публикация: 1612610   (1040138) от 16.02.2023
+
+Three Dog Night - Harmony (1971) Reissue, 1988, MCA Records [FLAC|Lossless|tracks + .cue] <Classic Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Been To Spain (3:46)
+02. My Impersonal Life (4:27)
+03. An Old Fashioned Love Song (3:26)
+04. Never Dreamed You'd Leave In Summer (3:49)(   Читать дальше...   )Жанр: Classic Rock, Soft RockПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26018D644F473726EA333821E415E39BCBADD856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439290   (1040122) от 12.01.2021
+
+Fren - Where Do You Want Ghosts to Reside (2020) [FLAC|Lossless|tracks + .cue] <Prog Rock, Alternative Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Twin Peaks (4:41)
+2. Surge (9:43)
+3. Gorąca Linia (2:59)
+4. Pleonasm (12:02)(   Читать дальше...   )Жанр: Prog Rock, Alternative Rock, Art RockПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED29FDF352C9D3E9BD91E8CA1BDE5E38B1E9013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439276   (1040120) от 12.01.2021
+
+Osiris - Take a Closer Look (2020) [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040120.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Bird of Prey (5:39)
+2. Pride's Insanity (7:32)
+3. Take a Closer Look (9:14)
+4. Until We Meet (7:36)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7232B291F38551A4D257D901C0614FEDD8A81BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439139   (1040118) от 12.01.2021
+
+Arabs In Aspic - Маdnеss аnd Маgiс (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Vow To Thee, My Screen
+02. Lullaby For Modern Kids, Part 1
+03. Lullaby For Modern Kids, Part 2
+04. High-Tech Parent(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4A3ABC3DD839C8CD88ED7C6550311B6F476D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439288   (1040108) от 12.01.2021
 
 Logos - Sadako E Le Mille Gru Di Carta (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
@@ -629,122 +745,6 @@ Rick Wakeman & The English Rock Ensemble - A Gallery of the Imagination (2023) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D9A48B00C28A87FE3F3F21B3F0D97F2168EF944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615514   (1037592) от 26.02.2023
-
-Richard Stepp - Richard Stepp (1981) Japanese Edition, Reissue, 2015, Creole Stream Music [FLAC|Lossless|image + .cue] <AOR, Westcoast>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037592.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Summer Love (3:56)
-2. Imagination (3:33)
-3. Beautiful Melody (3:16)
-4. Sooner Or Later (3:19)(   Читать дальше...   )Жанр: AOR, WestcoastПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4816427F159D66DBE97FDCE649858801FADAAD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615496   (1037587) от 26.02.2023
-
-Arc Of Life - Don't Look Down (2022) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Real Time World (9:05)
-2. Don't Look Down (6:21)
-3. All Things Considered (5:16)
-4. Colors Come Alive (7:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4089493AFD46A367461A9A8FADAF7CD933FAE5FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615500   (1037582) от 26.02.2023
-
-Nevena - Nevena (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bulletproof (3:01)
-02. Bad Sun Rising (3:55)
-03. Straight Into Madness (3:49)
-04. Too Late (3:52)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C826590A65802BA1858E1CC269D45394A9864DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615582   (1037541) от 26.02.2023
-
-Sound Of Smoke - Phases (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner Rock, Blues Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows [00:05:12]
-02. Ocean Drive [00:04:15]
-03. Phases [00:05:18]
-04. Chasing The light [00:04:19](   Читать дальше...   )Жанр: Psychedelic Stoner Rock, Blues Rock, Female VocalПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D5BABFCDD4C986177548C10C70EFA74816EBBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

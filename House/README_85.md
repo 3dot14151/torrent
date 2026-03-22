@@ -1,3 +1,148 @@
+###  Публикация: 1763153   (35728) от 29.11.2024
+
+VA - Vocal House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - Feeling in My Veins (02:48)
+02. Loic Penillo - Waiting For This (03:12)
+03. Sam Harris - This Feeling (02:07)
+04. Gash & Cee-Mon - 4AM (02:36)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386EE270C0E93E5F5CF2D6A354EC947BE0E6511D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763250   (35626) от 30.11.2024
+
+VA - It's All About Deep-House, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taradu - Lia (Extended Mix) (05:57)
+02. Profundo & Gomes - Elegant (Original Mix) (06:19)
+03. Hi.5 - Out of My Mind (Extended Mix) (04:18)
+04. Daven - Move (Original Mix) (02:35)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5B68B4872988D7EAABBD2BA42A16CEC54E7E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763784   (35310) от 03.12.2024
+
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lenzi & Soriani - Poker Face (Extended Mix) (04:58)
+02. Heart Of Space - Save Me (Euro Mix) (05:07)
+03. Bsharry & Fiamma - Breathe Of Sunshine (Simon Gekk Remix) (07:00)
+04. Pierpaolo Cricenti & Kekko DMC - Love Don't Let Me Go (Aux In Re-Edit) (03:39)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86B0D14376776667B04AD7FE7D122DB68DB6AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763922   (35201) от 04.12.2024
+
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rubber Dolls & Nadimop - The Clapping Song (Radio Edit) (02:53)
+02. Nina Moric - I Love Rock 'n' Roll (Radio Edit) (03:43)
+03. Dj Valdez & Angela - Crazy Summer (Radio Edit) (03:23)
+04. Carmixer, Dj Save, Francy M & Rick Flow - La Noche Caliente (Trumpet Mix) (04:52)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EAF5F90D0E5867EE71FC409F35179AC1470319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764182   (35099) от 05.12.2024
+
+VA - The Annual 2025 - Ministry of Sound (2024) 2 CD [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35099.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Calvin Harris & Ellie Goulding - Free (03:30)
+02. Dimitri Vegas & Like Mike & Tiësto & Dido & W&W - Thank You (Not So Bad) (02:18)
+03. The Blessed Madonna feat. Clementine Douglas - Happier (02:53)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317AAD5BC8A48A8AF50DF592A4AC579094006C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765407   (34377) от 12.12.2024
 
 VA - Anjunadeep The Remixes 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -597,151 +742,6 @@ VA - Winter Car Music Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B13AA4808777986C993CC51A1C182B753B314E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777062   (28676) от 04.02.2025
-
-VA - Chill House Deep 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Cruise - In This Love [02:44]
-02. SKYBAR - Remedios [02:14]
-03. Andres Newman - Lesson in Love [02:23]
-04. Shamika Cox - Don't Get Down [02:47](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B47F1F058A10EE9C2A968DF9FBF00D10B315FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780936   (26986) от 20.02.2025
-
-VA - Deep House Hits For Summer 2025 - 2026 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CRAY C - All I Need (03:48)
-02. Alessio iride - Ocean To Dust (05:20)
-03. Anderson Guerbe & Isadora Salviano - Find You (03:56)
-04. Alche Beat - Med Colors (06:11)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6669753C3216B7748B429AD903E30717964C40EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783374   (25630) от 05.03.2025
-
-VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivers Pattern - DreamerSway (Original Mix) [5:58]
-02. An Sinewave - Waves (Original Mix) [7:22]
-03. Humans Out Loud & Olivers Pattern - Sunrise Beach (Original Mix) [5:56]
-04. Cael Ralph feat. Sheena Bratt - Enigma (Phuturephil Mix) [6:39](   Читать дальше...   )Жанр: Deep House, Melodic House & Techno, Organic HouseПродолжительность: 03:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D4B755BBB6C0EDF7C76D7E2C0873B9DF55AF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784626   (24882) от 12.03.2025
-
-VA - Deep On The Beach (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloe van Doren & Highpass - Cool Water (02:59)
-02. ArtSpace - Believe (Chill Dream Edit) (02:26)
-03. Pinko - Be with You (Extended Mix) (04:02)
-04. SkyBar - Remedios (02:14)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6899FBF15B2D0BE7F0DB19352D56BD12F95D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786092   (24155) от 19.03.2025
-
-VA - 40 Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLUIS - She's Not Me (02:33)
-02. Stephan F & YA-YA - No Broken Heart (03:09)
-03. Deep Emotion - Feeling in My Veins (02:48)
-04. Dani Corbalan - Losing Me (03:50)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52E6474F4CECF01A775C92539098C93FA413E49
 ```
 
 https://mybot314.ru/tekegram_catalog/

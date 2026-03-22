@@ -1,3 +1,177 @@
+###  Публикация: 1244390   (482086) от 01.09.2018
+
+VA - German Top 100 Single Charts 31.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482086.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro & Gigi D'Agostino - In My Mind
+002. Bonez MC x RAF Camora - Risiko
+003. Bonez MC & RAF Camora - 500 PS
+004. Capital Bra - Melodien (feat. Juju)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4309CE710B781DD79DE0117B5A8A66ADC03179B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159449   (481856) от 21.08.2017
+
+VA - Oldies 70's (2017) [MP3|320 Kbps] <Disco, Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America - A Horse With No Name 4:09
+02. Sister Sledge - We Are Family 3:19
+03. Foreigner - Feels Like the First Time (Edit) 3:28
+04. Frankie Valli - Grease 3:21(   Читать дальше...   )Жанр: Disco, Pop, RockПродолжительность: 03:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A851303DDCB205C6A165C1CFF31C96339B5344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056324   (481762) от 25.09.2016
+
+VA - SpaceSynth & ItaloDisco Hits Vol.16 (2016) [MP3|320 Kbps] <Pop, Synthpop, Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Haan - Gods From Outer Space (Created Synthleslie) 5:16
+02. The Starforce - Saviours In The Sky (Leroy Dub Mix) 3:51
+03. Franck Choppin - The Lonely Pianist 4:46
+04. Why Not - Smile 6:39(   Читать дальше...   )Жанр: Pop, Synthpop, Italo DiscoПродолжительность: 04:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9EBF80E4BCCF51C3CBDE2B6AE310DF3A5797AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405697   (480957) от 31.08.2020
+
+VA - Radio DFM Top D-Chart Август 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twocolors - Lovefool (3:10)
+02. MARUV & Boosin - I Want You (2:55)
+03. Dotan - NUMB (Addal vs. Balzanellli & Bedo Edit) (3:19)
+04. Filatov & Karas feat. Deepest Blue - Give It Away (3:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763EB2EF160741BC26F7A73B2146179D32E2673A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056236   (480679) от 25.09.2016
+
+VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c Version) (38) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Fugitive (Dj Ikonnikov E.x.c Version) (06:45)
+02. Вячеслав Диденко и гр. Компания - Девушка (Dj Ikonnikov E.x.c Version) (05:00)
+03. Boney M - Blue Beach (Dj Ikonnikov E.x.c Version) (04:08)
+04. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version) (03:01)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938597   (479788) от 19.09.2015
+
+VA - Попсовая соточка MTV Сборник 5 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479788.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Размер Project & D.I.P Project - Там Где Ты
+002. Chris Brown Feat. Akon - Came To Do
+003. Стас Пьеха - Далия
+004. Onuka - Around Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F568AC743314191554EDA35E9B691E3DCD6F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319737   (479223) от 14.08.2019
 
 VA - Summer Europop Music (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -595,180 +769,6 @@ VA - Ukrainian Hits - 33 Tracks (2017) [MP3|320 Kbps] <Pop, Pop rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F8021126DBBA6A7C5A0D5ED7ECA638B832E868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057808   (471151) от 30.09.2016
-
-VA - Хит Атака 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471151.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mseven - Необыкновенная
-002. Honne - Woman
-003. Трио S Klass - Леди Вамп
-004. Travis Garland - Bodies(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBDD5943ED7881D1AA3000502BB6EFC9695443F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406809   (470998) от 05.09.2020
-
-VA - German Top 100 Single Charts 04.09.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KitschKrieg & Jamule - Unterwegs
-02. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
-03. Capital Bra - Frühstück in Paris (feat. Cro)
-04. 24kgoldn - Mood (feat. Iann Dior)(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4FD5131C66EF73C6A016548332F1748C9BFDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939987   (470977) от 23.09.2015
-
-VA - Осенний Хит на радио Хит FM (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Татьяна Овсиенко - В Сердце
-02. Zlata (Злата) Feat. Dj Рубль - Курс Рубля
-03. Зарина Тилидзе - Нежность
-04. Mozgi (Потап) - Хлам(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF296284587193B5AB8B2C0D247351ADD9096015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406761   (470853) от 05.09.2020
-
-VA - Summer Vacation: National Pop Music (2020) [MP3|320 Kbps] <Pop, Folk, Ethnik>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nameless In August - Been There Before
-002. Georgia Ruth - In Bloom
-003. Calimeros - Playa Blue
-004. Issam Hajali - Ana Damir El Motakallim(   Читать дальше...   )Жанр: Pop, Folk, EthnikПродолжительность: 10:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD3AEE069E1B59EF053822F8D03D75BE7635C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939942   (470687) от 23.09.2015
-
-VA - Top 100 Зайцев.Нет Cентябрь (2015) [MP3|320 кб/с]<Pop, Dance, Rap, R&B, Rock, Chanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимати feat. Рекорд Оркестр - Баклажан (03:07)
-002. Imany - Don’t Be So Shy (Filatov & Karas Remix) (03:10)
-003. Время и Стекло - Имя 505 (03:19)
-004. Паола - #Девочкитакиедевочки (02:24)(   Читать дальше...   )Жанр: Pop, Dance, Rap, R&B, Rock, ChansonПродолжительность: 05:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92C0A435FFCC5F4ADA5BBCBFCB14FF2639B2363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406876   (470602) от 05.09.2020
-
-VA - 100 Greatest Dinner Party Songs (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Songbird
-002. Paolo Nutini - Last Request
-003. Aretha Franklin - I Say a Little Prayer
-004. Ben E. King - Stand by Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5618C6016B8D7222FB00207F3336E14772E02D
 ```
 
 https://mybot314.ru/tekegram_catalog/

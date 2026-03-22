@@ -1,3 +1,119 @@
+###  Публикация: 906014   (647548) от 07.06.2015
+
+Algiers - Algiers (2015) [FLAC|tracks|Web-DL] <Post-Punk, Indie, Experiemental, Rock, Gospel>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Remains (3:05)
+02 - Claudette (3:31)
+03 - And When You Fall (3:42)
+04 - Blood (5:38)(   Читать дальше...   )Производство: Matador – OLE 1067-2Жанр: Post-Punk, Indie, Experiemental, Rock, GospelПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E2B40C44E971504EB762C549400DCFE95E6436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227441   (646704) от 26.05.2018
+
+From Ashes To New - The Future (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/11. Wake Up (3:51)
+ 02/11. Crazy (3:06)
+ 03/11. My Name (3:43)
+ 04/11. Gone Forever (3:54)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B9327457AC4CB469B345D6D06E9162DAD2F3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032254   (645691) от 07.07.2016
+
+Blink-182 - California (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короли поп-панка, группа Blink-182, возвращаются с новым альбомом и новым вокалистом. На пластинке «California» звучат вокал и гитара Мэтта Скибы, сменившего Тома Делонга — одного из основателей группы.01. Cynical
+02. Bored To Death
+03. She's Out Of Her Mind
+04. Los Angeles(   Читать дальше...   )Жанр: Pop Punk, Alternative RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A91A2CA69B3AF602BF43819194DF931B57D929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292595   (645182) от 30.03.2019
+
+Zebrahead - Brain Invaders (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Both Sides Suck, We're All Winners (03:03)
+02. I Won't Let You Down (03:37)
+03. All My Friends Are Nobodies (03:03)
+04. We're Not Alright (02:55)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732E590804FC85E3B13BD61EDA541279D2529700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032608   (643910) от 08.07.2016
 
 Hole - Celebrity Skin (1998) [WavPack|Lossless|image + .cue] <Grunge, Alternative Rock>
@@ -629,122 +745,6 @@ Meat Puppets - Dusty Notes (2019) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4608B95E449F3970FA0E7F5951B4D6675C92AFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293849   (633746) от 05.04.2019
-
-Lucy Rose - No Words Left (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conversation (03:49)
-02. No Words Left, Pt. 1 (01:27)
-03. Solo(w) (04:07)
-04. Treat Me Like a Woman (03:47)(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Singer-SongwriterПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0636DCEBFF1DE0EA7DFB7B2F94AC59330B5E4DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293663   (633619) от 05.04.2019
-
-Nine Inch Nails - Strobe Light (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic, Industrial Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Skit (1:14)
- 02. Everybody's Doing It (featuring Bono, Chris Martin & Jay-Z) (5:05)
- 03. Black T-Shirt (5:29)
- 04. Pussygrinder (featuring Sheryl Crow) (4:39)(   Читать дальше...   )Жанр: Alternative Rock, Electronic, Industrial Metal, ExperimentalПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44768498ED3DAAC9361BFEB377345F411E852CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542815   (633566) от 09.04.2022
-
-Papa Roach - Ego Trip (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill The Noise (3:08)
- 02. Stand Up (3:48)
- 03. Swerve (feat. FEVER 333 & Sueco) (2:48)
- 04. Bloodline (2:26)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, Pop-RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81912E215FEF7575A9DA3A216C96800294DEE562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542861   (633444) от 09.04.2022
-
-Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Summer (3:52)
-02. Here Ever After (3:50)
-03. Aquatic Mouth Dance (4:21)
-04. Not the One (4:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB7D03A62216211712E60DF779DE90BCF2C5AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

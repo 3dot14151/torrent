@@ -1,3 +1,122 @@
+###  Публикация: 1002032   (848909) от 31.03.2016
+
+Sly & The Family Stone - Greatest Hits (2015) [FLAC|Lossless|tracks + .cue] <Rock, Soul, Funk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want to Take You Higher (3:05)
+02. Everybody Is a Star (3:04)
+03. Stand! (3:10)
+04. Life (3:01)(   Читать дальше...   )Жанр: Rock, Soul, FunkПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7150A15E84CDE9725FF8EF54C53A3E64F4A927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002198   (848388) от 31.03.2016
+
+Scorpions - The Best Ballads (1995) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Dove (4:20)
+02. Lonely Nights (4:44)
+03. Believe In Love (5:20)
+04. Always Somewhere (4:55)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5826E387D58886CA62FE9ADAC179E20301AD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001707   (848320) от 31.03.2016
+
+Creedence Clearwater Revival - 7 альбомов (1968-1972) [FLAC|Lossless|image + .cue] <Блюз-Рок, Кантри-Рок, Рок-н-Ролл>
+
+>>След.
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival — Fantasy, июль 1968
+02. Bayou Country — Fantasy, январь 1969
+03. Green River — Fantasy, август 1969
+04. Willy and the Poor Boys — Fantasy, ноябрь 1969(   Читать дальше...   )01. I Put a Spell on You (04:33)
+02. The Working Man (03:05)
+03. Susie-Q (08:39)
+04. Ninety-Nine and a Half (Won't Do) (03:40)(   Читать дальше...   )Жанр: Южный Рок, Блюз-Рок, Кантри-Рок, Рок-н-Ролл, Рутс-Рок, Свомп-Рок, Психоделический РокПродолжительность: 04:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762D0E25CC58363172CD34DF86145C248C2A86B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499357   (847974) от 02.10.2021
+
+Steely Dan - Northeast Corridor: Steely Dan Live! (2021) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847974.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Cow
+02. Kid Charlemagne
+03. Rikki Don't Lose That Number
+04. Hey Nineteen(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC054999F0AB3584E8F4021AAD0B47657101A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 877313   (847032) от 12.03.2015
 
 Mark Knopfler - Tracker (2015) [FLAC|Lossless]<Rock, Blues Rock, Folk Rock>
@@ -631,116 +750,6 @@ The Ahab Dilemma - World On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0579DA936257FA1C59640F4A8401C532201E74F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592770   (842382) от 27.04.2020
-
-10cc - Solo Albums of the band members (1951-2012) 32 Albums (Eric Stewart/Godley & Creme/Graham Gouldman/Wax/Andrew Gold) [FLAC, APE|Lossless]<Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (0:16)
-02. Rock My World (4:35)
-03. Lazybones (4:20)
-04. Ha Ha Went The Clown (0:39)(   Читать дальше...   )Жанр: Rock, Art Rock, Progressive RockПродолжительность: 32:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E153B5418CF8323BC3F12AA1CADBF381841E5FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309303   (842117) от 15.03.2011
-
-Chris Rea: Original Album Series 5CD Box, 2009 (1983-93)[FLAC|Lossless]<Rock / Soft Rock / Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock / Soft Rock / Blues RockПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003832   (841872) от 04.04.2016
-
-Takis Barbagalas - Phosphorus Herperus (2015) [FLAC|Lossless|image + .cue]<Progressive rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive rock, Psychedelic RockПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BC6E29C34F474D2DB265210799B4562782A98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003856   (841779) от 04.04.2016
-
-Phil Collins - Dance Into The Light (1996) 2CD Deluxe Edition, 2016, Atlantic [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Into The Light (Live) (4:42)
-02. Just Another Story (Live) (6:21)
-03. Wear My Hat (Live) (4:59)
-04. River So Wide (Live) (4:59)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFE4FF7ABE916CBCA503DB5F203EC3327B7957E
 ```
 
 https://mybot314.ru/tekegram_catalog/

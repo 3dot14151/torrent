@@ -1,3 +1,61 @@
+###  Публикация: 1263614   (288261) от 19.11.2018
+
+Lacunae - 2 Albums (2004-2006) [FLAC|Lossless|tracks+.cue] <Trip Hop, Experimental, Illbient, Glitch, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Surface (01:22)
+ 02. Lifetime (03:17)
+ 03. Rebuild In Black (04:25)
+ 04. Follow Me Down (04:00)(   Читать дальше...   )Тип издания: CDЖанр: Trip Hop/Illbient/Experimental/GlitchПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74A3AB5010A93633FC8372298503B948E68949C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335427   (287729) от 02.11.2019
+
+Jim Brickman - Underground (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Lounge, Jazz Groove>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poolside Chill (Super Chilled Lo-Fi Remix) (3:18)
+ 02. Light a Candle (Super Chilled Lo-Fi Remix) (3:51)
+ 03. Drive North (Super Chilled Lo-Fi Remix) (3:32)
+ 04. Served Chilled (Super Chilled Lo-Fi Remix) (4:38)(   Читать дальше...   )Жанр: Instrumental, Chillout, Lounge, Jazz GrooveПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCD1F7CE2519E449A6B2E3ABCA26540D4CBFFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963586   (286984) от 08.12.2015
 
 Conjure One - Holoscenic (2015) [FLAC|Lossless|WEB-DL]<Downtempo>
@@ -687,70 +745,6 @@ VA - Ibiza Winter 2026 (Chill Out Cookies from the Heart) (2025) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6578882343843557F45514010C86154F77ADCE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 275573   (252771) от 13.05.2012
-
-Hooverphonic - 11 альбомов (1996-2012) [FLAC|Lossless]<Trip-hop, Lounge, Downtempo - Vocal>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Gold 05:35
-02. Icy 04:20
-03. Rope Dancer 03:05
-04. Strange Disorder 04:25
-05. 107 Windows 03:42
-06. Unlock 04:10
-07. Smile 04:43
-08. Blinded 04:59
-09. For The Beauty Of Confusion 04:16
-10. Night Time 'round Here 04:25(   Читать дальше...   )Жанр: Trip-hop, Lounge, Downtempo - Vocal  |Продолжительность: 00:51:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835779   (251910) от 07.11.2025
-
-VA - Gentle Morning: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Moonglow (6:41)
-02. Michael E - Tall Stories (7:20)
-03. Marga Sol - Marbella Sunrise (4:04)
-04. Michael E - Ala Moana (6:32)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39803193B42C93FBA7918EF6A129470644B8EF99
 ```
 
 https://mybot314.ru/tekegram_catalog/

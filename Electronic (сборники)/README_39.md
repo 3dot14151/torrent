@@ -1,3 +1,61 @@
+###  Публикация: 1375121   (867111) от 13.04.2020
+
+VA - Inspiration: Vocal House Party (2020) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taffo Velikoff - You
+002. Dj Fixx - Back 2 Ya
+003. Lione With Miranda Glory - Kids
+004. Furkan Syzo - Broken Heart(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908132E107C89A183D870A5EF43EA98E9C32C0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107730   (866239) от 23.02.2017
+
+VA - Relax to House Vol. 6 (House Edition) (2017) [MP3|320 Kbps] <House, Bass House, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Underdog Project - Summer Jam (Wanz Remix)
+02. Cimieon, Letta - Creep (Original Mix)
+03. Roland UA - I Believe It (Original Mix)
+04. Block & Crown, Chris Marina - The Secrets (Luca Debonaire Club Mix)(   Читать дальше...   )Жанр: House, Bass House, G-HouseПродолжительность: 04:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D99171F50CF5979AF0695A455461AF9A3BF5413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375374   (865501) от 14.04.2020
 
 VA - Beatport Techno: Electro Sound Pack #56 (2020) [MP3|320 Kbps] <Techno>
@@ -687,64 +745,6 @@ VA - Beatport Techno: Electro Sound Pack #61 (2020) [MP3|320 Kbps] <Techno, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EF8AD465C70173F78D38F3290F1550E108BE643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498462   (857922) от 26.09.2021
-
-VA - Fabulous Night: Electro House Mixtape (2021) [MP3|320 Kbps] <Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857922.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dampé - Pash
-002. Ira - Laneiro
-003. Dex Wilson - Perfume
-004. Nico Cabeza - Ansiolin(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 12:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD75A1363DB2B625E171479ACE7CDE6123DDA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498464   (857912) от 26.09.2021
-
-VA - Blow The Speakers: EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857912.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eezy Inc - Do It With The Lights On
-002. Dave Defender - Walk Away
-003. DJ Benz & Masterplus - Push It
-004. Avicii - Levels(   Читать дальше...   )Жанр: Dance, Electro, Club HouseПродолжительность: 07:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C74B5F905350BD9097F11DEDAFE285DF053312
 ```
 
 https://mybot314.ru/tekegram_catalog/

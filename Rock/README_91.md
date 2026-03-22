@@ -1,3 +1,150 @@
+###  Публикация: 1601357   (150913) от 31.12.2022
+
+Gnarbot - Mystery Lodge (2022) [MP3|320 Kbps] <Progressive Rock / Jazz Rock / Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Defender Covington (07:34)
+ 02 - Thrapticious (10:02)
+ 03 - Yunz (07:17)
+ 04 - Crude Boi (feat. Ricky Hess) (06:52)(   Читать дальше...   )Жанр: Progressive Rock, Jazz Rock, Math RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9C811C4F5B52AFB180686C63ECAE684777B11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434690   (149868) от 25.12.2020
+
+Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Голосом олова
+2. О людях
+3. Я за тобой
+4. Беларусы(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEF1FCF106D4E95263990BE09025FA5EFBD408F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519194   (149502) от 23.12.2021
+
+VA - Pink Floyd Tribute (2021) 2xSet [MP3|320 Kbps] <Psychedelic Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Set - 1:
+ 01. Steve Lisenbe - Ripples on a Blue Moon (03:01)
+ 02. Steve Lisenbe - Tribute to Syd (05:50)
+ 03. Soundelicious - Lost Romance (02:48)(   Читать дальше...   )Жанр: Psychedelic Rock, Classic RockПродолжительность: 02:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D1FE64C1D2020C2C45A5AE48FCF4A161B517F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677680   (149381) от 19.11.2023
+
+Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023, Frank Zappa Catalog [MP3|320 Kbps] <Jazz-Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: Over-Nite Sensation
+Disc 2: Bonus Session Masters / Bonus Vault Sensations
+Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(   Читать дальше...   )Жанр: Jazz-Rock, Prog-RockПродолжительность: 4CD: 04:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6869F66A162C8EDD313A446972FDFB6C2D4D2C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589520   (148986) от 15.12.2012
+
+The Police - Message In A Box: The Complete Recordings (1993) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 04:45:32
+
+  Disc: 1-  01:14:54
+  Disc: 2-  01:33:04
+  Disc: 3-  01:04:28
+  Disc: 4-  01:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1978030B3FFB66D5389AA001213AF8A269856A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589351   (148970) от 15.12.2012
 
 Sticky Fingers - Like A Rolling Stone (2012) [MP3|320 кб/с]<Classic Rock>
@@ -620,157 +767,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:917A0B1E4D1AA4BF4397140AB71A51F979772CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590360   (143230) от 17.12.2012
-
-Maciej Malenczuk - Psychodancing (2008) [MP3|192 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro   01:10
-02. Duety   03:36
-03. Ande la more   03:54
-04. Wakacje z blondynką   03:36
-05. Andromantyzm   03:07
-06. Barman   03:09
-07. Kaczory   04:18
-08. Absolutnie   04:45
-09. Edek Leszczyk   04:04
-10. Kronika podróży - czyli ciuchcią w nieznane   03:56(   Читать дальше...   )Жанр: RockПродолжительность: 55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909A9970640B3440FEAC5E75BCCD23D1DA4F1B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195256   (142742) от 29.12.2017
-
-The Purple Gang - Strikes (1968) Reissue, 1998, Essential [MP3|320 Kbps] <Folk Rock, Skiffle>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Auntie Monica
-02. Bootleg Whisky
-03. Viola Lee Blues
-04. The Wizard(   Читать дальше...   )Жанр: Folk Rock, SkiffleПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241984B4ED415CEC2C61CFA6CBF0A5EDA7C8B8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195453   (142708) от 29.12.2017
-
-Lindi Ortega (Линди Ортега) - Little Red Boots (2011) Last Gang Records, Q2 01249, Canada [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Lie 2:27
-02. When All The Stars Align 3:50
-03. Blue Bird 2:19
-04. Angels 3:24(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4A246E1526B49438E3F9714390CD559E956C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088026   (141162) от 30.12.2016
-
-The Liverbirds - More Of The Liverbirds (1966) Reissue, 1994,  Repertoire Records [MP3|320 Kbps] <Beat, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peanut Butter
-02. It's So Exciting
-03. He Hardly Ever Calls Me Honey Anymore
-04. For Your Love(   Читать дальше...   )Жанр: Beat, Rock'n'RollПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1873FE264272C15A4D46E66336801C69F84E4280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195467   (140816) от 30.12.2017
-
-Lindi Ortega (Линди Ортега) - Tin Star (2013) Last Gang Records, Q2 01500, Canada [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard As This 3:12
-02. Gypsy Child 2:29
-03. Tin Star 3:37
-04. Vodoo Mama 2:15(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6528A626872691BEB27487BD48508F8D15F78D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

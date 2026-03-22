@@ -1,3 +1,90 @@
+###  Публикация: 1506765   (799530) от 01.11.2021
+
+Pearlz - Feel Fine (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bang (03:34)
+02. Feel Fine (04:07)
+03. Crystalline Soul (03:33)
+04. Empty Cask (04:57)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C583DCF4970DB40E41FEB5676C18978DC44D4615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506771   (799525) от 01.11.2021
+
+Soul Rash - The Covid Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Child's Eyes 03:32
+02. The Other Side Of Midnight 03:53
+03. Welcome Home 05:56
+04. Raising Cain 03:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC2AF2EDC99EF34C5568975E6A49D3260BB3AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506907   (799099) от 02.11.2021
+
+Osukaru - Starbound (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbound
+02. Rise Of The Underdog
+03. Tainted Heart
+04. Somewhere Sometime Somehow(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69672A60A47E54616860E90DFAB3AD40BC015787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122194   (798821) от 05.04.2017
 
 Shakra - Life Tales: The Ballads (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy Metal>
@@ -656,94 +743,6 @@ Sixx: A.M. - Prayers For The Damned (Vol.1) (2016) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E73D8D1B1906DFC8E0BCA4BC526554185005086E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160932   (794672) от 22.01.2018
-
-Cozy Powell - 8 альбомов, 11 CD (1970-2009) Discography [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Progressive Rock, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незабываемый Colin Trevor Flooks (он же Cozy Powell) (29 December 1947 – 5 April 1998) неизменно, на протяжении многих лет радовал своих многочисленных поклонников по всему белому свету. Oдин из самых «плодовитых» барабанщиков в музыкальной индустрии. Его творческий путь похож на "Who Of Rock” группы The Who, с ограничениями полноценным участием в Black Sabbath, (   Читать дальше...   )--------------------------
-
-01. Black Night (4:55)
-02. After Midnight (6:22)(   Читать дальше...   )Жанр: Hard Rock, Progressive Rock, Instrumental Rock |Продолжительность: 08.03.08 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2E29FFB246591A89D013AD92ABFC73383E1137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509421   (794073) от 13.11.2021
-
-L.A. Guns - Checkered Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветераны хард-рока L.A. GUNS выпустили новый студийный альбом "Checkered Past" 12 ноября на лейбле Frontiers Music Srl.
-"Checkered Past" сочинялся и записывался в конце 2020 – начале 2021 года. На нем Трейси Ганс (Tracii Guns, гитара), Фил Льюис (Phil Lewis) и компания продолжают разрабатывать более мрачную тематику текстов, которая доминировала (   Читать дальше...   )01. Cannonball
-02. Bad Luck Charm
-03. Living Right Now
-04. Get Along(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFABC4111DB0F8364D6EF662FB29A7CB312AC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122735   (793510) от 06.04.2017
-
-George Lynch - Shadow Train (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe 06:11
-02. Blinded 03:52
-03. Fallen 05:08
-04. Glitter 04:48(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6243EBEC77C629A7C18EA608D456642E701EE81
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1697201   (119073) от 05.02.2024
+
+Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marea (3:32)
+02. Lou (4:50)
+03. Siamo Robots (2:51)
+04. Vivo (5:01)(   Читать дальше...   )Жанр: Pop, Pop Rock, Prog Rock, Funk SoulПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA22997118B94DAB3EA0D84CAB7B5E9A5FB4C978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698586   (118476) от 09.02.2024
+
+VA - Sanremo (2024) 2 x CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Alessandra Amoroso - Fino a qui (03:52)
+ 02. Irama - Tu no (03:36)
+ 03. Diodato - Ti muovi (03:06)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9157DB44D35954D64B942C49228BCBB92D916F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698434   (117966) от 12.02.2024
+
+VA - Flashdance (Original Soundtrack From The Motion Picture) (1983) [OGG Vorbis|480 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Irene Cara - Flashdance...What A Feeling
+02.  Shandi - He's A Dream
+03.  Helen St. John - Love Theme From Flashdance
+04.  Karen Kamon - Manhunt(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44035DDB8B99F612770E124E92C7FFE31FF89DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699486   (117811) от 13.02.2024
+
+VA - Maxi Hit-Sensation 97-04 (2007) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Touch Of Class - Around The World (Ruegsegger # Wittwer Club Mix)
+02.  Eiffel 65 - Lucky (In My Life) (Gabry Ponte Club Mix)
+03.  Touche - This Goodbye Is Not Forever (DJ Lucky Extended Version)
+04.  Modern Talking - Juliet (Jeo's Remix)(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 03:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E250271E2EC526E2D625E9730CA65361F2DDAB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699346   (117806) от 13.02.2024
 
 VA - Absolute Dance (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, Eurodance>
@@ -629,122 +745,6 @@ VA - DJ Hits Volume 8 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5139FEC63370E664592BE83D5C3E8387EAA399BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727026   (108587) от 01.06.2024
-
-VA - DJ Hits Techno Old (1997) [OGG Vorbis|480 Kbps] <Electronic, Techno, Eurodance, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-Type - Set The World On Fire
-02. Africa Bambaataa - Feel The Wibe
-03. D.J. Bobo - Deep In The Jungle
-04. Matterhorn Project - Moon!(   Читать дальше...   )Жанр: Electronic, Techno, Eurodance, Euro HouseПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B53780A503AD7B5EA6D93077CA4ACB018B44E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727070   (108586) от 01.06.2024
-
-VA - DJ Hits Volume 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Bobo - Keep On Dancing (Radio Edit)
-02. Captain Hollywood Project - Impossible (Radio Edit)
-03. Jazzy Jeff & Fresh Prince - Boom ! Shake The Room
-04. Papa Winnie - Someday, New Day (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29BC323689B506E871E1A101E0A400CFB684CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727236   (108580) от 01.06.2024
-
-VA - DJ Hits Vol. 19 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Circle - Games People Play (Radio Edit)
-02. Dr. Alban - Let The Beat Goes On (Short Version)
-03. Hit'n'Run - Jump '94 (Short Radio)
-04. Double Trouble - I Swear (Single Version)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792C2D36B95EE3B9831DAD1152C78553A50E9336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727182   (108564) от 01.06.2024
-
-VA - DJ Hits15 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Club Factory Feat. Max P. - I Think I Wanna Rock (Extended 12'' Version)
-02. Sonic Surfers - Everybody! (Radio Edit)
-03. M. C. Sar & The Real McCoy - Run Away (Club Attack Mix)
-04. Carl Linger - The Right Time (Club Mix)(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4AFF9908D3B034F92F09AE6A071BE9E2D25FE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

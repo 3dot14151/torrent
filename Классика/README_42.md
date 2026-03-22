@@ -1,3 +1,119 @@
+###  Публикация: 1079189   (294015) от 04.12.2016
+
+Jackie Evancho - Someday at Christmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical, Pop>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someday at Christmas 4:21
+02. Do You Hear What I Hear? 4:10
+03. Guardian Angels (Bonus Track) 3:49
+04. Little Drummer Boy 3:12(   Читать дальше...   )Жанр: Classical, PopПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31B2CA6881E4CF16D8864C7DDC9597264FDB391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334678   (292916) от 30.10.2019
+
+Vadim Brodsky ( Вадим Бродский ) - Beatles Symphony (1986) Reissue, 2000, ADA Sound LTD [FLAC|Lossless|image + .cue]<Instrumental, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обработка бессмертных песен The Beatles в классическом стиле в исполнении известного скрипача Вадима Бродского.01. Yesterday 2:33
+02. Because 3:19
+03. The Fool On The Hill 2:20
+04. Lucy In The Sky With Diamonds 1:44(   Читать дальше...   )Жанр: Instrumental, Classical CrossoverПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D392D5CF1C21BDC33CAC533E087B4C9CE5EC8388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079485   (291706) от 05.12.2016
+
+Vivaldi - Anne-Sophie Mutter, Herbert Von Karajan, Wiener Philharmoniker ‎– Le Quattro Stagio (1984) 1998 EMI Records [FLAC|Lossless|image + .cue] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antonio Vivaldi - The Four Seasons: Concerto in E major, op. 8 no. 1-4
+
+"La primavera"
+  I. Allegro (3:20)(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD1EDDBB83A134D8557C19D887E5A1FF84A49F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080072   (290140) от 06.12.2016
+
+Joshua Bell - For the Love of Brahms (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Concerto in A Minor, Op. 102 for Violin, Cello and Orchestra: I. Allegro [00:16:50]
+02. Double Concerto in A Minor, Op. 102 for Violin, Cello and Orchestra: II. Andante [00:07:34]
+03. Double Concerto in A Minor, Op. 102 for Violin, Cello and Orchestra: III. Vivace non troppo [00:08:39]
+04. Violin Concerto in D Minor, WoO 23: II. Langsam (coda by Benjamin (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212671FD5F31F6E9DD666D5FE2A82EA901189F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080139   (290081) от 06.12.2016
 
 Julian Bream - Lute Music from the Royal Courts of Europe (volume 2) (1966-76) 1993 BMG Music [FLAC|Lossless|image + .cue] <Classical, Instrumental, Lute.>
@@ -623,123 +739,6 @@ Andrea Bocelli - Si Forever (2019) The Diamond Edition [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62EF8AA170066A7063C57084844A1D7EACB75EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337459   (273624) от 11.11.2019
-
-New London Chorale - The Collection Vol.2 (2003) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Alone (Moonlight Sonata) - Ludwig Van Beethoven (3:52)
-02. You Know Him Well - Wolfgang Amadeus Mozart (3:30)
-03. Ave Maria - Franz Schubert (3:55)
-04. The Stage Is Set - Peter Ilyich Tchaikovsky (4:26)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D94727272AD052AF5E68483A48B66EDD056C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189382   (270187) от 06.12.2017
-
-Annie Haslam - Still Life (1985) Limited Edition, Reissue, 1999, Kankard [FLAC|Lossless|image + .cue] <Classical, Romantic, World>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сольный альбом Энни Хаслам — "Still Life" (1985), записанный вместе с Royal Philharmonic Orchestra под управлением Луи Кларка сделавшего аранжировки для оркестра. Кларк дирижировал Королевским филармоническим оркестром в процессе записи на Эбби Роуд и продюсировал альбом.
-На наиболее известные классические произведения Баха, Шуберта, Вагнера, Чайковского, (   Читать дальше...   )01. Forever Bound (3:55)
-02. Still Life (3:00)
-03. One Day (2:59)
-04. Ave Verum (2:44)(   Читать дальше...   )Жанр: Classical, Romantic, WorldПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858350A5FD1EFEC86986ED95F0315C1D4BB12B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338086   (269689) от 15.11.2019
-
-Peter Hahn & Anna Maria Kaufmann - CD1 Musical (2010) [FLAC|Lossless|image + .cue] <Classical Crossover,  Musical, Vocal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Hahn & Anna Maria Kaufmann - The Phantom Of The Opera (4:28)
-02. Peter Hahn & Anna Maria Kaufmann - Westside Story: America (4:29)
-03. Peter Hahn & Anna Maria Kaufmann - Wicked: Ich Bin Es Nicht (I'm Not That Girl) (2:58)
-04. Peter Hahn & Anna Maria Kaufmann - Phantom Of The Opera: Denk An Mich (3:19)(   Читать дальше...   )Жанр: Classical Crossover,  Musical, VocalПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16205515053E587A2C13AF4275118F630330F2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266505   (269147) от 03.12.2018
-
-Katherine Jenkins - Guiding Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Homeward Bound 4:16
-02.Jealous Of The Angels 3:49
-03.A Gaelic Blessing 1:53
-04.Morning Has Broken 3:29(   Читать дальше...   )Жанр: Classical Crossover, VocalПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856F030CE1FAFA13738032CEBB5F3504E1E5D018
 ```
 
 https://mybot314.ru/tekegram_catalog/

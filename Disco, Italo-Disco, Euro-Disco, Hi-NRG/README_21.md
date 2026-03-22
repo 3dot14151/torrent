@@ -1,3 +1,32 @@
+###  Публикация: 1552212   (588529) от 19.05.2022
+
+Elen Cora - House of Cards (2012) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me Why (3:35)
+02. Forgive Me (4:14)
+03. Astronomers in China (4:41)
+04. Wanna Be Real (4:20)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579D4027DDA0CDAEE3F4845F2EE185932523D6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 809232   (588376) от 31.07.2014
 
 Wish Key - Uno (2010) [MP3|320 кб/с]<Italo-Disco>
@@ -770,35 +799,6 @@ King Kong & D'Jungle Girls - King Kong Greatest Hits (2000) [MP3|320 кб/с]<It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:293DF28A83DBC842085D8D54D92567C5A4B3BBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042435   (579416) от 12.08.2016
-
-Emly Starr - Emly Starr (1980) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock & Roll Woman (3:32)
-02. Music In The Air (3:15)
-03. Santiago Lover (6:21)
-04. I Need Help (3:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4D07DD413FB1AA176B970148F5796D2001BEF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,320 @@
+###  Публикация: 1042647   (213390) от 13.06.2022
+
+Август - Ответный Удар (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213390.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Орел
+A2 Ответный Удар
+A3 Гонка
+A4 Точка Отсчета(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC495827F156A441266CC297CEF0F26BC359F5A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042660   (213384) от 13.06.2022
+
+Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213384.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Берегись • Watch Out
+А2 Руки Прочь • Hands Off
+А3 Щит И Меч • Shield And Sword
+А4 Еще Раз Ночь • It's Night Once Again(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831027   (212559) от 28.10.2025
+
+Brahms - Piano Quartet No. 1 Op. 25 · Schumann - Fantasiestücke Op. 88 (Martha Argerich, Gidon Kremer, Юрий Башмет / Yuri Bashmet, Миша Майский / Mischa Maisky) (2002) 2025 [DSD64 2.0|1bit/282 ...
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brahms - Piano Quartet No. 1, Op. 25
+01. 1. Allegro (13:18)
+02. 2. Intermezzo (Allegro ma non troppo) (7:35)
+03. 3. Andante con moto (10:50)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C660166311E5563D4DABB66BFA0E8F67AA48B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638374   (212054) от 08.06.2023
+
+Sweet - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_212054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Set Me Free
+02. Keep It In
+03. Give The Lady Some Respect(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584773   (211987) от 19.10.2022
+
+Hiromi - Spectrum (2019) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaleidoscope
+02. Whiteout
+03. Yellow Wurlitzer Blues
+04. Spectrum(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BB26AEB46DCB90CB4F7CB22944F535FE6BB9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638614   (211934) от 09.06.2023
+
+Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Hear You Calling Me
+02. Nasty Reputation
+03. Dreams Of Passion(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6FAB84FC4BA1F43C91B6643E388F302776B9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626297   (211882) от 09.06.2023
+
+Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gloryhammer — шотландская пауэр-метал-группа, основанная клавишником Кристофером Боузом, ведущим вокалистом группы Alestorm. Каждый участник группы представляет персонажа в сюжетной концепции. Группа появляется на сцене в доспехах и костюмах, чтобы представить своих персонажей.2013 - Tales From The Kingdom of Fife
+2015 - Space 1992: Rise of the Chaos Wizards
+2019 - Legends From Beyond The Galactic TerrorvortexЖанр: Symphonic Power MetalПродолжительность: 03:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD43CF7A96F69B1C66BAF50A6C8A2AAA715EC087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639009   (211804) от 11.06.2023
+
+Janis Joplin - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half Moon
+02. Me And Bobby McGee
+03. Piece Of My Heart
+04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585636   (211570) от 24.10.2022
+
+Massimo Farao And The Jazz Magicians Orchestra - Magic Swing: Tribute To The Music Of Count Basie (2022) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211570.jpg" />
+</div>
+
+
+###  Подробнее
+
+A tribute to the Count Basie Orchestra, the pinnacle of swing jazz big band! The sound of the 18-piece Count Basie Orchestra is recreated by overdubbing the brass sections of the jazz musicians performing here. Just magic!
+
+SHM-SACD (Super High Material SACD) is the ultimate Super Audio CD that utilizes the materials and technologies that were developed for the SHM-CD (   Читать дальше...   )1. DEEP READ
+2. IT`S OH SO NICE
+3. LOVER MAN
+4. MOTEN SWING(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DFD828195E35DFE6228D03FB2F24A6932F2F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639869   (211473) от 15.06.2023
+
+Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Sunrise (The Magician Birthday)
+02. July Mornin' (Look At Yourself)
+03. Return To Fantasy (Return To Fantazy)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640068   (211409) от 16.06.2023
+
+Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Black/Viking Metal, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black/Viking Metal, Thrash MetalПродолжительность: 07:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585962   (211272) от 27.10.2022
 
 Lenny Kravitz - Greatest Hits (2000) Reissue, 2022, Virgin;Universal Music Hong Kong [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock, Soft Rock>
@@ -422,323 +739,6 @@ Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D77F06C408DA47943BFADF7FE62F4D0F5B9912A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661858   (209828) от 16.01.2023
-
-Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night 4:03
-02. Isadora 4:03
-03. No Controlo Nada 3:53
-04. Me Estoy Volviendo Loco 3:35(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4BD9E87949CE71FE289F047EAF16A076B29EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645052   (209478) от 07.07.2023
-
-BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <Lounge, Relax>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scene 01  00:54:41
-02.  Scene 02  00:33:27Саундтрек видового фильма, представляющего музейные полотна художников-импрессионистов. На мой взгляд, музыка имеет самостоятельную ценность как образец хорошего Релакса. Поэтому, собственно, и сделал данный трансфер))
-О том, как послушать. Обладатели ресиверов, оборудованных декодером DTS-ES, смогут (в добавление к обычному (   Читать дальше...   )Жанр: RelaxПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A09D37DE45CB6B4F0904491A8E2692D5EB91CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606387   (209458) от 21.01.2023
-
-Amanda Marshall - Everybody’s Got A Story (2001) 2002 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень симпатичный альбом певицы с необычно смешанной кровью: ее мать - из Тринидада, отец - канадец. В меру - неторопливый, мелодичный, в меру - энергичный многоканальный микс очень хорош. Великолепно сбалансированный и сведенный звук - образец аудиенс-микса.За образ SACD благодаримЖанр: Pop/RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5903D116A54060A647A42F05453FA4818CE39FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613838   (209326) от 09.07.2023
-
-Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodbound — шведская метал-группа, сочетающая в себе как традиционный по стилю пауэр-метал, с присущей ему динамикой, мелодикой и сменами ритмов, так и не менее традиционный хеви-метал с мощным акцентированным вокалом, героическими текстами и сольными партиями гитаристов.2005 - Nosferatu
-2007 - Book Of The Dead
-2009 - Tabula Rasa
-2011 - Unholy CrossЖанр: Heavy/Power MetalПродолжительность: 08:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9B50B56DEB4A690E67CDD03026A7F0B104D125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645475   (209223) от 10.07.2023
-
-VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-Rip] <Funk, Pop Rock, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209223.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Manuel & The Music Of The Mountains - The Windmills Of Your Mind
-A2 Cliff Richard - Spanish Harlem
-A3 Bobbie Gentry - Ode To Billy Joe
-A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр: Funk, Country, Pop Rock, Easy ListeningПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645674   (209153) от 11.07.2023
-
-VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Country, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209153.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hot Chocolate - You Sexy Thing
-A2 Silver Convention - Save Me
-A3 Chequers - Rock On Brother
-A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop Rock, Glam, Country, SoulПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574794   (208677) от 07.09.2022
-
-Blackmore's Night - Дискография (13 albums) (1997-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Folk rock, Neo-medieval>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blackmore’s Night — фолк-рок-группа, основанная в 1997 году бывшим гитаристом «Deep Purple» и «Rainbow» Ричи Блэкмором (акустические и электрические гитары, мандола, лютня и другие инструменты) и Кэндис Найт (вокал, духовые, перкуссия). Название группы может толковаться и как каламбур: «Найт Блэкмора».
-Музыкальной основой и главным вдохновением музыкантов является (   Читать дальше...   )1997 - Shadow of the Moon
-1999 - Under a Violet Moon
-2001 - Fires at Midnight
-2003 - Ghost of a Rose(   Читать дальше...   )Жанр: Folk rock, Neo-medievalПродолжительность: 13:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C053294091A78AD79E78FAEA3F3D23B502A1EB28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514480   (207992) от 15.09.2022
-
-Megadeth - Дискография (23 releases) (1985-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Megadeth — американская трэш-метал-группа из города Лос-Анджелес, штат Калифорния, сформированная в 1983 году. Коллектив основан гитаристом и вокалистом Дэйвом Мастейном и бас-гитаристом Дэвидом Эллефсоном.
-Вместе с такими группами как Slayer, Metallica и Anthrax входит в «большую четвёрку трэш-метала».1985 - Killing Is My Business... and Business Is Good!
-1986 - Peace Sells... But Who's Buying?
-1988 - So Far, So Good... So What!
-1990 - Rust in PeaceЖанр: Thrash Metal, Heavy MetalПродолжительность: 31:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A6F9A9D23BA243BA5709BF7CC33F62DA0379A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409499   (207971) от 26.07.2023
-
-Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unofficial Release [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Alternative Rock, Folk Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207971.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Feel So Different
-A2 Three Babies
-A3 The Emperor's New Clothes
-A4 Black Boys On Mopeds(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Pop RockПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4683C0CCB354E4FACD74B1C635CD638EF8B49EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646379   (207751) от 28.07.2023
-
-VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Soul, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207751.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:58:06
-A1 Hues Corporation – Rock The Boat
-A2 Tymes – Ms Grace
-A3 Ken Boothe – Everything I Own(   Читать дальше...   )Жанр: Pop Rock, Soul, FunkПродолжительность: 02:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A84CF59998A6BABC00C21E7C4A63BA5802AECB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648695   (207678) от 29.07.2023
-
-VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Blues, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207678.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Elton John - Sacrifice
-A2 George Michael - Father Figure
-A3 Oleta Adams - Get Here
-A4 Michael Bolton - How Am I Supposed To Live Without You(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 02:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

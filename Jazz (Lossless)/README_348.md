@@ -1,3 +1,177 @@
+###  Публикация: 1781463   (70191) от 23.02.2025
+
+Les Paul Trio - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy River [1:51]
+02. Short Circuit [1:34]
+03. Wasted Tears [1:52]
+04. Melodic Meal [1:52](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DA734CCC648AFB64AE20AB76007ACA8A4781BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781627   (70171) от 24.02.2025
+
+Michael Weiss Quartet - Power Station (1997) DIW Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Station [8:50]
+02. Atlantis [8:16]
+03. Orient Express [5:53]
+04. Soul Journey [4:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0CA7CE673C4A5ACE6FDD42A125BD56D14503D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781629   (70170) от 24.02.2025
+
+Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation [3:01]
+02. Dear Heart [3:19]
+03. Watching the World Go By [3:07]
+04. Quiet Nights [2:51](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian Jazz, Bossa NovaПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EC9F680441C492DA0AAEF57666ED0BC1217ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781633   (70167) от 24.02.2025
+
+Abdullah Ibrahim - Water From An Ancient Well (1985) 1992, Enja [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandela [4:59]
+02. Song for Sathima [6:12]
+03. Manenberg Revisited [6:11]
+04. Tuang Guru [5:26](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61A6EC26961508066350B688FC8AB13E4E553F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781816   (70154) от 25.02.2025
+
+Abdullah Ibrahim - Dollar Brand Plays Sphere Jazz (1960) 2015, Phono [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boulevard East [6:51]
+02. Khumbula Jane [5:57]
+03. Sad Times, Bad Times/King Kong [5:27]
+04. Blues for B [3:30](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD32A25B5F3578BF21761A55DF0165999D62C572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781864   (70150) от 25.02.2025
+
+Peter White - Light of Day (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовясь к выпуску своего долгожданного 17-го альбома Light of Day в начале 2025 года, британский ветеран-гитарист и икона современного джаза Peter White отмечает ряд ключевых личных и профессиональных вех. Музыкант, которому только что исполнилось 70, говорит о новом сборнике: "Я думаю, что эта запись - одна из лучших, которые я когда-либо делал. У меня столько (   Читать дальше...   )01. Catalonia (4:42)
+02. Cityscape (feat. Rick Braun) (6:17)
+03. Carefree (4:08)
+04. Till I See You Again (3:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDFE517376C2C69B8A5218DEDE47580BC745254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781814   (70139) от 25.02.2025
 
 The Emily Remler Quartet - Take Two (1982) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -571,180 +745,6 @@ VA - Jazzy Chill Vibes (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE8BC0643837DFE85FCA5DE56489A73AED2925A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783371   (69837) от 05.03.2025
-
-VA - Mondo Groove (The New Italian Funky Scene) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Moonjumpin' (3:33)
-02.  Avex - Underground Foxes (3:25)
-03.  Soulstance - Music Painter (5:28)
-04.  Black & Brown - P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417AECF994CC3FAEC75E078218745B9DF2A44591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783366   (69835) от 05.03.2025
-
-VA - Chill Jazz Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Miles Davis - When I Fall In Love (Rudy Van Gelder Remaster) (4:24)
-02.  Bill Evans - I Wish I Knew (4:40)
-03.  John Coltrane - Time After Time (7:43)
-04.  Lex Humphries - While We're Young (2:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 04:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F7CD13813800CF5BE75ACC91763D42583E561E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783367   (69828) от 05.03.2025
-
-VA - Italian Dining Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ely Bruna - Parole Parole (4:42)
-02.  Matteo Brancaleoni - Cosa Hai Messo Nel Caffè (3:20)
-03.  Emanuela Campana - Gente distratta (5:29)
-04.  Jose Mascolo - Donna (4:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C9C3BC53FA10B250865C05993C0FC32C00EED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783308   (69825) от 05.03.2025
-
-Art Pepper & Zoot Sims All Stars - Art & Zoot (1981) 1991, West Wind [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the Rainbow [10:48]
-02. In the Middle of a Kiss [9:44]
-03. Wee [8:01]
-04. Blues [10:36]Жанр: Cool, Post-BopПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FC079057C1DC13E1064DD4F2BF68FC789B7A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783310   (69822) от 05.03.2025
-
-Bill Evans - In Norway: The Kongsberg Concert (1970) 2024, Elemental Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Rain or Come Shine [5:55]
-02. What Are You Doing the Rest of Your Life? [5:39]
-03. 34 Skidoo [5:55]
-04. Turn Out the Stars [5:12](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3DB17F0B682C669D81921FF1B346415753FC6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783305   (69820) от 05.03.2025
-
-Oscar Peterson Trio - The Complete Tokyo Concert (1964) 2CD, 2008, Jazz Lips [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight [2:57]
-02. Fly Me to the Moon [4:25]
-03. Somewhere [8:17]
-04. Yours Is My Heart Alone [5:49](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CB34BE324A264C4B60988F09DAAA1F07577762
 ```
 
 https://mybot314.ru/tekegram_catalog/

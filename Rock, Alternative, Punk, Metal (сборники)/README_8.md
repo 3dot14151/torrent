@@ -1,3 +1,32 @@
+###  Публикация: 1374341   (874307) от 09.04.2020
+
+VA - Acoustic Rock vol.1 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Cornell - You Never Knew My Mind (Johnny Cash: Forever Words) (04:56)
+02. Nirvana - About A Girl (03:37)
+03. Oasis - Wonderwall (04:18)
+04. The Verve - The Drugs Don't Work (05:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291E6E5540B3997130829D391DEF216BB747F269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374272   (874120) от 09.04.2020
 
 VA - Русский Рок ревью 2020 [MP3|320 Kbps] <Rock>
@@ -722,35 +751,6 @@ VA - Glam Rock 70’s icons (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BE22F92D69673FCE129CF917B9EFB9DE8F158C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375716   (863515) от 15.04.2020
-
-Kiss - 100% KISS (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detroit Rock City
-02. Hell Or Hallelujah
-03. I Was Made For Lovin' You
-04. Exciter(   Читать дальше...   )Жанр: RockПродолжительность: 03:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BDD12D83096C6B511EB644DB878528857BE57C
 ```
 
 https://mybot314.ru/tekegram_catalog/

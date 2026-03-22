@@ -1,3 +1,32 @@
+###  Публикация: 1823620   (125866) от 12.10.2025
+
+Frezee - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal, Other>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Твои Шаги
+ 02 - Между Небом И Землей
+ 03 - Минуту Назад
+ 04 - Первая Любовь(   Читать дальше...   )Жанр: Swing Jazz, Nu Jazz, Chillout, Female Vocal, OtherПродолжительность: 00:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B831EA86D7C468BE1F84528AC8FBDB7AF4216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689366   (124554) от 03.01.2024
 
 Richard Bargel - Compilation (2024) [MP3|320 Kbps] <Blues rock, Blues, Soul>
@@ -716,35 +745,6 @@ VA - Smooth Relaxing Jazz (2024) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6F165CFBC63FDEECEAB9DB2D6A7495B56EF43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723491   (55720) от 22.05.2024
-
-VA - Piece of Blues (blues instrumental) (2024) [MP3|320 Kbps] <Blues, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55720.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Jeff Healey Band - Nice Problem to Have [04:50]
-002. Al Kooper, Michael Bloomfield - Albert's Shuffle [06:55]
-003. Good City Music Band - Give You Everything [03:57]
-004. Jimmy Thackery - Blues 'Fore Dawn (Instrumental) [04:54](   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 10:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D163BFB0272FC9BF3E56D0751CF4C15557E4141
 ```
 
 https://mybot314.ru/tekegram_catalog/

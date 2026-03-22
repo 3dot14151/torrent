@@ -1,3 +1,32 @@
+###  Публикация: 1364627   (933688) от 05.03.2020
+
+Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|image + .cue] <Power Metal, Sympho Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я вернусь
+02 - Время потерь
+03 - Лечу за тобой
+04 - Зеркало Судьбы(   Читать дальше...   )Жанр: Power Metal, Sympho Power MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B32C9A8C82196C9F7E89204BB1D21D5FBBFC390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861731   (932846) от 21.01.2015
 
 Пикник - Чужестранец (2014) [FLAC|Image + cue]<Progressive Rock>
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098910   (906634) от 31.01.2017
-
-Сурганова & Оркестр - Песни военных лет (2017) [FLAC|lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нам нужна одна победа (03:07)
-02. Журавли (04:01)
-03. Песня о далёкой Родине (02:55)
-04. Самолёты (03:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF93AD9D8F040AF30674999AE03A9CD34A620E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

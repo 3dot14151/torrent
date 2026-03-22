@@ -1,3 +1,177 @@
+###  Публикация: 70017   (582279) от 06.08.2014
+
+Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582279.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sk8er Boi
+2. Girlfriend
+3. Innocence
+4. Don't Tell Me(   Читать дальше...   )Жанр: Pop RockРежиссер: Kevin WallПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919347   (581797) от 20.07.2015
+
+Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот концерт был записан в период с 20 по 28 июля 2009 года, когда группа давала 5 концертов в столице Дании. Видео снято самими фанатами группы.Поэтому съемка получилась не совсем профессиональная, зато атмосфера передана на отлично.01. The Ecstasy Of Gold
+02. That Was Just Your Life
+03. The End Of The Line
+04. Ride The Lightning(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashПродолжительность: 02:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6E9D5357B0D52080EF12AD5F5B90E531733E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920397   (579924) от 22.07.2015
+
+Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Британской рок группы Whitesnake был записан 15 октября 2011 года во время Японского Loud Park Фестиваля на Saitama Super Arena в Saitama City. Этот концерт группы Кавердейла прошёл в рамках их "Forevermore World Tour". Первоначально представление было записано для Японского телевидения и последующей рекламной компании Loud Park, однако после трансляции (   Читать дальше...   )01. Best Years
+02. Give Me All Your Love Tonight
+03. Love Ain't No Stranger
+04. Is This Love(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A93FABFF32CDEB57A7816A4DF0E99A9049C4C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920420   (579921) от 22.07.2015
+
+Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Metallica с классической программой в Мехико в 2009 году. Концертное выступление чередуется общением с фанатами и эпизодами с Мексиканского ТВ.1. The Ecstasy Of Gold
+2. Creeping Death
+3. For Whom The Bell Tolls
+4. Ride The Lightning(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashРежиссер: Wayne IshamПродолжительность: 02:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F115A025896E10D0B8E5EBB4E23787BEF108ED17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554169   (578938) от 29.05.2022
+
+Квартирник у Маргулиса. Юбилей Павла Фахртдинова (28.05.2022) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поэту, музыканту и автору-исполнителю Павлу Фахртдинову — 40! В его творчестве столько разнообразных стилей, тем, настроений и интонаций, что репертуар артиста можно изучать годами и все равно постоянно ждать чего-то нового. Свой юбилей музыкант отметил в атмосферной студии «Квартирника». В праздничный вечер он исполнил не только свои хиты, но и новые композиции. (   Читать дальше...   )00:00:06 Выведи
+00:04:59 Слушай, сынок
+00:10:40 Это важно
+00:16:45 Дальше(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FE343907AACE2D40FC02AFEFD0F6E4F161FCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920752   (578630) от 23.07.2015
+
+Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный концерт группы Led Zeppelin на площадке O2 Arena в Лондоне, который посетили 18 тысяч зрителей из 20 миллионов желающих. Порядок песен (стартуют ребята символично с «Good Times Bad Times» – первой песни первого альбома 1969 года), освещение, работа операторов – здесь все подернуто духом реконструкции, но с искренним ощущением чуда. Никакие фильтры и ракурсы (   Читать дальше...   )01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalРежиссер: Dick CarruthersПродолжительность: 02:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0572313D529754EED468FCC899A64FC2A3967F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 811614   (578406) от 10.08.2014
 
 Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
@@ -573,180 +747,6 @@ RAMMSTEIN выпустили концерт «In Amerika». С триумфом 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE6EFAABF27B4515D219DC6259BE176C8D6E1538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691073   (561731) от 19.08.2013
-
-Aerosmith - Rock For The Rising Sun (2011/2013) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Draw the Line
-02. Love in an Elevator
-03. Livin' on the Edge
-04. Hangman Jury(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97348087A59F9C241EC2E879293C2D09019DBCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923955   (560803) от 02.08.2015
-
-Dragonforce - In The Line Of Fire ... Larger Than Live (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съемка проводилась во время выступления группы в 2014 году на фестивале Loud Park festival, который проходил под сводами Saitama Super Arena в Токио.01. Fury Of The Storm
-02. Three Hammers
-03. Tokyo Party*
-04. Black Winter Night(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CBF9930457EC40CABD492AFCDA2CCE6579E245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924105   (560600) от 02.08.2015
-
-Cliff Richard - Still Reelin' and A-Rockin' (Live at Sydney Opera House) (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Клиффа Ричарда "Still Reelin' and A-Rockin'" прошедший 11 февраля 2013 года в австралийском Sydney Opera House. Сэр Клифф Ричард - британский исполнитель популярной музыки, который одним из первых среди англичан начал исполнять рок-н-ролл. Его называют королём британских чартов по той причине, что он возглавлял таковые 25 раз, а национальный хит-парад (   Читать дальше...   )01. Reelin' and Rockin' (Chuck Berry cover) /My Kinda Life
-02. Dreamin'
-03. Living Doll
-04. Poetry in motion(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4195C461B870A32F73648F3392790645E7D3B7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924392   (558963) от 03.08.2015
-
-The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558963.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПервыЙ концерт всемирного тура по случаю 30-й годовщины основания M.S.G., Nakano Sun Plaza, Токио, 13 января 2010 г. Один из лучших составов M.S.G. 1980-x, партнеры Шенкера по дебютному альбому "The Michael Schenker Group" Гари Барден и Саймон Филипс.01. Welcome Howl
-02. Feels Like A Good Thing
-03. Cry For The Nations
-04. Let Sleeping Dogs Lie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477356BFC5439FB6BD7C7C5DD266F495769780B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924684   (557402) от 04.08.2015
-
-Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557402.jpg" />
-</div>
-
-
-###  Подробнее
-
-После землетресения в 2011году на Фукусиме, Япония. Рок - группа Aerosmith дала ряд концертов в Японии в 2011году, об этом туре Eagle Rock Entertainment выпустил в 2013году фильм - концерт Aerosmith - Rock For The Rising Sun.01. Draw the Line
-02. Love in an Elevator
-03. Livin' on the Edge
-04. Hangman Jury(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97D161FE845994026EDE91F57F7B209A16E966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153903   (556798) от 28.07.2017
-
-The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556798.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2004 году The Who вернулась на фестиваль Isle Of Wight впервые после их легендарного выступления 1970 года. После долгого отсутствия фестиваль был возрожден в 2002 году. Концерты Who's UK в 2004 году были первыми в их родной стране со времени смерти основателя Джона Энтвисла.1. I Can’t Explain
-2. Substitute
-3. Anyway, Anyhow, Anywhere
-4. Who Are Youhide=Производство: Великобритания / Eagle Rock EntertainmentЖанр: RockПродолжительность: 02:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F72C8DDB18599BF432C4996CD454CEC9809F738
 ```
 
 https://mybot314.ru/tekegram_catalog/

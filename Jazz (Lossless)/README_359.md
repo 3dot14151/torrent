@@ -1,3 +1,177 @@
+###  Публикация: 1723915   (56240) от 17.05.2024
+
+Erotica, Ladies Jazz Group - Sexy Vocal Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:25)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737C688CE80CC4DF22C8486CF6E42C2150438901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727801   (54355) от 04.06.2024
+
+VA - Italian Restaurant Lounge Music Vol. 3 (The Best Italian Songs to relax for your lunch or dinner) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walter Ricci - Guarda Che Luna (3:36)
+02. Anna Ghetti - La Più Bella Del Mondo (4:45)
+03. Papik - La Pioggia Di Marzo (3:42)
+04. Anna Ghetti - Baciami Piccina (2:36)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F75F9945E36D55B9312E43113763297F9E868A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728084   (54253) от 05.06.2024
+
+Scott Hamilton - From The Beginning (1977, 1978) 2CD, 2002, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East of the Sun [5:45]
+02. There Is No Greater Love [4:15]
+03. Rough Ridin' [4:29]
+04. These Foolish Things Remind Me of You [3:47](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B19E8D12904FC44E879DE463D20CC3E7F25DF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728232   (54150) от 06.06.2024
+
+Ruby Braff - Ad Lib Blues (1951 - 1954) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Lib Blues [4:29]
+02. I Wish I Could Shimmy Like My Sister Kate [4:11]
+03. 'S Wonderful [5:56]
+04. Hustlin' and Bustlin' [3:50](   Читать дальше...   )Жанр: SwingПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4091CC61AE2908E162671A00DAE1978C9C450C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728294   (54148) от 06.06.2024
+
+Doc Severinsen - & Friends (1992) MCA Special Products [FLAC|Lossless|tracks + .cue] <Big Band, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Blackbird [2:50]
+02. Don't Go Breakin' My Heart [2:17]
+03. Goin' Out of My Head [3:10]
+04. Guantanamera [3:14](   Читать дальше...   )Жанр: Big Band, Easy ListeningПродолжительность: 00:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D382DD6DE8FFC010B921CBCAA7C79865F9372983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728251   (54147) от 06.06.2024
+
+Vic Dickenson & Joe Thomas - Mainstream (1958) 2013, Warner [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweethearts on Parade [4:54]
+02. I Can't Believe That You're in Love with Me [5:57]
+03. Undecided [4:45]
+04. Crazy Rhythm [3:37](   Читать дальше...   )Жанр: SwingПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310F549AADD890BFBAB03913ECA6CEA6CF16C35B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729132   (53628) от 11.06.2024
 
 Mildred Bailey - 1939 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -571,180 +745,6 @@ Chet Baker - Stairway To The Stars (1965) 1996, Prestige [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64929F88513B72456E995B1C22478E97FEEBFD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744372   (46078) от 21.08.2024
-
-VA - Refreshing Soothing Easy Listening Tunes for Rest, Study or Travel (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Time Will Tell (3:58)
-02. eJazz Artistry - Beautiful (4:26)
-03. Chillaxing Jazz Kollektion - Anywhere with You (4:06)
-04. Chillaxonic - Together We Fly (4:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED7F2C2E04A556A22BC6502E657F6326E8B4141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744370   (46075) от 21.08.2024
-
-VA - Magnificent Soothing Tunes for Relaxed and Happy Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Every Now & Then (3:29)
-02. eJazz Artistry - Sweet Love (4:01)
-03. eJazz Artistry - No Rhyme, No Reason (3:48)
-04. Love Suggestions - Life Is Love (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02849A4A9CAA71FBE7D7141B346934FC26955C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744369   (46073) от 21.08.2024
-
-VA - Luxurious Instrumentals for Relaxed and Happy Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Memories of Us (4:32)
-02. Kool&Klean - Every Now & Then (3:29)
-03. eJazz Artistry - Story of My Life (5:06)
-04. Chillaxonic - Oasis (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF89FC7851AA4D8C839E401085993850C74A599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750052   (43252) от 17.09.2024
-
-The Lao Tizer Band - Amplify (2024) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down (5:42)
-02. Boulevard of Stars (6:21)
-03. Kat's Groove (8:21)
-04. Why (7:19)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF91F6246EFCB5AAA170EB4C2B95152ABFCB448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750169   (43148) от 18.09.2024
-
-Stan Getz - Compact Jazz: Stan Getz & Friends (1988) Verve [WavPack|Lossless|image + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Mean a Thing (If It Ain't Got That Swing) [6:40]
-02. Con Alma [8:07]
-03. Lover Man [4:40]
-04. Night and Day [6:39](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3562125C9B308D68611957D27B43EE5B968FEDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751024   (42618) от 23.09.2024
-
-Frank Sinatra - Night And Day (1996) Golden Stars [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day [2:30]
-02. You Make Me Feel So Young [2:57]
-03. Begin The Beguine [3:09]
-04. Blue Skies [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBBFF035E7B207D3709D4C30034FCEC6B2D39D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

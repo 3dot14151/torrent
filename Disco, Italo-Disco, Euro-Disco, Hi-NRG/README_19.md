@@ -1,3 +1,32 @@
+###  Публикация: 1230538   (614059) от 13.06.2018
+
+Mystic - 4 Singles (1977) 7" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Disco Love Affair (3:59)
+02.  Disco Symphony (3:52)
+03.  In The Year 2525 (4:21)
+04.  Dance Tonight (2:56)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C634BD4FAF7A6820FA38194EF046CFCAC5DBBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037233   (613868) от 24.07.2016
 
 Theo Vaness - 3 Albums (1978, 1979) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
@@ -729,41 +758,6 @@ Kasso - 2 Albums (1982, 1984) [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E70271813E41CC330826057E349C35F476C89EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806153   (598828) от 19.07.2014
-
-Modern Talking - Music & Video Stars (2013) [MP3|320 кб/с]<Pop, Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598828.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You're My Heart, You're My Soul
-2. You Can Win If You Want (Special Single Remix)
-3. Cheri Cheri Lady
-4. Brother Louie
-5. Atlantis Is Calling (S.O.S. For Love)
-6. Geronimo's Cadillac
-7. Jet Airliner (Radio Version)
-8. In 100 Years (Long Version - Future Mix)
-9. You Are Not Alone
-10. Sexy Sexy Lover (Vocal Version)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5207E9845BD4AAF4CC7718B9B55CA4FCE104EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

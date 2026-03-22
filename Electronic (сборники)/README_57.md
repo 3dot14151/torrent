@@ -1,3 +1,90 @@
+###  Публикация: 1202189   (790553) от 28.01.2018
+
+VA - Inspiring Sunrise World (2018) [MP3|320 Kbps] <Melodic, Euphoric, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dim3nsion  -  Agarimo (Extended Mix)  7:27
+02.  Omnia & Alex Sonata  -  Titans (Extended Mix)  5:48
+03.  Sam Laxton & Noire Lee  -  Thunderstorm (Extended Mix)  5:30
+04.  Denis Kenzo feat. Clara Yates  -  Other Side (Extended Mix)  6:11(   Читать дальше...   )Жанр: Trance, Melodic, Euphoric, Blissful, Energy, Tuneful, HarmonicПродолжительность: 03:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4442A6BBAFA032808F6B8C81A754E059CF761F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202278   (790547) от 28.01.2018
+
+VA - Chill House Session vol.2 (2018) [MP3|320 Kbps] <Downtempo, Ambient, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microwave Monkeys - The Rain (Vocal Radio Mix)
+02. Dj Absinth - Morning Sun
+03. Superluminal - Make It Better (Original Mix)
+04. Joxephad - Infinity(   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CACCB81C4BFCD6DCF15BEAB0312623AEE170150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202179   (790543) от 28.01.2018
+
+VA - Record Super Chart #521 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+02.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+03.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30
+04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E310B63A9AF87AC84B52441E5ADE127D5A848C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202329   (790539) от 28.01.2018
 
 VA - Workout Mix vol.11 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Electro House, Bigroom House>
@@ -655,93 +742,6 @@ VA - Beatport Hardstyle: Sound Pack #369 (2021) [MP3|320 Kbps] <Hardstyle, Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:428F48C6B37795EDCD642BD6342BD20ED2AC99B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511095   (789422) от 20.11.2021
-
-VA - Dive In Red Oceans: Psy Trance Mix (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gms - Happy Trails
-002. Vandeta & Ananda Shake - Anandeta
-003. Aida, Thirsty Amigo - Without You
-004. Throw3r - Stay Awake(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23B73A7AFA3BA6C56255ED73F285ED4C1B93876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275885   (789388) от 13.01.2019
-
-VA - Music for Car 11 (2019) [MP3|320 Kbps] <Electronic, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MiyaGi & Эндшпиль, Kadi - In Love (3:15)
-02. Alec Benjamin - Swim (2:24)
-03. Bea Miller - Outside (3:21)
-04. 3LAU - You Want More (feat. Max) (3:00)(   Читать дальше...   )Жанр: Electronic, Dance, HouseПродолжительность: 03:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F415A6FAC7756F5C7DBF37ADFF1554AD308EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275851   (789384) от 13.01.2019
-
-VA - Options Remake Of Tracks January -A- (2019) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Change My Mind (Pete Herbert Remix)
-02. Dante Pippi & Demitros - Maculele
-03. Matti (TR) - The Magician (Original Mix)
-04. Sergio WoS - Back to the Old School(   Читать дальше...   )Жанр: HouseПродолжительность: 05:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151D672B95C9540BFA8F1F0D7FC313A6121E7DB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

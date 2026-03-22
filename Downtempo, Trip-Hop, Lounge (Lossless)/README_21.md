@@ -1,3 +1,67 @@
+###  Публикация: 275573   (252771) от 13.05.2012
+
+Hooverphonic - 11 альбомов (1996-2012) [FLAC|Lossless]<Trip-hop, Lounge, Downtempo - Vocal>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Gold 05:35
+02. Icy 04:20
+03. Rope Dancer 03:05
+04. Strange Disorder 04:25
+05. 107 Windows 03:42
+06. Unlock 04:10
+07. Smile 04:43
+08. Blinded 04:59
+09. For The Beauty Of Confusion 04:16
+10. Night Time 'round Here 04:25(   Читать дальше...   )Жанр: Trip-hop, Lounge, Downtempo - Vocal  |Продолжительность: 00:51:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835779   (251910) от 07.11.2025
+
+VA - Gentle Morning: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Moonglow (6:41)
+02. Michael E - Tall Stories (7:20)
+03. Marga Sol - Marbella Sunrise (4:04)
+04. Michael E - Ala Moana (6:32)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39803193B42C93FBA7918EF6A129470644B8EF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618004   (250171) от 09.03.2023
 
 VA - Beautiful Afternoon: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, Downtempo>
@@ -685,64 +749,6 @@ VA - Relax and Unwind: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820FE38D45AC9F52381CCC8D0C646EB1901FA498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641222   (236648) от 21.06.2023
-
-V.A. - Ambient Chill out Ibiza 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando Kouf - Silent Move (Mental Soul Instrumental)
-02. Nadaja - Nature Vibes (No Beat Version)
-03. Desert Roses - Junkfood
-04. Kay Simmons - Walk In The Clouds(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFE34F851133E778A6C65C295DA21C85464F788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456233   (236632) от 21.03.2021
-
-Driftmachine - Spume & Recollection (2021) Umor Rex [FLAC|Lossless|WEB-DL|tracks] <Dub, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albatros Follows A Killer Whale (11:27)
- 02. The Surge At The End Of The Mind (09:54)
- 03. Memories Of The Lakeside (09:41)
- 04. Soon I Will Disappear (09:27)Жанр: Dub, ExperimentalПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD83B0FDAF9C1E13C87202C797AAE8622D809B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

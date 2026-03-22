@@ -1,3 +1,177 @@
+###  Публикация: 1056743   (479722) от 26.09.2016
+
+Ray Anderson - It Just So Happens (1987) Enja[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Once In A While [06:25]
+ 02.It Just So Happens [05:58]
+ 03.Ross The Boss [07:33]
+ 04.Elegy For Joe Scott [05:23](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADF54B9B3BA03BE1F758AB693E6B0442090DB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056884   (479717) от 26.09.2016
+
+Joshua Redman & Brad Mehldau - Nearness (2011) 2016, Nonesuch Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ornithology [08:41]
+ 02.Always August [10:58]
+ 03.In Wlked Bud [09:59]
+ 04.Mehlsancholy Mode [12:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B91649867128417B1820EF3345F3C3DC9090EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319772   (479417) от 14.08.2019
+
+Earl Bostic - Four Classic Albums (1950 - 1958) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues, R&B, Standards>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479417.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Harlem Nocturne [2:22]
+02. Where Or When [3:10]
+03. Sweet Lorraine [2:43](   Читать дальше...   )Жанр: Swing, Jump Blues, R&B, StandardsПродолжительность: 02:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92433DAF84C4B6D84EF57022F93BD71B7EF643CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319775   (479416) от 14.08.2019
+
+Abdullah Ibrahim - The Balance (2019) Gearbox Records [FLAC|Lossless|tracks + .cue] <World Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamtime [4:09]
+02. Nisa [6:40]
+03. Jabula [3:47]
+04. Tuang Guru [5:14](   Читать дальше...   )Жанр: World Fusion, Post-BopПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABEAAABAAABDA1D103C1FF202BAB1A7929BB1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405987   (479390) от 01.09.2020
+
+Monty Alexander - Live at Maybeck Recital Hall, Vol.40 (1994) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When the Saints Go Marching In [3:56]
+02. When I Grow Too Old to Dream [5:52]
+03. Close Enough for Love [7:00]
+04. The Serpent [4:54](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7353FC6B6B91320D6A6BF583A02AB3C2A43412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406020   (479268) от 01.09.2020
+
+Norah Jones - Late Night Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flame Twin
+02. Turn Me On
+03. What Am I To You?
+04. Say No More(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07643114EE5324FBC5D24EFD8F7E89196D1FA1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566863   (478643) от 31.07.2022
 
 Herb Ellis - The Early Years (1956 - 1965) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
@@ -571,198 +745,6 @@ Nina Simone - 16 Top Tracks (1967-1971) 1988, BMG Music[FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCA2A353DFA6DB2A274E59469B3BE42421A8228C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546954   (476628) от 14.09.2012
-
-Armen Chakmakian & Djivan Gasparyan - Ceremonies (1998) [WavPack|Lossless]<Jazz, World, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Gypsy Rain [5:25]
-02. - A Kiss And A Sign [5:21]
-03. - Ceremonies [5:15]
-04. - A Time To Heal [6:14]
-05. - Imaginings [5:41]
-06. - Enchantress [4:15]
-07. - Distant Lands [5:55]
-08. - Rain, Rain Go Away [4:57]
-09. - Echoes Of A Prayer [6:21]
-10. - Moonlight In Your Eyes [6:09]Жанр: Jazz, World, New AgeПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567085   (476504) от 01.08.2022
-
-Joe Williams - Four Classic Albums (1956 - 1960) 2CD, 2021, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476504.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Indiana [7:36]
-02. More Than One For My Baby [7:27]
-03. Too Marvellous For Words [5:30](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EB70C75A6F010B48CEF2C2C0F665D5C057187C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546704   (476481) от 14.09.2012
-
-Cecilia - 2 альбома (1994 & 1996) [FLAC|Lossless]<Jazz Vocal, Ballad, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violet 19 [07:46]
-02. Star Child [05:31]
-03. Lightness of Being [02:46]
-04. The Protection Song [06:08]
-05. Pavane Pour Une Infante Defunte [06:04]
-06. The Tracker's Song [03:56]
-07. My Boy Hero [04:22]
-08. In Heaven a Castle [05:19]
-09. The Snow Leopard's Prayer [05:21]
-10. The Riddle [08:27]Жанр: Jazz Vocal, Ballad, Easy ListeningФормат: Продолжительность: 00:55:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160332   (476273) от 24.08.2017
-
-Milton Nascimento - Millennium (2000) 2006, Mercury [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz, Brazilian Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unencounter Cancao da America [03:49]
-02. Raca [02:51]
-03. Cacador de Mim [03:53]
-04. Nos Bailes da Vida [04:13](   Читать дальше...   )Жанр: Ethnic Jazz, Latin Jazz, Brazilian PopПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61A5A0AA5381E1C481AB4F01DCDA57DFE4EBED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245031   (476212) от 04.09.2018
-
-Isao Suzuki Group - 1998, New (1998) Platz [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Together [9:57]
-02. Blues for Isao [12:19]
-03. Jump Monk Jump [14:10]
-04. Yesterday [8:41](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C5B5B4A5116FA63CA60D08AD8D4C8B529395D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546371   (476185) от 14.09.2012
-
-VA - Voices of Love (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Susan Wong - When You Say Nothing At All [04:09]
-2. Julienne Taylor - I Know I Loved You [03:43]
-3. Katie Melua - I Cried For You [03:38]
-4. Chantal Chamberland - How Deep Is Your Love [03:52]
-5. Cheryl Bentyne - Don't Know Why [04:34]
-6. Stacey Kent - You're Got a Friend [04:20]
-7. Clare Teal - Chasing Cars [04:52]
-8. Emi Fujita - Wishes [04:00]
-9. Olivia Ong - Sometimes When We Touch [04:07]
-10. Ann Sally - I Wish You Love [04:18](   Читать дальше...   )Жанр: JazzФормат: HQCDПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

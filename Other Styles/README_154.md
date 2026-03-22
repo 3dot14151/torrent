@@ -1,3 +1,148 @@
+###  Публикация: 1637015   (197641) от 02.06.2023
+
+VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197641.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome to Kollektiv
+2. VOV-А6/CH
+3. Lullaby
+4. A Fridge Called Nora(   Читать дальше...   )Жанр: OSTПродолжительность: 01:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55ABE762F6CB633D33D79B7D2A7D742111BCE6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637028   (197632) от 02.06.2023
+
+VA - Atomic Heart, Vol.2 (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogrov, Atomic Heart - Welcome to Kollektiv (03:54)
+02. Boogrov, Atomic Heart - VOV-А6/CH (02:26)
+03. Palina, Atomic Heart - Lullaby (02:28)
+04. Mick Gordon, Palina, Atomic Heart - A Fridge Called Nora (04:11)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE96DB97F3A20878711581EA8E44FCBA1FE700F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 21723   (197027) от 14.06.2023
+
+ДАЖЕ НЕ ДУМАЙ 2 - Официальный саундтрек (2004)
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_197027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Даже не думай дважды - Master Spensor
+2. Я не люблю - 63 Регион
+3. Марат - Не замужем
+4. Pizness - Децл feat. M.C. Молодой(   Читать дальше...   )Жанр: OSTПродолжительность: 57:26 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29DBDDD2BC9603B7BF6E6409B93C7C52D952043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650832   (194852) от 03.08.2023
+
+VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194852.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Particles/кошечка/Atomic Heart - Prekrasnoe Dalyoko
+2. ScaryON/BassnPanda/Atomic Heart - BEA-D Theme
+3. Geoffplaysguitar/Atomic Heart - Colossus BEA-D
+4. ScaryON/BassnPanda/Atomic Heart - Electronica IM02(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B6CE5E18A6C31939FBC2FB8653F4B04189D900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652215   (194563) от 10.08.2023
+
+VA - Мурка•Блатные и уличные песни (2000) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Димитриевич - Мама, я жулика люблю
+02. А. Димитриевич - Что-то грустно мне
+03. А. Димитриевич - В этой жизни умирать не ново
+04. А. Димитриевич - В Париж он бельше не вернется(   Читать дальше...   )Жанр: FolkПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ECF87EBB191F662F31922CFFDCA38A00E92C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655059   (193920) от 24.08.2023
 
 VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -596,151 +741,6 @@ Stephen Parsons & Francis Haines - Считанные секунды / Split Sec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB12A986E4123935F1BBC153447518555762324E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589624   (189133) от 13.11.2022
-
-Oduchu - Road to Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kongurei [00:04:02]
-02. Joker's Song [00:03:48]
-03. Show Me The Way [00:05:28]
-04. Message [00:03:51](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A0680C44101DC515E109F8FF0E39B0165D4937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589511   (189002) от 13.11.2022
-
-Gregorian - Pure Chants II (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Choir>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria (Pure Version) (2:45)
-02. Winter Light (3:18)
-03. Greensleeves (Pure Version) (3:19)
-04. Jesu, Joy of Man's Desiring (Pure Version) (3:16)(   Читать дальше...   )Жанр: New Age, Ambient, ChoirПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC6DF126F401814A8B3E30E84E2A2E462030EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825257   (188762) от 22.10.2025
-
-Cliff Martinez & VA - Drive (Original Motion Picture Soundtrack) (2011) [FLAC 24/96|Lossless|WEB-DL|tracks] <Score, Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightcall – Kavinsky & Lovefoxxx
-02. Under Your Spell - Desire
-03. A Real Hero - College feat. Electric Youth
-04. Oh My Love - Riz Ortolani feat. Katyna Ranieri(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E583AC922663CEB8771458702EB4A95E10CD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660793   (188742) от 14.09.2023
-
-VA - Adult Smooth Jazz: Sax for Sex, Erotic Music, Ultra Sensual Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotica - Adult Smooth Jazz (3:15)
-02. Saxophone - Erotic Slow Emotions (3:33)
-03. Slow Sex Music - Taste My Lips (3:32)
-04. Erotica - Crying Guitar (4:58)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB862E95747568141240AA09369D386B93F92E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202959   (187895) от 17.09.2023
-
-Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moscow, 1953
-02. Beria's Plan
-03. First On The Scene
-04. We Cry For You(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26CC3837CA36368041BF955CEA565D79404567E
 ```
 
 https://mybot314.ru/tekegram_catalog/

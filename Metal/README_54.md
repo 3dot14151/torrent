@@ -1,3 +1,119 @@
+###  Публикация: 915203   (591993) от 06.07.2015
+
+Tanagra - None Of This Is Real (2015) [MP3|320 кб/с]<Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Undying Light
+02. Tyranny Of Time
+03. Eliana
+04. Antietam(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5B6F0590F75FDE77BA58436BBD737D227049A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915019   (591969) от 06.07.2015
+
+Enthrone The Unborn - LXXVIII (2015) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Reflections
+02. Where The Flames Grow Downwards
+03. Burns Within
+04. Harvest(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32909A948A747533052A68857980B6438ACC86C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550595   (591597) от 12.05.2022
+
+Evergrey - A Heartless Portrait (The Orphean Testament) (2022) [MP3|320 kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Us (04:45)
+02. Midwinter Calls (05:06)
+03. Ominous (06:10)
+04. Call Out The Dark (04:23)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7E059811262C04EAC315EA69C840C6B78B8516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916136   (591446) от 07.07.2015
+
+Hellshot - Sickening Society (2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now Fear This
+ 02. Noose For The Naive
+ 03. Martyr
+ 04. Defiled(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6D01989100CB3FDB37E5BA99AB9A711FB1ED39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550779   (591191) от 13.05.2022
 
 Visions Of Atlantis - Pirates (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
@@ -631,122 +747,6 @@ Tony MacAlpine - 30 albums (1986 - 2011) Full Discography [MP3|128 кб/с - 350
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63EE21567CF2782CD045719016CCDA1A11ABFDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919165   (583956) от 18.07.2015
-
-Bring Me the Horizon - Live at Wembley (2015) 2CD [MP3|320 кб/с]<Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Smile
-02. Pray for Plague
-03. Blessed with a Curse
-04. Antivist(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583E31B39612FCD84F19940D4B7D8CE84CC15419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 103057   (583880) от 12.05.2019
-
-Avenged Sevenfold - 6albums + 4EPs + 12singles (1999-2013) [MP3|320kbps] <Heavy Metal/Metalcore>
-
->>След.
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avenged Sevenfold («Отомщённый Семикратно») — американская метал-группа из Хантингтон-Бич, образованная в 1999 году.
-На дебютном альбоме Sounding the Seventh Trumpet, преобладали металкор и скрим. На Waking the Fallen было уже что-то среднее между хэви-металом и металкором, ну а в третьем альбоме (и первом крупном релизе лейбла) City of Evil, звук уже был как у классических (   Читать дальше...   )Жанр: Heavy Metal, Metalcore, Hard Rock |Продолжительность: 00:11:28
-01  Hail To The King                  5:06
-02  Nightmare (Live)                  6:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38E9E2C56C44D67040242CD8BB84A8F338C0A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919450   (583022) от 19.07.2015
-
-Himinbjorg - Wyrd (2015) [MP3|320 кб/с]<Pagan/Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583022.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro - Call To The Being
-2. The Sword Of Dignity
-3. The World Of Men Without Virtue - The Circle Of Disillusion
-4. The Circle Of Warriors(   Читать дальше...   )Жанр: Pagan/Black MetalПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF332A36DC17057240875C7045A2A88163AC4294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919515   (583019) от 19.07.2015
-
-Set In Stone - Where Secrets Hide (2015) [MP3|320 кб/с]<Metalcore / Post-Hardcore / Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer Of Pardon
-02. Dominate
-03. Closing Statement
-04. Rumors(   Читать дальше...   )Жанр: Metalcore / Post-Hardcore / ElectronicПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33484D6F8D8E460C9D2205B27B1FB3B5DE35587
 ```
 
 https://mybot314.ru/tekegram_catalog/

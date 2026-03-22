@@ -1,3 +1,32 @@
+###  Публикация: 1510883   (790201) от 18.11.2021
+
+Sting - The Bridge (Deluxe) (2021) [AAC|~310 Kbps] <Pop, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rushing Water (3:18)
+02. If It's Love (3:14)
+03. The Book of Numbers (3:19)
+04. Loving You (4:24)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DE5984F882A84F6E3F07FDB109F81FA023B04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388061   (790057) от 04.06.2020
 
 Приди ко мне / The Other Lamb (2019) WEB-DL [1080p] ATV3
@@ -685,35 +714,6 @@ Synth Replicants - time walker (2021) [AAC|~322 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BFEC7349808AC06C04C97B2824111A40CB1F7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511163   (789191) от 20.11.2021
-
-Zucchero - Discover (2021) [AAC|~325 Kbps] <Pop, Rock, Blues>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amore Adesso (No Time For Love Like Now) (4:11)
-02. Canta La Vita (Let Your Love Be Known) (4:05)
-03. The Scientist (5:06)
-04. Wicked Game (4:21)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D28F95487A356B01F86DFB7C634D49D68160280
 ```
 
 https://mybot314.ru/tekegram_catalog/

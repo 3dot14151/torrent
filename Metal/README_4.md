@@ -1,3 +1,32 @@
+###  Публикация: 1449679   (1029677) от 22.02.2021
+
+Rob Zombie - The Lunar Injection Kool Aid Eclipse Conspiracy (2021) [MP3|320 Kbps] <Hard Rock, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expanding The Head Of Zed [00:00:54]
+02. The Triumph Of King Freak (A Crypt Of Preservation & Superstition) [00:04:07]
+03. The Ballad Of Sleazy Rider [00:03:03]
+04. Hovering Over The Dull Earth [00:00:23](   Читать дальше...   )Жанр: Hard Rock, Industrial MetalПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E997AA047A17DC48AC4991632C512B4FFFAC06B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623131   (1029629) от 31.03.2023
 
 Memoir Sonata - Seven Hills of Rome (2023) [MP3|320 Kbps] <Symphonic Metal>
@@ -716,35 +745,6 @@ Zarpa - Imperia (2021) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EAF5D93A19680DB8BCE6D77241F6E7ACBB4875F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456828   (1024765) от 24.03.2021
-
-Liquid Tension Experiment - LTE3 (2021) [MP3|320 Kbps] <Instrumental Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypersonic (08:22)
- 02. Beating The Odds (06:09)
- 03. Liquid Evolution (03:23)
- 04. The Passage Of Time (07:33)(   Читать дальше...   )Жанр: Instrumental Progressive Metal, RockПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7440DFAF270F34EA04DD30CE8ADB6E18832F81
 ```
 
 https://mybot314.ru/tekegram_catalog/

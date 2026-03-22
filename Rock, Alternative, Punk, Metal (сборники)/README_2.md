@@ -1,3 +1,32 @@
+###  Публикация: 1468428   (1017064) от 08.05.2021
+
+VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ONI - Alone (Blacklight Media) (05:46)
+ 02. John Petrucci - Temple of Circadia (07:11)
+ 03. Sons Of Apollo - Fall to Ascend (05:05)
+ 04. Delain - Combustion (05:25)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE8EC8B6D125612CE26A002586FE9149283ACE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468544   (1017031) от 08.05.2021
 
 Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial Release [MP3|320 Kbps] <Heavy Metal, Hard Rock>
@@ -716,35 +745,6 @@ VA - Rock Hits (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91D6A9964C252C7AF5EB2E638CF3F7F6D863412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484688   (1005187) от 27.07.2021
-
-VA - Technical & Progressive Death Metal 6 (2017-2021) from Domovoy767 [MP3|320 Kbps] <technical death metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005187.jpg" />
-</div>
-
-
-###  Подробнее
-
-abstract mechanism. Vol.1
-
-1. Depth - Eyes Of Eternity
-2. Desecrate - Tears Of Blood And Sand(   Читать дальше...   )Жанр: technical death metal, progressive death metal, technical thrash metalПродолжительность: 40:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FBE1E7A5A16B6D777A4FF61B3F2783826D0279
 ```
 
 https://mybot314.ru/tekegram_catalog/

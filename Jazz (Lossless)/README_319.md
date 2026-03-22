@@ -1,3 +1,177 @@
+###  Публикация: 1716619   (111336) от 16.04.2024
+
+Erroll Garner - Closeup in Swing & A New Kind of Love (1961, 1963) 1997, Telarc [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Do Something to Me [3:15]
+02. My Silent Love [4:05]
+03. All of Me [2:21]
+04. No More Shadows [4:07](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91061BEC676F3F42325A1233FE49C8EE04898266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716529   (111334) от 16.04.2024
+
+VA - Jazz Dinner Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Café Drechsler - And Now…Boogie! (2:48)
+02. Chet Baker - Let's Get Lost (3:44)
+03. Vienna Art Orchestra - Rem Blues (3:54)
+04. Wolfgang Puschnig - Microphone Veteran (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B278B5E0F5A82248AD5788EB5DEA27680AD24D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716532   (111333) от 16.04.2024
+
+VA - Jazzy Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Puschnig - Naima (3:46)
+02. Benny Carter - If Dreams Come True (5:49)
+03. Oscar Peterson - Come Dance With Me (2:19)
+04. Dinah Washington - Teach Me Tonight (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7F6999B40CA290FF3349F1EF66C15581D9B733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716539   (111332) от 16.04.2024
+
+VA - Urban Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Funk, Downtempo, Soulful House>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anduze - How To Love A Good Man (Those Guys From Athens Radio Remix) (3:23)
+02. Durty Geeks - Dolomyte (4:05)
+03. Funk Revenge - By Our Side (4:18)
+04. Vito Lalinga (Vi Mode Inc. Project) - Funk In A Min (4:44)(   Читать дальше...   )Жанр: Chill Out, Funk, Downtempo, Soulful HouseПродолжительность: 02:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64EF7ADEF76FC965F13707F710C580EF50E058E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716536   (111330) от 16.04.2024
+
+VA - Ultimate Relaxing Jazz Music for Weekends (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstantin Klashtorni - Humble and Kind (4:07)
+02. Kool&Klean - Sail (5:06)
+03. Kool&Klean - Twilight (4:34)
+04. Chillaxonic - Within Attraction (3:46)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 02:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A78EB421800874276540F8975FA6CD9B98049E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716537   (111321) от 16.04.2024
+
+VA - Ultimate Relaxing Lounge Jazzy Weekend Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Inner Communication (4:40)
+02. Konstantin Klashtorni - Irresistible (4:13)
+03. Love Suggestions - Life Is Love (4:44)
+04. Chillaxing Jazz Kollektion - Serendipity (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54A190FCC2DB18C25A4333D6C7249AA88A731D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716459   (111316) от 16.04.2024
 
 Pat Martino & Gil Goldstein - We Are Together Again (2012) Warner [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -571,179 +745,6 @@ Joe Mooney - Lush Life (1956) 1999, Koch Jazz [FLAC|Lossless|tracks + .cue] <Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C989D2803536DA4CC077A02A1EFF35A5EDFA746C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717870   (111048) от 22.04.2024
-
-Paul Motian - Monk In Motian (1988) JMT [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crepuscule with Nellie [4:57]
-02. Justice (Evidence) [4:41]
-03. Ruby My Dear [4:52]
-04. Straight No Chaser [4:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57112BA636E98B7AE7F7FE61B91BF47DE10F95D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717865   (111042) от 22.04.2024
-
-Zoot Sims - Swing King! (1947 - 1953) 2CD, 2004, Proper Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystals [3:15]
-02. Zoot & Zoot [3:24]
-03. My Silent Love [2:40]
-04. Jane-O [2:44](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8437B30BDDFEA60AE1D675AF7D3DBA65AF282272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717883   (111034) от 22.04.2024
-
-Ronny Smith - Struttin (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up (4:26)
-02. In My Eyes (4:42)
-03. Rubik's Cube (4:36)
-04. Struttin (4:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE59B6F824E724CFE8DDEDB9DBF2AEBAD437D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717869   (111027) от 22.04.2024
-
-Pat Martino - Live! (1972) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Door [17:47]
-02. The Great Stream [10:32]
-03. Sunny [10:27]Жанр: Post-Bop, Jazz FusionПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740BC83E914662F3ADAFBEC4FA6325E98B4F9CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718142   (111008) от 23.04.2024
-
-Carmen McRae - It Takes A Whole Lot Of Human Feeling (1973) 1997, Charly Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Takes a Whole Lot of Human Feeling [3:48]
-02. I Fall in Love Too Easily [3:48]
-03. Hey John [3:23]
-04. Where Are the Words [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273D1DF716D10713C9198ECC1707DD1BA82B9788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718146   (111007) от 23.04.2024
-
-Gerald Albright - 30 (2018) Bright Music Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sooki Sooki [5:07]
-02. Just Between Us [5:38]
-03. Bermuda Nights [4:45]
-04. Road to Peace [5:27](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90909608565E503EAA507A533A01374801F6F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

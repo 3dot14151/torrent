@@ -1,3 +1,321 @@
+###  Публикация: 1823375   (124404) от 11.10.2025
+
+The Orb - Buddhist Hipsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient House, Dub>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spontaneously Combust
+02. P~1
+03. Baraka
+04. A Sacred Choice(   Читать дальше...   )Жанр: Ambient House, DubПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576CE9F308222805742BBF5FE4130182999DEA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823380   (124398) от 11.10.2025
+
+Vanessa Paradis - Le retour des beaux jours (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, French Music>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coeur ardent
+02. Bouquet final
+03. Tr‚sor
+04. Le retour des beaux jours(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C967C55B01407A36EA8E136168FECF01A950779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690152   (124178) от 05.01.2024
+
+Visions of Morpheus - Lost Within (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Through Fire and Flame
+02 - Catharsis
+03 - Ghost
+04 - Beyond(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BA0379AAD5C36D7C5029924C40F8B12A74189C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690694   (123809) от 08.01.2024
+
+Armik - Spanish Lover / Illuminate (2021/2022) [FLAC 24/96|Lossless|WEB-DL|tracks] <Flamenco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+2021 - Spanish Lover
+2022 - IlluminateЖанр: Flamenco |Продолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F9FCEB6131436AE75205A700B3D16177A423F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689719   (123651) от 09.01.2024
+
+Ryan Adams - Sword and Stone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – I Was Here
+02 – Blown Away
+03 – Sword and Stone
+04 – Never Run(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926A44346D8D81F1C64169CCB99CFED9BDDA2463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689504   (123647) от 09.01.2024
+
+Cobra Kraft - The Baptism of Pedro del Zorro (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Rock, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kikuchiyo 6:25
+02. Peder Morset 7:06
+03. Becky Lou 6:28
+04. Elina Akino 7:52(   Читать дальше...   )Жанр: Jazz, Rock, FusionПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545F6EAF00C9934183D559DEF55694686682E0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689520   (123643) от 09.01.2024
+
+Mountain Gators Band - Lemmings (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Door (3:11)
+02. Lemmings (4:29)
+03. Shades of Me (6:14)
+04. Time to Move On (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B80FF432270E3BB29B59D6104B9FBD6E601F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689832   (123626) от 09.01.2024
+
+Ryan Adams - Prisoners (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123626.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Do You Still Love Me? (Live) 00:03:05
+2 Prisoner (Live) 00:04:47
+3 Doomsday (Live) 00:03:01
+4 Haunted House (Live) 00:02:28(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E20065961AEDCB761490F39D47ECC97C480768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689519   (123625) от 09.01.2024
+
+Klipa Trio - Miatanu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hajuk (5:08)
+02. Debrah (8:32)
+03. Footprints (7:33)
+04. Miatanu Miatnem (3:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895A3B604FBF4CEBA55783E97407D774DDB32A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689709   (123621) от 09.01.2024
+
+Ryan Adams - Heatwave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lies (00:01:10)
+02 - Mercy (00:02:24)
+03 - Heatwave (00:03:17)
+04 - Why (00:02:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784D65F2BB6A5EC992D281CD048F550D30436798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691029   (123563) от 10.01.2024
+
+Van Halen - Van Halen (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin' With The Devil 3:36
+02. Eruption 1:42
+03. You Really Got Me 2:38
+04. Ain't Talkin' 'Bout Love 3:49(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877192CC62F1328653834B41507DF4A8B9F836E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691113   (123550) от 10.01.2024
 
 The White Stripes - Elephant (2003) SACD, Reissue, Remastered, 2023, Analogue Productions, Third Man Records  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
@@ -424,322 +742,6 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.1 (2023) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A126D2DDE53EA567A73C5F66E1F5E7C76E650CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690984   (123246) от 12.01.2024
-
-Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Progressive Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Group Therapy Intro (ABGTN2024D) [0:32]
-02 - Light For Me (ABGTN2024D) [4:34]
-03 - Group Therapy (Messages Pt. 1)Жанр: Electronic, Progressive House, Progressive TranceПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445A2AA201C764C0B00B7166DAFD72EAD3BE0D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691146   (123243) от 12.01.2024
-
-Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black, Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123243.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Estorat Taghoot
-A2 Fe Al Diaji
-A3 Hayat Al Khlood
-A4 Al Jahliyah(   Читать дальше...   )Жанр: Black, Folk MetalПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADB02171C9E835554D51F1A404B83A1873CA82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689890   (123242) от 12.01.2024
-
-Athemon - Athemon (2022) Reissue, 2024, Athemon [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perception [00:03:15]
-02. Whispers [00:05:28]
-03. The Glass Hindered Us [00:03:57]
-04. Different from What Was Missing [00:05:22](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B618E10AEAAD52B2985C0BFA62E80B3C67F9A247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690861   (123241) от 12.01.2024
-
-Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123241.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fight Or Flight
-A2. Are We Soldiers
-A3. Control Conquer Collide
-B1. From Saviour To Assassin(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CEABB8030D1F0FC2F6CE903CFDE3F12975DC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689723   (123238) от 12.01.2024
-
-Infernal Poetry - Studio Albums (4 releases) (2002-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death/Avant-garde Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infernal Poetry — итальянская дэт-метал-группа из Анконы, образовавшаяся в 1996 году и распавшаяся в 2014 году.2002 - Not Light But Rather Visible Darkness
-2005 - Beholding the Unpure
-2009 - Nervous System Failure
-2013 - ParaphiliacЖанр: Progressive Death/Avant-garde Metal/MetalcoreПродолжительность: 02:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E43A6BA1CA8E417795BA618AFB52F3DCDDD3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691341   (123237) от 12.01.2024
-
-Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Green Labyrinth - швейцарская прогрессив-метал группа, основанная в 2008 году.2014 - Shadow of My Past
-2023 - SequencesЖанр: Progressive MetalПродолжительность: 02:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17FE29B954AEFD226983AE6C6E1E90B506EC7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691290   (123125) от 13.01.2024
-
-БГ (Борис Гребенщиков) - Songs of Clear Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <New Age, meditative>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123125.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saraswati intro
-2. Hanuman
-3. Om Namah Shivaya
-4. Charam Charam(   Читать дальше...   )Жанр: New Age, meditativeПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13488598352C9B1FD4A342D7C86CEBDF9A165DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691763   (123116) от 13.01.2024
-
-Валерий Леонтьев - Четыре альбома (1984-1988) [FLAC|Lossless|image + .cue] <New Wave, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123116.jpg" />
-</div>
-
-
-###  Подробнее
-
-00:40:04
-
-A1 Я — Просто Певец • I'm Only A Singer
-(Л. Квинт – Н. Денисов)(   Читать дальше...   )Жанр: New Wave, Synth-pop, DiscoПродолжительность: 02:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74F8F0520A8681935D11A5BB56057346E0A1B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691736   (123111) от 13.01.2024
-
-Exit Eden - Femmes Fatales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Melodic Metal, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Femme Fatale
-02. It's A Sin (Pet Shop Boys cover)
-03. Run! (ft. Marko Hietala)
-04. Separate Ways (Journey cover)(   Читать дальше...   )Жанр: Symphonic, Melodic Metal, Female VocalПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C912347AE4CE8BB094AF80A25561D18E5714B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691750   (123091) от 13.01.2024
-
-Russell - Guns (Jack Russell, Tracii Guns) - Medusa (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Next In Line
-02. Tell Me Why
-03. Coming Down
-04. Where I Belong(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C68DCFDA7A38E70B3A4A91D66A0E92528DE6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691719   (123086) от 13.01.2024
-
-Neal Morse - The Restoration - Joseph: Part Two (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Mess (6:10)
-02. My Dream (2:40)
-03. Dreamer In The Jailhouse (5:53)
-04. All Hail (6:47)(   Читать дальше...   )Жанр: Progressive Rock / Symphonic Prog / Hard RockПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEBBBE5FCE72C3FB60389BD5B5F5D9BD1C15D47
 ```
 
 https://mybot314.ru/tekegram_catalog/

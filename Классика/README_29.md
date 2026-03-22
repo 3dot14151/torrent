@@ -1,3 +1,122 @@
+###  Публикация: 365427   (527293) от 29.07.2011
+
+Альфред Шнитке/Alfred Schnittke - Собрание Сочинений [MP3|256-320 kbps]<Classical, Chamber music, Orchestral music, Choir music>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 I 'O pavelitel' sushcheva fsevo  17:08
+      ('O Master of all living')
+2 II 'Sabran' je pesen sikh, gde kazhdyj stikh'   8:32
+      ('I, an expert in human passions')
+3 III 'Fsem tem, kto vniknet fsushchnast''   11:56
+      ('God grant deliverance from sin')
+4 IV 'Sej trud, shto nachinal ja supavan' jem'   6:08
+      ('Complete this work')
+   Elena Dof-Fonskaya   soprano
+(   Читать дальше...)Жанр: Classical, Chor musicПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371410   (523633) от 04.08.2011
+
+Claude Debussy - The Complete Chamber Music (2002) 3CD [FLAC|Lossless|tracks]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523633.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Rhapsodie for clarinet & piano (or orchestra), L. 116
+2. Petite pièce, for clarinet & piano (or orchestra), L. 120
+Sonata for cello & piano, L. 135(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A29ED7DB68A9EC84EFC62DE64F748C2FF121C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927937   (523275) от 15.08.2015
+
+Tchaikovsky - Piano Concerto No.1; Prokofiev - Piano Concerto No.1 (Andrei Gavrilov) (2005) [FLAC| image +]<Classical, Romantic Period, Orchestral, Symphonic, 20th Century Period, Modern, Concer ...
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 1 in B flat minor, Op. 23
+01. Allegro non troppo e molto maestoso (22:33)
+02. Andante semplice (08:11)
+03. Allegro con fuoco (06:48)(   Читать дальше...   )Жанр: Classical, Romantic Period, Orchestral, Symphonic, 20th Century Period, Modern, Concerto, Post-Romantic, Character Piece, Fantasy, VariationsПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E823ADC823B8C4A9FC2E0B7CEEC3550D69212906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533627   (520870) от 12.08.2012
+
+Frederic Chopin - The Nocturnes (Claudio Arrau) (1978) 2CD [FLAC|Lossless]<Classical, Romantic Period, Nocturne>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, NocturneПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AAF3FCA9977636EA57E2E28D3E06476384F920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535123   (517626) от 15.08.2012
 
 Francesco Geminiani - Six Concerti Grossi, Op. 3: Christopher Hogwood & The Academy of Ancient Music (1986) [FLAC|Lossless]<Classical, Chamber Music, Recitals, Baroque Pe
@@ -673,130 +792,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5A6E6CCCDBE127AAD9E54F6EF22ED4A33C9A07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317440   (500411) от 01.08.2019
-
-Adiemus - Songs Of Sanctuary (1995) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этого композитора вполне справедливо относят к «классической» школе, его произведения ставились даже в Петербургской консерватории, но в то же время в России он мало известен даже среди музыкантов-профессионалов. Карл Дженкинс (род. в 1944 г.) получил музыкальное образование в университете Кардиффа, затем продолжил обучение в Королевской Академии музыки.
-
-Первый (   Читать дальше...   )01. Adiemus (4:01)
-02. Tintinnabulum (11:01)
-03. Cantus Inaequalis (3:16)
-04. Cantus Insolitus (5:38)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD40768FBEC3C3216633DE6EC4952EE34C08568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317355   (500355) от 01.08.2019
-
-Adiemus - Songs Of Sanctuary (1995) [MP3|320 Kbps] <Modern Classical, Ambient>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adiemus (4:01)
-02. Tintinnabulum (11:01)
-03. Cantus Inaequalis (3:16)
-04. Cantus Insolitus (5:38)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5472E79FDD977FA596E200842447C10193F6A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235152   (498606) от 11.09.2010
-
-Муслим Магомаев - Арии из опер (2002) [FLAC|Lossless]<Вокал>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ария Фигаро [03:50]
-02. Ариозо Дон Жуана [01:57]
-03. Кавантина Фигаро [04:39]
-04. Сцена Амонасро [03:17]
-05. Монолог Яго [04:56]
-06. Ария Риголетто [04:40]
-07. Пролог к опере 'Паяцы' [05:54]
-08. Ария Каскара [02:05]
-09. Романс Каскара [02:50]
-10. Куплеты Эскамилио [04:04](   Читать дальше...   )Жанр: ВокалПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935959   (497263) от 10.09.2015
-
-Brahms - Works for solo piano (Julius Katchen) (1997) (6CDs)[FLAC|image +.cue]<Classical, Romantic Period>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Intermezzo Op.117
-01. No.1 in Eb - Andante moderato (05:14)
-02. No.2 in Bb minor - Andante non troppo e con molto espressione (04:33)
-03. No.3 in C# minor - Andante con moto (05:29)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, Fantasy, Variations, Waltz, Fugue, Rhapsody, Scherzo, Intermezzo, BalladeПродолжительность: 06:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEFA28FE5E5A65B1EE29B3D9640617881EEE598
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1383532   (188382) от 15.11.2022
+
+The Pretty Reckless - Collection 7 Releases (2010-2022) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_188382.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010 - The Pretty Reckless EP (Interscope Records B001447232, CA)
+2011 - Light Me Up (Interscope Records - UICS-1227, JP)
+2012 - Hit Me Like a Man EP (Interscope Records B001678002, CA)
+2014 - Going to Hell (Deluxe Edition) (Victor - VIZP-130, JP)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-Grunge |Продолжительность: 04:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4FAB952C5768B808B6E0C131355F522BA0E610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591219   (187451) от 17.11.2022
+
+Nickelback - Get Rollin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Quentin (3:31)
+ 02. Skinny Little Missy (3:38)
+ 03. Those Days (3:39)
+ 04. High Time (3:55)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-GrungeПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC90183E3A525AA4F7C961904F4D9909B181DD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591573   (187198) от 18.11.2022
+
+Saint Asonia - Extrovert (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge, Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devastate (3:32)
+02. Break the Mold (2:59)
+03. Over It (3:06)
+04. Wolf (3:18)(   Читать дальше...   )Жанр: Alt.Metal, Post-Grunge, Modern Hard RockПродолжительность: 00:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9929B384C25BB814C878EB2A82EA0074166B5413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662948   (187171) от 20.09.2023
+
+Filter - The Algorithm (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Metal, Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Drowning
+02. Up Against the Wall
+03. For the Beaten
+04. Obliteration(   Читать дальше...   )Жанр: Alt. Rock, Alt. Metal, Industrial RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C9D29E3A43A54527F0C37556551AAAD5A95280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663368   (186872) от 21.09.2023
 
 Sekta Core - Sinfonia del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gypsy punk>
@@ -626,122 +742,6 @@ Nirvana - 9 Albums, 3 Box-Sets, 6 Singles, 43CD (1989-2013) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EA9D75001F3A7D9481EF31D27C5D883C3FF3F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592747   (181747) от 25.11.2022
-
-Nickelback - Get Rollin' (2022) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alt. Rock,  Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Quentin [00:03:31]
-02. Skinny Little Missy [00:03:37]
-03. Those Days [00:03:39]
-04. High Time [00:03:54](   Читать дальше...   )Жанр: Alt. Rock,  Modern RockПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869F56C46A118CA77D0BAEE858F58EB69D25E868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593159   (181719) от 25.11.2022
-
-Daisy George - see me now (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. nah, i’m out
-02. see me now
-03. now rest.
-04. do u feel?Жанр: Alternative & IndieПродолжительность: 00:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B2A37CD442DAA58D2852AC378D5AD54DABAD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665769   (181502) от 01.10.2023
-
-Nomy - Stay (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_181502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay [00:03:30]
-02. Break me [00:03:50]
-03. House of noise [00:03:24]
-04. Born in Hell [00:03:33](   Читать дальше...   )Жанр: Alt.Metal, Modern RockПродолжительность: 00:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9358AF73E59B2A021282452B7966AC40DE7A7A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665441   (181453) от 01.10.2023
-
-The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Neofolk, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother of Earth [00:03:25]
-02. La La Los Angeles [00:02:36]
-03. Yellow Eyes [00:05:55]
-04. Debbie by the Christmas Tree [00:02:15](   Читать дальше...   )Жанр: Psychedelic Rock, Neofolk, Post-PunkПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA85D47638BBDC140B8DCBBE0C1093C6646D706
 ```
 
 https://mybot314.ru/tekegram_catalog/

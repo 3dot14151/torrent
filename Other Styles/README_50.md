@@ -1,3 +1,61 @@
+###  Публикация: 1012985   (777961) от 03.05.2016
+
+Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pathway to the Past    06:23
+02. Celebrating Ancient Times    05:08
+03. Dance of the Spirits    04:27
+04. Festival at the Castle    08:16(   Читать дальше...   )Жанр: New Age, EthnicПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B335E12765C7BFFBE4F87FB2FB73FC9E72134C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533777   (777772) от 03.05.2016
+
+Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Universal Music Company [FLAC|Lossless]<Progressive rock, pop, Celtic fusion, world, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To France (with Maggie Reilly) (4:48)
+ 02. The Lake (13:43)
+ 03. The Killing Fields (2:44)
+ 04. Etude (4:38)(   Читать дальше...   )Жанр: Progressive rock, Pop, Celtic Fusion, World, New AgeПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D10CD9FD8DA70676AF2B9D2917E8FA064EECAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013545   (777655) от 04.05.2016
 
 Medwyn Goodall - Manitou the Great Spirit (2015) [MP3|320 кб/с] <Native american, Ethnic, Meditation, New Age>
@@ -687,64 +745,6 @@ Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212057   (776430) от 10.03.2018
-
-Жабъ - Гимны Болотному Троллю (2017) [MP3|320 Kbps] <folk,metal,rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пробуждения Жабъа (2:02)
-02. Жабъ и Крот (2:39)
-03. На Битву (3:55)
-04. Уж Следит За Хомяком (2:57)(   Читать дальше...   )Жанр: folk,metal,rockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501FCE0AE24F73DD6691F51DC5E4AE2635A8AA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014420   (776414) от 07.05.2016
-
-Cyndi Lauper - Detour (2016) [FLAC|Lossless|WEB-DL|tracks] <Country, Country Blues, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funnel Of Love (3:15)
-02. Detour (feat. Emmylou Harris) (2:55)
-03. Misty Blue (3:19)
-04. Walkin' After Midnight (2:16)(   Читать дальше...   )Жанр: Country, Country Blues, FolkПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2AFFE368A7BBE0611DF5C196BECFB947B418096
 ```
 
 https://mybot314.ru/tekegram_catalog/

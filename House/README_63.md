@@ -1,3 +1,150 @@
+###  Публикация: 1836892   (255605) от 13.11.2025
+
+VA - Being Humans 01 (2024) [MP3|320 Kbps] <Organic House, Deep House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivers Pattern - Dreamer 05:57
+02. Sweetie Leonie - Summer (Original 12' Mix) 04:11
+03. Wilson Costa, Edwin Jack & Gregory Douglass - Concentrate 06:35
+04. Pasey - Boogie Walk (Original 12' Mix) 05:02(   Читать дальше...   )Жанр: Organic House, Deep House, Melodic House & TechnoПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC638459701121BB84A2DC4FA2BD0CD6F2E410E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624354   (255516) от 05.04.2023
+
+VA - Dance Workout (2023) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charli XCX - Used to Know Me
+02. Campbell - Beat Goes On (Rhythm to the Brain)
+03. David Guetta, Bebe Rexha - I'm Good (Blue)
+04. David Guetta, Kid Cudi - Memories (2021 Remix)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07CEBC2CA662ED832064A1FC9F1CC93DB49C974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626396   (255203) от 14.04.2023
+
+VA - Black Hole House Music 04-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BetweenUs - Dunia (Extended Mix) [4:27]
+02. Kennedy One - To Be With You (Extended Mix) [6:04]
+03. The Private Language - In Paradise (Ali Bakgor Extended Remix) [3:38]
+04. HALIENE & Amidy - Parachute (Nikademis Remix) [3:34](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D3107B79162BDB9A63EADBF12A98D41EB27087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836690   (254080) от 12.11.2025
+
+VA - Deep House Relax 2025: Echoes (2025) [MP3|320 Kbps] <Deep House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anonymous Conditions & M-Sol DEEP - Lossless Time (Original Mix) [7:33]
+02. WESLEY (BR) & M-Sol DEEP - Thirsty (Original Mix) [6:32]
+03. ORCHY & M-Sol DEEP - Magnifique (Original Mix) [7:35]
+04. Duel (HU) & M-Sol DEEP - Endless Tuesday (Original Mix) [8:24](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67A2732A7FEF91F5E76A385A209B956AB005A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497799   (253917) от 18.05.2012
+
+Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012) [MP3|~245 кб/с ]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012)
+Год: 16.05.2012
+Жанр: House
+Продолжительность: 03:55:40Кодек: MP3
+Битрейт: ~245 кб/с
+Тип битрейта: VBRТрек лист:  (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CE6834A7B9E9E257466E952164165A8ED0157B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495343   (251641) от 13.05.2012
 
 VA - 5 Years Of Noir Music (2012) [MP3|320 кб/с]<Tech House, Deep House>
@@ -611,151 +758,6 @@ VA - Nu Deep Gold Series:01 (2015) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8A0FFDB56B955D0F1FCA68976E6D952DD77B8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632563   (243737) от 12.05.2023
-
-VA - Best Of Deep House 2023 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_243737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dani Corbalan - Invisible (Extended Mix) (4:34)
-02. Audioboy - Fall Apart (Extended Mix) (4:02)
-03. Rinat Bibikov & DJ Safiter - Beautiful Life (Original Mix) (3:09)
-04. Lorenz Koin - A Million Times (Extended Mix) (3:13)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB1A0408A95D8873C1BE669FEF6BBBCAF9F399F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076691   (243673) от 26.11.2016
-
-VA - Armada Deep House Selection Vol.15 (The Finest Deep House Tunes) (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tube & Berger feat. Richard Judge - Ruckus 3:20
-02. Robbie Rivera - Come Back To Me 2:58
-03. Lushington - You Got Me Baby 2:59
-04. Erick Morillo vs Eddie Thoneick - Lost In You (Erick Morillo & Harry Romero Remix) 3:52(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132E069B67700532DA4B87709C235682BD63C988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613276   (243475) от 18.02.2023
-
-VA - Paul Sawyer: 30 Years A DJ (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Sawyer - Stay Around (Extended Mix) [4:46]
-02. Paul Sawyer - Zeus (Tripswitch Remix) [7:33]
-03. Sunscreem & Paul Sawyer - Perfect Motion (Extended Mix) [8:53]
-04. Paul Sawyer - Nemesis (Nick Muir Remix) [8:27](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A293ACA20E82DDAA124852C1F2D190E779232D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613438   (243454) от 18.02.2023
-
-VA - 20 Years Sprout Music (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Underground - Shaharit (Original Mix) [7:37]
-02. D-Nox & Felipe Novaes - Space Talk (Original Mix) [7:34]
-03. Gai Barone & Felipe Novaes - Daybreak (Original Mix) [8:00]
-04. Cream (PL) - Lunar (Original Mix) [8:00](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7044B7C43A792FF2950045191060C483690D33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634011   (243031) от 18.05.2023
-
-VA - EDM Deejay Compilation 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teknova - Weekend 2K23 (Extended Mix) [2:45]
-02. Turbotronic - Rave (Extended Mix) [3:42]
-03. Stephan F & Tony T - Party (Extended Mix) [3:36]
-04. Rene Rodrigezz & Stupid Goldfish - Feel Good (Extended Mix) [2:59](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB670C8C6F3CA8784124F75046036AC0D9EEFBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

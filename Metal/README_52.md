@@ -1,3 +1,119 @@
+###  Публикация: 911891   (612919) от 25.06.2015
+
+Telergy - 3 альбома (2011-2015) [MP3|192-320 кб/с]<Epic / Symphonic / Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Into The Past
+2. Enslavement
+3. Pleading
+4. Plagues(   Читать дальше...   )Жанр: Epic / Symphonic / Progressive MetalПродолжительность: 03:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE91CCE6E5D8C14585985D977E49BC8A4F52D357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911704   (612811) от 25.06.2015
+
+Chaos Synopsis - Seasons Of Red (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612811.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Burn Like Hell
+2. Gods Upon Mankind
+3. The Scourge Of God
+4. Red Terror(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED916B9D6D788F247B67F221115CDB7FC4CA8FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912341   (612797) от 25.06.2015
+
+Sinister - Dark Memorials (2015) [MP3|320 кб/с]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Malicious (Intro)
+02. Beneath The Remains (Sepultura Cover)
+03. Exhume To Consume (Carcass Cover)
+04. Unleashed Upon Mankind (Bolt Thrower Cover)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D810B450C00205F845F1CF9FA49D56AFE15559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912022   (612567) от 25.06.2015
+
+Thy Art Is Murder - Holy War (2015) [MP3||~245 кб/с (V0)]<Technical Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolute Genocide (04:26)
+02. Light Bearer (03:56)
+03. Holy War (04:01)
+04. Coffin Dragger (Feat. Winston McCall Of Parkway Drive) (02:56)(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1757E4E131705FF5C6E21E3D7842C1DF3FA8268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912325   (612514) от 25.06.2015
 
 To/Die/For (To Die For) - Cult (2015) [MP3|320 кб/с]<Gothic Metal>
@@ -643,122 +759,6 @@ Steel Prophet - The God Machine (2019) [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12202707E92928B8B5DF9675A7020987112F8E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298841   (601628) от 29.04.2019
-
-Astral Doors - Worship or Die (2019) [MP3|320 kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night of the Hunter (04:42)
-02. This Must Be Paradise (04:03)
-03. Worship or Die (03:17)
-04. Concrete Heart (03:57)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8590EADEA3527C1FBF6BE288C68C2DF93F75EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299038   (600841) от 30.04.2019
-
-Belzebubs - Pantheon of the Nightside Gods (2019) [MP3|320 Kbps] <Sympho Black Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cathedrals of Mourning
-02. The Faustian Alchemist
-03. Blackened Call
-04. Acheron(   Читать дальше...   )Жанр: Sympho Black Metal, Melodic Death MetalПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876E44F5AFABD778F3B40CA04E9C51D786BDC092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913661   (600483) от 01.07.2015
-
-Witchgrinder - Haunted (2015) [MP3|320 кб/с]<Industrial Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600483.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into The Sleep
-2. Rigor Mortis
-3. Haunted
-4. Our Nightmare(   Читать дальше...   )Жанр: Industrial Metal, Thrash MetalПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBE4F1FE98DA47B0A203B5E1FFD2DD1E7FD6E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913598   (600436) от 01.07.2015
-
-HaddaH - Path To Nefrath (2015) EP [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Alexandros
-02. Immortal Soul Of The Conqueror God
-03. When Rage And Vengeance Desire Blind The Heart Of The Mighty Berserker
-04. Witness The Empty Thrones Of Space And Time(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1226A62A3C9A8635ED81EE803C9D2BA4D54BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 542971   (495737) от 05.09.2012
+
+Kenny G & Rahul Sharma - Namaste (2012)[FLAC (tracks+cue)|Lossless]<Smooth Jazz, World>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Namaste
+02. Brhama-Vishnu-Shiva
+03. Dance Of The Elephant God
+04. Lotus Lovers
+05. Transcendental Consciousness
+06. Valley Of Flowers
+07. Silsila (ft. Amitabh Bachchan)
+08. Om Shanti
+09. Transcendental Consciousness (Walter A. Remix)
+10. Namaste (Soul Seekerz Club Mix)Жанр: Smooth Jazz, WorldПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565504   (494905) от 23.07.2022
+
+NEONNOONE - Noir & Jazz & Dark & Slow... (2022) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Post Rock, Dark Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturne (5:02)
+02. For A Film (5:19)
+03. Zen Noir (6:38)
+04. Car Crash On Sunday (5:58)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Post Rock, Dark AmbientПродолжительность: 00:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350F320C9D18335DA9B5384866B88AF6C0197B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318419   (494834) от 06.08.2019
+
+Don Byas - Midnight at Minton's (1941) 1999, HighNote [FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust [9:09]
+02. Exactly Like You [9:06]
+03. Uptown [2:48]
+04. Body and Soul [7:34](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EA01116273C2A8B893317FBF47988165FFCE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936678   (494505) от 12.09.2015
+
+Lennie Tristano & Buddy DeFranco - Cool & Quiet (1949) /2015, Universal/ [FLAC|tracks+.cue]<Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wow [03:23]
+02. Crosscurrent [02:51]
+03. Yesterdays [02:49]
+04. Marionette [03:07](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DF354798646080E441E8AF9F1AE369D5E5EEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936721   (494462) от 12.09.2015
+
+John Coltrane - Jupiter Variation (1967) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Number One [11:59]
+02. Peace On Earth [07:13]
+03. Jupiter (Variation) [06:47]
+04. Leo [10:54]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E48305A907B2F47FB0E8F5176CD93B57770CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936713   (494458) от 12.09.2015
+
+Bill Evans - Montreux II (1970) /2013, King Records/[FLAC|tracks+.cue]<Post-Bop, Modal Music, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction - Very Early [06:40]
+02. Alfie [05:30]
+03. 34 Skidoo [06:39]
+04. How My Heart Sings [04:16](   Читать дальше...   )Жанр: Post-Bop, Modal Music, CoolПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8ED400A36ED9054743BF0558AAF6EE41B25B3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936682   (494457) от 12.09.2015
 
 Art Blakey And The Jazz Messengers Big Band - Live At Montreux And Northsea (1980) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
@@ -589,176 +769,6 @@ The Workshop - Conversations With The Drum (2015) /Onze Heures Onze/[FLAC|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA57ECB30A0026C0F90AA473FBAE435348BA5DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937269   (490276) от 14.09.2015
-
-Roberto Negro Trio invite Christophe Monniot - #1 Luna Di Wuxi & #2 Kimono (2015) 2CD /Tricollectif/[FLAC|tracks+.cue]<Avant-Garde Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490276.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Grace [08:23]
-02. Ogni Cosa e Illuminata [05:49]
-03. Deja Vu [06:38](   Читать дальше...   )Жанр: Avant-Garde Jazz, Modern CreativeПродолжительность: 01:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BFBA969EE846C5EACE94F38829C90BBDF6B7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937316   (490275) от 14.09.2015
-
-Terumasa Hino - Live In Concert (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logical Mystery [23:43]
-02. In The Darkness [11:29]
-03. 'Round About Midnight [11:08]Жанр: Jazz Fusion, Post-BopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B30B8B0AB42A51D2F4ADC4C780E5F11B6E8F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937080   (490271) от 14.09.2015
-
-Leon Spencer - Louisiana Slim (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louisiana Slim [10:16]
-02. Mercy Mercy Me [04:10]
-03. (They Long To Be) Close To You [05:32]
-04. Our Love Will Never Die [10:20](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34F35C484FEA04FA9CE54AD0F737431D5A55DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937073   (490270) от 14.09.2015
-
-John Patton - Understanding (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ding Dong [05:37]
-02. Congo Chant [09:13]
-03. Alfie's Theme [04:43]
-04. Soul Man [06:12](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFE17743DE8B4D7298FCCF4269421CFDDA9B09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937058   (490267) от 14.09.2015
-
-Art Blakey And The Jazz Messengers - Album Of The Year (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheryl [05:24]
-02. Ms. B.C. [06:48]
-03. In Case You Missed It [08:54]
-04. Little Man [07:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6915FC633439521999410776B7549D9F7059F950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937293   (490263) от 14.09.2015
-
-McCoy Tyner - Fly With The Wind (1976) /2008, Concord/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFE82F4247321F85841F38BE122B3B8DA47FCB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

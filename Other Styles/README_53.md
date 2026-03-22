@@ -1,3 +1,61 @@
+###  Публикация: 1277967   (768349) от 26.01.2019
+
+Христина Соловій - Любий друг (2018) [MP3|320 Kbps] <Pop-Folk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768349.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Любий друг
+2. Хвиля
+3. Океан
+4. Шкідлива звичка(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBFB4F002BA492E97A7ED94D7EBFC501B776156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125501   (767922) от 15.04.2017
+
+Blackmore's Night - The Village Lanterne (2006) Box Set, Limited Edition [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767922.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	25 Years
+2.	Village Lanterne
+3.	I Guess It Doesn't Matter Anymore
+4.	The Messenger (Instrumental)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3835D70E6AC28C9B5B16A11196AB50EDA39CEA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 745322   (767609) от 27.01.2019
 
 Michel Legrand & His Orchestra - Strings On Fire (1962) LP /Columbia/ [MP3|320 кб/с]<Instrumental, Easy Listening>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280320   (762003) от 02.02.2019
-
-Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Condor Pasa
-02. Ave Maria
-03. Amazing Grace
-04. Don't Cry for Me Argentina(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280247   (761997) от 02.02.2019
-
-Paul Mauriat - Diamond Collections (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un Home Et Femme
-02. Melodie
-03. Moulins De Mon Coeur
-04. Love Story(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEE6AC6697B3585E45E20229FAA37AC4E5275FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

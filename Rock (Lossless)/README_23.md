@@ -1,3 +1,119 @@
+###  Публикация: 1091166   (944864) от 08.01.2017
+
+Blind Ego - Liquid (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944864.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Place in the Sun (6:11)
+2. Blackened (5:44)
+3. What If (6:24)
+4. Not Going Away (7:32)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFD6A5E9C9A2551115938974D7AEC1FE2CFB34A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983374   (943622) от 06.02.2016
+
+Elton John - Wonderful Crazy Night (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Crazy Night
+02. In The Name Of You
+03. Claw Hammer
+04. Blue Wonderful(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A431589699B283BF6877B6743DD3944330794C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 152629   (943525) от 06.02.2016
+
+GPS (ex-Asia) - Window to the soul (2006) US Edition [FLAC|Lossless|tracks + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Window to the soul (6:57)
+02. New Jerusalem (8:27)
+03. Heaven can wait (8:04)
+04. Written on the wind (6:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E85487D54CC46F2FB95EBE3C8FCB772CBF5D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091582   (943017) от 09.01.2017
+
+Sonia Dada - Sonia Dada (1992) [FLAC|Lossless|tracks + .cue] <Rock Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943017.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We Treat Each Other Cruel (4:09)
+2. You Don't Treat Me No Good (4:08)
+3. Jungle Song (4:42)
+4. As Hard As It Seems (3:59)(   Читать дальше...   )Жанр: Rock SoulПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87742EA26C52A4C3BB13B609A2B37E46874CD118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 626847   (942780) от 06.03.2013
 
 Stereophonics - Graffiti On The Train (2CD, Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Indie Rock>
@@ -629,122 +745,6 @@ The XX - I See You (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848C00ACBF28CC226C0C3F52CCE0F1B4C953D945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986432   (930122) от 14.02.2016
-
-Pink Floyd - A Momentary Lapse Of Reason (1987) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Signs Of Life (4:23)
-02. Learning To Fly (4:53)
-03. The Dogs Of War (6:11)
-04. One Slip (5:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EBBE28EFC232D3F71D3DFED971BA8A074DF652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755041   (929782) от 09.02.2014
-
-Indica - Shine (2014) Limeted Digipack [FLAC|Lossless]<Symphonic Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain made of stone
-02. Uncovered
-03. A definite maybe
-04. Goodbye to Berlin(   Читать дальше...   )Жанр: Symphonic Rock, Pop-RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5E2D78EC8B4AA0D4BB69E8352EAF3E28A5F45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986930   (928929) от 15.02.2016
-
-Eagles - Their Greatest Hits 1971-1975 (1976) Compilation, Reissue, 1990, Asylum Records [FLAC|Lossless|image + .cue] <Classic Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It Easy - 3:29
-02. Witchy Woman - 4:10
-03. Lyin' Eyes - 6:23
-04. Already Gone - 4:12(   Читать дальше...   )Жанр: Classic Rock, Country RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233433C035804AC877934B4EAFF6B30D0E861E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987257   (927968) от 16.02.2016
-
-Marty Walsh - The Total Plan (2014) [FLAC|Lossless|tracks] <Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like a Rock  03:58
-02. Feeling Free  04:48
-03. Groove Mechanics  05:11
-04. Fuel  04:59(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFCFF7122E7E529A69D3E3EF8BEAFB786E18FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

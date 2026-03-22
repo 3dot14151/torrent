@@ -1,3 +1,138 @@
+###  Публикация: 1824167   (136803) от 16.10.2025
+
+PALLADIUM Electric Band - Energy (2011) [MP3|256 Kbps] <Instrumental, Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Palladio (3:31)
+2. Energy (3:19)
+3. Adagio (4:09)
+4. Obsession (3:18)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, PopПродолжительность: 00:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF04E2FF8F3851DD7DDA9B001817714983F101B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591078   (136376) от 19.12.2012
+
+Jose Carreras, Luciano Pavarotti, Mario Lanza, Placido Domingo - Opera Favourites (1997) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Di Quella Pira (From 'Il Trovatore')	1:55
+	02 - De Miei Bollenti Spiriti (From 'La Traviata')	1:57
+	03 - Recitar!.. Vesti La Giubba (From 'I Pagliacci')	3:52
+	04 - Dammi I Colori...Recondita Armonia (From 'Tosca')	2:51
+	05 - Intanto Amici...A Voi Tutti Salute (From 'Cavalleria Rusticana')	2:50
+	06 - Hai Ben Ragione (From 'Il Tabarro')	2:34
+	07 - Ingemisco (From 'Messa Da Requiem')	3:29
+	08 - E Lucevan Le Stelle (From 'Tosca')	2:51
+	09 - O Lola! (Siciliana) (From 'Cavalleria Rusticana')	2;03
+	10 - Che Gelida Manina (From 'La Boheme')	4:28(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36280E34846F9F2F584E763CB0779936BC4DEDE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589105   (136351) от 19.12.2012
+
+Муслим Магомаев - Избранное (14 CD Box) (2010) [MP3|320 кб/с]<опера, классика, эстрада>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот музыкальный Box Set был подготовлен к изданию самим Муслимом Магомаевым, ещё при жизни. Выпускающая компания не стала ничего менять, и потому все монологи в буклете идут от первого лица, а музыкальное наполнение каждого диска такое, каким видел его сам Маэстро.
+Восхитительный баритон Магомаева покорил не одно поколение слушателей. Самому Магомаеву великолепно удавались арии Фигаро и Скарпиа, Мефистофеля и Онегина... Однако оглушительный эстрадный успех помешал его оперной карьере — подобно тому, как Голливуд похитил у оперной сцены столь любимого Муслимом Магомаевым Марио Ланца (о котором он написал книгу, сделал радио- и телепередачи). 1969 год принес ему победу в Сопоте и первый "Золотой диск" на фестивале МИДЕМ в Каннах, - этой награды Муслим Магомаев был удостоен за то, что записанные им пластинки разошлись фантастическим тиражом в четыре с половиной миллиона экземпляров. Певцу едва перевалило за тридцать, когда он стал Народным артистом Советского Союза...1. Страна огней (4:02)
+ 2. Арзу (4:23)
+ 3. Не гордись (4:54)
+ 4. Зибейда (4:57)
+ 5. Ухожу (4:20)
+ 6. L'Italiano (Итальянец) (4:18)
+ 7. Azerbaijian (Весенний край) (3:36)
+ 8. Подмосковные вечера (2:30)
+ 9. Вдоль по Питерской (3:31)
+ 10. Come prima (Как в первый раз, Все как прежде) (2:32)(   Читать дальше...   )Жанр: Опера, классика, эстрадаПродолжительность: 01:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA0C1A6F58BC72481354E9F0C22A0E23A833E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592480   (135632) от 22.12.2012
+
+Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violin, Instrumental>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.Massenet - Tais's Meditation   [05:03]
+02. F.Kreisler - Liebesleid   [03:36]
+03. F.Kreisler - Tambourin Chinois   [04:08]
+04. Rachmaninoff - Vocalise Op 34 No. 14   [05:28]
+05. Mozart - Sonata No.34 K.378, 1st   [10:07]
+06. Mozart - Sonata No.34 K.378, 2st   [06:55]
+07. Mozart - Sonata No.34 K.378, 3st   [04:51]
+08. Beethoven - Spring Sonata, No.5 Op.24 1st   [10:35]
+09. Beethoven - Spring Sonata, No.5 Op.24 2st   [05:49]
+10. Beethoven - Spring Sonata, No.5 Op.24 3st   [01:12](   Читать дальше...   )Жанр: Violin, InstrumentalПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092E0F9FBFED3CC941C61A69BD84168218057F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586472   (135570) от 22.12.2012
 
 Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variations, Etude>
@@ -657,122 +792,6 @@ VA - Calming Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EC577976F0F7C320CDA0C05A1F3844DD5632AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691898   (122922) от 14.01.2024
-
-VA - Piano Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Sergey Bryukhno - Sonnet in C Major (1:25)
-03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-04. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Aria (5:10)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EB4C49AFAF5717D577E42A6B888FE528A7222E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691906   (122619) от 16.01.2024
-
-Ennio Morricone - Ennio Morricone: Winter Walks (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Soundtrack>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The City Of Prague Philharmonic Orchestra - Epilogue - The Falls (From The Mission) (1:39)
-02. The City Of Prague Philharmonic Orchestra - Main Theme (From Once Upon a Time in America) (2:10)
-03. The City Of Prague Philharmonic Orchestra - Main Theme (From Hamlet) (2:38)
-04. Royal Stockholm Philharmonic Orchestra, Alexander Shelley & Daniel Hope - Love Theme (   Читать дальше...   )Жанр: Classical, Instrumental, SoundtrackПродолжительность: 04:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE5C1E2E7A04DC550AE005A85287884C689131E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693434   (121916) от 20.01.2024
-
-Пётр Чайковский; Большой симфонический оркестр Всесоюзного радио и Центрального телевидения - Лебединое озеро (2023) 2 x CD [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121916.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 Интродукция 02:51
-Действие I
-02 1. Сцена 02:50(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FEBF5499EEFEB0D591BFB76BBC8B7E5767906B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692997   (121726) от 21.01.2024
-
-VA - Beautiful Piano Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-03. Sergey Bryukhno - Hope (1:29)
-04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59463212A816AF60950F96B533D54019A97A836B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1012386   (762309) от 16.05.2016
+
+VA - Erotic Desires Volume 501 - 504 (2016) [MP3|320 кб/с] <Vocal Trance> (обновляемая)
+
+>>След.
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Derek Ryan & Charmy - Faster Than Light (Mike Koglin Remix)
+02. Sied Van Riel feat. Alicia Madison - Gravity (Original Mix)
+03. Neev Kennedy with Adrian&Raz - Crystal Clear (Igor Dyachkov & U-Jeen Remix)
+04. The Blizzard & Yuri Kane Ft. Relyk - Everything About You (R.I.B Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8496E8812EE6DCBAD24AD69C88818CC9CEE55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394629   (762300) от 06.07.2020
+
+VA - Beatport Chillout: Electro Sound Pack #122 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762300.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dismantlists - Somewhere Always Ever
+002. Reid Willis - Canopy Care
+003. Landhouse - Unknown Melody
+004. Fejkб - Skye(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E670DF04FC2C50215820CD9363F300A8AC39BBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394625   (762117) от 06.07.2020
+
+VA - Beatport Techno Electronic: Sound Pack #121 (2020) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762117.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claas Herrmann - Raskolnikow
+002. DJ Hugo Enrique - Underworld
+003. Tyler Schauman - Rosary (Original Mix)
+004. David Temessi - Into The Groove(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A345B47F4D169DF232FA7F6C695946AAEF131F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 780358   (762016) от 25.04.2014
 
 VA - Deep Mood vol 2 (Smooth Deep House) (2014) [MP3|320 кб/с]<Deep House>
@@ -664,93 +751,6 @@ VA - Summer Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6473D4813FBC48A6882A26C09C12D7DE1DE9DADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018595   (756032) от 20.05.2016
-
-VA - Wine Lounge, Vol. 3 (25 Bar Lounge Tunes) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblique Style - Relax Yourself (Baia Mix) (05:30)
-02. Adrienne Gowan - Sunrise (04:04)
-03. Danny Hay - By and By (Fantastic World Mix) (05:48)
-04. Zip Love - Replace (Melbourne Mix) (04:14)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119B5F3DB959AB13C797F8F9692B531F01BA77C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018582   (756031) от 20.05.2016
-
-VA - Pictures Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - On the Lake
-02. Don Gorda Project - Daydreaming
-03. Baghira - Way Too Long
-04. Aquarius - Fly Away(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96366B994DFD5A2D0BA4C164602B1DB8F91EF882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018514   (756021) от 20.05.2016
-
-VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756021.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Lounge Unlimited Orchestra - Violet
-002. Xeno Sound System - Free Run
-003. MrV - Sunset Landscapes
-004. Dario J - The Lounge Again(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53230EFAB216FA6C4F01E3E5B683C48B8032DD79
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 618577   (969175) от 14.02.2013
+
+SLADE - 14 Albums Collection (1969 - 2007) / 2006-2007 [WavPack|Lossless]<Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Glam RockПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976506   (968826) от 18.01.2016
+
+VA - Pop Villa Pamphili (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk Rock, Prog Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Volo - Il Calore Umano (4:43)
+02. Biglietto Per L'Inferno - Confessione (6:32)
+03. Reale Accademia Di Musica - Il Mattino (9:21)
+04. Fholks - Mi Scorri Nelle Vene (Soldier In Our Town) (3:42)(   Читать дальше...   )Жанр: Folk Rock, Prog Rock, Blues Rock, Art Rock, Psychedelic Rock, Experimental, Jazz-Rock, PsychedelicПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D21FA0CAF3A315213BBB8F7B6A6CE8D824CD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358562   (968799) от 08.02.2020
+
+Giobia - Plasmatic Idol (2020) Giöbia [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parhelion (07:03)
+02. In the Dawnlight (04:13)
+03. Plasmatic Idol (02:02)
+04. Haridwar (08:29)(   Читать дальше...   )Жанр: Psychedelic, Space RockПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC974B7AAFC615C8B7E3CB8C814E4E3D9D23213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358554   (968798) от 08.02.2020
+
+M-Opus - Origins (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergency Exit (02:25)
+02. Troubled Minds (06:03)
+03. Hide And Seek (05:29)
+04. Holy War (03:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43A4EDAE7AF2B23703F31D8BF84F8393E94309B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 852771   (967526) от 19.01.2016
 
 Eagles - Hotel California (1976) [FLAC|Lossless]<Rock>
@@ -629,122 +742,6 @@ Metamorphosis - Then All Was Silent (2005)  [FLAC|Lossless|image + .cue]<Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:789C01077EE623969E0BAF87993079406163DC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089214   (953755) от 02.01.2017
-
-Yogi Lang (ex.RPWL) - No Decoder (2010)  [FLAC|Lossless|image + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Reach You 2:20
-02. Sacrifice 9:30
-03. Our World Has Changed 5:26
-04. Sail Away 5:16(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DDE9F3B2F69561D5A2078028C8E4C540699A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280275   (953482) от 08.01.2011
-
-Океан Ельзи - Песни высшей пробы (2010) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953482.jpg" />
-</div>
-
-
-###  Подробнее
-
-----------------
-01. Я так хочу... [4:42]
-02. Все буде добре [3:08]
-03. Без бою [4:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980853   (952968) от 31.01.2016
-
-Mystic Braves - Days of Yesteryear (2015) [FLAC|Lossless|WEB-DL|tracks] <60's Psychedelic Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Myself
-02. No Trash
-03. Now That You're Gone
-04. As You Wonder Why(   Читать дальше...   )Жанр: 60's Psychedelic Rock, Garage RockПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BDDC18CFF0142553A36EDF7CF50D408FCE4C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981602   (951550) от 01.02.2016
-
-Van Wilks - 21st Century Blues (2015) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock, Texas Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Girl
-02. Drive By Lover
-03. Golddigger
-04. Just Walk Away(   Читать дальше...   )Жанр: Rock, Blues Rock, Texas BluesПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F4E404C0CDC6355FD91992096AB9B13C087DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

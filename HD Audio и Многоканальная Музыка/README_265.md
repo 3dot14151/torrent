@@ -1,3 +1,322 @@
+###  Публикация: 1819951   (978) от 25.09.2025
+
+The Vintage Caravan - Portals (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues-Rock, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philosopher (feat. Mikael Akerfeldt) (04:37)
+ 02. Portal I (00:36)
+ 03. Days Go By (03:58)
+ 04. Portal II (00:18)(   Читать дальше...   )Жанр: Hard Rock, Blues-Rock, Stoner RockПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD204C2FB956F41ED2F606CE6E8C1C384256A51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819960   (977) от 25.09.2025
+
+Mors Principium Est - Darkness Invisible (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Death(5:35)
+02. Venator(3:45)
+03. Monuments(6:00)
+04. Tenebrae Latebra(1:49)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A03821DECD737EEC3C222112BACB2840DEEC25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819981   (976) от 25.09.2025
+
+Emilia Quinn - Dented Halos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Call Me By Her Name (4:34)
+02.  Dirty Little Lie (4:36)
+03.  Hell (3:38)
+04.  Hard To Read (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C385AE439AC675AD481178DC47DF18577647994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819993   (961) от 25.09.2025
+
+ZZ Ward - Liberation (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mother (2:56)
+02.  My Baby Left Me (2:14)
+03.  I Have No One (2:33)
+04.  Cadillac Man (2:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFB5F764B660464C39F0EA806B9BA7C7E3D78B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819957   (956) от 25.09.2025
+
+Paradox - Mysterium (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kholat(6:05)
+02. Abyss Of Pain And Fear(7:28)
+03. Grief(1:13)
+04. Those Who Resist(5:50)(   Читать дальше...   )Жанр: Trash MetalПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DBCF80F75804C389EB3554B6DC7B526AFAAE75F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819991   (954) от 25.09.2025
+
+Sigma Wolf Initiative - Blues of the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Road to the Soul (4:11)
+02.  The Long Distance (3:31)
+03.  Hit the Road (3:16)
+04.  Bayou Blues (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DA8BD142C54F4C35BAFD67C091E3460EDDB0EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819988   (953) от 25.09.2025
+
+Peter O'Mara - Avenue U (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Uptown (5:48)
+02.  Three (7:23)
+03.  Calypso (6:16)
+04.  Waiting (5:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4444F30F3B0922E100174A3D6B57A553779E803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819987   (952) от 25.09.2025
+
+Mike Andersen - All Out Of Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All Out Of Love (4:21)
+02.  Don't Waste Your Time (5:25)
+03.  Only For You (3:54)
+04.  Souls On Fire (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2373B5A4F32896841C41561FE2FC804DACC3F553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819976   (949) от 25.09.2025
+
+Bill Evans / Jim Hall - Waltz for Debby and Other Melodies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Got It Bad and That Ain´t Good (1:38)
+02.  Five (4:02)
+03.  I Love You (3:54)
+04.  Conception (4:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3ED80AD02E55939A4CB8EDC8714C3E4FCFD00CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819992   (948) от 25.09.2025
+
+Sycamore Sisters - Out Of The Cage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Judgement day (2:53)
+02.  Nobody knows you when you're down and out (3:59)
+03.  Caged bird (I know why the caged bird sings) (2:58)
+04.  Running (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5AEF615920B036414BB919A79B851E95266495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819954   (947) от 25.09.2025
+
+Crematory - Believe (2000) Reissue 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redemption of Faith(2:05)
+02. Endless(4:23)
+03. The Fallen(3:43)
+04. Take(4:54)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDCD23DB6CF6EE8BF9B16193F57F0777B5084FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819986   (946) от 25.09.2025
 
 Karina Kozhevnikova & Krugly Band - Polyphonic Circle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
@@ -426,325 +745,6 @@ Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF2F6C334DF722D9FA01B6EAFA9BCDC5276F5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820639   (231) от 28.09.2025
-
-Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A Little Love (3:38)
-02.  Hunting Season (2:55)
-03.  Shot One (3:30)
-04.  True Believer (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD2FEE326B91CE9B33853287C87A4B405F0BD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820662   (228) от 28.09.2025
-
-Dust and Echoes - Whispers on the Wire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Another Saturday Night (4:56)
-02.  Glass on the Pavement (5:50)
-03.  Golden Hour Embrace (5:36)
-04.  Gypsy’s Lullaby (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CD4755CDD0917C777F1A93FF539D91E72885C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820670   (227) от 28.09.2025
-
-Nathan Mitchell - The Legacy Project (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Overture of Legacy (1:58)
-02.  After Hours (4:00)
-03.  Feel The Heat (4:15)
-04.  Breathe (4:50)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9288C5D60019DFC29EEF31DB1D0DFC091EB947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820629   (217) от 28.09.2025
-
-Armando Alonso - Problemas con el gas (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Madre Pedro, Padre Pedro (5:42)
-02.  Sale desafío (5:01)
-03.  Cuarentena (3:57)
-04.  El flaco (3:43)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A636C6D18946AFFBA8F178F05CA874BA69A6DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820649   (216) от 28.09.2025
-
-Bill Laurance - Lumen (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fils D'or (6:56)
-02.  Lumen (3:02)
-03.  Mantra (4:08)
-04.  What You Always Wanted (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143A45F75E74E343844FF34FD61F855A0B9DBD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820635   (215) от 28.09.2025
-
-Betschart Transport AG - Griffin Overdrive (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Asphalt Beats (4:31)
-02.  Griffin Overdrive (2:34)
-03.  Steel & Stereo (4:39)
-04.  Road After Road (3:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF15770015BB29A6A8CD090C8BF8A1E531E2DA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820666   (214) от 28.09.2025
-
-Headstones - Burn All The Ships (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  PUT THAT CAR IN DRIVE (3:52)
-02.  DECADES (2:45)
-03.  DAYLIGHT LIGHTNING (3:34)
-04.  AN EFFORT TO FORGET (FEAT. EMILY HAINES) (3:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3C6EFAA2FB17B1DE702A6A7A7B2D23D44A7F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820652   (213) от 28.09.2025
-
-Clockers - Il Broccolino (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brooklino (4:08)
-02.  In Italian Shoes (4:46)
-03.  Bang Bang (4:35)
-04.  I Roll on the Road (4:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4E2E9F74CA1B482C2919201951CEF97EF32F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820668   (212) от 28.09.2025
-
-Jacob and The Melody Drivers - Jacob and The Melody Drivers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Late Bloomer (3:44)
-02.  Imposter (3:30)
-03.  Lucky Guy (4:28)
-04.  Kiss Her Every Night (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931DB4AC7136F7E1155FB8C94C099140888E58C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820642   (210) от 28.09.2025
-
-Bill Barber & The Holding Cell - Southern Redemption (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blood & Gold (3:04)
-02.  Hard to Breathe (3:38)
-03.  Vitriol & Champagne (4:29)
-04.  Just like they Say (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89884F5C3D0CC22EB6BC611DE3DF804E2128EAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820664   (209) от 28.09.2025
-
-Fish Hook Smile - Fish Hook Smile (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Flashback (4:41)
-02.  Chapter 13 (3:54)
-03.  Shiver (5:07)
-04.  Fields of Green (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E5EC7BB4B098E1A9E936CD55BC33A1E197D639
 ```
 
 https://mybot314.ru/tekegram_catalog/

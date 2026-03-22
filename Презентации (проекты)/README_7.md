@@ -1,3 +1,55 @@
+###  Публикация: 1099095   (906176) от 31.01.2017
+
+Проекты - VideoHive - Dynamic Opener - 19311547 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Opener - элегантный проект для начала вашего фильма, или рекламы в динамическом стиле. Обучение включено.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE26D9FAF499E974A611025B66A63B76EAE057C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866844   (905834) от 06.02.2015
+
+Проекты - VideoHive - Awards Bundle - 10152091 [AEP]
+
+>>След.
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Awards Bundle - большой проект пак в стиле вручения "Оскар".Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5ECC53238EC532807AEAC8AA2673D9CA8258E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636312   (905339) от 28.03.2013
 
 Проекты - VideoHive - The Golden Awards Package - 3719926 [AEP]
@@ -622,58 +674,6 @@ Website Portfolio - проект предназначен, чтобы показ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B730F0A9050FD5A4EB4040256A944F2484FFA385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100829   (897330) от 05.02.2017
-
-Проекты - VideoHive - Fast promo - 19313951 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast promo - Проект для создания эффектного и динамичного промо ролика.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058F686B44A3F44951865B83F0C21B33B7CF389B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868486   (897120) от 11.02.2015
-
-Проекты - VideoHive - Awards Pack II - 9196255 [AEP]
-
->>След.
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Awards Pack II - торжественное оформления фильма.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E724DEF8F1992FF2270CE6F44921DE9BC24899E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

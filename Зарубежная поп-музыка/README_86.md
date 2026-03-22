@@ -1,3 +1,119 @@
+###  Публикация: 1734374   (107152) от 03.07.2024
+
+VA - NOW That's What I Call A Summer Party (2024)  4CD [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - Summer (02:34)
+02. David Guetta, Becky Hill, Ella Henderson - Crazy What Love Can Do (02:49)
+03. Mark Ronson feat. Miley Cyrus - Nothing Breaks Like A Heart (03:36)
+04. Kylie Minogue - Padam Padam (02:46)(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 04:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E52BE1A34FB3C0124D7BE68541186868ABCF611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734578   (107097) от 04.07.2024
+
+VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Bobo - Pray (Airplay Mix)
+02. Mr. President - I Give You My Heart (Radio Edit)
+03. Heath Hunter - Revolution In Paradise (Boom Box Mix)
+04. E-Rotic - Gimme Good Sex (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C9E0629C3EA5B0BBB305C7DACDEE3F397062FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734919   (107067) от 05.07.2024
+
+VA - Hot Girl Summer 2024 (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blu Cantrell - Hit 'Em Up Style (Oops!) (04:10)
+02. Christina Aguilera - Come on over Baby (All I Want Is You) (Radio Version) (03:23)
+03. Daryl Hall & John Oates - Maneater (04:30)
+04. Destiny's Child - Bootylicious (03:28)(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 05:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26151952F9C7A9FF9CB2D1505B1C7F5352A1000A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735190   (106973) от 07.07.2024
+
+Fem Snabba - Pupiller (серия "Другие восьмидесятые") (1988) Vinyl, LP, Album [MP3|320 Kbps] <New Wave, Post-Punk, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saknad
+02. Dagar Som Pupiller
+03. Jord Och Stad
+04. Gnistrande(   Читать дальше...   )Жанр: New Wave, Post-Punk, Pop RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F8D495C94D42E2F14D9A945FF06EA73517A85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735706   (106837) от 09.07.2024
 
 VA - DJ Hits 141 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
@@ -626,122 +742,6 @@ David Hasselhoff - 2 Albums (1989-1990) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83216A82BDAD7389C9606FC096BEA3D4CE25C7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747582   (104642) от 07.09.2024
-
-VA - DJ Hits 333 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rytmica Featuring Big Reggie - Swing Da Thing (Extended Mix)
-02. Bafi Boyz & Inferno - I Wanna Take U (Radio)
-03. Black Spaghetti - Yowi, Yowi (The Message Mix)
-04. DJ Dado - Dreaming(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F064BEBB4716933A4E8563C0BC501E36248393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747749   (104641) от 07.09.2024
-
-VA - DJ Hits Vol. 345 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DPD feat. Rose Windross (ex. Soul II Soul) - Sign Your Name  (short club mix)
-02. La Bouche - Forget Me Not (remix '97)
-03. Alexia - Number One (club short mix)
-04. No Mercy - Message Of Love (non album edit)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FAC1D10DBA46F4A57E777FC5DE72EF3F9B65D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747753   (104638) от 07.09.2024
-
-VA - DJ Hits 350 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Spaghetti - Groovin
-02. Priority - Do That Dance
-03. O. Dance - On The Beat
-04. Mr. Partyman - Hey Mr. Partyman(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30236D3C29FC1C8E449B894745DFFB9E715F452B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747872   (104612) от 07.09.2024
-
-VA - DJ Vol 351 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MC Rage - Fuck Macarena (Radio Mix)
-02. Tori Amos - Professional Widow (7'' Mix)
-03. Alexia - Numberone (Euro Mix)
-04. Le Click feat. Kayo & Robet - Tonight Is The Night (Spring '97 Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68662BCBB6324715A35B4C37895FFEE6529BF8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1073269   (347945) от 15.11.2016
+
+Dave Pike - Jazz For The Jet Set (1965) Remaster, 2001, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blind Man Blind Man [06:54]
+ 02.Jet Set [05:51]
+ 03.Sunny [03:22]
+ 04.When I'm Gone [03:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BC2542E85F7742986E29AF640E5FE5E8BB2826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257216   (347938) от 25.10.2018
+
+Eric Reed - A Light In Darkness (2017) WJ3 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way to Love [2:56]
+02. Calvary [10:31]
+03. The Promised Land [5:00]
+04. Beauty for Ashes [7:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A459CD986A87EE3A3E4C94E75089BD7847AFF2A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329950   (347859) от 07.10.2019
+
+Portico Quartet - Memory Streams (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. With, Beside, Against [04:11]
+2. Signals in the Dusk [05:31]
+3. Gradient [04:34]
+4. Ways of Seeing [06:10](   Читать дальше...   )Жанр: Ambient, Crossover JazzПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83E6763667FA29663D1B118B36DD70263B7F916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073217   (347795) от 15.11.2016
+
+Barb Jungr - Shelter From The Storm (2016) Linn Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bali Hai [05:36]
+ 02.Stars Lazy But Shining [06:12]
+ 03.Shelter from the Storm [05:24]
+ 04.Sisters of Mercy [05:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECD7864F059FF4174A751C9BDE9B96F1BE13C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257213   (347781) от 25.10.2018
+
+Jeff Hamilton Trio - Live From San Pedro (2018) Capri Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sybille's Day [4:37]
+02. Poinciana [6:11]
+03. Hammer's Tones [3:23]
+04. I Have Dreamed [5:34](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A62D19FC5F26F8EBED2346A52B1AC6464596B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257231   (347776) от 25.10.2018
+
+Beegie Adair & Monica Ramey - Some Enchanted Christmas (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Holiday
+02. The Christmas Song
+03. The Christmas Waltz
+04. Jingle Bells(   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B568BF2BB916B0231B3C574AEDB671257C66B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257219   (347613) от 25.10.2018
 
 Sandro Roy - Souvenir De Paris (2018) Skip Records [FLAC|Lossless|tracks + .cue] <Swing>
@@ -577,180 +751,6 @@ Paul Jackson, Jr. - I Came To Play (1988) Atlantic [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8117C6E7A1CBFD6293ACC0DC1D877B58CA9D591C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179955   (344684) от 02.11.2017
-
-Paul Jackson, Jr. - Out Of The Shadows (1990) 2014, Warner [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Last Forever [05:06]
-02. All for You [05:03]
-03. Days Gone By [05:06]
-04. Encino Shuffle [05:54](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69471694C042782A0B97306B739AE1EBA7DF3C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179656   (344680) от 02.11.2017
-
-Jon Ballantyne And Paul Bley - A Musing (1991) Justin Time Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Conversation [04:55]
-02. Zacotic [03:59]
-03. If You Like [05:19]
-04. Viattya [04:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Piano JazzПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26D9311E490F8628E512D6C29EA15E3E0AE8B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954053   (344660) от 06.11.2015
-
-Wes Montgomery - The Incredible Jazz Guitar Of Wes Montgomery (1960) /2008, Concord/[FLAC|tracks+.cue]<Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Airegin [04:29]
- 02.D-Natural Blues [05:23]
- 03.Polka Dots and Moonbeams [04:43]
- 04.Four on Six [06:16](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A7D2C3C873BB6B478B4705072389C581AEE29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418860   (344308) от 26.10.2020
-
-Karen Souza - Language Of Love (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Masquerade
-02. Everybody Knows
-03. Love's Not Fair
-04. Language Of Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9427762ABFD4AB4797814F8997C66A49A29BD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330216   (343657) от 09.10.2019
-
-Paul Bley - Basics (2001) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Lost [4:42]
-02. Basics [2:29]
-03. Speed Kills [2:04]
-04. Told You So [9:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEDC30EE01D1CCE55D1C62244AD6EF05FC75192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578734   (343649) от 24.09.2022
-
-Enrico Pieranunzi - Jazz Roads (1980) 2002, CAMJazz [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entropy [4:34]
-02. Monologue 1 - Country Sketch [1:28]
-03. New Lands [5:04]
-04. Monologue 2 - Introspection [2:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22663AF9370C1D92299C3C77BC1CBF9D5AC4AC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

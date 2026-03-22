@@ -1,3 +1,119 @@
+###  Публикация: 1265482   (273048) от 29.11.2018
+
+VA - Discofox 2019 (2018) 2CD [MP3|320 Kbps] <Schlager Music, Disco, German Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273048.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Anna-Carina Woitschack - Alles oder nichts (FiWer Remix)
+02. G.G. Anderson - Du hast im Schlaf seinen Namen gesagt (Remix)
+03. Angelique - Ich verlieb Dich(   Читать дальше...   )Жанр: Schlager Music, Disco, German PopПродолжительность: 02:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9073882EBD0095139BC762FA652B889A9B3448B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265834   (273026) от 29.11.2018
+
+Jeff and Jane Hudson - The Middle (2016) [MP3|320 Kbps] <Alternative Pop, Synthpop, New Wave, Electronic Rock, Post Punk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Middle
+02. Innocent
+03. Elephants
+04. Make It So(   Читать дальше...   )Жанр: Alternative Pop, Synthpop, New Wave, Electronic Rock, Post PunkПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B40E09D09388B8F0A3A30170CABB3780915F6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337759   (272363) от 12.11.2019
+
+Boney M. & Friends - Top 40 - Boney M. & Friends (2017) 2CD [MP3|320 Kbps] <Disco, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Ma Baker
+02. Boney M. - Brown Girl In The Ring
+03. Eruption - One Way Ticket
+04. Milli Vanilli - Baby Don't Forget My Number(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 02:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1E93D9B768F2196BDFBE1D139469320C13601A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265811   (271910) от 30.11.2018
+
+VA - 100 Hits – The Best Dance Album (2018) 5CD [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271910.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Eric Prydz - Call On Me
+02. Armand Van Helden Feat. Duane - You Don't Know Me
+03. Roger Sanchez - Another Chance(   Читать дальше...   )Жанр: DanceПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C446A27DFE00C5DAC2EBEC68ED3E746A6780B324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338093   (271646) от 13.11.2019
 
 VA - Pop Muzik - Ultimate Synth-Pop Anthems (2019) 5CD [MP3|320 Kbps] <Pop, Rock, Other>
@@ -629,122 +745,6 @@ Tom Rod - Understand (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA30D180452378CBCA20C642B04715E84162159E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339643   (265342) от 20.11.2019
-
-VA - 100 Greatest Party Starters (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - Be The One 3:23
-02. Daft Punk - One More Time 5:20
-03. Bruno Mars - 24k Magic 3:46
-04. Lizzo - Good As Hell 2:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE80FA51C696C7B1E51600EDE59438A144412F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339451   (265331) от 20.11.2019
-
-Dido - Still on My Mind (2019) Deluxe Edition [MP3|320 Kbps] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Hurricanes [5:17]
- 2 - Give You Up [3:22]
- 3 - Hell After This [3:28]
- 4 - You Don't Need A God [3:32](   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3380E2EBDB9FD0C7015CB6B3B679679589B2F7CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339444   (265315) от 20.11.2019
-
-VA - Take On Me: 80s Anthems - The Ultimate Collection (2019) 5CD [MP3|320 Kbps] <Pop, Disco, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265315.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01.A-Ha - Take On Me
-02.Nena -  99 Red Balloons(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 06:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A65875B2588A5913C13DCEC7200C50D6A2AA2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191517   (264482) от 13.12.2017
-
-Walk the Moon - What If Nothing (2017) [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Press Restart
-02. Headphones
-03. One Foot
-04. Surrender(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A81DDE99C911469706B74536E32053CC9A84D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1358808   (967433) от 09.02.2020
+
+VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daniel Skyver:
+01. Alex Di Stefano - Escape From The Past (Skyver intro edit)
+02. Cirez D - In The Reds
+03. Ruben de Ronde & PROFF feat Deirdre McLaughlin - Fade Away With Me (Key 4050 remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D292BBF66BDBEC29EA940EBD7AF6B47C6D17AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978165   (964584) от 22.01.2016
+
+Dj Sveta - My City (2016) [MP3|320 кб/с] <Progressive House, House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remcord - Saed (Original Mix)
+Lucas Rossi - No Expectations (Original Mix)
+Advent's Rising - Return (Matter Remix)
+PAX - Fated(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144C093246B57F71D73141FFCD54BEEC7FBD78B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 737621   (959383) от 26.01.2016
 
 Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 кб/с]<Progressive House, Electro House, Deep House>
@@ -687,64 +745,6 @@ Aly & Fila - Future Sound Of Egypt 485 (2017) [MP3|320 Kbps] <Trance, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B268EA4ED9E2C9FA7ED39100306CDD0BDBAB242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498631   (852733) от 29.09.2021
-
-Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Andersen - A Storm Is Coming
-02. Luca Agnelli - Blow
-03. Other Form - Further Still
-04. Mattia Saviolo - Sentinella Meccania(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E625205F294B43E0FA01AC89662FFD178F58AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183593   (843920) от 04.10.2021
-
-Third Party - Release Radio (01-54) (2016-2021) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Third Party - Release Radio 001:
-1. Third Party X Sentinel - Real Sound w/ Chemical Brothers - Galavanize
-2. Axwell Ingrosso vs Third Party - Dream Everyday Of My Life
-3. Corey James & Joakim Molitor – Morning Sun(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 52:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFBC161CDAD54D03A061C92E2AEE354680FD5D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1300705   (592772) от 07.05.2019
+
+Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mewtwo Awakes (01:19)
+02. Catching A Cubone (02:05)
+03. Bad News (01:17)
+04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F4036E52366E3583C93BBFB022DFD4DCB2B284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549169   (592637) от 09.05.2022
+
+Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adi Shakti (Live)
+02. Om Poornam (Live)
+03. Loving Awareness (Live)
+04. Sitaram Radeshyam (Live)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFAF70C77645553366D609ABB4B05A29260065B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915388   (592385) от 05.07.2015
+
+Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native American, World, Ethnic Fusion>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Of The Drum (5:31)
+02. Land Of Dreams (5:48)
+03. Awakening (4:23)
+04. Earth Dance (4:42)(   Читать дальше...   )Жанр: Native American, World, Ethnic Fusion, FolkПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15B4183D249E6C8220F50AF50A08DCC58351986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550203   (592153) от 11.05.2022
+
+Spiritu (986) - Spiritu (986) (2000) Legacy Recordings, 2021 Remastered [FLAC|Lossless|WEB-DL|tracks] <Folk, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noche de Luna Llena (Remasterizado) (4:30)
+02. La Sombra del Lobo (Remasterizado) (4:20)
+03. Luar 'Luz de Luna' (Remasterizado) (4:35)
+04. Ataque de Panico (Remasterizado) (3:25)(   Читать дальше...   )Жанр: Electronic, Folk, New AgeПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21F90E561167B0B278C29E8637C1B4C3CFF80A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550837   (591192) от 13.05.2022
+
+Giovanni Marradi - Feelings (1997) [FLAC|Lossless|image + .cue] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For All We Know (4:40)
+02. Annie's Song (2:43)
+03. Mozart's Piano Concerto No. 21 (3:21)
+04. Come Back To Sorrento (3:22)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CA82855CCEA686B2F3AD485C7253D1A7447C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915680   (589960) от 10.07.2015
 
 TYA - Echoes (2015) [MP3|320 кб/с]<New Age, Chillout, World, Tribal>
@@ -606,160 +751,6 @@ Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE57AD6B2E1DC86A789984355B5BF0EDE139EE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918553   (585859) от 16.07.2015
-
-Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, World, Ethno, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Native Soul (4:27)
-02. Iron Buffalo, Tracks of Steel (4:58)
-03. Everything is a Circle (7:06)
-04. Sacred Ground (4:19)(   Читать дальше...   )Жанр: Native American, New Age, World, Ethno, FolkПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0759E9671B259BCD86479CB8DE04C94740FCD079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357450   (585771) от 02.07.2011
-
-OST Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (ITunes Deluxe Exclusive + Gamestop Exclusive) (2011) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Linkin Park - Iridescent (03:59)
-02 Paramore - Monster (03:20)
-03 My Chemical Romance - The Only Hope for Me Is You (04:32)
-04 Taking Back Sunday - Faith (When I Let You Down) (03:09)
-05 Staind - The Bottom (04:21)
-06 Art of Dying - Get Thru This (02:43)
-07 Goo Goo Dolls - All That You Are (03:12)
-08 Theory of a Deadman - Head Above Water (03:32)
-09 Black Veil Brides - Set the World On Fire (03:40)
-10 Skillet - Awake and Alive (Rock Radio Mix) (03:29)(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E411B4BBE6E7F5515EF97792280D3175A4C0057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357621   (585764) от 02.07.2011
-
-Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9996BABADECEFD4780210A0CC7D44B79141C1093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357682   (585759) от 02.07.2011
-
-Трансформеры 3: Тёмная сторона Луны / Transformers 3: Dark of the moon (by Steve Jablonsky) (2011) [MP3|320 kbps]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark side of the moon (03:49)
-02. Sentinel Prime (03:16)
-03. Lost signal (04:08)
-04. In time you'll see (03:16)
-05. Impress me (03:00)
-06. We were gods once (04:22)
-07. Battle (03:40)
-08. There is no plan (03:36)
-09. We all work for the Decepticons (01:51)
-10. The fight will be your own (04:41)(   Читать дальше...   )2011Жанр: ScoreПродолжительность: 00: 59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAEBCCDEA2A0107A940B2A0A8BF81B838845259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552696   (585650) от 22.05.2022
-
-Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnus Deorem (3:45)
-02. Enae Volare (4:39)
-03. Nomen Adore (3:44)
-04. Something Exciting (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79ADB53EEF1DCFE1FF2851EB347048CFC5A32C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1815832   (4666) от 02.09.2025
+
+Linkin Park - From Zero (Expanded Deluxe Edition) (2024) U.S., 093624833468, 2025, 2xCD [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up From The Bottom * (3:03)
+02. Unshatter * (3:16)
+03. Let You Fade * (3:29)
+04. The Emptiness Machine (Live) * (3:18)(   Читать дальше...   )Тип издания: Slipcase With Digisleeve, Deluxe Edition, Expanded EditionЖанр: Alternative / Nu-Metal; Alternative RockПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C444DE8BE922D8D46DD3B9D3EA2CDE35E7D4F243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815968   (4640) от 02.09.2025
+
+Linkin Park - The Hunting Party (2014) Australia, 9362493698 [FLAC|Lossless|image + .cue] <Alternative Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keys To The Kingdom (3:39)
+02. All For Nothing (Feat. Page Hamilton) (3:34)
+03. Guilty All The Same (Feat. Rakim) (5:54)
+04. The Summoning (1:00)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Nu-MetalПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F290F8465F828F83377EACA2301A70C0F374255C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816000   (4424) от 04.09.2025
+
+The Offspring - Running & Cycling with The Offspring (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Out For #1 [00:03:16]
+02. Hit That [00:02:49]
+03. You Can't Get There From Here [00:03:54]
+04. Special Delivery [00:03:00](   Читать дальше...   )Жанр: Rock, Alternative Rock, PunkПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E41FBBE6EC07C7C8CB5586D011A5147B809B83C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362403   (3416) от 11.09.2025
+
+Kasabian - 10 альбомов (2004 - 2024) 15 CD [FLAC|Lossless|tracks + .cue, image + .cue]<Alternative, Elecronic, Neo-Psychedelia>
+
+>>След.
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kasabian — британская рок-группа, образовавшаяся в 1999 году в Лестере, Англия, и исполняющая электронный рок с элементами брит-попа, паб-/панк-рока, даба и клубной танцевальной музыки. Предлагаемый группой удивительный гибрид рок-н-ролла и электроники заставил критиков и слушателей по иному взглянуть на современную рок-музыку. Kasabian не склонны спекулировать модной (   Читать дальше...   )Список альбомов:
+2004 - Kasabian
+2006 - Empire
+2009 - West Ryder Pauper Lunatic Asylum(   Читать дальше...   )Жанр: Alternative, Elecronic, Neo-PsychedeliaПродолжительность: 15:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE74A4137C62C1B2366E7222F4DC897CE3C7CD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817607   (3303) от 11.09.2025
 
 J.R. Richards - My Darkest Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>

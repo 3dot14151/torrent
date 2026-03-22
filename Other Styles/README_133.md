@@ -1,3 +1,154 @@
+###  Публикация: 1332802   (305513) от 24.10.2019
+
+Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dona Nobis Pacem (8:06)
+02. Gloria (10:50)
+03. Kyrie (7:44)
+04. Mea Culpa (6:19)(   Читать дальше...   )Жанр: Chants, WorldПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030BA877F83BBB5C8F7471F0E1A34767C831191C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584828   (305469) от 05.12.2012
+
+VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305469.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beenie Man - King Of The Dancehall
+002. Beenie Man feat. Miss Thang - Dude
+003. Beenie Man - Miss L.A.P.
+004. Beenie Man feat. So Solid Crew - Yagga Yo
+005. Damian Marley - Hey Girl
+006. Damian Marley - Welcome To Jamrock
+007. Lady Saw - Strip Tease
+008. Lady Sovereign - Random
+009. M.I.A. - Fire Fire
+010. Mr. Vegas feat. Wayne Anthony - Pull Up(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 06:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFD49B7111A95752AAF3480E8BEAFD79C95B8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333172   (305269) от 24.10.2019
+
+Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sander van Zanten - Prelude (07:33)
+02. Sander van Zanten - Awakening (Interlude) (00:46)
+03. Sander van Zanten - Separation (02:24)
+04. Sander van Zanten - Preparations (04:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B299F023BDE4C5E79BF110645DB86ACA6C528D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261124   (305197) от 10.11.2018
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 1 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Sonatas KV 545, 330, 284 Eine Kleine Nachtmusik / Alla Turca
+Arranged By – Joze Privsek Composed By – Mozart Conductor – Simon GaleOrchestra – Symphonic Rock Orchestra
+2.	A Choral In Soft Rhythm (Choral)
+Arranged By – Louis AblazzoComposed By – Bach Conductor, Arranged By – John Matz, Peter SchindlerOrchestra – Wave's Computer Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F1705B4D4E0A51702CBC536087F8B4F519B4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255853   (304459) от 10.11.2018
+
+Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 20th Century Fox Fanfare 00:25
+02. Somebody To Love 04:55
+03. Doing All Right (…Revisited) 03:16
+04. Keep Yourself Alive (Live At The Rainbow) 03:56(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4FC73AFD540EEA649655DC293A22E926F4D79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422867   (304290) от 11.11.2020
 
 Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kbps] <Native American, New age, World music>
@@ -606,151 +757,6 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141378520F75BB3E46C284416AC333B32D906D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184437   (301377) от 17.11.2017
-
-VA - Mystical Travel (2007) [MP3|320 Kbps] <Native american, Ethnic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Pretty Things
-02. Cry Dance
-03. A New Morning
-04. Chirapaq(   Читать дальше...   )Жанр: Native american, Ethnic, WorldПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AB3D4CA80C3B2C5F0B006C615F9AD9AA14CA77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184470   (301369) от 17.11.2017
-
-Monica Pereira - Mulher Do Sol (2017) [MP3|320 Kbps] <World, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babaloba (feat. Sidiki Diabate)
-02. Terra Bonito
-03. Nha Badados (feat. Debademba)
-04. Meu Amor(   Читать дальше...   )Жанр: World, FolkПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC3C5D023F05D43174725180EE2E0C3A98C160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333406   (301350) от 26.10.2019
-
-Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic, New Wave>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Was Our House (From "Breathing") (02:01)
-02. Where Did You Go (04:05)
-03. Breathing (02:50)
-04. It's Them (04:35)(   Читать дальше...   )Жанр: Score, Soundtrack, Electronic, New WaveПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C8EC7D9C140D4483C14E15E96B2695754CC690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333615   (301349) от 26.10.2019
-
-Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackway & Black Caviar - What's Up Danger (03:42)
-02. Post Malone & Swae Lee - Sunflower (02:38)
-03. Jaden Smith - Way Up (02:34)
-04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681BAF529FFA30F50068A78E5B21BCAF815CF482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333617   (301341) от 26.10.2019
-
-Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackway & Black Caviar - What's Up Danger (03:42)
-02. Post Malone & Swae Lee - Sunflower (02:38)
-03. Jaden Smith - Way Up (02:34)
-04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE4643A84B154C62C01743321387A736BC807C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,151 @@
+###  Публикация: 1291120   (670695) от 24.03.2019
+
+Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Working on a Song (03:08)
+02. Talking Reality Television Blues (02:34)
+03. Like a Force of Nature (feat. Jason Isbell) (03:54)
+04. Just Like Overnight (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C8F87F345367F778ED33759A6A45DDE2F97BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510253   (670651) от 14.06.2012
+
+Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacques Arcadelt - La pastorella mia [03:03]
+02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
+03. Francesco da Milano - Fantasia 16 [01:10]
+04. Marchetto Cara - Mal un muta per effecto [02:24]
+05. Anonimo - Perla mya cara [02:32]
+06. Francesco da Milano - Fantasia 31 [01:17]
+07. Joan Ambrosio Dalza - Piva [02:04]
+08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
+09. Vincenzo Capirola - Balletto [01:59]
+10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291301   (670575) от 24.03.2019
+
+Balaklava Blues - Fly (2019) [MP3|320 Kbps] <NewAge & Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Be Like This
+02 – Green
+03 – Alive
+04 – Boom Boom(   Читать дальше...   )Жанр: NewAge & MeditativeПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755A0329E5807C0D227101D15F830D0792AF1676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291131   (670490) от 24.03.2019
+
+Royal Philharmonic Orchestra - Rock Dreams 2 (1994) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7E8CADDA5DC99C075FC12585343C8274096BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030793   (670331) от 02.07.2016
+
+Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weisheit und Ruhe [00:02:41]
+02. Das Geheimnis Wasserfall [00:06:38]
+03. Beobachten meine Hande [00:02:58]
+04. Unseren geheimen Ort [00:04:56](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F75CE4318E47131379924528E2B5F3C3149B7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510072   (670316) от 14.06.2012
 
 Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
@@ -616,157 +764,6 @@ VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3402937E59E1C4FCA72F8759BC596502A4E8184B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137630   (666578) от 27.05.2017
-
-VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Estevez - Brisa Mananera
-02. Tchavalito - Paseo
-03. Gipsy Lovers - Recuerdo
-04. Kenichi Tamura - Twilight of Melancholy(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34464C46EFD7FC4BE01D5EF7CAEB602425243846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137616   (666501) от 27.05.2017
-
-Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geoff Zanelli - Dead Men Tell No Tales (01:51)
-02. Geoff Zanelli - Salazar (04:27)
-03. Geoff Zanelli - No Woman Has Ever Handled My Herschel (03:59)
-04. Geoff Zanelli - You Speak of the Trident (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1751D09279F6F23A0210CF74B94DC9ABE25E4B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137617   (666500) от 27.05.2017
-
-Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты Карибского моря - Мертвецы не рассказывают сказки (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks] ...
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geoff Zanelli - Dead Men Tell No Tales (01:51)
-02. Geoff Zanelli - Salazar (04:27)
-03. Geoff Zanelli - No Woman Has Ever Handled My Herschel (03:59)
-04. Geoff Zanelli - You Speak of the Trident (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ECAB3E35C25C7EA84BA441ECF73F4141272742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360809   (666466) от 17.03.2022
-
-Sergio Santini - Коллекция (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (5:19)
-02. Love to the Piano (4:22)
-03. Feeling (4:48)
-04. Last Hope (7:02)(   Читать дальше...   )Жанр: Instrumental, Classical, PianoПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710A8283FE41FF8398AA23C9B585AF866DD4BC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511079   (666227) от 17.06.2012
-
-Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, Post-Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_666227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klang Klang (03:35)
-02. Alarm (05:08)
-03. A Different Kind Of Function (06:06)
-04. Kick-Back-Hub (01:28)
-05. Eksplozije (02:25)
-06. Go Let's Go (05:11)
-07. Derailleur (01:49)
-08. Fuck This Place (04:04)
-09. How We Keep Time (05:02)
-10. Junk The Clatter (08:02)2001-2005Жанр: Experimental, Instrurumental, Post-RockПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

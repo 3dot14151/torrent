@@ -1,3 +1,61 @@
+###  Публикация: 1364155   (939348) от 01.03.2020
+
+Maya Jane Coles - Take Flight (2017) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Deep House, Trip-Hop, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weak (4:35)
+02. Bo & Wing (4:48)
+03. Old Jam (4:49)
+04. Take Flight (4:15)(   Читать дальше...   )Жанр: Electronic, Deep House, Trip-Hop, DownbeatПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AC1EB9762F1BDFEC1E6A08A72BBA57411E2507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092475   (938752) от 12.01.2017
+
+Trentemoller - The Last Resort (2006) Limited Edition [FLAC|Lossless|image + .cue] <Techno, Minimal, Tech House, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Into Your Skin (7:44)
+02. Vamp (4:33)
+03. Evil Dub (6:15)
+04. Always Something Better (6:10)(   Читать дальше...   )Жанр: Techno, Minimal, Tech House, Ambient, ExperimentalПродолжительность: 02:33:38 (01:17:36 + 01:16:02)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B590D51BAC8A54148E04674792FEEDAC484D70AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092649   (938635) от 12.01.2017
 
 Trentemoller - The Trentemoller Chronicles (2007) 2CD [FLAC|Lossless|image + .cue] <Dub, Minimal, Tech House>
@@ -686,64 +744,6 @@ VA - Deep Chilled Island Moods - Volumen Uno (2016) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D63A7B28AB0CFAC1146AB45018B5FA27370CE7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366962   (920717) от 13.03.2020
-
-Four Tet - Sixteen Oceans (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Ambient, IDM, Electronic, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. School (04:02)
-02. Baby (04:24)
-03. Harpsichord (02:53)
-04. Teenage Birdsong (03:25)(   Читать дальше...   )Жанр: House, Ambient, IDM, Electronic, ExperimentalПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8365144E35581D1F52F38B4F252A243CC0827AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490183   (920688) от 19.08.2021
-
-Shingo Nakamura - Glow (The Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darling Midnight (BT Remix) (3:56)
- 02. Before You Go (Matt Fax Remix) (3:14)
- 03. Phenomena (Julian Gray Remix) (4:32)
- 04. Darling Midnight (BT Extended Remix) (5:26)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB1BBE5AFDCADE2677096A4CF43F04E3BD63C14
 ```
 
 https://mybot314.ru/tekegram_catalog/

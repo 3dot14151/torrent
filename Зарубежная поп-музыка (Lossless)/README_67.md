@@ -1,3 +1,235 @@
+###  Публикация: 1335340   (287544) от 02.11.2019
+
+Lana Del Rey - Norman Fucking Rockwell! - 2019 (Japan) (2019) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norman Fucking Rockwell [04:08]
+02. Mariners Apartment Complex [04:07]
+03. Venice bitch [09:37]
+04. Fuck It I Love You [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B78A5CD76071BE4D016EC125FB99CF596298744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963387   (287443) от 08.12.2015
+
+Five - Invincible (2000) Special Edition [FLAC|tracks+.cue]<Pop Rap, Ballad, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Ya Gettin Down (Live) (3:12)
+02. Keep On Movin' (Live) (4:01)
+03. Don't Wanna Let You Go (Live) (2:55)
+04. Everybody Get Up (Live) (3:41)(   Читать дальше...   )Жанр: Pop Rap, Ballad, EuropopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5597C9708B5CBF544F90F9BA3927013C6896570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335379   (287358) от 02.11.2019
+
+Ace Of Base - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Synth-Pop, Euro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287358.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. The Sign (3:11)
+2. All That She Wants (3:32)
+3. Wheel Of Fortune (3:42)(   Читать дальше...   )Жанр: Synth-Pop, Euro PopПродолжительность: 02:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF69B5CC2CFDAEB65ADE6CCD6BDD7650E0F33AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263731   (286303) от 20.11.2018
+
+SX - Eros (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Designed/Desire 03:18
+02. Devotion 03:55
+03. Real Life 03:50
+04. Give 04:05(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA7C6128ABC9481D62BEF0E89EDB7C457C8B780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263683   (286296) от 20.11.2018
+
+Die Priester - Das Beste (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop Crossover, Gregorian Chant>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiritus Dei
+02. Hallelujah
+03. Glorificamus Te
+04. Die Moldau(   Читать дальше...   )Жанр: Pop Crossover, Gregorian ChantПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990A1A7A68C271567DC187FB9236A8C31F3AAB27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186660   (286017) от 25.11.2017
+
+Bjork (Björk) - Utopia (2017) [FLAC|Lossless|tracks + .cue] <Pop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arisen My Senses
+02. Blissing Me
+03. The Gate
+04. Utopia(   Читать дальше...   )Жанр: Pop, ExperimentalПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119D8BA42D42380B4FFC9CBEA336A56D83B35BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963754   (285786) от 09.12.2015
+
+Demis Roussos - Attitudes + Bonus tracks from Reflection (1995) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Follow Me 7:21
+02.Pretender 5:02
+03.Planet Earth Is Blue 5:42
+04.Deepest Of All 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB0DBB04E1F493C61C986259DB2F76AFF8ACAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963885   (285504) от 09.12.2015
+
+Demis Roussos - The Singles+ (2003) 2CD [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Shall Dance 3:33
+02. Fire And Ice 4:33
+03. No Way Out 3:10
+04. My Reason 3:58(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C79EAFC44F9E7B1099D4068516415160C76222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963929   (285493) от 09.12.2015
 
 Gloria Estefan - Unwrapped (2003) [FLAC|tracks+.cue]<Latin, Pop>
@@ -508,235 +740,6 @@ Simply Red - Blue Eyed Soul (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D99AFCDBE5D6D59F958DFC51F77FA87B40C37E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082392   (278886) от 12.12.2016
-
-Supermax - Terminal 2002 (2001) [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuckoo-Nation (5:00)
- 02. Voodoo Asses (4:47)
- 03. Vision (5:30)
- 04. Push Me Up (6:01)(   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FD599AC47CAB58AF5E109ADBA28C3FFBD81FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187579   (278596) от 29.11.2017
-
-Albano & Romina Power - Золотая коллекция Радио 7 DISCO 80 (2005) [APE|Lossless|image + .cue] <Pop, Italo Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felicita (03:16)
-02. Ci Sara (03:28)
-03. Magic Oh Magic (03:37)
-04. Anche Tu (03:28)(   Читать дальше...   )Жанр: Pop, Italo DiscoПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED1905C8D9D2EDD0EBD3628CFFDE5E78BFA4E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264864   (277707) от 25.11.2018
-
-Eros Ramazzotti - Vita Ce N'e (2018) Universal Music Group [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/15. Per Il Resto Tutto Bene (3:26)
- 02/15. Vita Ce N’é (3:12)
- 03/15. Vale Per Sempre | Feat. Alessia Cara (3:25)
- 04/15. Siamo (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4938E7CAC76E3C6F215D1E5DFDBD51C4715AA877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083042   (275691) от 14.12.2016
-
-Sade - The Remix Deluxe (1992) Special Edition [FLAC|Lossless|image + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel No Pain (Nellee Hooper Remix) (5:12)
- 02. Love Is Stronger Than Pride (Mad Professor Remix) (4:29)
- 03. Make Some Room (5:00)
- 04. Paradise (Ronin Remix) (5:44)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BFAC6004B2027929B795B064657375E306746B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265263   (275190) от 27.11.2018
-
-VA - Playlist of Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Santa Baby
-02. Shannon & Keast - O Holy Night
-03. Meg Birch - Santa Claus is Coming to Town
-04. Ed Clarke & Chris Snelling - Winter Wonderland(   Читать дальше...   )Жанр: Pop, Acoustic, Easy ListeningПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D44AE77A69DF6A0237611951286C1583F73CA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337368   (274665) от 10.11.2019
-
-V.A. - The Hits Album: 80s Young Guns (2019) 4CD [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, Dance, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Wham! - Young Guns (Go For It!)
-02. Adam Ant - Goody Two Shoes
-03. Soft Cell - Tainted Love(   Читать дальше...   )Жанр: Pop, Synthpop, Dance, Rock |Продолжительность: 04:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF51379BDFA22355417B8C3026A82EAEDC0DD162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188464   (274520) от 02.12.2017
-
-Mireille Mathieu - Made In France (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, ChansonПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83D685C7925216D3ED1EC76047DAAED8EB44FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188469   (273669) от 03.12.2017
-
-Lucio Dalla - Storie di casa mia (1971) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Itaca
-02 - Un uomo come me
-03 - Il bambino di fumo
-04 - Il colonnello(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796AE908BFAC29431FE04E82229336B344280244
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1455707   (1025496) от 20.03.2021
+
+VA - The Stardust: Future House Party (2021) [MP3|320 Kbps] <Future House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка и космос в наших душах. Безграничная и удивительная Вселенная, вдохновившая прогрессивных авторов эксперимента в электронной музыке на создание их шедевров.001. Simos Tagias - Neutron (Original Mix)
+002. Marco Resmann - Nevertheless
+003. Cybernalia - Emtek (Original Mix)
+004. Gmj And Matter - Perfect Storm(   Читать дальше...   )Жанр: Future House, ElectroПродолжительность: 12:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CB4EAFE4DCD3C964B55A2B850F09A32B43EA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455704   (1025494) от 20.03.2021
+
+VA - The Bliss Sound (2021) [MP3|320 Kbps] <Synthpop, Electro Disco, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам хочется послушать чего-нибудь привычного и не древне-классического, но в более свежем формате и с легкими нотками нестандартной новизны, то тогда рады предложить Вам послушать новый сборник под названием "The Bliss Sound". Отличная студийная пластинка для настоящих ценителей альтернативной музыки.001. Social Ambitions - Turn The Tables
+002. Mondtraeume - Let Me Go
+003. Sonnig 991 - Final Escape
+004. Tribeleader - Start Point(   Читать дальше...   )Жанр: Synthpop, Electro Disco, ElectropopПродолжительность: 07:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B116CCF3C3D04076E78D65D68B388129C929CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455701   (1025492) от 20.03.2021
 
 VA - Neverending Sunrise (2021) [MP3|320 Kbps] <Progressive, Vocal House>
@@ -687,64 +745,6 @@ VA - Zone Bassline (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Dub House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9406E83ACDA8BE18395763C6DB08780F458BE8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458876   (1023491) от 31.03.2021
-
-VA - Club Music vol.2 (2021) [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Нискуба - Балаклава (2:14)
-002. MATTN, Klaas - The Logical Song (2:42)
-003. EQRIC, Xenton, Jex - The Final Countdown (2:24)
-004. Jonas Blue, AWA - Something Stupid (2:56)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 09:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8699040B3B43EC718495293EBFA784419CEDCC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459317   (1023329) от 01.04.2021
-
-VA - Beatport Techno: Electro Sound Pack #268 (2021) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техно охватывает большую аудиторию меломанов и какое-то время было довольно модным явлением. Но любое модное направление рано или поздно сменяется другим, и техно со временем все глубже уходит в андеграунд. Возможно, причина в том, что эту музыку затруднительно слушать дома — она предназначена для клубов, вечеринок и танцев.001. Varuna - Trackjam
-002. Sin Plomo - It's You
-003. Daniel Neuland - Moon Saloon
-004. Goldwave - Reef Radio(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 12:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A8229787EA5D3BE5F8C70882C59C55F7CF10D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

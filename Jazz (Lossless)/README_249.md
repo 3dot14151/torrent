@@ -1,3 +1,177 @@
+###  Публикация: 1466734   (240034) от 01.05.2021
+
+James P. Johnson - 1944 (1995) Classics [FLAC|Lossless|image + .cue] <Ragtime, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Sit Right Down and Write Myself a Letter [2:32]
+02. Keepin' Out of Mischief Now [2:47]
+03. Squeeze Me [2:35]
+04. Honeysuckle Rose [2:58](   Читать дальше...   )Жанр: Ragtime, Stride, Piano JazzПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65AD7557A4F533C4356AC8EA3D21059CE62CEF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466600   (240026) от 01.05.2021
+
+Buck Clayton - 1945 - 1947 (1997) Classics [FLAC|Lossless|image + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm in the Mood for Love [2:41]
+02. Sugar Hips [2:47]
+03. Diga Diga Doo [4:04]
+04. Love Me or Leave Me [4:02](   Читать дальше...   )Жанр: SwingПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE88D7C9158E82DE571F66E50016DE8BF7049B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466601   (240018) от 01.05.2021
+
+Louis Prima - 1935 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plain Old Me [2:46]
+02. How'm I Doin'? (Hey-Hey) [2:39]
+03. Weather Man [3:10]
+04. Solitude [3:07](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235D1A17C5577E40137C523BFFF3A92BA5893339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466607   (240003) от 01.05.2021
+
+Lucky Thompson - 1944 - 1947 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Test Pilots - Part 1 [3:22]
+02. Test Pilots - Part 2 [3:33]
+03. Why Not [2:55]
+04. No-Good Man Blues [3:13](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646A296F0D1A94061C271E017A7BD0A0E9F6C12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466942   (239990) от 01.05.2021
+
+John Goldsby - Viewpoint (2001) [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love Paris (Porter) - 8:19
+02. Cupbearers (McIntosh) - 5:10
+03. Bohemia After Dark (Pettiford) - 4:21
+04. Le Cannet (Lewis) - 5:23(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D989E98749D620B6017E44F336B8EB1875BEB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466736   (239978) от 01.05.2021
+
+Bill Evans - Live At Ronnie Scott's (1968) 2CD, 2020, Resonance Records [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239978.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Sleepin' Bee [5:00]
+02. You're Gonna Hear from Me (Version 1) [3:03]
+03. Yesterdays [4:55](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 01:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D473D768423485F24B78F798300D90AD8A5D2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637455   (239929) от 04.06.2023
 
 Christian McBride's New Jawn - Prime (2023) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Avant-Garde Jazz>
@@ -571,180 +745,6 @@ Shirley Scott - Queen Of The Organ (1964) 1993, GRP [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B630F3EC84D4F41C375E09D04385063D0FEECAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472645   (239452) от 26.05.2021
-
-Milt Hinton, Wendell Marshall, Wyatt Ruther - Basses Loaded! (1955) 2021, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon over Miami [2:59]
-02. I Hear a Rhapsody [2:33]
-03. Prelude to a Kiss [3:16]
-04. Fump [2:48](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956118DBDD10851B40C9F3FEBE187B521D33D78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638145   (239440) от 07.06.2023
-
-Martial Solal - The Vogue Recordings, Vol.1 (1954 - 1957) 1993, Vogue [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dinah [3:03]
-02. La Chaloupee [2:47]
-03. Ramona [2:58]
-04. Once in a While [2:41](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A430CBBBF8DAD23E0FC30EF31C3AF3A2C3EF7310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574253   (239371) от 04.09.2022
-
-Ernie Watts Quartet - Home Light (2018) Flying Dolphin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Forgot August [8:24]
-02. Cafe Central 2am [8:39]
-03. Distant Friends [8:10]
-04. Frequie Flyiers [6:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE68B3242FF30740AA6150623263C4E64894C8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474192   (239346) от 01.06.2021
-
-Michael Dease - Give It All You Got (2021) Posi Tone Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sliver Of Silver [5:48]
-02. The Next Level [5:18]
-03. Parker's Fancy [4:58]
-04. Word To The Wise [5:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9654991C38808F6E2BBDC92301494FB689CB37AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437485   (239239) от 05.01.2021
-
-Oscar Peterson - Oscar Peterson (1951) 1995, Just A Memory Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For You [2:07]
-02. Pennies From Heaven [2:33]
-03. Whispering [1:51]
-04. Body And Soul [3:23](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C06B6B45A3421A927E8D32A40B3BFF9633EFEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476674   (239226) от 12.06.2021
-
-Art Pepper - Seven Classic Albums (1952 - 1960) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tickle Toe [2:52]
-02. Chili Pepper [2:57]
-03. Susie the Poodle [3:11](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 04:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD169B9B91272E5FF3A7503EB3107391E303594
 ```
 
 https://mybot314.ru/tekegram_catalog/

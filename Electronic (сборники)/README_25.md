@@ -1,3 +1,61 @@
+###  Публикация: 984466   (939016) от 09.02.2016
+
+VA - Chill House Diamonds Vol.1 (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tangogroove - My Chance - Tangogroove Red Mix
+02. Tony Moog - Game Now - Jazzhouse Mix
+03. The Loop - Galaxy Mercury - Grooveboy Deep Mix
+04. The Thream - Audio All - Original Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274237028DD286F0AD0DEC966F8E9EAA5402EF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984433   (939015) от 09.02.2016
+
+VA - Plimoot Longe: Dream Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939015.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leo Dj - Doctor Jones - Original Mix
+002. The Cee Lounge - Sexy Soft - Original Mix
+003. Armando Gomez - Victoria Space - Original Mix
+004. Westend Playerz - Real Garage - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A642F958A7B6BC6F1C5479066ABE8FC333886A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984488   (939010) от 09.02.2016
 
 VA - In The Language Of Trance (2016) [MP3|320 кб/с] <Uplifting, Progressive, Vocal Trance>
@@ -690,64 +748,6 @@ VA - Can­dle­light Din­ne Lovely Chillout Tracks (2016) [MP3|320 kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A5E711E360DDA0BA349BB23352BB96711BBB48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093818   (932374) от 16.01.2017
-
-VA - Record Super Chart #470 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Clean Bandit feat Sean Paul & Anne Marie - Rockabye (Denis First Remix)  4:08
-02.  Грибы - Копы (Vincent & Diaz Remix)  4:10
-03.  KSHMR & B3nte & Badjack - The Spook Returns  3:10
-04.  Alan Walker - Alone (DJ Amice Remix)  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1B51DE9D53731270AE0AC26521E8F28FAAF3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093794   (932265) от 16.01.2017
-
-VA - Beauty Inside Dreamland (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Frainbreeze & Lucid Blue - Light My Way (Original Mix)  5:43
-02.  David Gravell - Battlefront (Extended Mix)  5:23
-03.  Heatbeat - Aerys (Mark Sherry Remix)  3:35
-04.  Tycoos - We Will Meet Again (Original Mix)  5:55(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, ProgressiveПродолжительность: 06:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3562A11B9E04A2F66D9FD936B8C5D8D08FED9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1262038   (603995) от 22.04.2019
+
+Gëinst (Geinst) - Discography 5 Releases (2016-2019) Arts [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milobelus (08:08)
+ 02. Mantra (09:16)
+ 03. Totemo (10:13)
+ 04. Ecnart Infinity (08:04)Тип издания: WebЖанр: TechnoПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1009B71D4D347288F44BA212CE2D0E4AA8DEA371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512865   (603808) от 26.04.2022
+
+Boris Brejcha - Never Stop Dancing (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spicy (feat Ginger) (8:52)
+ 02. House Music (feat Arctic Lake) (6:34)
+ 03. Take A Ride (feat Ginger) (8:12)
+ 04. Twisted Reality (7:54)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:444AFC2CF2ED90BAAA18A2EFB3A106AC0E721E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297521   (603632) от 23.04.2019
+
+Sacred Grove - Untitled (2019) City-2 St. Giga [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (02:47)
+ 02. Untitled (04:58)
+ 03. Untitled (05:44)
+ 04. Untitled (05:03)Жанр: Leftfield, Techno, ElectroПродолжительность: 00:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DF7EE452181858DC3A2C01415ED4E9A085DA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297376   (603602) от 23.04.2019
+
+Yotto - Turn It Around (Remixes) (2019) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn It Around (Extended Mix) (6:31)
+ 02. Turn It Around (Monkey Safari Remix) (3:46)
+ 03. Turn It Around (Ruede Hagelstein's Rise Again Remix) (3:54)
+ 04. Turn It Around (Monkey Safari Extended Mix) (7:57)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4966056FE01D78C26D49BFD7888FBE1FD472B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297595   (603552) от 23.04.2019
+
+Bob Moses - All In All (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Hard House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From The Tree (8:07)
+ 02. Winter's Song (7:10)
+ 03. All I Want (7:48)
+ 04. Interloper (4:44)(   Читать дальше...   )Жанр: Electronic, Deep House, Hard House, DowntempoПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7244378AD8B4C0CDAA76D72CBE7861415AD334C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148568   (603449) от 07.07.2017
 
 Lexer - Against The Current (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Progressive House>
@@ -595,151 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71C15E3AF87F1076E679DF29322104B36D1FA0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300748   (592809) от 07.05.2019
-
-Trudge - 100 (2019) 1Ø Pills Mate [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Acid, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A (04:02)
- 02. From Sorrow To Darkness (06:13)
- 03. Burning Inside (05:49)
- 04. Tool (06:39)(   Читать дальше...   )Жанр: Techno, Ambient, Acid, BreaksПродолжительность: 00:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6A3EFA37BDCFC9108520C730D310371449D1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300770   (592762) от 07.05.2019
-
-VA - Purple Disco Machine - Glitterbox - Discotheque (2019) [FLAC|Lossless|WEB-DL|image, tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine - Glitterbox (Discotheque/Purple Disco Day (Continuous Mix) (1:10:26)
-02. Purple Disco Machine - Glitterbox (Discotheque/Purple Disco Day (Continuous Mix) (1:11:45)
-03. Forrrce with No Commercial Interruptions - Keep On Dubbin' (5:04)
-04. Catz 'n Dogz feat. Egla Sirvydyta - Good Touch (Maurice Fulton Remix) (6:13)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 06:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A72C2A2A3AE394F2B62C8F7ADF42B5B2E27818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915974   (591908) от 06.07.2015
-
-Satoshi Tomiie - New Day (2015) [FLAC|tracks + .cue]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night (In This Dream I Watched A Film Of A Dream Within This Dream) [03:28]
-02. Landscape [07:06]
-03. Odyssey [06:52]
-04. New Day (feat. John Schmersal) [06:11](   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E048FEAD290CF170C86D9F7CF08A07FDD7031FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550907   (591223) от 13.05.2022
-
-Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of The Night (4:10)
-02. Let's Get Ridiculous (4:23)
-03. R U Ready 4 The Boom (4:38)
-04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916258   (590929) от 08.07.2015
-
-VA - Nassau Beach Club Ibiza 2015 (2015) 2CD [FLAC|tracks + .cue]<Deep House, Chill House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlena Shaw - Woman Of The Ghetto (Akshin Alizadeh Remix) (2:58)
-02. Mass Digital - Dayspring (6:25)
-03. Parra For Cuva Feat. Anna Naklab - Wicked Games (5:24)
-04. Mash - Style Is The Answer (6:43)(   Читать дальше...   )Жанр: Deep House, Chill House, HouseПродолжительность: 01:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C80C8D4F261B0D9E5B99FA727761707C3BB7DA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

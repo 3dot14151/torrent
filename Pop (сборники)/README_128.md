@@ -1,3 +1,177 @@
+###  Публикация: 1786541   (23906) от 22.03.2025
+
+100 % Disco - Collection (2011) [MP3|320 Kbps] <Disco, Pop, Covers>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way Ticket (3:38)
+02. Give Me Love (3:41)
+03. Funkytown (4:03)
+04. Disco Lights (3:27)(   Читать дальше...   )Жанр: Disco, Pop, CoversПродолжительность: 03:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF344AA8927973D62F4CF6915FFFEFD2199FAC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786539   (23843) от 22.03.2025
+
+Leningrad Nights - Collection (2024) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning of the End (Instrumental) (3:18)
+02. Don't Say Anything (Instrumental) (3:11)
+03. Dangerous Love (7'' Version) (3:23)
+04. Dangerous Love (7'' Instrumental) (3:24)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A969843ED3284628AFA93EE35C3B03B52FFC94A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787460   (23438) от 26.03.2025
+
+Piotr Zylbert - Collection (2024) [MP3|320 Kbps] <Dance, Disco, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (4:47)
+02. An Angel (3:40)
+03. Atmospheric Melody (5:03)
+04. Children (4:02)(   Читать дальше...   )Жанр: Dance, Disco, InstrumentalПродолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C31FAFB4867E7650AA8AA966F8E38DFAB7D232F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790159   (22181) от 07.04.2025
+
+AlimkhanOV A. - Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Nights in the City (feat. Romantic Avenue & Bee Lee) (7:01)
+02. Eyes Of Delight (Extended Mix) (5:52)
+03. Ocean Of Fantasy (80's Extended Mix) (5:12)
+04. Two Hearts - Two Parts (5:44)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 04:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F5B295DB83450F0885E489192FD6B8DCC40DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790155   (22178) от 07.04.2025
+
+AlimkhanOV A. - Cover Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlantis Is Calling (SOS For Love) (MT Cover) (3:59)
+02. Do You Wanna (Disco Magic Remix) (4:47)
+03. Doctor For My Heart (Extended MT Version) (5:38)
+04. Don't Break The Heart (BBB Cover) (3:40)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E1B7F2D71A4E85891CA5F2E8D9F68955151511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790552   (21830) от 10.04.2025
+
+Fantastique - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco,>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Costa Blanca
+  02.  Everybody Loves the Sunshine
+  03.  Mama Told Me .....
+  04.  Your Hand in My Hand(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-Disco,Продолжительность: 00:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371C10278738713F00309171D7E6DCABDDA34AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790840   (21802) от 11.04.2025
 
 Va - Hits that stay forever (2025) [MP3|320 Kbps] <Pop, Dance>
@@ -572,180 +746,6 @@ Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398AD7A6BB3AF9C7C672939AD12736DF7D7EC902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817722   (2646) от 15.09.2025
-
-Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Neverending Story
- 02 - Moonlight Whispers
- 03 - Love in Bloom
- 04 - Frozen Tears(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96270272C507A69EE491FB395ABFBF7E811D633F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818286   (2644) от 15.09.2025
-
-Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Con Te, Sono a Casa (Club Version)
- 02 - L’estate Addosso
- 03 - Solo Io
- 04 - Giochi Di Cuore(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92E96B1683480C41DDF3D79E598F2F6CA3011D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817408   (2630) от 15.09.2025
-
-Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Borrowed Kisses
- 02 - Always Yours
- 03 - True Love Forever
- 04 - It's Magic Tonight(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32773D72484D4A72230BD327F875B6A9074A0FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818115   (2618) от 15.09.2025
-
-Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Can't Stop This Love Inside (C.C.Catch - I Can Lose My Heart Tonight)
- 02 - Midnight Heartbeat
- 03 - Baby, Baby, Hold Me 2 (Modern Talking - Cheri Cheri Lady)
- 04 - You're My Heaven (Alternate Version) Bad Boy Blue - You're a Woman(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5ED598F293968B3A6D491A1C60A3710BA49EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817866   (2612) от 15.09.2025
-
-Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Numero Uno
- 02 - Pasta Con Te (Dream Version)
- 03 - Non Mi Amava Più (Club Version)
- 04 - Bella Bavaria(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0697099B1E10B7126623E25EA8FABA2B1ACB505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818850   (2000) от 19.09.2025
-
-Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - It's Your Fault
- 02 - More Than Words
- 03 - Good Night My Darling
- 04 - Endless Love(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F8CDE6E794897F0DC720E0DB097C7FA3342509
 ```
 
 https://mybot314.ru/tekegram_catalog/

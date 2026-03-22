@@ -1,3 +1,153 @@
+###  Публикация: 1574722   (383762) от 06.09.2022
+
+Nils Hoffmann - A Radiant Sign (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Radiant Sign (ft. Niklas Paschburg) (2:49)
+ 02. Afterglow (3:27)
+ 03. Let Me Go (feat. TENDER) (3:10)
+ 04. Far Behind (feat. Panama) (3:55)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262D11826A5D9087651A24FF3B71D86FE7F2B8F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326625   (383510) от 21.09.2019
+
+Second Tension - Assembly Point (2017) Monolith Rec [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ally (07:26)
+ 02. Assembly Point (06:56)
+ 03. Esoteric Flame (07:22)
+ 04. Kinetic (09:01)Жанр: Techno, IndustrialПродолжительность: 00:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECCB22CC72A9F441B76623AF981E2FEED4872A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253502   (381700) от 10.10.2018
+
+Maribou State - Kingdoms In Colour (2018) Japan Edition [FLAC|Lossless|tracks + .cue] <Leftfield, Downtempo, Post Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginner's Luck (4:28)
+02. Kingdom (4:10)
+03. Turnmills (5:04)
+04. Nervous Tics (feat. Holly Walker) (4:14)(   Читать дальше...   )Жанр: Leftfield, Downtempo, Post RockПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5AD22BFBCA21B27D7FB9C5EF7860BC2F26C5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574792   (381540) от 07.09.2022
+
+George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Deep House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further and Further [00:02:02]
+02. Passed Tense [00:04:01]
+03. Rainbows and Dreams [00:04:41]
+04. Cold [00:04:42](   Читать дальше...   )Жанр: Downtempo, Deep House, ElectronicПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD59E837C9B8969A8935CA2F224DEEF52122C590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572187   (380435) от 10.11.2012
+
+Jean Michel Jarre - Complete Oxygene (1997) [FLAC|Lossless]<Ambient,  New Age,  Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_380435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient,  New Age,  ElectronicПродолжительность: 00:46:49
+01. Oxygene Part 7 (11:33)
+02. Oxygene Part 8 (3:54)
+03. Oxygene Part 9 (6:13)
+04. Oxygene Part 10 (4:16)
+05. Oxygene Part 11 (4:58)
+06. Oxygene Part 12 (5:41)
+07. Oxygene Part 13 (4:41)
+08. Oxygen In Moscow (Bonus) (5:32)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175452   (379041) от 18.10.2017
 
 VA - Amsterdam Coffeeshop Chillout Vol.13 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -594,151 +744,6 @@ VA - Dantze: Sunburn Compilation (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFCC586F2D8813F8606743DF1D66518DC1613428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951717   (361146) от 30.10.2015
-
-Kangding Ray - Cory Arcane (2015) [FLAC|Lossless|WEB-DL]<Techno, IDM, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acto (04:47)
-02. Dark Barker (05:09)
-03. Brume (04:20)
-04. These Are My Rivers (08:10)(   Читать дальше...   )Жанр: Techno, IDM, ExperimentalПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B3A32CB0A17398524230F8F063A613F07B99F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328902   (359270) от 02.10.2019
-
-Brickman - Collection 6 Releases (2010-2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep Techno, Dub Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seashore (6:02)
-02. Fractal Vision (6:27)
-03. Red Lake District (7:23)
-04. Meditation (7:29)(   Читать дальше...   )Жанр: Electronic, Deep Techno, Dub Techno, Minimal |Продолжительность: 00:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44296C057216B5A1E83DC8AB1B800CCAF8F8C5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256038   (359032) от 20.10.2018
-
-Dirty Vegas - Photograph (2015) D:vision Records [FLAC|Lossless|WEB-DL|tracks] <House, Pop, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/14. Let the Night (3:28)
- 02/14. Setting Sun (3:30)
- 03/14. Do What You Feel (4:01)
- 04/14. Photograph (4:44)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438C132FAE334A4807B7C6CDA2C8BA022CC1FDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417373   (358066) от 20.10.2020
-
-Ulro - The Land Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immersed In Foggy Emotions (06:39)
- 02. Satyr (10:34)
- 03. Rewinded Into South (04:36)
- 04. Selective Remembering (08:27)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7C4159C05CCA2CDDBD2B6044C53C34ACDFE59D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071758   (357216) от 11.11.2016
-
-Dino Sabatini - Discography 17 Releases (2008-2016) Prologue, Outis Music [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Minimal, Tribal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes Back (Touched By Howie B) (06:16)
- 02. If (Dino Sabatini Variation) (feat. Antonello Salis) (05:19)
- 03. The Unexpected (ASC's Grey Area Remix) (07:17)
- 04. And It All Ends Here (Salis & Sabatini Variation) (04:05)Жанр: Techno, Ambient, Minimal, Tribal •Продолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42BD417CD5AA6C7164B8B309BD4ECBB5A57E818
 ```
 
 https://mybot314.ru/tekegram_catalog/

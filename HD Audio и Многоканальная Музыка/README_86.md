@@ -1,3 +1,319 @@
+###  Публикация: 1690984   (123246) от 12.01.2024
+
+Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Progressive Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Group Therapy Intro (ABGTN2024D) [0:32]
+02 - Light For Me (ABGTN2024D) [4:34]
+03 - Group Therapy (Messages Pt. 1)Жанр: Electronic, Progressive House, Progressive TranceПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445A2AA201C764C0B00B7166DAFD72EAD3BE0D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691146   (123243) от 12.01.2024
+
+Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black, Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123243.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Estorat Taghoot
+A2 Fe Al Diaji
+A3 Hayat Al Khlood
+A4 Al Jahliyah(   Читать дальше...   )Жанр: Black, Folk MetalПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADB02171C9E835554D51F1A404B83A1873CA82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689890   (123242) от 12.01.2024
+
+Athemon - Athemon (2022) Reissue, 2024, Athemon [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perception [00:03:15]
+02. Whispers [00:05:28]
+03. The Glass Hindered Us [00:03:57]
+04. Different from What Was Missing [00:05:22](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B618E10AEAAD52B2985C0BFA62E80B3C67F9A247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690861   (123241) от 12.01.2024
+
+Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123241.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fight Or Flight
+A2. Are We Soldiers
+A3. Control Conquer Collide
+B1. From Saviour To Assassin(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CEABB8030D1F0FC2F6CE903CFDE3F12975DC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689723   (123238) от 12.01.2024
+
+Infernal Poetry - Studio Albums (4 releases) (2002-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death/Avant-garde Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infernal Poetry — итальянская дэт-метал-группа из Анконы, образовавшаяся в 1996 году и распавшаяся в 2014 году.2002 - Not Light But Rather Visible Darkness
+2005 - Beholding the Unpure
+2009 - Nervous System Failure
+2013 - ParaphiliacЖанр: Progressive Death/Avant-garde Metal/MetalcoreПродолжительность: 02:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E43A6BA1CA8E417795BA618AFB52F3DCDDD3D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691341   (123237) от 12.01.2024
+
+Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Green Labyrinth - швейцарская прогрессив-метал группа, основанная в 2008 году.2014 - Shadow of My Past
+2023 - SequencesЖанр: Progressive MetalПродолжительность: 02:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17FE29B954AEFD226983AE6C6E1E90B506EC7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691290   (123125) от 13.01.2024
+
+БГ (Борис Гребенщиков) - Songs of Clear Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <New Age, meditative>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Saraswati intro
+2. Hanuman
+3. Om Namah Shivaya
+4. Charam Charam(   Читать дальше...   )Жанр: New Age, meditativeПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13488598352C9B1FD4A342D7C86CEBDF9A165DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691763   (123116) от 13.01.2024
+
+Валерий Леонтьев - Четыре альбома (1984-1988) [FLAC|Lossless|image + .cue] <New Wave, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123116.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:40:04
+
+A1 Я — Просто Певец • I'm Only A Singer
+(Л. Квинт – Н. Денисов)(   Читать дальше...   )Жанр: New Wave, Synth-pop, DiscoПродолжительность: 02:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E74F8F0520A8681935D11A5BB56057346E0A1B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691736   (123111) от 13.01.2024
+
+Exit Eden - Femmes Fatales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Melodic Metal, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Femme Fatale
+02. It's A Sin (Pet Shop Boys cover)
+03. Run! (ft. Marko Hietala)
+04. Separate Ways (Journey cover)(   Читать дальше...   )Жанр: Symphonic, Melodic Metal, Female VocalПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C912347AE4CE8BB094AF80A25561D18E5714B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691750   (123091) от 13.01.2024
+
+Russell - Guns (Jack Russell, Tracii Guns) - Medusa (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Next In Line
+02. Tell Me Why
+03. Coming Down
+04. Where I Belong(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C68DCFDA7A38E70B3A4A91D66A0E92528DE6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691719   (123086) от 13.01.2024
+
+Neal Morse - The Restoration - Joseph: Part Two (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Mess (6:10)
+02. My Dream (2:40)
+03. Dreamer In The Jailhouse (5:53)
+04. All Hail (6:47)(   Читать дальше...   )Жанр: Progressive Rock / Symphonic Prog / Hard RockПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEBBBE5FCE72C3FB60389BD5B5F5D9BD1C15D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691748   (123070) от 13.01.2024
 
 The Grandmaster - Black Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
@@ -425,325 +741,6 @@ Vesta Lugg - Muy Mucho (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:379A2924704AB02C4CFA3C825A6DD79E66B22721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692226   (122722) от 15.01.2024
-
-Chris Wragg and Greg Copeland - The Last Sundown (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabama Train (3:54)
-02. Can't Shake These Blues (4:52)
-03. 1964 (6:33)
-04. Don't Let The Devil Ride (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2D446B552D97124954E116EA1B878A3CAAF0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692228   (122719) от 15.01.2024
-
-Sean McKee Band - In This Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lusting For Gold (3:14)
-02. In This Life (2:51)
-03. Broke Tired and Lonely (3:15)
-04. East Valley Lane (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EAE5ABB46CF5C9DDB868E8648B02058D8959FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692229   (122704) от 15.01.2024
-
-The Fixed Trio - Talladega (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:47)
-02. Keep It Down (2:28)
-03. Talladega (3:16)
-04. Nice! (2:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BD213F1A46D85F87CD1173520284213C352B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692516   (122519) от 16.01.2024
-
-Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122519.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Asl
-A2. Born To Survive
-A3. You've Lost Yourself
-A4. Dance(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4B718E820F99A53875D54D416B7ABC7F9D2CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692275   (122507) от 16.01.2024
-
-Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anthem — метал-группа из Японии, основанная в 1981 году в Токио.1985 - Anthem
-1986 - Tightrope
-1987 - Bound To Break
-1988 - Gypsy WaysЖанр: Heavy/Power MetalПродолжительность: 16:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6711036FF2939873896775730D1A71597E5C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692491   (122494) от 16.01.2024
-
-Lair - The Hidden Shiv (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Sludge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Taken Apart (00:04:38)
-02 - A Human Trench, Pt. 1 (00:05:30)
-03 - Saltlicker (00:06:23)
-04 - Something's at the Door (00:04:51)(   Читать дальше...   )Жанр: Doom Metal, SludgeПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28509FAFDCC92B057D5BEF6A94B4BF8F7E6E0188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692286   (122493) от 16.01.2024
-
-Elegy - Graveflowers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graveflowers
-02. Ship Of Hopes
-03. In Exodus
-04. Mirages(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0999F1D938E589B2DC8DC9A2DAED2016336FE81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692347   (122489) от 16.01.2024
-
-Hannah Wicklund - The Prize (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell in the Hallway (03:33)
-02. Witness (04:16)
-03. Hide and Seek (04:17)
-04. Lost Love (02:47)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Female VocalПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3AF2DAA8C2BE8D6E64950D3A4973C0D51D1CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692743   (122344) от 17.01.2024
-
-Bagual - Inhumar (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Psych/Stoner/Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inhvmar [00:02:59]
-02. Panteones [00:04:03]
-03. Volcanes [00:06:19]
-04. Monolitos [00:04:33](   Читать дальше...   )Жанр: Heavy Psych/Stoner/ProgПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E450DDEE439BCB1EA963D490BE09E7F3FED2C2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692697   (122343) от 17.01.2024
-
-Greg Puciato - FC5N (2024) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You, Staring at Me, Staring at You [00:01:11]
-02. Absence as a Presence [00:05:20]
-03. Don't Wanna Deal [00:02:59]
-04. Crazy All Around [00:05:59](   Читать дальше...   )Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 00:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1F9BF79A1DA73CA8F7329CA463D4BAF7557FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692668   (122326) от 17.01.2024
-
-Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122326.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vermin Feast
-A2 Esophageal Mutilation
-B1 Coffin Birth
-B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
 ```
 
 https://mybot314.ru/tekegram_catalog/

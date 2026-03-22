@@ -1,3 +1,32 @@
+###  Публикация: 1056006   (483293) от 24.09.2016
+
+Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered [MP3|320 Kbps] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Around (Northern Lights Club Mix) (Remastered 2016) (10:28)
+02. Age Of Loneliness (Enigmatic Club Mix) (Remastered 2016) (6:15)
+03. Push The Limits (ATB Remix) (Remastered 2016) (7:51)
+04. Gravity Of Love (Judgement Day Club Mix) (Remastered 2016) (5:59)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3B744D8EFDE4A04DE73F0250D5DB98AE5B531B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545038   (483224) от 11.09.2012
 
 Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Meditative>
@@ -734,35 +763,6 @@ VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4160BCC28CD775F110941C33A77C5C49D7618A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568851   (453497) от 12.08.2022
-
-Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Spirits               	3:30
-02. Close To Heaven            	3:49
-03. Can You Heal Me?         	4:18
-04. Believe In Your Dreams!	4:04(   Читать дальше...   )Жанр: New Age, TribalПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A3FFC11787C1B88272D3338BBD23369621442
 ```
 
 https://mybot314.ru/tekegram_catalog/

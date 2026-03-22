@@ -1,3 +1,32 @@
+###  Публикация: 1436924   (1042814) от 02.01.2021
+
+Rubicon - Demonstar (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demon star (04:07)
+ 02. Neon Gladiators (04:32)
+ 03. Last floor of hell (05:55)
+ 04. Down in darkness (05:55)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCD56542FD158A9EE631CB401D9CCE4B3A794E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436727   (1042808) от 02.01.2021
 
 Dread Sovereign - Alchemical Warfare (2021) [MP3|320 Kbps] <Doom Metal>
@@ -715,35 +744,6 @@ Kat - The Last Convoy (2020) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4BA0E5855BA712E26E1FDAE7C0B132B41E72B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438870   (1040646) от 10.01.2021
-
-The Rods - Brotherhood Of Metal (2019) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brotherhood of Metal (07:28)
- 02. Everybody's Rockin' (03:57)
- 03. Smoke on the Horizon (04:47)
- 04. Louder Than Loud (04:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A28D9AB62CCA3F7C0B1385AB5B9E821F8FB83C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1177834   (355496) от 28.10.2017
+
+Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ragnarok Suite (08:53)
+02. Running Short on Options (02:47)
+03. Thor: Ragnarok (01:10)
+04. Weird Things Happen (01:47)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8661D686F91294C0051308A401E72BC3BF28B6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 723663   (355312) от 18.11.2013
+
+Хелависа & Лазерсон и друзья - Новые Ботинки (2013) [MP3|320 кб/с]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355312.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sgt. Early's Dream/Rectory Reel
+2. Nead na Lachan
+3. An Spealadóir/Brògan Ùra
+4. Cowboi-2013
+5. Y Ddau Farch
+6. The Brown and the Yellow Ale
+7. Alasdair Mhic Cholla Ghasda
+8. M'Fhearann Saidhbhi
+9. Hùg Air A' Bhonaid Mhòir
+10. Coisich, A Ruin(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCCCF0BFEB9198311AFC019A35CF9E7E8AA6900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206525   (355050) от 18.11.2013
+
+Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_355050.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:13) 01. Bemirid (Rumi)
+(3:58) 02. Love Stories
+(4:54) 03. Persian New Year
+(2:51) 04. Roots
+(4:38) 05. Exhausted
+(4:04) 06. Barbie
+(4:58) 07. If You Go a Way
+(4:03) 08. Tears & Sensations
+(6:00) 09. Rest On My Shoulders
+(4:19) 10. Trapped in the Darkness(   Читать дальше...   )Жанр: New age, Flamenco, FolkПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329408   (354445) от 04.10.2019
+
+David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Of The Desert
+02. Valley Of Peace
+03. Three Sisters
+04. Sunset On The Mesa(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D035D8B1653ECFE080BBBED8487883AA1AB10E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256494   (354271) от 22.10.2018
+
+Greg Maroney - Fall (2018) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swirling Leaves (4:22)
+02. Last Days of Summer (3:48)
+03. I Walk Alone (4:39)
+04. Murmuration (3:45)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88F059A04B1BA69FF92504F5BE9D6057BD9C383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256552   (354266) от 22.10.2018
 
 Ernest Lyons - Sleep Naturally (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -604,151 +761,6 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84BB9FBBA149017393077AD1E9E2888CDB3CDFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138183   (351861) от 05.10.2019
-
-Норд-Ост [Полная версия на трёх компакт-дисках] (2005) [FLAC|Lossless|image + .cue] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это возвышенная и драматическая история любви, в которой, как в капле воды, преломляется история великой страны и великих открытий.01. Увертюра
-02. Гибель почтальона
-03. пристань
-04. Московский скорый(   Читать дальше...   )Жанр: OSTПродолжительность: 02:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB45D875D38C10FC2AC6FDFF89B3864F44D790C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072077   (351835) от 13.11.2016
-
-Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival (02:51)
-02. Heptapod B (03:43)
-03. Sapir- Whorf (01:17)
-04. Hydraulic Lift (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758A2FCDC9C8749F14B459382A5189D692EF5689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072432   (351831) от 13.11.2016
-
-Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [FLAC 2.0|48/24|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shells Landing (01:30)
-02. Around The Clock News (01:45)
-03. The Shell (03:12)
-04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE9BB24C397390DE7ADA3DF3CE5B08C58FEFD85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072434   (351715) от 13.11.2016
-
-Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shells Landing (01:30)
-02. Around The Clock News (01:45)
-03. The Shell (03:12)
-04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0409D2382028CBF24D22EB7A319F64D1314AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179243   (351518) от 30.10.2017
-
-Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Affirmation (3:15)
-02. Denials and Accusations (5:57)
-03. Touching Planet Earth (5:31)
-04. Blind Panic (4:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA702F9BD36A48AD6015337407C53498CBB2C5BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

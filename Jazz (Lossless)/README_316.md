@@ -1,3 +1,177 @@
+###  Публикация: 1708307   (113092) от 20.03.2024
+
+VA - Bar Lounge Costes 8: Chillout Uplifting Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digby Jones - Le Glacier (Dusty Mix) (2:35)
+02. Lennart Richter - Ride Along (3:24)
+03. Gary B - Breakout (2:52)
+04. Marga Sol - Excuses (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9831B8474D7F6DEED508C6832CF37012D91B9D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708309   (113090) от 20.03.2024
+
+VA - Blueberry Cafe 2024 Soulful House Mood (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Electronic, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lennart Richter - Break of Day (4:24)
+02. Marga Sol - Changes (6:22)
+03. Ivory Coats - Lately (3:48)
+04. Nenad J. - Poolside Vibes (6:46)(   Читать дальше...   )Жанр: Smooth Jazz, Electronic, SoulПродолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641DFE6456C170F83D8263FE46EA16210537648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708311   (113081) от 20.03.2024
+
+VA - Travel & Living Lounge, Vol. 1: Traveling Chillout Moods (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz, Lounge, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Beachside (2:03)
+02. Mathieu - Primavera (4:14)
+03. Living Room - Don't Cry Baby (2:40)
+04. Autonne - Glass Eye (2:45)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary Jazz, Lounge, Easy ListeningПродолжительность: 01:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E905EC735A3C1273F395145A35B32F3C019061D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708304   (113065) от 20.03.2024
+
+Selmi - Last Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nosta (3:58)
+02. Last Dream (2:58)
+03. Selma (3:56)
+04. Nour (5:18)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B7AB3CFF4B469128C681203D7B3383E2D40BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708310   (113062) от 20.03.2024
+
+VA - Happy Easter Jazz (Spring Positive Music) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florian Reach - The Old Cinema (6:54)
+02. Ray Steward - Heaven (7:08)
+03. Don Ruiz - Route 5 (4:44)
+04. Don Ruiz - Good Old Days (5:12)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D87E234AD741EAA947988089246ED0AACC35F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708288   (113051) от 20.03.2024
+
+The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whisper Not [11:30]
+02. Sad to Say [6:11]
+03. Are You Real [8:29]
+04. Autumn Leaves [14:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485B738F98255529604E254314DDE23219F09C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708290   (113050) от 20.03.2024
 
 The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -569,180 +743,6 @@ Jimmy Rosenberg - The One And Only (1998) Hot Club Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69DFD54935687B3977F39A37FF958EFB7F8961B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711272   (112531) от 29.03.2024
-
-Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Release: Home: Beyond This Rage [7:51]
-02. Sweet Release: Church: Renewing Vows [7:19]
-03. Sweet Release: Church Basement: Party [5:28]
-04. Sweet Release: Street: Make Room for Me [4:24](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Modern Big BandПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922B882014D8E69E9A8F531A7DFDD78931A5AAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711345   (112530) от 29.03.2024
-
-Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anything
-02. Too Forever
-03. Chicken Shack
-04. It Hits Different(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FE9604A33B6055D3FAB881B51F5A7619F08E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711376   (112451) от 30.03.2024
-
-Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Out Of Town [2:58]
-02. S'Wonderful/They Can't Take That Away From Me [4:07]
-03. Just The Way You Look Tonight [5:41]
-04. Honeysuckle Rose [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBCD3B83A262E0F63D4F13A2697835C2B96CDA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371280   (112436) от 31.03.2024
-
-Mop Mop - Lunar Love (2016) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alfa
-02. Adhara
-03. Totem (feat. Anthony Joseph)
-04. Spaceship: Earth (feat. Anthony Joseph)(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF8C3AB632676B09B0890979F19FE1968B2B15B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371286   (112435) от 31.03.2024
-
-Mop Mop - Ritual Of The Savage (2010) [FLAC|Lossless|image + .cue] <Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Return Of The King
-02. Destination
-03. Ash
-04. Mr.Know It All(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1220B55BD2CE0EE8FCF6597F7165BB110F856E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711621   (112333) от 31.03.2024
-
-Mike Mainieri - An American Diary: The Dreamings (1997) 1999, NYC Records [APE|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R  Is for Riddle [6:28]
-02. Los Dos Lorettas [5:21]
-03. The Dreamings [6:32]
-04. Schecharchoret [5:28](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD3884F40B0164DF076FD69EDE855EF58AC37EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

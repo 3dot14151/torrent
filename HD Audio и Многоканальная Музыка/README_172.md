@@ -1,3 +1,322 @@
+###  Публикация: 1822372   (100773) от 06.10.2025
+
+Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  No Easy Way Out (4:27)
+02.  Danger Zone (3:30)
+03.  Rebel Yell (3:33)
+04.  Maniac (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73679C525BCABFB91C56237ADA73211C0E38FA1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822387   (100758) от 06.10.2025
+
+Epitaph - Don't Let The Gray Hair Fool You (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  One Heart (6:16)
+02.  Cold Light Of Day (5:28)
+03.  Don't Be Afraid (7:06)
+04.  Don't Let The Gray Hair Fool You (4:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D79E0EF9CB1C97A3E2C001C40910B87B8D2A95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822390   (100757) от 06.10.2025
+
+Mystic Majesty - Ad Maiora Semper (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mastermind (4:23)
+02.  Missing Pieces (2:38)
+03.  Sea of Snakes (4:58)
+04.  Midnight Sun (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FBF4CAF8725A3CAA1772C7183701CAEBC4864E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822394   (100755) от 06.10.2025
+
+Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bus Stop (2:37)
+02.  Mawil (2:42)
+03.  Subways (2:19)
+04.  Magnolia Boulevard (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822399   (100752) от 06.10.2025
+
+Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  East of the Sun (3:58)
+02.  Warm Embrace (4:45)
+03.  Moonlight In Vermont (4:28)
+04.  Ruby My Dear (7:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822404   (100751) от 06.10.2025
+
+Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ginja (3:00)
+02.  Paradox (3:43)
+03.  Frisky (3:00)
+04.  Soundwave (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE841E62C6303B2C511D7C99D1F6E6FFDBB887E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822409   (100750) от 06.10.2025
+
+Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mirrored (3:03)
+02.  Despite Everything (5:59)
+03.  Facing the Opposite (5:20)
+04.  March for Peace (8:26)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8FEDD59FBE479B87A85B9269E6ACD31997FE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822412   (100749) от 06.10.2025
+
+Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro (2:11)
+02.  Wir sind wieder da (3:34)
+03.  Kein Weg zu lang (3:03)
+04.  Für immer verbunden (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521A684D362C45934A71091E23E765450F85DB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822414   (100748) от 06.10.2025
+
+Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Northgate Way (4:05)
+02.  Never Hurts Never Mind (4:07)
+03.  All in Who You Know (3:32)
+04.  Peace Sign Pentagram (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E0F5D9504FF523A789B8519238CD47EFEE9DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822418   (100746) от 06.10.2025
+
+Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Praise / Strong Woman (9:35)
+02.  Freedom Song (4:54)
+03.  Woodstock / Go (7:48)
+04.  No Mind (6:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1137566A863DA2F584A29CB23FBBC3CBD3BC9DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822419   (100745) от 06.10.2025
+
+Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soul Brass (3:22)
+02.  CITY COLLECTIVE (3:10)
+03.  Piano Strumming (3:11)
+04.  Da Simplicity (3:03)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77F81635E1B112F2C6D6E1B8139BCDDC3207DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822422   (100743) от 06.10.2025
 
 Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -423,322 +742,6 @@ Mike McCorison lyric writer - The Wild Viking Project V2 (2024) [FLAC 24/48|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A1AF9D7EBC03B3A10E0ADC84B35A5380D14312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769740   (100648) от 29.12.2024
-
-FROM - Can’t Stand The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anytime You Want (Album Version) (3:59)
-02. Jailhouse Blues (3:15)
-03. Can't Stand The Blues (3:22)
-04. Don't Step Out Of Line (3:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFCF9B803C010489517C50021966DE391781D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770163   (100608) от 30.12.2024
-
-Natalia Lafourcade - Natalia Lafourcade Live at Carnegie Hall 2022 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Son, Bolero, Jazz, Latin>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (En VivoЖанр: Son, Bolero, Jazz, LatinПродолжительность: 01:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C5A63E8D8FC5248106E80DDF6878F3226E3142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770082   (100606) от 30.12.2024
-
-Настя Кравченко - Первый альбом (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_100606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чокнутая любовь [00:03:21]
-02. Картошка [00:02:51]
-03. Это Я [00:03:10]
-04. Алешка [00:02:43](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0AC0A5209602425CE85B042EEEA6DA071124033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770344   (100558) от 31.12.2024
-
-Bump2Soul - Bump2Soul Live Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We are Bump2Soul - Live at TONE Studio, Seoul (1:38)
-02. Let’s Clap - Live at TONE Studio, Seoul (5:05)
-03. Dopamine - Live at TONE Studio, Seoul (4:17)
-04. Do you like F? - Live at TONE Studio, Seoul (5:12)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635CA79CBAD602C7CBC0843040BBA14AA58C8AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770340   (100557) от 31.12.2024
-
-A Plane To Catch - Soul Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bamako Convention Center (4:48)
-02.  Corny Big (4:58)
-03.  Mr. Well Dressed (4:25)
-04.  At Least The Sky Is Blue (6:34)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFEE42248294764046708E27FCCEE20122FCB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770347   (100556) от 31.12.2024
-
-Juanma Torres - Swing City Sessions #3 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three O'Clock Blues (3:42)
-02. Fruit Boots (2:34)
-03. Tell me what's the reason (2:39)
-04. Mary Ann (4:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E4767ACDA3B85045987BB87E081E85D89BC19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770350   (100555) от 31.12.2024
-
-Leavin' Trunk - The River (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claw Hammer (4:27)
-02. Shop Around (3:34)
-03. Trying to Live My Life Without You (4:07)
-04. The Love Mechanic (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85D7619B7FC6642AD7E134785B519085544DA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770360   (100553) от 31.12.2024
-
-Rick Fowler Band - RFB (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hitchhiking (5:02)
-02. Worried About It (6:27)
-03. Willoughby, for Mr. Serling (4:08)
-04. Close to the Truth (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B2B696ACE10BAC26165F9B814FD0D36424E796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770356   (100551) от 31.12.2024
-
-Omar And The Howlers - Rhythm and Western (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get No Grindin' (2:15)
-02. Pipeline (2:42)
-03. Long Distance Call (3:31)
-04. Ida Red (2:34)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C22A2BB9A4DC9EE39422E544BA26237D8D7F2A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770352   (100550) от 31.12.2024
-
-Lo Greco Bros, The Man With The Horn and Soulstance - The Electric Sessions  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Electric Session, Burning Again (4:16)
-02. Lazy Night (3:21)
-03. Don't Get Me Around (5:22)
-04. Junky Funky (4:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0638F2B64387146E2372E62228BCECB18D672E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770277   (100549) от 31.12.2024
-
-Forever Desire - Beings of Wonder (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad of the Broken Bard [00:04:39]
-02. Mistress of Nightfall [00:04:38]
-03. The Siren and the Sailor [00:07:41]
-04. Jester [00:04:44](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalsПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1F8C4162DD55BD9E3E4FB8C346265A73FDAF08
 ```
 
 https://mybot314.ru/tekegram_catalog/

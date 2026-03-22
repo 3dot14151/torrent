@@ -1,3 +1,32 @@
+###  Публикация: 1356588   (978004) от 31.01.2020
+
+Sarah Where Is My Tea - Love & Honor (2013) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebellion (2:53)
+ 02. The Idols Inside Us (3:23)
+ 03. Black Cell (3:56)
+ 04. Serenity (3:17)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15F9C21EB63E5D12AF21910DD9AABE91C0360FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 220857   (976027) от 09.02.2013
 
 ГDР (ГДР) - 4 альбома+Bonus (2006-2011) [FLAC|Lossless]<Rock>
@@ -736,35 +765,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD10514960BA52D1927562C3B50035D96ED2A89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361719   (954126) от 20.02.2020
-
-Ногу Свело! - Хочу Бодаться! (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хочу Бодаться!
-02. Фол
-03. Эротические Сны (feat. 25/17)
-04. Самурай(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5488E9296A63964570709AAEEB9B7E6BB67B71E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

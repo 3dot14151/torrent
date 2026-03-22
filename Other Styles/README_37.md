@@ -1,3 +1,32 @@
+###  Публикация: 1117043   (820916) от 21.03.2017
+
+Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losing You (2:52)
+02. It’s Goodbye and So Long to You (3:11)
+03. Windy City (3:16)
+04. I Never Cared for You (2:46)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848C99D12D3E5B3FA66C0859A5B92553747C1753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382007   (820880) от 10.05.2020
 
 Stu Dying - Study World: Relaxing Music and Ocean Waves For Studying (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6795E6C5005A672D2896524B71E13FBAFE5AED59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382669   (817374) от 12.05.2020
-
-Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817374.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yoga Trance 02:51
-2. Sun Salutation 03:06
-3. Awaken Your Energy 03:17
-4. Total Relaxation 03:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

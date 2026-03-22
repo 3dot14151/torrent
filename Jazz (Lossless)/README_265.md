@@ -1,3 +1,177 @@
+###  Публикация: 1084776   (219224) от 19.12.2016
+
+Coleman Hawkins - Bouncing With Bean (1926-1949) 2CD, 2010, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219224.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.The Stampede [03:18]
+02.Miss Hannah [03:03]
+03.Hello Lola [03:20](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F808BE7E44077714EA155F01925458E3796CEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425784   (219164) от 22.11.2020
+
+Mal Waldron - You And The Night And The Music (1983) 2005, King Record [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You Look Tonight [6:16]
+02. Bags' Groove [6:20]
+03. 'Round Midnight [6:21]
+04. You and the Night and the Music [4:54](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B586935B184A00CD8A994C672FF01FB81AE6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966375   (219066) от 18.12.2015
+
+VA - 'That's What I Call Sweet Music': American Dance Orchestras of the 1920s (1928-1929) 2000, EMI[APE|image+.cue] <Early Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Specht & His Orchestra/ That's What I Call Sweet Music [1929] (3:18)
+02. Red Nichols' Stompers/Make My Cot Where The Cot-Cot-Cotton Grows [1927] (3:23)
+03. Blue Steele And His Orchestra/ Be My Baby [1928] (2:57)
+04. The Red Hot Mamas, Herman Kenin And His Ambassador Hotel Orchestra /I'm The Last Of [1929] (2:42)(   Читать дальше...   )Жанр: Early Jazz, Swing, Big BandПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAF7066FD018F1902B909C0DD522C64B54841FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425781   (219051) от 22.11.2020
+
+Big Band Brothers - A Jazz Celebration of The Allman Brothers Band (2019) New West Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Statesboro Blues [5:14]
+02. Don't Want You No More [3:48]
+03. It's Not My Cross to Bear [7:52]
+04. Hot 'Lanta [5:15](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Straight-Ahead JazzПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77ECE808F539AADE14BA1E451E561F85247BB894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652148   (219015) от 10.08.2023
+
+Oscar Pettiford - Another One (1955) 2000, Bethlehem [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_219015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kamman's A' Comin' [4:12]
+02. Minor Seventh Heaven [4:11]
+03. Stardust [3:32]
+04. Bohemia After Dark [5:35](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C7AEAAD776E6F7A7B06E227F404C56F2C46A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084767   (218991) от 19.12.2016
+
+The Ray Conniff Singers - Christmas With Conniff (1959) 1990, Columbia[FLAC|Lossless|tracks + .cue] <Jazz-Pop, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jingle Bells [02:47]
+ 02.Silver Bells [02:31]
+ 03.Frosty The Snowman [02:22]
+ 04.White Christmas [02:50](   Читать дальше...   )Жанр: Jazz-Pop, Easy ListeningПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E840FE9B94F5027FECE09C2D0597BF3BB290B7AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343374   (218819) от 06.12.2019
 
 Jim Stahlhut - Exit 228 (2013) Self-Released [FLAC|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
@@ -571,180 +745,6 @@ Terry Gibbs Quartet - Take It From Me (1964) Remaster, 2010, Universal[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15AA0A4AB0B7AD090AB5AA57E92588CBFE6878CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084982   (217172) от 20.12.2016
-
-Art Farmer-Benny Golson Jazztet - Here and Now (1962) 1998 [WavPack|Lossless|image + .cue] <Hard bop, Post bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tonk (6:49)
-2. Rue Prevail (4:26)
-3. Richie's Dilemma (5:11)
-4. Whisper Not (5:21)(   Читать дальше...   )Жанр: Hard bop, Post bopПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED744BAE779DF2F9A7A3516D78E6931732D19DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586337   (217058) от 26.10.2022
-
-Sergio Mendes & Brasil '66 - Greatest Hits (1970) 1987, A&M Records [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mas Que Nada [2:42]
-02. Scarborough Fair [3:22]
-03. With a Little Help from My Friends [2:38]
-04. Like a Lover [3:55](   Читать дальше...   )Жанр: Bossa Nova, Latin JazzПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0393F30DCE147A1E41EDAE38BBB22313E474C0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343665   (216947) от 07.12.2019
-
-Marion Meadows - Dressed To Chill (2006) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dressed To Chill
-02. Remember Me
-03. Dance With My Daughter
-04. Miss Know It All(   Читать дальше...   )Жанр: Smooth Jazz, Crossover JazzПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE38A10B2E2CE4D3B0F95C83796AD73F1F72CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426088   (216900) от 23.11.2020
-
-Billie Holiday - Songs For Distingue Lovers (1957) 1997, Classic Compact Discs [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day In, Day Out [6:48]
-02. A Foggy Day [4:42]
-03. Stars Fell on Alabama [4:30]
-04. One for My Baby (And One More for the Road) [5:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E2621A7D890F343E7F493A4348995D7CC7A190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426084   (216856) от 23.11.2020
-
-Beto Saroldi - Venus (2020) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vênus - 04:24
-02. Sensuality (Supernatural) - 04:58
-03. Uma Estrela A Mais (feat. Rosa Marya Colin) - 04:28
-04. Noites E Noites Sem Fim (feat. Frejat) - 04:25(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A7C2801F10EFC716CE392DF27046A004E7A41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270037   (216407) от 17.12.2018
-
-Claude Hopkins - 1932 - 1934 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (I Would Do) Anything For You [3:17]
-02. Mad Moments [2:54]
-03. Mush Mouth [3:08]
-04. How'm I Doin'? [3:14](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3BA7629C4688B7F338C3226EBE9E4AC764EE51
 ```
 
 https://mybot314.ru/tekegram_catalog/

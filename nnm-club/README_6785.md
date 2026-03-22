@@ -1,22 +1,25 @@
-###  Публикация: 1205486   (783490) от 10.02.2018
+###  Публикация: 1277411   (785418) от 20.01.2019
 
-4K YouTube to MP3 3.3.3.1777 [Multi/Ru]
+Омела - Тайная Тропа (2019) [MP3|320 Kbps] <Folk Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783490.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K YouTube to MP3 был создан специально для скачивания аудио с YouTube, VEVO, Soundсloud и Facebook в MP3, M4A, OGG. Вставляйте ссылки на ваши любимые песни в приложение и сохраняйте их в формате MP3 на ваш компьютер. Прямое скачивание на iPod, iPhone и iPad позволит наслаждаться музыкой, где бы вы не находились. Никаких сложных настроек, только простой в обращении (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+01. Тайная Тропа
+02. Игра
+03. Другая Жизнь
+04. Отпускаю(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:08:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56D7DAE1860E93EABA163A5349244EB9CEDC712F
+magnet:?xt=urn:btih:426BF5A8EEF87F2218B616D35CEA6AE67C9D3E63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,388 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205626   (783489) от 10.02.2018
+###  Публикация: 1277295   (785417) от 20.01.2019
 
-ExpanDrive 6.1.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
-
-Эта программа позволяет монтировать удалённые хранилища информации (FTP, WebDAV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799EA64D6FDD8CA9324EA03D65F7C2C17C4CEAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204622   (783488) от 10.02.2018
-
-Music maestro. Brahms, The complete live and music of the great composers (1992) VHSRip (H.264)
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783488.jpg" />
-</div>
-
-
-###  Подробнее
-
-(временная метка - название)
-06:48 - Symphony No.1 in C minor 4th movement
-15:36 - Hungarian dance No.5
-19:23 - Variations on a theme of Paganini Emil Gilels-piano Russian Archive Footage(   Читать дальше...   )Жанр: Концерт классической музыкиРежиссер: Presenter, David PalmerПеревод: ОтсутствуетСубтитры: НетПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C743DD91D2FD447D13490CBDA9D8EF93F51EC45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205244   (783487) от 10.02.2018
-
-Журнал | AD / Architectural Digest [Россия] №2 (169) (февраль 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9870E6199F6C87AEFC49F67D38BA599B98FC480F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205585   (783486) от 10.02.2018
-
-VA - Sanremo (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ermal Meta & Fabrizio Moro  -  Non Mi Avete Fatto Niente  3:27
-02.  Ornella Vanoni, Bungaro, Pacifico  -  Imparare Ad Amarsi  3:26
-03.  Noemi  -  Non Smettere Mai Di Cercarmi  3:10
-04.  Le Vibrazioni  -  Cosi Sbagliato  3:28(   Читать дальше...   )Жанр: PopПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89463860B041A2ACC85F21144ACF25FBEA8FBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205098   (783485) от 10.02.2018
-
-VA - Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maarten de Jong feat. Katty Heath  -  Free To Feel Again (Extended Mix)  5:47
-02.  Ferrin & Morris feat. Hysteria!  -  Horizon (Alan Morris Extended Mix)  5:43
-03.  Nitrous Oxide feat. Jess Morgan  -  Golden Horizon (Extended Mix)  7:01
-04.  Kaimo K  -  Uncharted (Extended Mix)  7:04(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E079713A4978C3F4FB979147EF5BC31E0003E06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205422   (783484) от 10.02.2018
-
-Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1988) Atlantic, Compilation [MP3|320 Kbps] <Europop, Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Gloria 4:50
-02. Shattered Glass 3:41
-03. Find Me 3:23
-04. Touch 4:07(   Читать дальше...   )Жанр: Europop, Ballad, VocalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867CF3E55BBFF072C860CB3BB96FB3B8BA6606A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205664   (783483) от 10.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Церемония открытия (09.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783483.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 февраля 2018 года, пятница. 14:00 МСК
-XXIII Зимние Олимпийские игры 2018 пройдут с 9 по 25 февраля 2018 года в городе Пхёнчхане, Республика Корея. На Олимпийских играх в Пхенчхане будут представлены 84 страны. Впервые в них примут участие две новые страны: Эритрея и Косово.
-МОК включил шесть новых дисциплин в программу Олимпиады-2018, добавлены дисциплина биг-эйр (   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: Церемония, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4020E099D7E8857CCF6A7EF4AF7C294B7C175528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205621   (783482) от 10.02.2018
-
-Майкл Симс | Артур и Шерлок. Конан Дойл и создание Холмса (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – прекрасный подарок всем почитателям знаменитого Шерлока Холмса. Написанная в стиле, напоминающем манеру его создателя, Артура Конан Дойла, она рассказывает поистине детективную историю о том, как молодой шотландский доктор стал писателем с мировым именем, а его герой – величайшим сыщиком всех времен и народов.
-
-Погрузив читателя в атмосферу викторианской (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41241067851B23C5F217EB1BB292670EB30C1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205203   (783481) от 10.02.2018
-
-Propellerheads - Decksandrumsandrockandroll (1998) [FLAC|Lossless|tracks + .cue] <Breaks, Breakbeat, Big Beat>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take California (07:21)
-02. Velvet Pants (05:47)
-03. Better? (02:03)
-04. 360° (Oh Yeah?) (feat. De La Soul) (04:28)(   Читать дальше...   )Жанр: Breaks, Breakbeat, Big BeatПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D664BC6A49A50FC0D6A898BAD42647ADDA683B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205464   (783480) от 10.02.2018
-
-Athentech Perfectly Clear + Essentials + WorkBench 3.5.6.1150 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear - последняя версия программы, которая идет также как плагин для Photoshop & Lightroom (можно использовать также в других редакторах). Суть данной разработки проста, у вас имеется снимок, вам он не нравится, кожа тусклая, прыщики, короче говоря есть дефекты, теперь можно не утруждать себя редактированием, пару кликов и вот перед нами откорректированная (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02420FBEAB357A58795B2802A3532E38D28716AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205549   (783479) от 10.02.2018
-
-Теория заговора (2016) WEB-DL [H.264] (2 сезон: 37 выпусков из 37) [MP4|1280x720]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы документального цикла «Теория заговора» дают ответы на простые вопросы, которые обычно не приходят в голову. Почему литр воды стоит дороже литра бензина? Почему в аптеках продают лекарства, которые ни от чего не лечат? Почему один крем в десятки раз дороже другого, если их состав идентичен? Нас обманывают и пытаются нажиться на наших проблемах и нуждах. Нас (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаРежиссер: Алексей Булейко, Кирилл ВащенкоСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905D4E3339E4E678E79FBB3E3AD72A5E48A0AA03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205493   (783478) от 10.02.2018
-
-3D модели - Daz 3D - Elijah 7 Pro Bundle - 36169 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Elijah 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205605   (783477) от 10.02.2018
-
-Aiseesoft 4K Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft 4K Converter – универсальный видео конвертер формата 4K. Специально создан для преобразования 4K видео высокого разрешения с передовыми кодировками, в том числе HEVC / H.265, VP8, vp9, H.264, MPEG и XviD. Лучший выбор для обработки видео в формате 4K с разрешением 1080p или 1080p 4К, который также служит для работы со стандартными форматами видео и HD.Язык интерфейса: Русский (от Kopejkin.) | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F28EB9FD1C642DCB90827CF384711D9A5259E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205532   (783476) от 10.02.2018
-
-VA - LUXEmusic proжект: The Russian Project (2017) [MP3|320 Kbps] <Club House, Deep House, Electro House>
+VA - Record Super Chart 570 (2019) [MP3|320 Kbps] <House, Club, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783476.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Leona Dios - Сны (DJ Kirillich Remix)
-002. T-Killah - Барабан (DJ Цветкоff & Hokkan Remix)
-003. Бьянка - Вылечусь (Hardphol Remix)
-004. Тимур Timbigfamily ft Анна Калашникова & DJ Vini - Так не бывает(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 14:12:36
+01.  Fisher  -  Losing It
+02.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+03.  Axwell - Nobody Else
+04.  Denis First & Reznikov & Bright Sparks - Shameless(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:47:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BFAE1C27E15EB54F167B82A7FF1CC5D6D3A744B
+magnet:?xt=urn:btih:14D8276C1FB2BA1A5996349BDA9B24C8E7A863BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205676   (783475) от 10.02.2018
+###  Публикация: 1277356   (785416) от 20.01.2019
 
-VA - Fitnes Hits (2018) [MP3|320 Kbps] <Pop, House, Dance>
+Цзиндэчжэньский фарфор / Jingdezhen Porcelain (2017) HDTVRip [H.264/720p-LQ]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783475.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Miss Bass  -  Palm Shot  3:33
-02.  The Chainsmokers feat. Halsey  -  Closer (Wuki Remix)  4:04
-03.  Will.i.am feat. Justin Bieber  -  That Power (Matt Nevin Extended Mix)  5:25
-04.  Alok & Vinne  -  Free (Original Mix)  5:59(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 04:59:14
+Цзиндэчжэнь в провинции Цзянси на севере Китая можно без преувеличения назвать керамической столицей страны. История местного производства фарфора, насчитывает не одну тысячу лет. Гуляя по улицам Цзиндэчжэня, нельзя не заметить дома с отделкой из фаянса, выложенные кусочками керамической плитки переулки и удивительно красивые керамические уличные фонари. Изготавливать (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, история, путешествияРежиссер: Ван БиньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1027F4DD94A2CDB53FCEF5126C26A079832DD4C9
+magnet:?xt=urn:btih:C3A718BDECA1171F324B48C38D93537C550DF135
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,26 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205511   (783474) от 10.02.2018
+###  Публикация: 1277424   (785415) от 20.01.2019
 
-3D модели - Daz 3D - FWSA Liam HD + Vampire and Hunter Kit Bundle - 33439 [DUF]
+VA - Kamsutra Chillout Lounge - Spicy Sensual India Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783474.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Liam + Vampire and Hunter для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+01. Banghra Lounge Voices - Kamasutra In Heaven 5:09
+02. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) 5:31
+03. Buddha Vibes - Summer Breeze In India (Goa Beach Extended Mix) 10:12
+04. Kamasutra Girl - Goodbye My Love (Sunset Bangarang Mix) 5:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C00FF4DAB265E35BFFB016623716C6375CA8CC6
+magnet:?xt=urn:btih:70FCADED7A561ED181AA0509FF33E0CA4918B0D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,27 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205482   (783473) от 10.02.2018
+###  Публикация: 1277349   (785414) от 20.01.2019
 
-4K Video Downloader 4.4.4.2275 [Multi/Ru]
+Жанна Волкова - Таксист (1995) [FLAC|Lossless|image + .cue]<Шансон>
 
->>Архив торрентов
->>Архив 4Apple
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783473.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении. Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте ссылку из браузера и нажмите "Вставить ссылку" в приложении!
-
-Скачивайте целые YouTube-плейлисты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 090.02.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+01. А я такая пьяная
+02. Снег
+03. Эй, таксист!
+04. И всё таки я - женщина!(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:50:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A44F3248047F3CADE43EF667DADC6EC8DD832DA6
+magnet:?xt=urn:btih:265EBBBA987168046E84D53478ED741AE7438F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,28 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205425   (783472) от 10.02.2018
+###  Публикация: 1277455   (785413) от 20.01.2019
 
-Lipps, Inc. - Mouth To Mouth (1979) Remastered, 2012 [FLAC|Lossless|image + .cue] <Disco>
+Frank Sinatra, Dean Martin, Sammy Davis Jr. - Eee-O 11: The Best Of The Rat Pack (2001) [FLAC|Lossless|image + .cue] <Jazz, Pop, Swing>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783472.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Funkytown (07:50)
-02. All Night Dancing (08:21)
-03. Rock It (05:42)
-04. Power (08:19)Жанр: DiscoПродолжительность: 00:43:44
+01. Frank Sinatra - I'm Gonna Live Till I Die
+02. Dean Martin - Ain't That A Kick In The Head
+03. Sammy Davis Jr. - Too Close For Comfort
+04. Frank Sinatra & Sammy Davis Jr. - Me And My Shadow(   Читать дальше...   )Жанр: Jazz, Pop, SwingПродолжительность: 00:49:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78F532ABAA995CE4A3FDB70D63A7C3314A160C7A
+magnet:?xt=urn:btih:F0BAB6F7073510A5C2265E28C3CC0822B8FA2EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,26 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205497   (783471) от 10.02.2018
+###  Публикация: 1277400   (785412) от 20.01.2019
 
-3D модели - Daz 3D - Damien Pro Bundle - 37285 [DUF]
+Rocky Burnette - The Son Of Rock And Roll (1979) LP [MP3|320 Kbps] <Soft Rock, Pop Rock, Rockabilly>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783471.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Damien для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+01. Tired Of Toein' The Line (3:38)
+02. Angel In Chambray (3:18)
+03. Baby Tonight (3:14)
+04. Fallin' In Love (Bein' Friends) (3:57)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, RockabillyПродолжительность: 00:33:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:420406EBC2F832E6FBBE1870C70CAB12C9507883
+magnet:?xt=urn:btih:4A0CC194AF6D5A64C266B0247A65A5AFDED17B26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,26 +198,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205505   (783470) от 10.02.2018
+###  Публикация: 1277474   (785411) от 20.01.2019
 
-3D модели - Daz 3D - Lucian 7 Pro Bundle - 34203 [DUF]
+Обои - Desktop Wallpapers Full HD. Part (362) [JPG]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783470.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Lucian 7 для DAZ 3D из категории People.
-Для Genesis 3Формат: DUF
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B363A34D339A97D0793502F33785E12F3A2CA96C
+magnet:?xt=urn:btih:C56E25C8ABF1BD9C0AD3C9EA1498601416EAC272
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,25 +224,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205266   (783469) от 10.02.2018
+###  Публикация: 1277475   (785410) от 20.01.2019
 
-Джош Малерман | Птичий короб (2017) [MP3]
+Обои - Desktop Wallpapers Full HD. Part (363) [JPG]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783469.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оно ждет тебя за порогом. Оно… нечто ужасное, нечто такое, что ни в коем случае нельзя разглядывать. Потому что один лишь взгляд на это существо? устройство? человека? грозит безумием и гибелью. Человечество перестало существовать. Горстка выживших прячется в заброшенных домах с заколоченными окнами, не решаясь выйти наружу. Мэлани, мать-одиночка с двумя детьми, (   Читать дальше...   )Жанр: Фантастика, УжасыПродолжительность: 08:47:54
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CB243BF958DAE9613C84F30FBC5D8F3B2617DE4
+magnet:?xt=urn:btih:BA0D5C0235CB842E1B9C4E327BD1B287D609A9DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,25 +250,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205662   (783468) от 10.02.2018
+###  Публикация: 1277478   (785409) от 20.01.2019
 
-Cinemagraph Pro 2.5.1 [Multi]
+Обои - Desktop Wallpapers Full HD. Part (365) [JPG]
 
->>Архив торрентов
->>Архив 4Apple
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783468.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cinemagraph Pro от студии Fixel – приложение, при помощи которого мастер из любого короткого видео, снятого на камеру смартфона, сделает очередной хит для YouTube. Также программа работает с сериями фотографий, позволяя создавать "видеоколлажи" из набора фотографий. Программа Cinemagraph Pro, поможет Вам разнообразить свои фотографии с помощью эффекта «движения». (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Flixel Photos Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Испанский, Итальянский, Немецкий и др.
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7A74347727821ED7018A2DF4943FD5822619060
+magnet:?xt=urn:btih:20C569F9C9848FD9DA2523E883EE70C1321CE486
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,25 +276,213 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205573   (783467) от 10.02.2018
+###  Публикация: 1277414   (785408) от 20.01.2019
 
-Recover Keys Enterprise 10.0.4.201 RePack (& Portable) by TryRooM [Multi/Ru]
+dArtagnan - Seit An Seit (2016) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785408.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Seit An Seit
+02. Ehre Wem Ehre Gebuhret
+03. Komm Mit(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 01:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B0EA92EE69AFEB7A1620D43A2450D68BB54A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277470   (785407) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (359) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1EBDB71378A4F26EE2D69B26E9042AD0996DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277473   (785406) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (361) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC24EAA8A9D8AFA324FA6AAB72A4CC9511025A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277341   (785405) от 20.01.2019
+
+Юлия Нелидова | Дело о сорока разбойниках (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785405.jpg" />
+</div>
+
+
+###  Подробнее
+
+1892 год. Земского врача Ивана Иноземцева направляют в столицу Туркестанского генерал-губернаторства – Ташкент. Но добраться до нового места службы Иноземцеву не удается: его похищает шайка разбойников во главе с коварным басмачом Юлбарсом, приручившим настоящего тигра. По всему краю ходят слухи и легенды о набегах банды Юлбарса. Он жесток и безжалостен, умен и необычайно (   Читать дальше...   )Жанр: Исторические детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9729BFF3472584D5F20D3E375CAAE8A4BC64CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277282   (785404) от 20.01.2019
+
+David Arkenstone - Fairy Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Twinklelace Glen
+02 – The Water Fairy
+03 – Dream Shadows
+04 – Fairy Dreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9A61642EB7BDE9ED9320C0F9BB2B6742D7E72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277477   (785403) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (364) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60FB8E3911B5FC401EA2EAE23CD87655B3818EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277482   (785402) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (367) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A247C4E8CC0DF0E429BE841106D75B6445BC29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277229   (785401) от 20.01.2019
+
+FireAlpaca 2.1.14 (Repack & Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783467.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Recover Keys - это приложение для Windows, созданное для защиты Ваших активационных ключей на случай, если система или жёсткий диск выйдут из строя, определения количества лицензионных программ, установленных на сети компьютеров, и для восстановления утерянных лицензионных (CD) ключей. Нет необходимости устанавливать эту программу на каждом компьютере. Установленная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+FireAlpaca - это достаточно простой, но удобный графический редактор для преобразования изображений, фотографий и любых других картинок. Здесь нет каких-то продвинутых или специфических функций, но базовый набор инструментов позволяет быстро и легко редактировать нужные изображения.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDF85BE32584084E6AD0D694032E52EC47A8CA66
+magnet:?xt=urn:btih:D548DD729F0E3DD95242FA664DC74F54190E49B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,28 +490,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205507   (783466) от 10.02.2018
+###  Публикация: 1202917   (785400) от 04.02.2018
 
-Sopor Aeternus - The Spiral Sacrifice (2018) [MP3|320 Kbps] <Darkwave, Neo-Classic>
+The Bagelman Sisters - A Yiddish Lied / Bist Main Welt  (1939) [FLAC|Lossless|tracks] <Folk, World, & Country>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783466.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Everything Is An Illusion
-2. Where The End Begins
-3. There Are Scars In The Evening Sky
-4. The Broken & Shattered Moon(   Читать дальше...   )Жанр: Darkwave, Neo-ClassicПродолжительность: 01:18:54
+Tracklist
+A)	A Yiddish Lied = (A Yiddish Song)
+B)	Bist Main Welt = (You Are My World)Жанр: Folk, World, & CountryПродолжительность: 00:06:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B08991C07CA719CE74B6F62C9EDE3FDADBC84EA
+magnet:?xt=urn:btih:C5453DBFF6D6AE7ED17F9793299E51D387A11ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,26 +518,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205516   (783465) от 10.02.2018
+###  Публикация: 1204173   (785399) от 04.02.2018
 
-3D модели - Renderosity - Phx James for Michael 8 - 124866 [DUF]
+Шорт-трек. Чемпионат Европы 2018. Дрезден (Германия). Финалы (13-14.01.2018) WEB-DL  [H.264/720p-LQ]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783465.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-James для Michael 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+13 января 2018 года - 14 января 2018 года
+Чемпионат Европы по шорт-треку 2018 года. Дрезден (Германия)
+1-й день финала:
+Женщины / Mужчины - 1500 м - 1/2 Финала, Финалы(   Читать дальше...   )Телекомпания: Sportdeutschland.TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:10:34 - 03:17:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1F9C5625CDF5F7D6259A92F085F873FB081C301
+magnet:?xt=urn:btih:8CC2E8A687DE62C52132831EE4974629A4EF1037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203249   (785398) от 04.02.2018
+
+Горные лыжи. Кубок мира 2017–2018. Кортина д Ампеццо (Италия). Женщины. Скоростной спуск (20.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785398.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 января 2018 года, суббота. 12:00 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Кортина д Ампеццо (Италия).
+Женщины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F98B45D1B59760CB0F47AF0D263509A4F2996B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204063   (785397) от 04.02.2018
+
+VA - Best of Lounge 2018: Special Selection Vol.1 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christoph Spendel Trio - Unknown Events
+02. Karen Gibson Roc - Slow Down
+03. Marcus Koch - Forever
+04. UFO - Purple Sun Down(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E02DDF73FE874BC4DEBB48CFD47100CB86060EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204010   (785396) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2, Europe [MP3|320 Kbps] <Pop Rock, Synth-pop, AOR>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Hold Me 4:46
+02. Maybe Tonight 3:40
+03. Foolish Lullaby 4:18
+04. Spanish Eddie 4:08(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, AORПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204076   (785395) от 04.02.2018
+
+Orphans Of Doom - Strange Worlds / Fierce Gods (2018) [MP3|320 кб/с]<Sludge Metal, Doom Metal, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785395.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:26] 01. Harvest
+[04:40] 02. Kakegoe
+[04:12] 03. Mythical Sleep
+[05:57] 04. Cephalopod(   Читать дальше...   )Жанр: Sludge Metal, Doom Metal, Post-MetalПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DCAFD4FC899D110509114B747C6D5655A9446C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204082   (785394) от 04.02.2018
+
+Structural Mind Engine - Forest (2018)2CD [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Blast (Original Mix)
+02.Trippy Landy (Original Mix)
+03.Psychedelichest (Original Mix)
+04.Moogy Woogy (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7EDBEE452C8A7B9508FCD70C64FD1777D8F2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204029   (785393) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567-82489-2, Europe [MP3|320 Kbps] <Pop Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. How Can I Help You To Say Goodbye 4:29
+02. The Sweet Hello, The Sad Goodbye 5:07
+03. Over My Heart 4:25
+04. It's Been Hard Enough Getting Over You 3:42(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
 ```
 
 https://mybot314.ru/tekegram_catalog/

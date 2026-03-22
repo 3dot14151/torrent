@@ -1,25 +1,83 @@
-###  Публикация: 1710753   (112556) от 28.03.2024
+###  Публикация: 1702779   (115482) от 26.02.2024
 
-Eisenwut - Die Herrschaft der Leere (2017) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+Blue Mitchell - Graffiti Blues (1973) 1993, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graffiti Blues [7:19]
+02. Yeah Ya Right [5:31]
+03. Express [5:09]
+04. Asso-Kam [7:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADC9EA68B1DAB6BB8FA2786A45C27F2A2B4E1C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702567   (115481) от 26.02.2024
+
+Dreamstreet - Dreamstreet 2.0 (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Yours (04:02)
+02. Head Troubles (03:31)
+03. Heartzone (05:21)
+04. Money (04:33)(   Читать дальше...   )Жанр: AORПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D3D64EAEEBB362398719D56B60846BD003F3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702812   (115480) от 26.02.2024
+
+Funeral Winds - Sinister Creed (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Auf der anderen Seite der Verzweiflung [1:57]
-02 - Freiheit [6:35]
-03 - Gib mir Kraft [3:23]
-04 - Tod tritt zurück [4:24](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:46:43
+01. The Road to Perdition
+02. Cursed is This Pantheon of Flesh
+03. The Arrival
+04. Sinister Creed(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25052429A0C51EB7FFA270645905881F945013E2
+magnet:?xt=urn:btih:A740C96A9AEB20CC985813A0152E643CFA3E47BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710809   (112555) от 28.03.2024
+###  Публикация: 1702647   (115479) от 26.02.2024
 
-Сибирская Благозвонница | Ветхозаветные cотницы (2009) [PDF, FB2, EPUB, MOBI, TXT]
+Dissolving of Prodigy - Gallileous & Wijlen Wij & Dissolving of Prodigy & Pantheist - Unveiling the Signs (2010) Split [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112555.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга представляет собой краткое содержание важнейших книг Священного Писания Ветхого Завета с объяснением и толкованием главных ветхозаветных событий и пророчеств.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. Kostas Panagiotou - Overture: The Madness of Crowds (06:54)
+02. Gallileous - Zabobon (Superstition) (09:19)
+03. Wijlen Wij - The Wall of Life (13:26)
+04. Dissolving of Prodigy - Zlodejska svetelka (Lights of Thieves) (14:19)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:53:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F04A27DAE39E010608C9C66DBEDD9AAB68FE6C3
+magnet:?xt=urn:btih:3CB8A53DBA9A24B0F32AF3EB08BE9EB337D8A467
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710905   (112554) от 28.03.2024
+###  Публикация: 1702705   (115478) от 26.02.2024
 
-Jeff Beck Group - Jeff Beck Group (1972) Reissue, 1989, Epic [FLAC|Lossless|tracks + .cue] <Blues Rock>
+James Mastro - Dawn of a New Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112554.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ice Cream Cakes - 5:40
-2. Glad All Over (A. Schroeder, R. Bennett, S. Tepper) - 2:59
-3. Tonight I'll Be Staying Here With You (B. Dylan) - 4:57
-4. Sugar Cane (S. Cropper) - 4:06(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:19
+01. Right Words, Wrong Song (2:46)
+02. My God (3:13)
+03. Three Words (2:38)
+04. Everywhere (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28B621083E084801C6B61ECBFA901132C1B2E99E
+magnet:?xt=urn:btih:02F8C5DB089B9FB09D8E12B39E700CCA8AB73107
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,158 +143,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710991   (112553) от 28.03.2024
+###  Публикация: 1702831   (115476) от 26.02.2024
 
-Алгис Будрис | Пугливое дерево (2023) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112553.jpg" />
-</div>
-
-
-###  Подробнее
-
-"С Денеба XI поступил тревожный сигнал о подделке межгалактических денег с помощью дубликатора материи. Инспектор финансвой службы командирован для поиска фальшивомонетчиков." (с)Жанр: Фантастика, ЮморИздательство: Аудиокнига своими рукамиПродолжительность: 00:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A010FA4551402490201730AF64F328EF3A4195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710988   (112551) от 28.03.2024
-
-PhotoDirector v19.1.0 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112551.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 27.03.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B50EF006259F4BA271175672E528710A7C2BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711270   (112550) от 29.03.2024
-
-Александр Беляев | Вечный хлеб (2022) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112550.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Профессор Бройер оставил свою общественную научную деятельность, чтобы уединиться на острове Фэр и закончить работу над открытием, способным решить проблему мирового голода. К сожалению, изобретение, обещавшее столько благ человечеству, внезапно вышло из под контроля." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEF428F5D5E7A890448E46B437C60CBC7C38CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711347   (112548) от 29.03.2024
-
-VA - Deep-House Heaven, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi.5 - Out Of My Mind (Extended Mix) (04:18)
-02. Steen Thottrup & Denver Knoesen - Another Day (Anders Ponsaing Remix) (07:21)
-03. Living Room - Strand (Instrumental Mix) (04:29)
-04. Charly'n Black - Genève Rive Droite (03:44)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8CFA799A70E640F1A2512E258C8F755EDDCF11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711151   (112547) от 29.03.2024
-
-Константин Нормаер | Тени забвения (Книга 1). Предвестник Бури (2024) [MP3, Николай Волков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три загадочных смерти. Три удивительных воскрешения. События, которые заставят Культ, тайное общество людей застрявших между прошлым и настоящим, содрогнуться. Какая судьба уготована бессмертным? И возможно ли избежать забвения? Чтобы узнать уготованную им судьбу, Перерожденным придётся вступить в противостояние с древними богами и оживить страшное наследие Москвы: (   Читать дальше...   )Жанр: мистика, детективИздательство: ЛитРесПродолжительность: 07:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CFD279A33E3ECD061C575F9E931A60432E1E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711207   (112546) от 29.03.2024
-
-Животное должно умереть / The Beast Must Die (1974) BDRip [H.264] [AVO]
+Опротестованный чек / The No-Account Count (1914) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112546.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По мотивам рассказа Джеймса Блиша... Миллионер Том Ньюклифф со своей женой Кэролайн приглашает группу людей провести некоторое время в его загородном английском особняке, где он раскрывает, что один из них оборотень, и поэтому должен быть убит. Группа состоит из опального дипломата Артура Беннингтона; Яна и Давины Гилмор, пианистки и его бывшей ученицы, ныне его (   Читать дальше...   )Производство: Великобритания / Amicus Productions, British Lion Film CorporationЖанр: ужасы, детектив, триллерРежиссер: Пол АннетАктеры: Кэлвин Локхарт, Питер Кушинг, Марлен Кларк, Чарльз Грей, Антон Диффринг, Киаран Мэдден, Том Чэдбон, Майкл Гэмбон, Эндрю ЛоджПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:33:07
+Небольшая легонькая комедия. С переодеваниями. Барышня не великая красавица и никак жениха найти не может. Приходится активно использовать мастеров парикмахеров и стилистов.Производство: США, Kalem CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Альберт В. ХейлАктеры: Джон Е. Бреннан, Фред Хорнби, Джон Рэнд, Этель ТеареПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:16:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B158B8AE257C08C2343290FA5F54FA9377A9331
+magnet:?xt=urn:btih:52A74E4769CFA69A28BB6A979FD5DDDF2178E19E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,27 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711311   (112545) от 29.03.2024
+###  Публикация: 1702658   (115475) от 26.02.2024
 
-Noir – Dark Mode for Safari 2024.1.9 [En]
+Eternal Storm - A Giant Bound to Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112545.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Noir — это расширение для Safari, которое автоматически добавляет темный режим на каждый посещаемый вами веб-сайт.
-Это делает просмотр веб-страниц ночью намного лучше. С Noir вы больше никогда не будете ослеплены яркими веб-сайтами.
-И результаты тоже выглядят великолепно. Noir создает собственный темный стиль для каждого посещаемого вами веб-сайта на основе цветов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.05.2024Разработчик: © 2021-2024 Jeffrey KuikenПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+01 - An Abyss of Unreason (00:13:35)
+02 - A Dim Illusion (00:07:18)
+03 - There was a Wall (00:05:07)
+04 - Last Refuge (00:10:00)(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 01:09:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2805F02C0D8B49CCBEB7A262B381252B46843515
+magnet:?xt=urn:btih:29466FB84AC36469C7B74C47B3848A2ED4540171
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711252   (112544) от 29.03.2024
+###  Публикация: 1702787   (115473) от 26.02.2024
 
-Животное должно умереть / The Beast Must Die (1974) BDRip [H.264/720p] [AVO]
+Funeral Winds - Nexion Xul - The Cursed Bloodline (2007) [APE|Lossless|image + .cue] <Black Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112544.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По мотивам рассказа Джеймса Блиша... Миллионер Том Ньюклифф со своей женой Кэролайн приглашает группу людей провести некоторое время в его загородном английском особняке, где он раскрывает, что один из них оборотень, и поэтому должен быть убит. Группа состоит из опального дипломата Артура Беннингтона; Яна и Давины Гилмор, пианистки и его бывшей ученицы, ныне его (   Читать дальше...   )Производство: Великобритания / Amicus Productions, British Lion Film CorporationЖанр: ужасы, детектив, триллерРежиссер: Пол АннетАктеры: Кэлвин Локхарт, Питер Кушинг, Марлен Кларк, Чарльз Грей, Антон Диффринг, Киаран Мэдден, Том Чэдбон, Майкл Гэмбон, Эндрю ЛоджПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:33:07
+01. The Old Serpent Stirs
+02. Fasten Upon Mankind The Eyes Of Death
+03. The Blood Of Chaos
+04. Anzu(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFFC7ED21F27108C3AF31EB0786EE4D016D4FD71
+magnet:?xt=urn:btih:8F0F42B70DFD75F1D8FFA9BAC489E5C35BDD8D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,25 +227,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710990   (112542) от 29.03.2024
+###  Публикация: 1702664   (115472) от 26.02.2024
 
-Воображаемый друг / Imaginary (2024) WEB-DLRip [звук с ТS]
+Молодые копы / Cheongnyeongyeongchal / Midnight Runners / Cheong-nyeon-gyeong-chal (2017) BDRip [H.264/720p]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112542.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джессика возвращается в свой старый семейный дом, где обнаруживает своего старого воображаемого друга - плюшевого медвежонка, который все эти годы копил злость на бросившую его хозяйку.Производство: США / Blumhouse Productions, Lions Gate Films Inc., Tower of Babble EntertainmentЖанр: ужасыРежиссер: Джефф УодлоуАктеры: ДеВанда Уайз, Том Пэйн, Вероника Фалькон, Бетти Бакли, Аликс Анджелис, Дэйн ДиЛьегро, Тэджен Бёрнс, Пайпер Браун, Мэттью Сато, Сесилия ЛилПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:09
+Два курсанта полицейской академии пошли в модный ночной клуб, чтобы познакомиться с девушками, но парням не повезло. К тому же, не каждая захочет встречаться с полицейским. На обратном пути они встречают симпатичную девушку и, пока спорят, кто пойдёт спрашивать у неё номер телефона, незнакомку оглушают, заталкивают в фургон и увозят. Парни тут же сообщают в полицию, (   Читать дальше...   )Производство: Корея Южная / Lotte Entertainment, Movie Rock, Studio 706, Studio Beside The Library, Verygood StudioЖанр: боевик, комедия, детектив, криминалРежиссер: Ким Джу-хванАктеры: Пак Со-джун, Кан Ха-ныль, Сон Дон-иль, Пак Ха-сон, Пэ Ю-рам, Ко Джун, Ли Хо-джон, Ли Джун-хёк, Со Джон-ён, Нам Мун-чхольПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:48:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F5AF3534AC86A44D618ECDEE755F19370E15080
+magnet:?xt=urn:btih:676397CC0520E9192AB35D494CD7C24EF1A834C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,25 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711297   (112541) от 29.03.2024
+###  Публикация: 1702707   (115471) от 26.02.2024
 
-Chromium 123.0.6312.87 + Portable (x64) [Multi/Ru]
+Sons of Liberty - The Detail Is In The Devil (2024) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112541.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Time to Fly (3:48)
+02. Light the Fuse (3:13)
+03. Turn This Tide (3:59)
+04. Tertulia Time (3:55)(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:42:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB354D192ECBED04F35DF7920B08E00A58954736
+magnet:?xt=urn:btih:337DE6084B62420A5EE1623370C9D1E22779DD9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,25 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711300   (112540) от 29.03.2024
+###  Публикация: 1702702   (115470) от 26.02.2024
 
-Kdenlive 24.02.1 + Standalone [Multi/Ru]
+Pascal Geiser - You Can Change Your Hat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112540.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. I Found a Love (3:50)
+02. Rub It in (3:27)
+03. Handle with Care (2023 remastered) (3:05)
+04. Rainy Autumnday (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A27054B13B1B74CB182453D7AE0B1849B00C0C76
+magnet:?xt=urn:btih:7A6359261FC9D5718927148D479D9D6B0208B240
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,26 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711076   (112539) от 29.03.2024
+###  Публикация: 1702663   (115469) от 26.02.2024
 
-Sante DICOM Viewer Pro 14.0.7 [En]
+Joe Lamont - Secrets You Keep (1985) Reissue, Sony Music, 2010 [FLAC|Lossless|WEB-DL|tracks] <AOR>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112539.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sante DICOM Viewer Pro — это профессиональная программа для просмотра DICOM, анонимайзер, конвертер, клиент PACS, мини-сервер PACS, программа для записи CD/DVD пациента (со средством просмотра) и многое другое.
-Sante DICOM Viewer Pro не является «еще одним средством просмотра DICOM» , созданным с использованием свободно доступных библиотек, таких как dcmtk, itk и (   Читать дальше...   )Язык интерфейса: Английский
+01. Secrets You Keep (03:52)
+02. No Explanation (03:40)
+03. Total Breakdown (04:21)
+04. Heartbreak City (05:17)(   Читать дальше...   )Жанр: AORПродолжительность: 00:37:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:317FE8E21764DA2AECC44806D5B3E7256241A3B1
+magnet:?xt=urn:btih:92667796CA2809B1D90240813547DB71DC9DA636
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711342   (112538) от 29.03.2024
+###  Публикация: 1702656   (115468) от 26.02.2024
 
-Togu Audio Line - TAL-J-8 1.8.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
+Dissolving Of Prodigy & Bigotry - Lamentations of Innocents & Step to the Grave (2017) Split [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112538.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TAL-J-8 от популярного разработчика эмуляций винтажных синтезаторов компании TAL Software. Инструмент эмулирует звучание классического Roland Jupiter-8. Виртуальный синтезатор фокусируется на воссоздании звука оригинального инструмента, а не дополнительных возможностях, отмечает разработчик.Язык интерфейса: Английский
+Dissolving Of Prodigy:
+01. Affliction (07:39)
+02. The Torment In Blind Eyes (08:19)
+03. Damocles Gladius (07:04)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:03:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E713A0FB994159096F5C52C3D3E5FA0C518FB7CB
+magnet:?xt=urn:btih:F6F7CC2540DAA3C69A5697D410DCC9E4D7E5DD5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,26 +369,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711339   (112537) от 29.03.2024
+###  Публикация: 1702832   (115466) от 26.02.2024
 
-TONSTURM - DopplerPRO 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
+Белое золото (1929) WEBRip
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112537.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите свои проекты звукового дизайна на новый уровень с помощью Doppler Pro - благодаря значительно улучшенному доплеровскому движку, тщательно переосмысленному и спроектированному для обеспечения непревзойденной точности и естественного звучания. DopplerPRO революционизирует ваш рабочий процесс благодаря мощному пространственному движку.
-Предлагая точное масштабирование (   Читать дальше...   )Язык интерфейса: Английский
+Первый полнометражный туркменский фильм. Бывший батрак Курбан, окончив в городе курсы трактористов, организовал в родном ауле колхоз. Вот они какие, трактористы!Производство: СССР, ТуркменгоскиноЖанр: драма, история, немое киноРежиссер: Александр ВладычукАктеры: Б. Ораз-оглы, Б. Куль-Мурадов, Ай-Джаман, Х. Нур-байСубтитры: русские (интертитры)Продолжительность: 00:40:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A32807789A93C1AC98A9F8B0D2A84AF796323C8E
+magnet:?xt=urn:btih:00632BCD040F84A88B7EF700604F0EE61DFFB5DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,25 +395,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711034   (112536) от 29.03.2024
+###  Публикация: 1702573   (115465) от 26.02.2024
 
-Территория зла / Land of Bad (2024) WEB-DL [H.264/1080p] [звук с TS]
+Eternal Storm - From the Ashes (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112536.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отряд американского спецназа тайно высаживается на территорию Филиппин для выполнения секретной миссии по спасению важного заложника. С базы поддержку с воздуха осуществляют оператор беспилотника Рипер и его напарница. Вскоре ситуация принимает неожиданный оборот, и бойцы вынуждены вступить в бой с превосходящими силами противника. После ожесточённого боя в живых (   Читать дальше...   )Производство: США / Volition Media Partners, Broken Open Pictures, Highland Film Group (HFG)Жанр: боевик, триллерРежиссер: Уильям ЮбэнкАктеры: Лиам Хемсворт, Рассел Кроу, Люк Хемсворт, Рики Уиттл, Майло Вентимилья, Чика Икогве, Дэниэл Макферсон, Роберт Рабия, Джек Финстерер, Крис Мастерс МахПеревод: Дублированный (Мосфильм-Мастер, звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:53:18
+01. Unfading Memories (02:49)
+02. From The Ashes (03:56)
+03. Boundaries Of Serenity (04:23)
+04. A Picture In The Dark (05:10)(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:31:34
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BA35451B4CA30A72994CDCD132951DB6A21CEDDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,25 +424,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711150   (112535) от 29.03.2024
+###  Публикация: 1702661   (115464) от 26.02.2024
 
-Столь долгое отсутствие / Une aussi longue absence (1961) BDRip [H.264/720p]
+Far Beyond - The End of My Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic, Black Metal, Symphonic Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Midwinter (00:02:14)
+02 - A Symphony of Light (00:10:48)
+03 - Ad Infinitas (00:00:59)
+04 - Tempus Fugit (00:09:24)(   Читать дальше...   )Жанр: Symphonic Gothic, Black Metal, Symphonic Melodic Death MetalПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44385612BE571C4E473C2D27501D2450B4B7C1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702597   (115463) от 26.02.2024
+
+Девушка - ямщик дилижанса / The Girl Stage Driver (1914) WEBRip [H.264/720p-LQ]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112535.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тереза Ланглуа содержит небольшое кафе на окраине Парижа. Она одинока. 16 лет назад её мужа, участника движения Сопротивления, арестовали оккупанты и отправили в концлагерь. Следы мужа, Альбера, затерялись. И однажды в бродяге, который каждый день проходил мимо её кафе, женщина, кажется, узнаёт своего мужа. Однако этот человек потерял память и имеет при себе документы (   Читать дальше...   )Производство: Франция, Италия / Galatea Film, Procinex, Societé Cinématographique LyreЖанр: драмаРежиссер: Анри КольпиАктеры: Алида Вали, Жорж Вильсон, Шарль Блаветт, Амедеи, Поль Фуавр, Пьер Парель, Катрин Фонтеней, Диана Лепрье, Нан Жермон, Шарль БуйоПеревод: дублированныйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:38:15
+Старый извозчик дилижанса и его хорошенькая дочь счастливо живут в процветающем шахтерском городке. Девушка предана своему доброму старому отцу, который уже много лет работает ямщиком. Стоит ли говорить, что девушка прекрасная наездница и научилась управлять дилижансом. Ее сердечный друг - шериф, близкий друг ее отца. В одной из поездок извозчику поручают 5000 долларов (   Читать дальше...   )Производство: США, Eclair AmericanЖанр: короткометражный, вестерн, немое киноРежиссер: Уэбстер КоллисонАктеры: Норберт А. Майлс, Эдна Пэйн, Will E. Sheerer, Генри СтэнлиПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 00:26:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC7C66701081AE9C3A06DB3D28F7637A6FC847A7
+magnet:?xt=urn:btih:68FF887A4618BB89DC216C9094A59F1DFE1A6AC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,28 +479,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711125   (112534) от 29.03.2024
+###  Публикация: 1702640   (115462) от 26.02.2024
 
-VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Dissolving of Prodigy - Stvanice (2008) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112534.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	Cosmic Gate & Christian Burns - Brave
-02.	Laura van Dam & Ginchy - Save Me (Progressive Pick)
-03.	Jaytech - Nebula
-04.	JODA - Spark (Jono Grant & Harry Diamond Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:08
+01. Otvírání Studánek - Zasněný, Zoufalý (05:59)
+02. Ústa Vědmy (04:45)
+03. Rozmluva s Větrem (06:50)
+04. Štvanice (02:53)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:42:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
+magnet:?xt=urn:btih:F80AD8AEB9AB8829A2390F956F7CCA69352C4273
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +508,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711068   (112533) от 29.03.2024
+###  Публикация: 1702828   (115461) от 26.02.2024
 
-Константин Сапрыкин - Никто (2019) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+Funeral Winds - The Unheavenly Saviour (2019) Compilation [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112533.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Живой
-02. Легенда
-03. Кукушка
-04. Господин Никто(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:05
+01. Demon Overture (Intro)
+02. Steps of Ritual
+03. Crypts of the Black Fog
+04. The Eternal Flame(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C85A1568B2676AEB7A371FBB0DB1D1FD3C37D00E
+magnet:?xt=urn:btih:8126D2B17CB02A7BDFB36B4EF2123C0972632509
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,25 +537,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711002   (112532) от 29.03.2024
+###  Публикация: 1702660   (115460) от 26.02.2024
 
-Закон и порядок / Law & Order (1999-2000) HDTVRip [H.264/720p] (сезон 10, серии 1-24 из 24) Россия
+Eternal Storm - Come the Tide (2019) [FLAC|Lossless|image + .cue] <Progressive, Melodic Death Metal>
 
->>Зарубежные сериалы
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112532.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В системе уголовного судопроизводства обвинение представляют две независимые, равные по значению инстанции - полиция расследующая преступления и прокурор, представляющий дело в суде.Производство: США / NBC Universal Television, Studios USA TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Константин Макрис, Эдвин Шерин, Джейс АлександрАктеры: Сэм Уотерстон, С. Ипейта Меркерсон, Джерри Орбак, Стивен Хилл, Джесси Л. Мартин, Лесли Хендрикс, Фред Долтон Томпсон, Крис Нот, Бенджамин Брэтт, Майкл МориартиПеревод: Многоголосый профессиональный (Россия)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+01. The Strand (Through The Wall Of Light Pt.I)
+02. Immersion (Through The Wall Of Light Pt.II)
+03. Detachment
+04. The Mountain(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:59:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B9374FB777A9BAC03EA783A109212EC4A94E065
+magnet:?xt=urn:btih:925D64C02178CA67A4B935109A15123679DBB983
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,28 +566,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711272   (112531) от 29.03.2024
+###  Публикация: 1702633   (115459) от 26.02.2024
 
-Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Modern Big Band>
+Dissolving of Prodigy - Louceni se svetem pozemskym (2002) Reissue, 2023, Pařát Productions [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112531.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet Release: Home: Beyond This Rage [7:51]
-02. Sweet Release: Church: Renewing Vows [7:19]
-03. Sweet Release: Church Basement: Party [5:28]
-04. Sweet Release: Street: Make Room for Me [4:24](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Modern Big BandПродолжительность: 00:59:56
+01. Stará Země
+02. Mohylové Hroby
+03. Rujana
+04. Dívčí Válka(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:57:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:922B882014D8E69E9A8F531A7DFDD78931A5AAAF
+magnet:?xt=urn:btih:C79C06BB0B233E34D1892FBF0B2C4D955BCBED0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,28 +595,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711345   (112530) от 29.03.2024
+###  Публикация: 1702766   (115458) от 26.02.2024
 
-Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Funeral Winds - Godslayer Xul (1998) Reissue, 2003, Death To Mankind [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112530.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anything
-02. Too Forever
-03. Chicken Shack
-04. It Hits Different(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:35
+01. For The Glory Of XUL (06:25)
+02. A Diabolical Meeting (03:18)
+03. The Eternal Flame (05:15)
+04. Visions Of Afterlife (03:01)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96FE9604A33B6055D3FAB881B51F5A7619F08E5D
+magnet:?xt=urn:btih:D07FAC091F2269B4FE7BEF32C8BCE5959713E3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,28 +624,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711325   (112529) от 29.03.2024
+###  Публикация: 1702628   (115457) от 26.02.2024
 
-GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech House>
+Dissolving of Prodigy - Louceni se svetem pozemskym (2002) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112529.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vintage Culture & GOODBOYS - This Feeling (ID Remix)
-02. The Prodigy - Voodoo People (Josh Samuel Edit)
-03. Opus III vs. Skrillex & Fred Again.. & Flowdan - It's A Fine Day vs. Rumble (
-04. GOODBOYS & Biscits & Max Mylo - The Loop(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00:59:55
+01. Stará Země (05:01)
+02. Mohylové Hroby (05:09)
+03. Rujana (07:28)
+04. Dívčí Válka (04:11)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:49:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A34C98167536B2EE4F27C50FF128320191C873F2
+magnet:?xt=urn:btih:2AEF2016081716C4EA03A9BEF8FAEC5FBD3311E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,26 +653,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711310   (112528) от 29.03.2024
+###  Публикация: 1702834   (115456) от 26.02.2024
 
-StaxRip 2.37.4 Portable [En]
+Funeral Winds - 333 (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112528.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
-Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
+01 - Sovereign Of Shadows (00:04:01)
+02 - Eternal Nightmare (00:06:02)
+03 - Cast The Gauntlet Of Doom (00:04:00)
+04 - Ancient Wrath Unleashed (00:04:52)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:908E9931692F10C615EDB90F97D5E604F23C5063
+magnet:?xt=urn:btih:CAE5DB01791C87DB9344232DEE87C264FA519C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588430   (115455) от 27.02.2024
+
+Спрут / La piovra (1984) IPTV [H.264] (сезон 1, серии 1-6 из 6) СВ-Дубль
+
+>>След.
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115455.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшом сицилийском городке убивают начальника уголовного розыска Маринео. Кажется, что это преступление мафии. В тот же день становится известно еще об одной смерти. Покончила с собой маркиза Печчи Шалойя.
+
+На место убитого комиссара назначают Коррадо Каттани, опытного полицейского, который переезжает на Сицилию с женой и дочерью. Расследуя убийство предшественника, (   Читать дальше...   )Производство: Италия, Франция, Великобритания, Германия (ФРГ) / Channel 4 Television Corporation, Escort Cine TV, RAI Rete 1 TVЖанр: драма, мелодрама, криминалРежиссер: Дамиано ДамианиАктеры: Микеле Плачидо, Барбара Де Росси, Патриция Милларде, Николь Жаме, Анджело Инфанти, Пино Колицци, Ренато Мори, Эурилья дель Боно, Каридди Нардулли, Джефри КоплстонПеревод: Многоголосый профессиональный (СВ-Дубль по заказу телеканала Культура)Язык озвучки: РусскийСубтитры: Русские (Культура, ВГТРК)Продолжительность: ~ 01:02:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC55DF9828B40028647FE9B420D660C84B104E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702091   (115454) от 27.02.2024
+
+Кинг Конг / King Kong (2005) HybridRip [AV1/2160p] [4K, SDR, 10-bit]  [Open Matte] [Extended Cut] [hand made Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115454.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1930-м году съемочная группа под предводительством режиссера-неудачника Карла Дэнхэма отправляется на загадочный Остров Черепа неподалеку от Суматры, чтобы изучать легенды о гигантской горилле по кличке Конг. По прибытии не место они обнаруживают, что Кинг Конг и правда существует.
+Горилла живет в самой чаще непроходимых джунглей, где помимо него, спрятанные от (   Читать дальше...   )Производство: Германия, США, Новая Зеландия / Universal Pictures, WingNut FilmsЖанр: боевик, драма, мелодрама, приключения, фэнтезиРежиссер: Питер ДжексонАктеры: Наоми Уоттс, Эдриан Броуди, Джек Блэк, Томас Кречман, Энди Серкис, Колин Хэнкс, Джейми Белл, Кайл Чандлер, Эван Парк, Лобо ЧанПеревод: Дублированный, многоголосый закадровый (Киномания)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 03:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153C13E7AEF701CAA40292BAF4ADBE00CFE42444
 ```
 
 https://mybot314.ru/tekegram_catalog/

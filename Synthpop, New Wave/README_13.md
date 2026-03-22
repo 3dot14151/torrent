@@ -1,3 +1,32 @@
+###  Публикация: 1697671   (118775) от 07.02.2024
+
+Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Guardian Of Forever
+02.  Out Of Order
+03.  The Pits Of Hell
+04.  Break Through(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9C57AE5FDC390A2DB9858E4091A24EA7EBDF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697480   (118767) от 07.02.2024
 
 Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
@@ -746,35 +775,6 @@ Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51C742ABD9BF5DE14B347DEA735FB40ACB98096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771426   (71876) от 06.01.2025
-
-VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amandi - Space Hunter (5:33)
-02. Digital Galaxy - Wind Of Phaeton (5:33)
-03. Laserlight feat. NeoSpace - Flying To The Stars (6:09)
-04. Ray Orion - Synapse (6:05)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8398D1FD5E70B415A62CC4179B8CC8A833825F
 ```
 
 https://mybot314.ru/tekegram_catalog/

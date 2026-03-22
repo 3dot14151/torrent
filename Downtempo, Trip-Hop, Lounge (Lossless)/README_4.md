@@ -1,3 +1,61 @@
+###  Публикация: 1469320   (1016583) от 11.05.2021
+
+VA - Calming Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Can Summer Last Forever - Original Mix (5:05)
+02. Finland & Aaskoven - The Mountains & Peaks (6:04)
+03. Mission Brown - Watching Clouds - Original Mix (6:02)
+04. Weathertunes - Follow Your Heart (4:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0834B0262A340E9D5ACE827284C5B1ADC06B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469328   (1016582) от 11.05.2021
+
+VA - Relaxing Afternoon: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - First Leaves (2:38)
+02. Beamy - Utopia (3:25)
+03. Marga Sol, Leo de la Rosa - Esta Noche - Leo de la Rosa Sensual Mix (5:50)
+04. Matej Blanusa - Beginning (Medani Pieck) (3:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E2A01EE14AE9D4D1E5F927E8413D90269BC44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469668   (1016267) от 13.05.2021
 
 Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo>
@@ -686,64 +744,6 @@ VA - A​.​M Study Session 1-4 (2020-2021) Lofi Girl / ChilledCow Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C96981AB080DB4A570C1C34084A31183E524228A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486929   (1004130) от 03.08.2021
-
-VA - Bonfire on the Beach: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Celloni - Bonfire on the White Beach (05:20)
-02. SoulAvenue - Try (05:02)
-03. Marie Therese - Just Try It (05:03)
-04. Chilled Ibiza - Sapphire Saladeta (06:41)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EDE5A4EA0E687B9D871FABB2A316BD0614A9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349850   (1004068) от 03.01.2020
-
-V.A. - Cafe Del Mar Essentials (Vol. 1) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Poets - Moment Scale (Dubmaster X Remix)
-02. A Man Called Adam - Estelle feat. Eddie Parker (Cafe del Mar Mix)
-03. Psychedelic Research Lab - Tarenah (Chill Mix)
-04. The Ballistic Brothers - Uschi's Groove (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F23CA6695ADC3254EB42523B33C623C258E6D45
 ```
 
 https://mybot314.ru/tekegram_catalog/

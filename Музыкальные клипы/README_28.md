@@ -1,3 +1,139 @@
+###  Публикация: 577867   (357402) от 19.11.2012
+
+Иван Дорн - Идолом (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A925DE36A15880209E09A867F34A41920674C7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577722   (357396) от 19.11.2012
+
+LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B66AC015A41ED6E8B1AC2DE08D164086E985CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577500   (357388) от 19.11.2012
+
+Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A429A398A9220B521F5E7E6D1207F94EA584B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177957   (355490) от 28.10.2017
+
+Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355490.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
+001 Кайрат Баекенов & Формат тобы - Махаббат
+002 Lashyn - Казагымнын арулары-ай
+003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопПродолжительность: 03:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951898   (353150) от 02.11.2015
+
+VA - Осенний марафон № 201 / Видеоклипы (Популярные треки осени) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (30.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01.Bob Moses - Tearing Me Up (Official Video) (00:03:33)
+02. Carina Dahl - Champions (Official Video) (00:03:40)
+03. Damon Paul ft. Joelina Drews - Soulmate (Official Video) (00:03:23)
+04. Geo Da Silva - I Love U, Baby (Official Video) (00:03:29)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, PunkПродолжительность: 01:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC77119A54A8E6488A1184C0274B0921474AB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578523   (350586) от 22.11.2012
 
 Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
@@ -564,142 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFEB12717970C0C8FE091A3924DA8FF058D4BF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957456   (326391) от 18.11.2015
-
-VA - Осенний марафон № 205 / Видеоклипы (Дискотека с размахом № 4) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (17.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Art Key - Делаю Больно (Премьера!) (00:03:13)
-02. De Hofnar X Goodluck - Back In The Day (Official Video) (00:02:47)
-03. Don't Wanna Be Your Lover - Vanessa White (Official Video) (00:03:11)
-04. Jessie J, Ariana Grande, Nicki Minaj - Bang Bang (Live At Capital Summertime Ball) (00:04:12)(   Читать дальше...   )Жанр: Pop, Dance, LatinoПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D04562870F5F5FE79DB8571FB0FC2C761DDB294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581633   (322590) от 28.11.2012
-
-Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2613A1C42AB58F0C88E7B7D4E8D5CDC0767CC3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581648   (322306) от 28.11.2012
-
-The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROСK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488A9103583B16AC588906C86D094EA6E0E83AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958862   (321245) от 22.11.2015
-
-VA - Осенний марафон № 206: Дискотека с размахом № 5 (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (22.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ally - LoveSick (Official Video) (00:03:15)
-02. Amure - House Of The Sun (Official Video) (00:04:38)
-03. Stereolizza - Boys and Girls (Official Video) (00:03:22)
-04. BoA - Lookbook (Official Video) (00:02:36)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Soul, Dubstep, Chill OutПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1720F409AFA03C5C62D0975A6A3D43EEF27BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582097   (321147) от 29.11.2012
-
-Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&B
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3774D130F8598ABE88743B255B4F6E05A6CB732
 ```
 
 https://mybot314.ru/tekegram_catalog/

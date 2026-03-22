@@ -1,3 +1,61 @@
+###  Публикация: 1653694   (214136) от 17.08.2023
+
+Blank & Jones and Laid Back - Sitting in My Sofa (Van Bellen Remix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill out, Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_214136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sitting in My Sofa (Van Bellen Remix)
+02. Darlings
+03. Up 2 You
+04. Simple Life(   Читать дальше...   )Жанр: Electronic, Chill out, Downtempo, LoungeПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94D7EB8C8D74B8A0E2BD37E42E65CAECB9E8D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831725   (212256) от 29.10.2025
+
+VA - Ibiza Summer 2025 (Chill out Cookies from the Heart) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Steen Thottrup; Signe - My Balearic Soul (04:05)
+ 02.  Cataldo - Nightrock (Original Mix) (04:36)
+ 03.  Five Seasons - Before You Sleep (05:11)
+ 04.  Marc Hartman - A Tale of the Future (Original Mix) (05:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C263F94AE03D3D411156FCB9325F5FCB8B33DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638566   (211918) от 09.06.2023
 
 VA - Chillout Spring Gems 2023: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ VA - Chilled Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530FA87F9A14CCCFED790DC6EACB97953CACAA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588823   (191072) от 06.11.2022
-
-V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 21 (Special Selection) (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eve St. Jones – All Night Long (all Night)
-02. Lizette – Dance Hall Days
-03. Nenei – Peaches
-04. Eve St. Jones – Simple Song(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433ED76964DB39FBE779EEF3F8B31ECF5DA7A0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589498   (189739) от 11.11.2022
-
-VA - Chillout Autumn Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake and True - Seas of Passion (5:04)
-02. Beamy - Rising Sun (4:18)
-03. Martin Hiska - Remember (4:44)
-04. V-Sta - Slum of Dream (Original Mix) (4:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6BD6A22D491D3378CFCB3C2D5CAE5A3F8F2FE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

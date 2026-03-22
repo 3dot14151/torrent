@@ -1,3 +1,90 @@
+###  Публикация: 1200551   (795472) от 21.01.2018
+
+VA - Trance Collection Vol.67 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Beat Service feat. Ben Hague  -  Why Me (Andy Kern Uplifting Mix)  6:10
+002.  Driftmoon feat. Julie Elven  -  Midnight Sun (Extended Mix)  7:15
+003.  Feel-X feat. Robin Vane  -  Found Myself (Original Mix)  6:06
+004.  Sam Laxton feat. Noire Lee  -  Thunderstorm (Extended Mix)  5:30(   Читать дальше...   )Жанр: Vocal Trance, Uplifting Trance, Progressive TranceПродолжительность: 10:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A675334B81BFA9217622D0FFA11884D06ADA42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012110   (795416) от 29.04.2016
+
+VA - Bass Killer 5 (2016) [MP3|320 кб/с] <Dubstep, Electro House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795416.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Awoltalk & Croix — Midnight Special (Original Mix) (3:36)
+ 2. Baby Eazy-E3 — Gangsta Gangsta (Dr. Fresch Remix) (3:21)
+ 3. Botnek — Clickbait (Original Mix) (3:33)
+ 4. BURNS — Beauty Queen (Original Mix) (3:21)(   Читать дальше...   )Жанр: Dubstep, Electro House, TrapПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5039AA0FA06D883BA76583B255F79C7AE4E43E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386237   (795236) от 28.05.2020
+
+VA - Beatport Tech House: Electro Sound Pack #94 (2020) [MP3|320 Kbps] <Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795236.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hartronn - Boomers
+002. Jacob Groening - Atura
+003. DJ Nanni - Kriminal (Original Mix)
+004. Double Reaktion - Dark Silence(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 14:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CC1DAFBF6EF7EC311C9BBDD8DA6607A044FC03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012285   (794874) от 30.04.2016
 
 VA - Finding Around Happiness (Energy Tech Trance) 004 (2016) [MP3|320 кб/с] <Trance>
@@ -658,93 +745,6 @@ Space - Greatest Hits (Presents: Elgujakviso) (2016) [MP3|256 кб/с] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:076724C3F32D184502B7893F7784BD943A1DCA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274475   (792996) от 07.01.2019
-
-VA - Options Remake 150 Tracks (2018 December) (2019) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792996.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maor Levi - Gemini (Extended Mix)
-002. Arhard - Jamaican Trip (Original Mix)
-003. Bob Sinclar - I Believe (Rayven & Valexx Remix)
-004. Tim Tailor - Hell Them (Rene Rodrigezz Edit)(   Читать дальше...   )Жанр: HouseПродолжительность: 17:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2D22654E1F051B72D469A7CE7FC050DDCE250A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201340   (792881) от 24.01.2018
-
-VA - Goa House Party (2018) [MP3|320 Kbps] <House, Big Room, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Darius & Finlay ft. Mr. Shammi  -  Discotek People (Ancalima Remix Edit)  3:07
-02.  Uberjak'd & Fresh Til Death  -  Lose Our Minds (Original Mix)  5:15
-03.  SCNDL  -  Tahari  3:12
-04.  Will Sparks & Priyanka Chopra  -  Young And Free  3:32(   Читать дальше...   )Жанр: House, Big Room, DanceПродолжительность: 01:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EBBAEC2B3FC042A8382196B93AA7CC950C8261B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274448   (792734) от 07.01.2019
-
-VA - Deep House Collection Vol.195 (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792734.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Airia - Firefly (Original Mix)
-002. Al L Bo - Supernow  (Kastomarin Mix)
-003. Alex Spite - Forget Tonight (Original Mix)
-004. A-Mase, Sharliz - My Love  (A-Mase Ocean Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 14:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B14394BE8FA884DBBE2748C4A636501EE83F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

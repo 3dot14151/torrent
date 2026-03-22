@@ -1,3 +1,144 @@
+###  Публикация: 1349260   (138159) от 31.12.2019
+
+Vintage & Morelli - Hymn To The Night (2019) Silk Music [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Overture (3:15)
+02. Ascension (3:29) 123.78 bpm
+03. Lonely Shore (Album Mix) (feat. RNX & Arielle Maren) (4:00)
+04. Senshi (7:40)(   Читать дальше...   )Жанр: Progressive House, Trance, DowntempoПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3E56087A2E1707DE3FE79C5975AC0CC5592842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679569   (138064) от 25.11.2023
+
+Coiro - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C715C4007EDFC9ED253734A421726632D064EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273354   (138046) от 31.12.2018
+
+Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature (06:03)
+ 02. Air High (06:30)
+ 03. Feel (06:41)Жанр: Tech House, MinimalПродолжительность: 00:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872C0A3CF1803C26A5136A35A72839AC5F46C739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679544   (138044) от 25.11.2023
+
+VA - CAVALRY 009 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BATO - Thoughts (Original Mix) [7:36]
+02. Boy with Boat - Who Said (Original Mix) [6:34]
+03. DMTRI - Let Go (Original Mix) [6:24]
+04. Doshpot & FRANTZ (AUS) - Allure (Original Mix) [7:39](   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3014B597F4310EECAEB44E1CDC390C17845337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088650   (137955) от 31.12.2016
+
+VA - Equilibrium (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ran Salman - Zephyr [6.42]
+02. Soul Button & Nick Devon - Fading Light [7.29]
+03. Dahu & MPathy - Shattered [7.54]
+04. Nick Devon & BLANCAh - Harmstring [8.02](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3744698BFD73EEA6D6204575E962C4C6D777CC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273240   (137951) от 31.12.2018
 
 VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -584,149 +725,6 @@ Paranoid London - Arseholes, Liars, and Electronic Pioneers (2024) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B36EA6B14FEC7ABD4A0CEA7DC23FB6433B4B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706999   (113418) от 15.03.2024
-
-Irene Dresel - Rose Fluo (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fluo [00:09:03]
-02. Valkyrie [00:05:05]
-03. Moul [00:03:33]
-04. Glam [00:04:56](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416C98DD0002B9FCFA43A3621EB306A4F1032197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706991   (113417) от 15.03.2024
-
-LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axolotl [00:06:49]
-02. Corriente de aire [00:01:59]
-03. Manantial [00:04:27]
-04. Alita [00:03:29](   Читать дальше...   )Жанр: House, Techno, Electro, MinimalПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1E2904349CDCFE59C46ABA665F05A533925DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707355   (113361) от 16.03.2024
-
-Argy - New World (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Argy, Son Of Son - Faust (3:38)
-02. Argy, Weekend Heroes - No One’s Coming (3:39)
-03. Argy, Omnya - Aria (3:56)
-04. Argy - All Day Long (3:44)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EE6F00C6E27882F2E04941CC7D4AE977B567CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709611   (112789) от 25.03.2024
-
-VA - Balance pres: Dave Seaman & Quivver (Mixed) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 продолжительностью 01:09:33
-1. Charles Webster & Ursula Rucker – Begin Anew (Quivver & Dave Seaman Beginapella)Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C51EAF8C830638C61E2624A2FBF4298C047C84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711753   (112427) от 31.03.2024
-
-Anyma - Genesys II (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112427.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Anyma & PARISI - Sacrifice (3:46)
-02. Anyma - Now Or Never (3:59)
-03. Anyma - The Light (3:35)(   Читать дальше...   )Жанр: Minimal,Tech HouseПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD43AF6F4E3930728B83794807835189BFA771A
 ```
 
 https://mybot314.ru/tekegram_catalog/

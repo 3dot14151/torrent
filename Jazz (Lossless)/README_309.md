@@ -1,3 +1,177 @@
+###  Публикация: 1700515   (117007) от 17.02.2024
+
+VA - Holiday Sweet Relaxing Jazz Chilly Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Fade into the Sunset (4:44)
+02. Chillaxonic - Ethereal (5:09)
+03. eJazz Artistry - No Rhyme, No Reason (3:48)
+04. Kool&Klean - Whispers in My Ear (4:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987CD0C8C6D2073A9E5BBFF7116E117AB10ACE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700549   (117004) от 17.02.2024
+
+Svend Asmussen - Evergreens (1998) EMI Svenska AB [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. June Night [2:34]
+02. Night and Day [2:48]
+03. Limehouse Blues [2:45]
+04. I Love You [3:05](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE2A1819B06CE6A093CAD6233AF8CAE0CEC0B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700550   (116994) от 17.02.2024
+
+Donald Byrd - A New Perspective (1963) 1999, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elijah [9:21]
+02. Beast of Burden [10:08]
+03. Cristo Redentor [5:43]
+04. The Black Disciple [8:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4B3AD6FDD3D7170CBB0E681922A8B78713F543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700761   (116884) от 18.02.2024
+
+Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See You Later
+02. Get Down Tonight (Electro Swing Mix)
+03. What’s a Girl to Do…
+04. Golden Age(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCD354412FA691ED7BD016D86405D2A6991740E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700779   (116871) от 18.02.2024
+
+Sean Ono Lennon - Asterisms (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starwater [00:07:58]
+02. Thinking of M [00:04:45]
+03. Acidalia [00:07:02]
+04. Asterisms [00:11:06](   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFC5C437B3E540D81F686BD95398C1E8F70E830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700844   (116855) от 18.02.2024
+
+Erotic Jazz Music Ensemble - Midnight Intimacy: Gentle Caresses, Intimate Moments, Romantic Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love That Never Dies (3:27)
+02. Every Beat of Your Heart (3:27)
+03. Eyes of My Beloved (3:41)
+04. Romantic Poetry (3:53)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary Jazz, LoungeПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E98F4E1223F203B0A8D23F533BAC992235C01D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700708   (116848) от 18.02.2024
 
 Svend Asmussen - June Night (1983) 1993, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
@@ -571,180 +745,6 @@ VA - Jazz Vocals Pop Hits with a Jazz Twist (2024) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43552690CD1F78C61982B5EA5EC75D9CD5049A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701728   (116175) от 22.02.2024
-
-The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear a Rhapsody [3:56]
-02. Meditation [3:55]
-03. In Your Own Sweet Way [4:08]
-04. A Sleepin' Bee [5:58](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CC1E8C7B99FAC125FFB11292C6A37FFAB0A30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701476   (116173) от 22.02.2024
-
-Marian McPartland - Plays The Music of Mary Lou Williams (1994) Concord Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scratchin' in the Gravel [4:36]
-02. Lonely Moments [2:52]
-03. What's Your Story, Morning Glory? [4:27]
-04. Easy Blues [3:07](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E41675BFB0DDCF39AFD2DFF307E9485637E629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701752   (116172) от 22.02.2024
-
-Donald James Duncan - The Great Mystery (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surfside Run (3:30)
-02. Irie Sunrise (4:17)
-03. A New Dawn (4:23)
-04. Words Don't Convey (3:23)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FFE140E006EF6244038B7241D1BA4B29F3C672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701478   (116170) от 22.02.2024
-
-Donald Byrd Sextet - Getting Down To Business (1990) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme for Malcolm [7:42]
-02. That's All There Is to Love [5:45]
-03. Pomponio [10:21]
-04. I Got It Bad and That Ain't Good [8:31](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62787124E03F96FA83D9ED8121247763B89E0003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701755   (116167) от 22.02.2024
-
-Drew Davidsen - Power Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Spice Music - Power Trip (4:01)
-02. On Repeat (4:13)
-03. Exit Strategy (3:44)
-04. Aquatic Journey (4:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0011C5E859651CAC52F42C82905A051A628AB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701724   (116166) от 22.02.2024
-
-Blue Mitchell - Blue's Moods (1958 - 1960) 2011, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Close My Eyes [5:56]
-02. Avars [4:08]
-03. Scrapple from the Apple [4:00]
-04. Kinda Vague [6:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF2337C78B013E9C7B4C31B6B226689B1766C20
 ```
 
 https://mybot314.ru/tekegram_catalog/

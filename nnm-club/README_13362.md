@@ -1,31 +1,22 @@
-###  Публикация: 541052   (497618) от 04.09.2012
+###  Публикация: 540497   (502735) от 30.08.2012
 
-Trae Tha Truth - Tha Blackprint (2012) [MP3|320 кб/с]<Southern Rap>
+Design and interior of the wallpaper (29.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497618.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Feat. Dj Scream)
-02. Sick Of This Shit (Feat. R Kelly) (Prod. By Stroud & Platinum Hands)
-03. Choppa Talk (Feat. Young Jeezy & Yo Gotti) (Prod. By Sonny Digital)
-04. No Lie
-05. I Do This (Feat. T.I., Rico Love & Dj Khaled) (Prod. By J.U.S.T.I.C.E. League)
-06. Don't Like (Feat. T.I.)
-07. Bitch I'm From Texas (Feat. Z-Ro, Paul Wall, Slim Thug, Kirko Bangz & Bun B) (Prod. By 1500)
-08. Rollin (Prod. By Platinum Hands)
-09. Interlude (T.I. Speaks)
-10. Tell Me That I Can't (Feat. Meek Mill) (   Читать дальше...   )Жанр: Southern RapПродолжительность: 01:15:18
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:249A3CC1C9C9D6DD2C15913CDFDCC3A77BAB04E9
+magnet:?xt=urn:btih:3E393F34193655B8EE483681EB17D77EED02AC0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,25 +24,284 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 543013   (497617) от 04.09.2012
+###  Публикация: 540395   (502733) от 30.08.2012
 
-Журнал | Загородный дом №9 (179) [сентябрь 2012] [PDF]
+VA - Progressive Rock и его романтика (2012) [MP3|320 кб/с]<Hard Rock, Progressive Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamscape - The Violet Flame Forever
+ 02. Galahad - Beyond The Barbed Wire
+ 03. Rocket Scientists - Mariner
+ 04. Curved Air - Back Street Luv
+ 05. X㏌ema - The Secret
+ 06. Id GUINNESS - The One That Got Away
+ 07. Solaris - Ejszakai Tarlat - Ejszakai Tarlat
+ 08. Collage - Living In The Moonlight
+ 09. Hawkwind - Wastelands Of Sleep
+ 10. Eye 2 Eye - After All...Жанр: Hard Rock, Progressive RockПродолжительность: 04:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A470E093E0F6AD4DA8471FF79958E196C35DD47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540077   (502731) от 30.08.2012
+
+[Wallpapers] Обои для рабочего стола - Девушки [474шт.]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола - ДевушкиЖанр: ДевушкиРазрешение файлов: 1600x1200 - 4078x3078
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C3439F7E595FD2196C7C3A4C20A8582D56E26C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540335   (502730) от 30.08.2012
+
+VA - XXXL Super Evro Hits (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502730.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evanescence - Secret Door
+002. Brandon Flowers - Only The Young
+003. Lady Gaga - Judas
+004. Roman Bellezzo vs Slam DJs feat. Irene - Frozen (Radio mix)
+005. Modana & Carlprit - Party crash
+006. Jean Roch feat. Pitbull & Nayer - Name Of Love
+007. Kelly Rowland - Make Believe
+008. Sander van Doorn - Koko
+009. Bel Suono feat. DJ Magic Finger - Te quiero
+010. Chris Brown - Next 2 U (Solo Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2C28C32B58314E888F8265D24BC08A18F37945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539173   (502729) от 30.08.2012
+
+DJ Kocmoc - Euphoria Summer Dance vol.6 (2012) [MP3|320 кб/с]<Electro House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Jay Powell - Coming from the Heart
+ 02. Disco Cell - Everybody in the Club (Let's F**k!)
+ 03. Miguel Cortesano - Love Me
+ 04. Caudill & Turnipseed - Detroit Is Dead
+ 05. Andy Jay Powell - Yesterday Becomes Tomorrow
+ 06. Miguel Cortesano - Here I Go
+ 07. DJ Enzo.ch - Reach Up
+ 08. Brain Blast Creators - Morning Rain
+ 09. Disco Cell - Oxygene 4
+ 10. DJ Fait - Shining Star 2.0(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8EE91DCA5AE86D6302931E8749A36751B10B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540346   (502726) от 30.08.2012
+
+VA - MegaHit Европы плюс 3 50/50 (2012) [MP3|192-320 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T1One - Каплями
+02. Galena feat. Costi - Chik Chik (Radio Edit)
+03. Ksenona - Далеко-Далеко
+04. Nelly Furtado - Parking Lot
+05. Hi-Fi - Земляничный Дождь (Новая Версия)
+06. Wisin & Yandel - Tu Nombre
+07. Паулина Анис - Умная
+08. Milk & Sugar feat. Neri Per Caso - Via Con Me (It's Wonderful) (Radio Version)
+09. Ирина Кулькова - Я Искала Тебя
+10. Madcon feat. Maria Mena - Fakke Fly Bort(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F235CEB4FE664741357D6C5DA9A825F3617225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541135   (502723) от 30.08.2012
+
+VA - Дискотека хит за хитом 7 50/50 (2012) [MP3|128 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502723.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 МакSим - Небо-самолеты
+ 002 Owl City & Carly Rae Jepsen - Good Time
+ 003 Дмитрий Колдун - Под дождем
+ 004 Anna - Tell Me Why
+ 005 Наташа Богацкая - Магистрали
+ 006 Calvin Harris feat. Example - We'll Be Coming Back
+ 007 Никита - Подожди
+ 008 Nicky Romero Feat. Basto! - When Love Calls (Radio Edit)
+ 009 B.K - Секс
+ 010 Roma Pafos feat. Sunblind - For A Second (Original Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 11:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55035EA66A3570065776CDB3399D3314AF307BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539162   (502722) от 30.08.2012
+
+DJ Kocmoc - Electro Sensation vol.34 (2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502722.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zedd feat. Matthew Koma - Spectrum (Extended Mix)
+2. Brodinski feat. Louisahhh! - Nobody Rules The Streets (Original Mix)
+3. DubVision - All By Myself (David Jones Remix)
+4. Joman - Another Late Night 2012 (FTampa Mix)
+5. Justin Bieber - Boyfriend (Dada Life Remix)Жанр: Electro House, Electro ProgressiveПродолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91084BD39785F02329E082DA0D7CBCD972010984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540865   (502720) от 30.08.2012
+
+LibreOffice 3.6.1 Stable Portable by punsh [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502720.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; Calc – электронные таблицы; Impress – создание и просмотр мультимедийных презентаций; Draw – редактор векторной графики; Math – редактор математических формул. Одно из крайне положительных качеств - возможность работы всех этих приложений с соответствующими документами форматов MS Office.
+
+(   Читать дальше...   )Название программы: LibreOfficeЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540924   (502719) от 30.08.2012
+
+Журнал | Мой прекрасный сад №9 [сентябрь 2012] [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497617.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Миссия журнала в том, чтобы как можно больше людей нашло свой собственный дом и чтобы их жизнь в этом доме была максимально комфортной и интересной, чтобы их дети выросли здоровыми и могли сказать, что у них есть своя земля и свой собственный дом.Формат: PDF
+«Мой прекрасный сад» - самый популярный журнал по декоративному садоводству в Европе. Журнал предназначен для садоводов-любителей, владельцев загородных домов и дач.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D51C15F87683FF6C1FADE7892F0216C9E49C728
+magnet:?xt=urn:btih:454BD519D0D1CCD1AFF2723EA4DC96A0DA4B4BBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -59,329 +309,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 542025   (497616) от 04.09.2012
+###  Публикация: 540994   (502717) от 30.08.2012
 
-PhotoFiltre Studio X Portable By KGS 10.7.0 [Многоязычный + Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497616.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoFiltre Studio - отличная программа для ретуширования графических изображений, содержит большой ряд дополнительных возможностей. Данный инструмент не сложен в освоении и имеет все необходимые средства для редактирования, такие как настройка яркости, контрастности, насыщенности цветов и возможности гамма-коррекции. Помимо этого, в распоряжении пользователя находится свыше сотни фильтров для обработки изображений, например, акварель, пастель, эффект разбивания на пазлы и т.д.
-
-Те фильтры, которые используются чаще всего, вынесены на панель инструментов для более удобного доступа. Среди других возможностей PhotoFiltre Studio можно отметить использование слоев, расширенные возможности выделения и сохранение выделения в виде отдельного файла для дальнейшего использования. Кроме того, в этом редакторе можно работать с декоративным текстом, оптимизировать графику, создавать поздравительные конверты и открытки из готовых шаблонов.Существенно расширить опции программы можно подключив к ней плагины. Кроме этого, в распоряжении (   Читать дальше...   )Название программы: PhotoFiltre Studio X Portable By KGSЯзык интерфейса: Многоязычный + Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235414   (497605) от 12.09.2010
-
-Windows 7® DeepBlue™ x64 2010 (Eng+Rus LP)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7® DeepBlue™ x64
-Название Программы: Windows 7® DeepBlue™ x64
-Версия программы: v.08.2010
-Последняя Версия программы: v.08.2010
-Адрес официального сайта: www.microsoft.com
-Язык интерфейса: английский + русский lp
-Лечение: не требуется
-Тип лекарства: не требуется64-разрядный (х64) процессор с тактовой частотой 2 ГГц.
-2 ГБ оперативной памяти.(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318121   (497594) от 04.08.2019
-
-Катэр Вэй | Меня зовут Ворн (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497594.jpg" />
-</div>
-
-
-###  Подробнее
-
-На плечи подростка упала не лёгкая ноша – изменить целый мир, а он об этом даже не подозревает и просто пытается выжить во враждебной среде. Куда приведут извилистые дороги Империи юного героя? Сколько опасных приключений заготовила ему злодейка-судьба? Сможет ли он выбраться из подземного города, кишащего мутантами-людоедами? Осознав, что в одиночку ему ничего не (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 10:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03545C16D63506A71BE99F65F3783DAA037656DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317970   (497592) от 04.08.2019
-
-EagleGet 2.1.5.10 Stable + Portable [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_497592.jpg" />
-</div>
-
-
-###  Подробнее
-
-EagleGet - мощный и удобный загрузчик файлов из интернета по протоколам HTTP, HTTPS, FTP, MMS, RTSP. У программы простой интерфейс, который превратит загрузку необходимых файлов в простую процедуру.Утилита имеет свою поисковую закладку "видеоищейка", что позволит избежать использование сторонних программных продуктов для закачивания видеофайлов с таких (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318164   (497589) от 04.08.2019
-
-DailyArt v2.2.7 Premium [Ru/Multi]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_497589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день вдохновляйтесь прекрасными произведениями классического, модерн и современного искусства и читайте о них короткие истории. Присоединяйтесь к сообществу более 700.000 любителей искусства, для которых DailyArt - это то, что скрасит ваш день, каждый день. Сейчас на английском, китайском, итальянском, французском, португальском, испанском, турецком и французском (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 23.07.2019Разработчик: MoiseumПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318057   (497587) от 04.08.2019
-
-Topaz A.I. Gigapixel 4.2.2 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13472E52439769EAE12840CA172F2D5B3B23699C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318127   (497586) от 04.08.2019
-
-Елена Клещенко | ДНК и её человек (2019) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_497586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Елены Клещенко адресована всем, кого интересует практическое применение достижений генетики в таких областях, как криминалистика, генеалогия, история. Речь о возможности идентификации человека по его генетическому материалу. Автор рассказывает о методах исследования ДНК и о тех, кто стоял у их истоков: cэре Алеке Джеффрисе, придумавшем ДНК-дактилоскопию; эксцентричном (   Читать дальше...   )Жанр: Генетика, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318138   (497585) от 04.08.2019
-
-DiskTrix UltimateDefrag 6.0.20.0 RePack (& portable) by elchupacabra [Ru/En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_497585.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltimateDefrag - дефрагментатор и оптимизатор размещения файлов на жестком диске. Программа имеет высокую скорость работы и позволяет достигнуть максимальных результатов. Дефрагментация файлов - только незначительная часть улучшения работоспособности накопителя, другая, более важная часть - относительное размещение наиболее часто используемых файлов на винчестере, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318170   (497584) от 04.08.2019
-
-Формула 1. Сезон 2019. Этап 12. Гран-при Венгрии. Гонка (04.08.2019) HDTVRip
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Венгрии. Гонка (70 кругов, 306.63 км)
-Арена: Автодром Хунгароринг (Будапешт, Венгрия)
-04 августа 2018 года, воскресенье. 16:10 МСКТелекомпания: Матч АренаЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6EFCFEC9510C682FA8AC01B17EBA901A8BB4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318034   (497583) от 04.08.2019
-
-Topaz JPEG to RAW AI 2.2.1 RePack (& Portable) by elchupacabra [En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактируйте фотографии снятые в JPEG формате как будто бы они сняты в RAW. Используйте искусственный интеллект для преобразования JPEG в высококачественный RAW для лучшего редактирования. Избегайте искажений, уберите удаление артефактов сжатия, восстанавливайте детали и расширяйте динамический диапазон. Софт очень эффективен при удалении артефактов сжатия и восстановлении (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F59CE9A35E0B7A636E8AE1B89F1867457E09DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318182   (497582) от 04.08.2019
-
-Формула 1. Сезон 2019. 12-й Этап. Гран-при Венгрии. Гонка (04.08.2019) HDTV [H.264/1080i-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_497582.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 августа 2019 года, воскресенье. 16:10 МСК
-70-й сезон Формулы-1 2019 года
-12-й Этап. Гран-при Германии. Будапешт (Венгрия)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935894   (497581) от 10.09.2015
-
-VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+VA - Trance Eve Volume 40 (2012) [MP3|320 кб/с]<Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497581.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hoboken - Loungin it
-02. Il Greco - Nippon Horn
-03. Belloq - Naples Bay
-04. Sabado Playground - Ipanema Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:54
+001. Stoneface & Terminal feat. Ellie Lawson - Breaking Through
+002. Matt Nash - Close Your Eyes (Original Mix)
+003. Pedro Del Mar - Midnight Sun (Illitheas Remix)
+004. Rory Gallagher feat. Dawn - Remember Me (Dan Stone Breaks Remix)
+005. The Attic feat. Oh Laura - Release Me (Pulser Remix)
+006. Robbie Rivera feat. Jes - Turn It Around (David Solano & Landis Remix)
+007. The Thrillseekers feat. Fisher - Angel (Solid Stone Remix)
+008. Matt Darey And Stan Kolev feat. Aelyn - Follow You (The Madison Remix)
+009. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild And Perfect Day (Michael Jay Parker Peaktime Remix)Жанр: TranceПродолжительность: 04:20:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0A73FD401B4026DA6AF0307348DB86C0A58FB29
+magnet:?xt=urn:btih:CF01147AD903D45A987B92BC54D13DD72382D38F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,84 +343,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317957   (497580) от 04.08.2019
+###  Публикация: 541181   (502716) от 30.08.2012
 
-Ample Sound - ABP Lite II 2.3.1 VST2, VST3, RTAS, AAX x86 x64 Retail [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ample Bass P Lite II (ABPL) - это бесплатный ромплер является облегченной версией виртуальной электрической бас-гитары ABP.  Ample Sound воспроизвел точное звучание классических инструментов в виртуальном программном обеспечении с точностью и первозданной ясностью.
-Разрушающее редактирование и динамическая обработка не применялась (мы оставили больше возможностей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4DB0A8EF15FECF307C2B52755A9D5969D12F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318157   (497579) от 04.08.2019
-
-Dieter Meier ‎(Yello) - Tango For Fame (2017) Unofficial Release [FLAC|Lossless|image + .cue] <Electronic, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dieter Meier - Jim For Tango
-02. Dieter Meier - Cry For Fame
-03. Lunatica - The Edige Of Infinity
-04. The Bianca Story - Does Mani Matter(   Читать дальше...   )Жанр: Electronic, New WaveПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5AA1AED5E08FC1342F826572988F73EEE2E3893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934913   (497578) от 10.09.2015
-
-DJ Nike Twist - TranceWave 123 @ GTI Radio (03.09.2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
+Журнал | Школа гастронома №17 (211) [сентябрь 2012] [PDF]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497578.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Fredd Moz - Collision (Uplifting Mix) (Ghost Tunes)
-2. Dmitry Strochenko - With Me (Original Mix) (Silent Shore)
-3. Aly & Fila and Ferry Tayle - Napoleon (Original Mix) (FSOE)
-4. Dj Ayk feat. Juliet Lyons - When You're Mine (Beatsole Air Bang Dub Mix) (Magic Trance)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:03:54
+"Школа гастронома" - журнал для тех, кто любит готовить. В каждом номере журнала - кулинарные рецепты с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному шедевру, будь то яичница-глазунья или замысловатый французский соус, иллюстрирован цветными фотографиями. Все рецепты подобраны так, чтобы входящие в них продукты могла позволить себе средняя семья.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A89C384677839F9F8DCBFBC8BB2FEAE4CF25DC7
+magnet:?xt=urn:btih:FE0E887C9EAEB5F337366DCE519B89B84176E1AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,138 +369,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318185   (497577) от 04.08.2019
+###  Публикация: 1564000   (502715) от 16.07.2022
 
-Формула 1. Сезон 2019. 12-й Этап. Гран-при Венгрии. Гонка (04.08.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_497577.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 августа 2019 года, воскресенье. 16:10 МСК
-70-й сезон Формулы-1 2019 года
-12-й Этап. Гран-при Германии. Будапешт (Венгрия)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935782   (497576) от 10.09.2015
-
-VA - Looking For The Summer (2015) [MP3|320 кб/с]<Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B.Vivant - House Muzik (DJ Cross Remix)
-002. Dani Hageman - Hello (Original Mix)
-003. A.C.N. - Your Body
-004. Alessio Pras - Live Your Life (Feat. Tony T.) (agrmusic.org)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 08:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D8449A456E9E97FDA123C3588204FE9A87AA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318000   (497575) от 04.08.2019
-
-Джина Риппон | Гендерный мозг. Современная нейробиология развенчивает миф о женском мозге (2019) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веками женский мозг взвешивали, измеряли и находили ненужным. «Женщины ближе к детям и дикарям, чем к взрослому цивилизованному мужчине», – написал французский психолог Гюстав Лебон на рубеже XIX–XX веков. «Женский» мозг, часть несовершенной и хрупкой биологии, долго считали достаточным основанием, чтобы не допускать «слабый пол» к образованию, политике и науке. (   Читать дальше...   )Жанр: Популярная психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD114313B594A550F01792CDE228174BAFDEA2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935532   (497574) от 10.09.2015
-
-Дидро | Сочинения (1986-1991) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497574.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первый том Сочинений виднейшего представителя французского материализма XVIII в., главы энциклопедистов Дени Дидро вошли его философские произведения 1745 - 1780 гг. Работы "Опыт о достоинстве и добродетели" и "О достаточности естественной религии" впервые публикуется на русском языке.
-
-Во второй том Сочинений Дидро вошли работы "Продолжение (   Читать дальше...   )Жанр: История, философия, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52ABAC8BFC53C503DD98FDD10AD8FB696E4FE5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317999   (497573) от 04.08.2019
-
-Topaz Studio 2.0.4 RePack (& Portable) by TryRooM [En]
+Darkroom: Photo & Video Editor 6.0.6 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497573.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Topaz Studio - это быстрый, гибкий и одновременно мощный инструмент для редактирования фотографий для профессионалов, любителей и всех, кто находится между ними. Topaz Studio даст вам молниеносные результаты с эксклюзивной технологией обработки изображений.
-Программа работает по принципу недеструктивного редактирования: чтобы вы ни делали - у вас всегда есть возможность (   Читать дальше...   )Язык интерфейса: Английский
+Видео, портрет и фото в формате RAW. Darkroom — это фото- и видеоредактор премиум-класса, который прост в использовании для обычных фотографов, но достаточно мощный для профессионалов.Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2015-2022 Bergen Co.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:880E0BAC65644A437C8051992EDA65D3157487D6
+magnet:?xt=urn:btih:A157C58B52DB51E0916A4AE96A3987B8DCC6CB8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,25 +395,332 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 935931   (497572) от 10.09.2015
+###  Публикация: 1563945   (502714) от 16.07.2022
 
-В теме. Асад в осаде (2015) SATRip
+Honey Bone Rush - Reptilia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Reaper's Stare (feat. Adam Hyman) (00:04:14)
+02 - Fukushima Nuclear Make Out Party (00:02:27)
+03 - Children Of Doom (00:04:39)
+04 - Petty Theft (feat. Sin Seer) (00:03:37)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A318C3DC1EAD57C64001B1D0C816420D3C1D7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563850   (502713) от 16.07.2022
+
+Supasonic Fuzz - Cobracadabra (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cobracadabra
+02 Give Me Your Blood
+03 Pork Chop Express
+04 Echoestorm(   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1D170AD477C0AF539F168638BCAF9A8AFD1241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563972   (502712) от 16.07.2022
+
+Infernal Legion - Beast Reborn (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Baphomets Blood (00:03:04)
+02 - Archangel Rape (00:02:28)
+03 - Beast Reborn (00:01:54)
+04 - Santa Maria Scortum (00:02:47)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCA024A7AFCF2639B33D00516B8A7BF073D0914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563759   (502711) от 16.07.2022
+
+Taz Taylor Band - Nocturnal (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasting My Time
+02. Live Fast
+03. Raw Nerve
+04. George's Song(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546249E8AEFAF0117EE877E94D39F556A2CDDE20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563976   (502710) от 16.07.2022
+
+TunesKit AceMovi Video Editor 4.9.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502710.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.05.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A239774B1429DB9152E185FBDEFAAA9B2F5A01B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563899   (502709) от 16.07.2022
+
+Iridient Developer 3.7.1 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D495CD7859BCD28F0E3243AC1AC1311B0C745A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563921   (502708) от 16.07.2022
+
+Depressed Mode - 2 albums (2007 - 2009) [FLAC|Lossless|image + .cue] <Symphonic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502708.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Death Multiplies
+2.She's Frozen
+3.Loving a Shadow
+4.The Scent(   Читать дальше...   )Жанр: Symphonic Death, Doom MetalПродолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2178B39CB0529DE13317860E6CC9F2A9B4374D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563791   (502707) от 16.07.2022
+
+Jason Richardson - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Jazz Fusion, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502707.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tendinitis (feat. Luke Holland)
+2. Ishimura (feat. Luke Holland)
+3. Polyrhythmic Pug (feat. Luke Holland)
+4. p00mbachu (feat. Luke Holland)(   Читать дальше...   )Жанр: Progressive Metal, Jazz Fusion, MetalcoreПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3A45393F08572CD703700923CDE7AC3B16942D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563974   (502706) от 16.07.2022
+
+Color Wheel 7.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2022 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAA98A93019A93A44D68F330B204FA159BE95F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563910   (502705) от 16.07.2022
+
+KCNcrew Pack 07-15-22 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502705.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под macOS с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется.Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2005-2022 KCNcrewПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83056C9A2F4C82CD445ACDDF8A62CD785C84D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563779   (502704) от 16.07.2022
+
+Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502704.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pocari Sweat
+2. 19dreams
+3. I Put You Through Hell
+4. Nevermind(   Читать дальше...   )Жанр: Alt. Rock, Post-HardcoreПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD32BE0F751C9853359AA7EBA08E576FBF465E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564030   (502703) от 16.07.2022
+
+Минтранс (16.07.2022) SATRip
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497572.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-России не угрожают потоки сирийских беженцев. Об этом сегодня заявил глава Федеральной миграционной службы. По его словам, Россия исторически не является привлекательной для беженцев из ближневосточных стран. С гораздо большей охотой они едут туда, где уже есть многочисленные диаспоры. От наплыва нелегалов в последнее время задыхается Европа. Свои дома оставляют (   Читать дальше...   )Телекомпания: Москва ДовериеЖанр: ДокументальныйПродолжительность: 00:28:00
+Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:276EDE85FB422BFF7F7278DF222324E2E59C36F0
+magnet:?xt=urn:btih:D731ED66D17AF47296A5192A1184AEB2AB328811
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,80 +728,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 935299   (497571) от 10.09.2015
+###  Публикация: 1563734   (502702) от 16.07.2022
 
-Doomtree - All Hands (2015) [FLAC|tracks + .cue] <Hip Hop>
+Fellowship - The Saberlight Chronicles (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497571.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Final Boss (4:35)
-02. My Own Nation (3:38)
-03. .38 Airweight (4:10)
-04. Gray Duck (4:05)(   Читать дальше...   )Производство: Doomtree Records – DTR-050Жанр: Hip HopПродолжительность: 00:57:04
+01. Until The Fires Die
+02. Atlas
+03. Glory Days
+04. Oak And Ash(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:02:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC133AED19F810EB74D808C028420E2755400FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318074   (497570) от 04.08.2019
-
-Benvista PhotoZoom Pro 8.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497570.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoZoom Professional - программа является лучшей из имеющихся технологий для увеличения цифровых фотографий! Фирменная технология масштабирования S-Spline, используемая в PhotoZoom Professional, основана на запатентованной адаптивной методике, которую можно отнести к категории революционных. Сохраните качество Ваших снимков! Теперь Вы сможете увеличивать Ваши фотографии (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46325583C996EE4D98313A4C629EBACEE5606F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935967   (497569) от 10.09.2015
-
-Право голоса. Белоруссия перед выбором (10.09.2015) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497569.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: В октябре в Белоруссии состоятся очередные президентские выборы. Мало кто сомневается, что в очередной раз победит Александр Лукашенко. Но вопрос в другом: как поведёт себя страна после этих выборов? Если Запад их признает, то не повернётся ли Белоруссия в сторону Европы и Соединённых Штатов?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDEC049C0FF95E2CD99BDD983386A3936A15163A
+magnet:?xt=urn:btih:0E18467373EB663471211CF69B6A3DBDF0B1817F
 ```
 
 https://mybot314.ru/tekegram_catalog/

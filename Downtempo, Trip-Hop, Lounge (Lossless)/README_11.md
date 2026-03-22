@@ -1,3 +1,61 @@
+###  Публикация: 1529709   (732559) от 07.02.2022
+
+Geotronika - In The Moonlight (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillwave>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайны жизни (7:59)
+02. Небесный работник (5:55)
+03. В лунном свете (3:56)
+04. Двигаясь по звёздам (5:31)(   Читать дальше...   )Жанр: Ambient, ChillwaveПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DD9581086A7B225375D44E41E4D461ACB24F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283759   (732046) от 18.02.2019
+
+Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bizarre Love Triangle (02:48)
+02. Sorry for Laughing (03:11)
+03. Wishing (If I Had a Photograph of You) (02:43)
+04. Shack Up (03:46)(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FEA2185E20F115412DCD179FCEB63199F63E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529977   (729914) от 10.02.2022
 
 VA - Blue Sailing: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ Cantoma - Cantoma (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Lounge, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414C1E0F6182671287F598AAD42335B7DE974D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028764   (682134) от 26.06.2016
-
-VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bliss - Sleep Will Come 05:39
-02.Afterlife- Speck Of Gold 05:31
-03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
-04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290452   (678249) от 20.03.2019
-
-Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Downtempo, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightful (4:48)
- 02. Roses (4:37)
- 03. Blue Skies in Your Eyes (4:03)
- 04. Moonshine (4:38)(   Читать дальше...   )Жанр: Electronic, Breaks, Downtempo, ChilloutПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3730C5CF840A2D5152ED706B6D1F8072D4A63F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

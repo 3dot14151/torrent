@@ -1,52 +1,25 @@
-###  Публикация: 1674975   (160679) от 07.11.2023
+###  Публикация: 1598184   (163517) от 18.12.2022
 
-MWeb Pro 4.5.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160679.jpg" />
-</div>
-
-
-###  Подробнее
-
-MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
-MWeb поддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 CoderForArt IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BFB831AC489273BDE4E6FFD3849BFE992425DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674774   (160678) от 07.11.2023
-
-Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Atrocity - Blut (1994) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160678.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ignem Purificat Lilitu
-02. Fearless Dominance
-03. Opus ad Errantem (instrumental)
-04. De verloren tijd(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:30
+01.Trial [4:17]
+02.Miss Directed [3:38]
+03.In My Veins [4:41]
+04.B.L.U.T. [5:40](   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:04:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8FCF931D2EDFC1572BFC9982E76308600138022
+magnet:?xt=urn:btih:23FDFB490B1435912E0C9C9B3C6ADEE3B7C4356B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,228 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674856   (160677) от 07.11.2023
+###  Публикация: 1517302   (163516) от 14.12.2021
 
-Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleed
-02. Black Rain
-03. Never
-04. Follow Me (Part 1)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578122682174B711742E4210F536E91108C55F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674860   (160676) от 07.11.2023
-
-Angel Dust - Of Human Bondage (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Bondage
-02. Inhuman
-03. Unreal Soul
-04. Disbeliever(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2C1A33DC7254782838A470F88FFFB164C262CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674909   (160675) от 07.11.2023
-
-Darkside of Innocence - Infernum Liberus Est (2010) [FLAC|Lossless|image + .cue] <Symphonic Black Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Act I - Inferno 02:21
-02. Act I.I - Angel of Sin 04:23
-03. Act I.II - The Eve to a Colder Epoch 04:40
-04. Act II - Once upon Havoc and Despair 02:46(   Читать дальше...   )Жанр: Symphonic Black Gothic MetalПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4919B5D6639B3229F2983DBF8E103F0B370DC91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674926   (160674) от 07.11.2023
-
-Alan Pasqua, Peter Erskine, Darek Oles - Live In Italy (2022) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agrodolce [8:46]
-02. New Hope [7:49]
-03. Old School Blues [7:32]
-04. Nuages [5:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38405881AD26119BBA0897193BC426F5165A19B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674851   (160673) от 07.11.2023
-
-Evemaster - MMIV Lacrimae Mundi (2005) [FLAC|Lossless|image + .cue] <Melodic Black Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandemonium 04:59
-02. Whispers 05:55
-03. Embraced 04:13
-04. Archways 06:35(   Читать дальше...   )Жанр: Melodic Black Gothic MetalПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216B862BC8230C3568FBAF675960E909AAA4454A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674906   (160672) от 07.11.2023
-
-Нахема - Сюжеты иного писания (2006) [FLAC|Lossless|image + .cue] <Gothic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Марш апокалипсиса 7:16
-02. Опухоль мира 8:04
-03. В тумане гнева 7:20
-04. Опера волчицы 8:36(   Читать дальше...   )Жанр: Gothic Black MetalПродолжительность: 01:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ABBDF48FF82F012311436694A5F1BD038A9A7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674903   (160671) от 07.11.2023
-
-Bethlehem - Lebe Dich Leer (2019) 2CD [FLAC|Lossless|image + .cue] <Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verdaut in Klaffenden Mäulern 05:41
-02. Niemals Mehr Leben 04:37
-03. Ich Weiß Ich Bin Keins 05:07
-04. Wo Alte Spinnen Brüten 07:48(   Читать дальше...   )Жанр: Dark MetalПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF72A738FAB7FBDAAACFBC1EF232F35D7EC4840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674944   (160670) от 07.11.2023
-
-Privatus 7.0.1 [Multi]
+GeoGebra 6.0.680.0 Classic + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160670.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский, Французский и Немецкий
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C5D693534AD36C3975BEA128A1120126638E53B
+magnet:?xt=urn:btih:6BE3482FA5274D689B8EB3371550922FB3B604D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,27 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675024   (160669) от 07.11.2023
+###  Публикация: 1346507   (163515) от 19.12.2019
 
-Благовест | О крестном знамении (2016) [PDF, FB2, EPUB, MOBI, TXT]
+А.В. Чудова (ред.) | Рисуем голову и фигуру человека (2018) [PDF]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160669.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящая брошюра рассказывает о сути, силе и значении крестного знамения для каждого православного христианина. Отдельное место в издании уделено формам крестного знамения в истории Церкви, а также правилам и порядку наложения крестного знамения во время разных богослужений в храме и во внебогослужебное время.
-
-Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+В этой книге собраны пошаговые уроки и рисунки четырех опытных художников, которые познакомят вас с основами рисования портрета и фигуры человека. Здесь вы также найдете много полезных советов относительно выбора инструментов и материалов, видов штриховки и других базовых аспектов рисования, а также важную информацию о влиянии на рисунок костной и мышечной систем (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF946D96D558AA5B7562686D65AFDB5C6109EB84
+magnet:?xt=urn:btih:73F19270068B3D87D762B5036500C84A877958A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +79,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674881   (160668) от 07.11.2023
+###  Публикация: 1598190   (163514) от 18.12.2022
 
-Подшивка журнала | Ваш семейный доктор №1-4 (январь-август 2023) [PDF]
+Behemoth - At The Arena Ov Aion - Live Apostasy (2008) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rome 64 E.V. [01:35]
+02. Slaying The Prophets Ov Isa [03:39]
+03. Antichristian Phenomenon [04:14]
+04. Demigod [03:36](   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E841425E63E5778BE0020113707A6A5D3A2ACC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517255   (163513) от 14.12.2021
+
+Lordi - Lordiversity (2021) Box Set, Limited Edition, 7xCD [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Albums:
+- Skelectric Dinosaur
+- Superflytrap
+- The Masterbeast From The Moon(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8823A08BD3D17F1769C49121A7983B21346755FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379332   (163512) от 17.12.2020
+
+В.В. Мамаева | Прописи. Первоклассные упражнения. 5-6 лет (2010) [PDF, JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163512.jpg" />
+</div>
+
+
+###  Подробнее
+
+А-класс — это рабочие тетради для детей 4–6 лет, в которых собраны лучшие упражнения для подготовки к школе. Рабочие тетради помогут малышам-дошкольникам научиться считать, читать и писать, развить речь и мышление. А чтобы заниматься было не скучно, рисовать и раскрашивать можно прямо на страницах. Задания рабочей тетради «Прописи» помогут ребенку научиться аккуратно (   Читать дальше...   )Жанр: ПрописьФормат: PDF, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A39784E6C9E74D1102DB79D50957020F943D0CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673938   (163511) от 03.11.2023
+
+Газета | Народный совет №43 (17 октября 2023) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160668.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ваш семейный доктор» — издание об альтернативной медицине, которое содержит достоверную информацию о здоровом образе жизни, профилактике и лечении различных заболеваний. В журнале вы найдете проверенные и понятные советы профессиональных докторов; уникальные разработки и классические методы поддержания физического и душевного равновесия; рекомендации и советы по (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Изначально электронное (ebook)
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: КТ "ООО Бауэр СНГ"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FCA278C07623DF431435D785B30F9F676E7FB97
+magnet:?xt=urn:btih:B613DB6DEE27ACE2E388EB1FD0A32FF406EBF69A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +189,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674708   (160667) от 07.11.2023
+###  Публикация: 1346582   (163510) от 19.12.2019
 
-Seventh Wonder - Mercy Falls (2008) Reissue, 2023, Frontiers Music SRL [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal>
+Cathleen Shamieh | Electronics For Dummies / Электроника для чайников (2019) [EPUB] [EN]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160667.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A01. A New Beginning
-A02. There And Back
-A03. Welcome To Mercy Falls
-A04. Unbreakable(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:57
+Создайте свое рабочее место по электронике и начните создавать забавные проекты по электронике прямо сейчас. В этой книге, содержащей сотни красочных диаграмм и фотографий, представлены пошаговые инструкции для экспериментов, показывающие, как работают электронные компоненты, советы по выбору и использованию основных инструментов и захватывающие проекты, которые (   Читать дальше...   )Жанр: Учебное пособиеФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE706A299898C6CF1A5FE5E8D9A0FEBEAA62CF7F
+magnet:?xt=urn:btih:19D6E7DD2AE58744AB3B6DD9D10B5131A329570D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,135 +215,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675008   (160666) от 07.11.2023
+###  Публикация: 1598207   (163509) от 18.12.2022
 
-Наталья Андреева | Дети Белой Богини (2023) [MP3, Александр Сидоров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160666.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тихом маленьком городе N все было спокойно и благополучно. Пока там не стали происходить мистические события. Убийства, вандализм захватили город. Самое загадочное то, что каждое из этих событий «случалось» дважды: один раз во сне бывшего следователя Завьялова, второй раз в реальности.Жанр: ДетективИздательство: ЛитРес: чтецПродолжительность: 07:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1466DDD78A51B8B48C4EC3B2B3F8048A1AE890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674883   (160665) от 07.11.2023
-
-Журнал | Ваш семейный доктор №6 (ноябрь-декабрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160665.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ваш семейный доктор» — издание об альтернативной медицине, которое содержит достоверную информацию о здоровом образе жизни, профилактике и лечении различных заболеваний. В журнале вы найдете проверенные и понятные советы профессиональных докторов; уникальные разработки и классические методы поддержания физического и душевного равновесия; рекомендации и советы по (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE78998F1048A3DC3DCF39CB5236165E19D9775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674978   (160664) от 07.11.2023
-
-Notebooks – Write and Organize 3.3.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Notebooks является единственным блокнотом, который когда-либо может вам понадобиться. Он позволяет создавать огромное количество записей. Он станет одним и единственным хранилищем не только для всех журналов, идей, заметок, черновиков, рассказов и дневников, но и для ваших проектов, списков задач, документов, файлов и все остального, что вы хотите хранить под рукой. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2012-2023 Alfons SchmidПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B93396C8649C01FB33998D3D9702FA94C25B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674923   (160663) от 07.11.2023
-
-Joshua Redman - Where Are We (2023) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Minneapolis (Face Toward Morning) [7:44]
-02. Streets of Philadelphia [5:21]
-03. Chicago Blues [4:54]
-04. Baltimore [5:38](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Vocal JazzПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944DB1DCECA32E935A19A3BB5E6EAEB32F01E85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674872   (160662) от 07.11.2023
-
-Necrophagia - The Divine Art Of Torture (2003) [APE|Lossless|image + .cue] <Death Metal>
+Aurora Ortus - Ostara (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160662.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Blaspheme The Body
-02.  Upon Frayed Lips Of Silence
-03.  Parasite Eve
-04.  Maim Attraction(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36L52
+01 - Rise of the Old Spirits (06:18)
+02 - Eclipse (02:55)
+03 - The Death of All We Know (09:36)
+04 - The Last Warning (05:19)(   Читать дальше...   )Жанр: Black, Doom MetalПродолжительность: 00:58:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E249E29CD2152E84013C53ADA12BAAFF3AFE4DE4
+magnet:?xt=urn:btih:9793819B8D8AC14F5383477BCBC925E7124E3280
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,28 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674871   (160660) от 07.11.2023
+###  Публикация: 1432475   (163507) от 17.12.2020
 
-Radioactive - Taken (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160660.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. C.O.W.
-02. Taken
-03. Stronger Than Yesterday
-04. Premonition(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:47
+Легендарный разработчик Хидео Кодзима выпускает новую знаковую для жанра игру. Сэм Бриджес должен преодолеть мир, трансформированный Петлёй смерти. Держа в своих руках бессвязные остатки нашего будущего, он отправился в дорогу, чтобы восстановить связь между осколками мира. В главных ролях: Норман Ридус, Мадс Миккельсен, Леа Сейду и Линдси Вагнер.Тип издания: LicenseРазработчик: KOJIMA PRODUCTIONSЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30568876F77EBF2BA7AA4842E407778D2062DB78
+magnet:?xt=urn:btih:CE14E1C837B74FE4A4DAF30F0AB77743FD08042E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,25 +270,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675009   (160659) от 07.11.2023
+###  Публикация: 1517298   (163506) от 14.12.2021
 
-FonePaw iOS Transfer for Mac 5.7.0 [Multi]
+FBackup 9.4.464 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163506.jpg" />
+</div>
+
+
+###  Подробнее
+
+FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942B2C1334592084C0B876869A199980EFAB1725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346469   (163505) от 19.12.2019
+
+Сплин - Тайком (2019) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воздушный шар
+02. Тайком
+03. Атом
+04. Гимн(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13611BEEC196ACD6DD7F07AECE746DB0FBD52DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673898   (163504) от 03.11.2023
+
+Sync Folders Pro 4.6.8 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160659.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Функциональное и компетентное программное обеспечение поможет вам легко переносить музыку, фотографии, видео, контакты, SMS и т. д. с вашего устройства iOS на компьютер или в iTunes. Нет необходимости устанавливать iTunes.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2014–2023 FonePaw Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Испанский и др.
+Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
+Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 GreenWorldSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AC061E476CCCCF04F39716E821251960D6F8475
+magnet:?xt=urn:btih:D2EE73B39F9E5756C553DD7EA1F89FC1460DE6D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,28 +352,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674795   (160658) от 07.11.2023
+###  Публикация: 1517294   (163503) от 14.12.2021
 
-Aura - Злая магия (2019) [FLAC|Lossless|image + .cue] <Symphonic Gothic Power Metal>
+Autorun Organizer 5.13 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autorun Organizer - простое в использовании приложение, позволяющее управлять программами, которые запускаются при старте системы. Инструмент является надежным менеджером автозагрузки, который позволяет просматривать и управлять программами, запускающимися автоматически при старте системы. Вы можете просмотреть свойства программ, проверять на вирусы с помощью онлайн-антивируса (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6D19DF9065606A972806B4D0BFDFA3A6384761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598232   (163502) от 18.12.2022
+
+Balrog - Bestial Satanic Terror (2006) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01- Intro
+02- Through The Eeyes Of The Beast
+03- Give War A Chance
+04- Nazgül Warlord(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F65261B7AA3B828D1180008A803FB2CAC10EE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432318   (163501) от 17.12.2020
+
+Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163501.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе 2084 год. Будущее оказалось намного мрачнее, чем казалось раньше. Сперва появился нанофаг – цифровая эпидемия, унесшая жизни многих тысяч аугментированных людей. Затем началась война, превратившая Запад и Восток в руины. В образовавшемся вакууме к власти пришли корпорации, создав собственные империи беззакония.Тип издания: RepackРазработчик: Bloober Team SAЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278CAD3BDBCC01208957A69CAB5E418C117D24F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346549   (163500) от 19.12.2019
+
+Сплин - Тайком (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160658.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. На смерть поэта 5:57
- 02. Моя философия 6:02
- 03. Город 4:46
- 04. Ветер души 3:58(   Читать дальше...   )Жанр: Symphonic Gothic Power MetalПродолжительность: 01:01:36
+1. Воздушный шар
+2. Тайком
+3. Атом
+4. Гимн(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD2E55389718641D28028EDC3B831B2747B0D7EF
+magnet:?xt=urn:btih:A60E9E08CD7B2212ADAEA609A4D47785EA9090B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,27 +462,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675000   (160657) от 07.11.2023
+###  Публикация: 1432287   (163499) от 17.12.2020
 
-Be Focused Pro - Focus Timer 2.4 [En/Ru]
+Microsoft Windows 10.0.19041.685 Version 2004 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [Ru]
 
->>Архив торрентов
->>Архив 4Apple
+>>ОС Windows
+>>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160657.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Be Focused Pro - создайте задачи, настройте перерывы и отслеживайте свои успехи в течение дня, недели или в произвольный промежуток времени.
-«Помидорная техника» планирования, в основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
-Be Focused Pro - сосредоточитесь на производительности. Be Focused (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 XwavesoftПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Русский и Английский
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.685.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC32D47487F2E8CB85508EFF8FE1F70D8F0EF36C
+magnet:?xt=urn:btih:D93D4CB49BF0A2600746A42DC8DAABE7FDEAACAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +489,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675020   (160656) от 07.11.2023
+###  Публикация: 1517096   (163498) от 14.12.2021
 
-Сибирская Благозвонница | Читаем Евангелие с детьми (2022) [PDF, FB2, EPUB, MOBI, TXT]
+VA - Soft Pop (relax) (2021) [MP3|320 Kbps] <Pop, Chillout, Other>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160656.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга представляет собой подробный, по стихам, разбор Евангелия от Луки, поданный в форме непринужденной беседы отца со своими четырьмя детьми. Разговор о Евангелии, предельно серьезный и глубокий, тем не менее остается доступным для восприятия ребенка и подростка. Автор говорит о важных и порой непростых вещах понятно и объясняет требующие толкования евангельские (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+001. HAEVN - Where the Heart Is (3:53)
+002. Wyke van Weelden - You Are All I Want (2:25)
+003. Commodores - Easy (4:16)
+004. R.E.M. - Find The River (3:49)(   Читать дальше...   )Жанр: Pop, Chillout, OtherПродолжительность: 05:55:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15810C95E3984C892F654D4B269A5E92D7B244C2
+magnet:?xt=urn:btih:711A021A42AFBFED6A07B3ABA31ECB3C63B30954
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,57 +518,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674754   (160655) от 07.11.2023
+###  Публикация: 1598203   (163496) от 18.12.2022
 
-Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160655.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wiseman
-A2. Alley Cat
-A3. The Angelmaker
-B4. King Of Whitewater(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D79F0D2F176BF1F22D1ABE5203ACFB61CD50A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674854   (160654) от 07.11.2023
-
-Angel Dust - Border Of Reality (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Born Of Fire - Anthology (2012) [APE|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160654.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Border Of Reality
-02. No More Faith
-03. Nightmare
-04. Centuries(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:05
+01. Centrifuge
+02. In the End
+03. Lifemares
+04. After the Fire(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:18:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80B0C7698CA6D14929429F6C4241EF6336CFD72A
+magnet:?xt=urn:btih:F98F53CD90100C086AE03F52E32921B0A451A7C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,25 +547,159 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675014   (160653) от 07.11.2023
+###  Публикация: 1673847   (163495) от 03.11.2023
 
-Галина Романова | Лабиринт простых сложностей (2023) [MP3, Максим Ушаков]
+Ataraxia - Sous Le Blanc Rosier (2007) 2CD [FLAC|Lossless|image + .cue] <Gothic, NeoClassical, NeoFolk>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160653.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полковник Хмельнова имела неосторожность назвать новое дело банальным. И как сглазила! Стройная версия рассыпалась, все запуталось, и кого подозревать в совершении убийства, непонятно… А началось все с того, что две подруги не поделили парня. Алла пригласила Ирину в гости, рассказала, что собирается уезжать с любимым Иваном на Сахалин, даже продает квартиру. В разгар (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 07:17:13
+Информация: Ataraxia («Атараксия») — итальянская неоклассическая группа, комбинирующая в своём творчестве современные технологии с различными старинными инструментами. Сами участники группы описывают свою музыку как нечто среднее «между сакральным и профанацией, ethereal и неоклассицизмом, современной и средневековой музыкой». Они изучают европейские легенды, совмещая (   Читать дальше...   )01. Hovering (New Version)
+02. Lucretia
+03. Orlando A Male
+04. The Gentle Sleep(   Читать дальше...   )Жанр: Gothic, NeoClassical, NeoFolkПродолжительность: 02:10:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20677F7A1F6EA581CFB99FE69040E13B1D500869
+magnet:?xt=urn:btih:5354EB6FB7FEF8F057195FAE8997361006F4F765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432556   (163494) от 17.12.2020
+
+Питер  Яворски | Ловушка для багов. Полевое руководство по веб-хакингу (2020) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163494.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чтобы чему-то научиться, надо применять знания на практике. Именно так мы освоили ремесло взлома» - Майкл Принс и Йоберт Абма, соучредители HackerOne.
+«Ловушка для багов» познакомит вас с белым хакингом — поиском уязвимостей в системе безопасности. Неважно, являетесь ли вы новичком в области кибербезопасности, который хочет сделать интернет безопаснее, или опытным (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB0D772C6F83B37372406DBFDCFF733F9DDE415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517145   (163493) от 14.12.2021
+
+Владимир Набоков | Ада, или Радости страсти. Семейная хроника (2021) [MP3, Алексей Шульгин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создававшийся в течение десяти лет и изданный в США в 1969 году, роман Владимира Набокова «Ада, или Радости страсти» по выходе в свет снискал скандальную славу «эротического бестселлера» и удостоился полярных отзывов со стороны тогдашних литературных критиков; репутация одной из самых неоднозначных набоковских книг сопутствует ему и по сей день.Жанр: Русская классическая прозаПродолжительность: 28:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD744026D3249D10B876BC523EC7A519CD75153C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516992   (163492) от 14.12.2021
+
+Больше никогда не спи: Наследие улицы Вязов / Never Sleep Again: The Elm Street Legacy (2010) BDRip [MVO] [AD]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм, созданный в поддержку ремейка одноимённого фильма 1984 года - «Кошмара на улице Вязов». Сценарий фильма написали Эрик Хайссерер и Уэсли Стрик. В качестве продюсеров фильма выступают Майкл Бэй, Эндрю Форм и Брэд Фуллер. Девятый фильм в серии. На начальной стадии работы планировалось, что фильм начнёт новую кино-трилогию. Роль Фредди Крюгера исполняет (   Читать дальше...   )Производство: США / 1428 Films, Panic ProductionsЖанр: документальный, ужасыРежиссер: Дэниэл Фаррандс, Эндрю КашАктеры: Хэзер Лэнгенкэмп, Стэйси Элден, Эрика Андерсон, Маршалл Белл, Фран Беннетт, Ховард Бергер, Чарльз Бёрнстин, Даг Бесвик, Р. Кристофер Биггз, Беатрис Боппл и другие.Перевод: Многоголосый закадровый (Omskbird)Язык озвучки: русский, английскийСубтитры: русские (Forced) отдельноПродолжительность: 03:58:43Реклама: Присутствуют 2 аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7FCF818EF6722B29A66F0C7F45F61CC84B0651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431996   (163491) от 17.12.2020
+
+Native Instruments - Guitar Rig 6 Pro 6.1.1 STANDALONE, VST, AAX (x64) RePack by VR [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращение с новым внешним видом, новыми усилителями, новыми эффектами и новой технологией машинного обучения для моделирования современного оборудования. Guitar Rig 6 Pro поставляется с 68 эффектами и инструментами – огромным выбором способов настроить свои звуки и сделать их своими собственными. От легендарных топ-боксов до высоко востребованных стоечных модулей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865E6E0EE34590CDA29CED9B55729B606F01BF87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673811   (163490) от 03.11.2023
+
+Журнал | РИТМ Машиностроения №6 (2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163490.jpg" />
+</div>
+
+
+###  Подробнее
+
+«РИТМ Машиностроения» – специализированный журнал по оборудованию, оснастке, комплектующим, инструменту. Цели издания: Обеспечивать читательскую аудиторию наиболее полной информацией в области обрабатывающего оборудования. Отображать тенденции развития станкоинструментальной отрасли. Освещать вопросы производства, покупки, продажи, модернизации, ремонта, обслуживания (   Читать дальше...   )Жанр: Журнал по машиностроениюИздательство: ООО «ПРОМЕДИА»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45460DF6E0897AAB5FAE16F26F85808E51899C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

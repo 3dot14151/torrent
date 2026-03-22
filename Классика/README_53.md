@@ -1,3 +1,116 @@
+###  Публикация: 1730364   (53193) от 15.06.2024
+
+VA - Mozart: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice - I. Allegro (3:08)
+02. Katya Kramer-Lapin - 2 Transcriptions on Themes from Mozart's Requiem, S. 550 - No. 2, Lacrymosa (3:36)
+03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331╱300i - I. Andante grazioso (2:15)
+04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7239D9197A716CA7CDE730CEC9CCFC2995485A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730729   (52795) от 19.06.2024
+
+Maurice Ravel - The Complete Works (2020) 21CD [FLAC|Lossless|image + .cue] <Classics>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52795.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-5: Piano works
+CD6-7: Chamber music
+CD8-12: Orchestral works
+CD13-15: Songs, Choral worksЖанр: ClassicsПродолжительность: 24:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57AEFDE9E2D02AFFD7D4FF33EB7D1CC8B2F77A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732073   (52203) от 24.06.2024
+
+Mozart - Complete Piano Sonatas (2014) (Михаил Воскресенский) [FLAC|Lossless|tracks] <Classical, Piano, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52203.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:Жанр: Classical, Piano, SonataПродолжительность: 05:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEE65386C66151E0281A3E0FEA7BCB967336643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732524   (52002) от 25.06.2024
+
+VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A27317C18E043FDD6A0E0E4B899E5AC0236265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732892   (51815) от 27.06.2024
 
 VA - Calming Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -629,123 +742,6 @@ Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC8D0BBFB1CD0581E176AFCA02673B85E130C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755568   (40192) от 16.10.2024
-
-Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Se Quel Guerrier Io Fossi ... Celeste Aida (Aida) 4:33
-02. Questa O Quella (Rigoletto) 1:50
-03. Ella Mi Fu Rapita ... Parmi Veder Le Lagrime (Rigoletto) 4:47
-04. La Donna E Mobile (Rigoletto) 2:24(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B061AA95B096AFBEF22F218AB68B6B88BC2D4798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755603   (40159) от 16.10.2024
-
-Anastasia Calmus - Revelations (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sì dolce è'l tormento, SV 332 (Transcr. for Piano by Vyacheslav Gryaznov) (3:07)
-02. Sonata in C Major, Kk. 159 La caccia (2:29)
-03. Keyboard Sonata in D Minor, Kk. 1 (2:22)
-04. Keyboard Sonata in A Major, Kk. 208 (4:34)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A63A31AF6D69E0B30950A4BD0F018D796BD685B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366991   (37459) от 13.11.2024
-
-Wolfgang Amadeus Mozart - The Horn Concertos - Oboe Concerto (2001) [FLAC|Lossless]<Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37459.jpg" />
-</div>
-
-
-###  Подробнее
-
--- Horn Concerto in D major, K.386b (K.412 & 514)
-01. 1. Allegro (04:39)
-02. 2. Allegro (03:32)
-(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58EF5A8AE71EBBFDD0C4C750004604DB09A12809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761430   (36700) от 20.11.2024
-
-Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|image + .cue] <Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Secret Garden, ирландско-норвежский проект, специализирующийся на инструментальной музыке, является одним из самых успешных дуэтов в мире: более 3 миллиардов прослушиваний и 5 миллионов проданных физических носителей. Спустя почти три десятилетия совместной работы Rolf Lоvland и Fionnuala Sherry собрали 113 платиновых трофеев по всему миру.
-Их 12-й студийный альбом (   Читать дальше...   )01. Renaissance (4:44)
-02. feat Espen Grjotheim - Lullaby For Grown-Ups (4:35)
-03. Fionnuala's Violin (3:57)
-04. Irish Waltz (3:32)(   Читать дальше...   )Жанр: NeoclassicalПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFFDCB2E6A678237D8A3DC02A110E65DD070EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

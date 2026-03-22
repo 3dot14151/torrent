@@ -1,3 +1,32 @@
+###  Публикация: 1071404   (361701) от 09.11.2016
+
+Cerrone - Red Lips (2016) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy
+02. Move Me
+03. Illuminate Me
+04. Ain't No Party (Like Monday Night)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3803E1218A479251AFD52B91748DDC100074C27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407642   (360799) от 07.11.2011
 
 Collage - Raccolta Di Successi (1995) [FLAC|Lossless]<Italo-pop>
@@ -722,35 +751,6 @@ Rare80 Volume 1 CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF887A78FFEC06EBC5BD274598FF37BD4A2D83A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421322   (317474) от 05.11.2020
-
-VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 2 CD1
-01. Shanghai - Ballerina (Club Mix)
-02. Andrea - Macho Man (Macho Man Version)
-03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

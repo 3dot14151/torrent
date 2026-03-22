@@ -1,3 +1,32 @@
+###  Публикация: 986868   (929277) от 15.02.2016
+
+Do Or Die - Crows (2015) [MP3|320 кб/с]<Groove Metal, Hardcore, Thrash Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929277.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:08] 01. Crows
+[03:41] 02. Off With Their Heads
+[03:36] 03. Bella Famiglia Soldiers
+[03:52] 04. Bunker Hill Blues(   Читать дальше...   )Жанр: Groove Metal, Hardcore, Thrash Metal, DeathcoreПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BF503BE31B58DFD7E18759DC4CFF576E421C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365548   (929152) от 08.03.2020
 
 Vetur - Nætur, Vist (2018-2020) [MP3|320 Kbps] <Black Metal>
@@ -719,34 +748,6 @@ Brainstorm - Wall of Skulls (2021) [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E2F80305ECCA3B1E396662DBF073DEB4A2FF222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366728   (920720) от 13.03.2020
-
-DED - 2 Releases (Mis-An-Thrope (CD) / Mannequin Eyes (EP)) (2017-2020) [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Mannequin Idol (Lullaby)
-02. Eyes Sewn Shut
-Продолжительность альбома: 00:06:02Жанр: Nu MetalПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A186B2111D9FDEFC7145112D795E9F2C5D18FFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

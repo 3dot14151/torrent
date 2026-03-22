@@ -1,3 +1,119 @@
+###  Публикация: 1595386   (175631) от 05.12.2022
+
+NOFX - Double Album (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darby Crashing Your Party (2:24)
+02. My Favorite Enemy (2:34)
+03. Don't Count on Me (4:19)
+04. Johanna Constant Teen (1:18)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15D621125081770A457DA589DC34698B96D076A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595448   (175107) от 06.12.2022
+
+Cyan Kicks - Someone Like You (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock, Electronic, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Like You [00:02:54]
+02. See the Light [00:03:18]
+03. Hurricane [00:03:00]
+04. Invincible [00:03:05]Жанр: Alternative Rock, Pop-Rock, Electronic, Female VocalПродолжительность: 00:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A622AB7483E8461959FE5D73E6ABF85AC894E8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668003   (174740) от 11.10.2023
+
+XTC - The Big Express (1984) Remaster, 2001, Virgin Records [FLAC|Lossless|WEB-DL|tracks] <Punk, Post-Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up (2001 Remaster) [00:04:40]
+02. All You Pretty Girls (2001 Remaster) [00:03:40]
+03. Shake You Donkey Up (2001 Remaster) [00:04:19]
+04. Seagulls Screaming Kiss Her Kiss Her (2001 Remaster) [00:03:50](   Читать дальше...   )Жанр: punk, post-punk, new waveПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE434F1C1830DE1EF9BD8253D1D8A85210A36AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668087   (174589) от 11.10.2023
+
+Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuckboy [00:03:26]
+02. Boots Walkin' All over You [00:02:45]
+03. The One [00:02:41]
+04. No Spell for Moving Water [00:03:22](   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCF68872BA19ADD4B49DDFC19CBC3504E8CFC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595743   (174549) от 07.12.2022
 
 Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Experimental rock, Electronic rock>
@@ -624,123 +740,6 @@ Leander Kills - Verkeringo (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mode
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B421345592534D469A610314117D3AE26895D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597011   (167709) от 13.12.2022
-
-Sellouts - Sellouts (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery District [00:02:54]
-02. Sick [00:03:31]
-03. Born Dead [00:02:45]
-04. Selfish [00:03:05](   Читать дальше...   )Жанр: Metalcore, Nu MetalПродолжительность: 00:19:00
-facebook
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A51C4AFE19D7470C347BBEEDAE7CB49DAA7EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431157   (167581) от 13.12.2020
-
-Deftones - White Pony (2000) 20th Anniversary Deluxe Edition, 2020, Reprise Records [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feiticeira [00:03:09]
-02. Digital Bath [00:04:15]
-03. Elite [00:04:01]
-04. Rx Queen [00:04:28](   Читать дальше...   )Жанр: AlternativeПродолжительность: 03:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63EF5B4B0E660E2D80351EC1298F869C1D97E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672806   (167208) от 30.10.2023
-
-Sunsleep - Moonlight Euphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock / Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attention [00:03:04]
-02. Golden Eyes [00:03:19]
-03. Hello Goodbye [00:03:24]
-04. Medication [00:03:19](   Читать дальше...   )Жанр: Alternative Rock / Post-HardcoreПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21395F79B31734D29C7294C9428426485BC9F62B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672982   (166365) от 31.10.2023
-
-Fused by Defiance - Manifest (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Nu Metal, Metalcore, female vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insanity [00:04:32]
-02. Cancel Culture [00:04:49]
-03. Manifest [00:01:47]
-04. Will of a Warrior [00:03:52](   Читать дальше...   )Жанр: Rap Metal, Nu Metal, Metalcore, female vocalПродолжительность: 00:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47C4C8D1C5AA79D6620F84A4891E6703097CECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1185519   (291722) от 22.11.2017
+
+VA - Deep Disco Culture (2006, 2007) Underground Disco Rarities & Future Club Classics - 4CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acuna, Marta - Dance Dance Dance (Original 12 Inch Mix) (6:15)
+02. The Anvil Band - I'll Be True (Original Album Version) (3:15)
+03. Moment Of Truth - So Much For Love (Original Tom Moulton 12 Inch Instrumental Remix) (5:42)
+04. Udell - Won't You Try (Original 12 Inch Mix) (5:37)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 05:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DE531AE551D864E336EEF298FD2073347C6611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263025   (291551) от 17.11.2018
 
 Jennifer - Walking In Space (1977) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -711,35 +740,6 @@ Modern Talking - Die Erfolgreichsten Hits (Remastered) (2016) [MP3|320 Kbps] <Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457AB0245954CF867B713260DF237E7E4807014A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265327   (275225) от 27.11.2018
-
-David Boydell - City Music (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Music (4:10)
-02. Jet Lag (3:03)
-03. Tokyo (2:54)
-04. Use Your Body (3:49)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F047F8D0D55E217D48B2373605129620371EBBC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

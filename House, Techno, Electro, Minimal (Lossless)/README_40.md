@@ -1,3 +1,148 @@
+###  Публикация: 1313295   (524575) от 08.07.2019
+
+VA - Iris Eclipse (2019) Dusk Notes [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ASC - Barycentre (08:07)
+ 02. Imugem Orihasam - Anacasico (06:48)
+ 03. Soramimi - The Lightworker (06:19)
+ 04. Cory James - C61 (06:36)Жанр: TechnoПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD47481D5F9BD82AB8AF2E6F41DC492DD9D956C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559726   (523486) от 26.06.2022
+
+VA - Summer Vibes 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523486.jpg" />
+</div>
+
+
+###  Подробнее
+
+[8:20] 01. Serge Canteros - Finding Us
+[7:17] 02. Guido Roman - Maresme
+[6:37] 03. Robus Amp - Parallax
+[7:00] 04. Chris Nooke - Darkest Dreams(   Читать дальше...   )Жанр: Progressive House, Tech Trance, MinimalПродолжительность: 03:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84646A8EA99FC4B356860C840BF67D23C10B176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560188   (521895) от 28.06.2022
+
+TWO LANES - Lights (2020) EP, Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill House, Garage, Lo-Fi>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lights (3:22)
+ 02. Wide Awake (2:50)
+ 03. Never Enough (4:32)
+ 04. Closer (3:28)(   Читать дальше...   )Жанр: Electronic, Chill House, Garage, Lo-FiПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2ADC4C3F82FD51402C86820F35D160C80C5356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241672   (519297) от 18.08.2018
+
+Youandewan - There Is No Right Time (2016) Aus Music [FLAC|Lossless|tracks+.cue] <Ambient, Deep House, Techno, Electro, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have The Guts (04:35)
+ 02. Be Good To Me, Poly (05:07)
+ 03. Waiting For L (05:08)
+ 04. Time To Leave (Can't Mix) (03:02)(   Читать дальше...   )Жанр: Ambient, Deep House, Techno, Electro, DowntempoПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA1C4C13CB07CC4B7776CFAA636DF1A563AE841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241676   (519284) от 18.08.2018
+
+VA - Ello (2016) aliēnus [FLAC|Lossless|tracks+.cue] <Techno, Dub Techno, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wil - Vatnajokull (64°24′N 16°48′O) (06:35)
+ 02. Sraunus - ien ma (09:07)
+ 03. Dubatech - Circa (06:35)
+ 04. Regulus Rex - Schwarzwasser (09:43)(   Читать дальше...   )Жанр: Techno, Dub Techno, Deep TechnoПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058688B353A824FA2502BFF897854CD03B528E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534386   (517758) от 15.08.2012
 
 VA - Aka Aka And Thalstroem - Variete (Remixed) - 2012 [FLAC|Lossless]<Tech House, Deep House, Techno>
@@ -603,151 +748,6 @@ VA - Above & Beyond - Anjunabeats Volume 16 (2022) DJ Mix [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69782C59A15EB8602B68B65E62729504A802961C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565642   (492435) от 24.07.2022
-
-Digital Emotion - The Freaks (2013) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor In My Room (Original Mix) (6:49)
- 02. The Freaks (Original Mix) (5:34)
- 03. Terrible Mine (Original Mix) (6:30)
- 04. New Сonstruction Options (Original Mix) (6:32)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DABCCBC3B20E9C75CA3BFFC19A6B36FEB4D0E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565843   (490423) от 25.07.2022
-
-VA - Katermukke Playground XVI (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dirty Doering, Vars -  Find Youth (Original Mix)  (5:38)
-02.  Vincent Marlice -  The Scenery (Original Mix)  (6:53)
-03.  Voices of valley -  Grow (Thodoris Triantafillou In The Club Remix)  (6:41)
-04.  Marius Drescher -  Not Even Close (Original Mix)  (8:06)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34A1452AE7E16D4BD616D77BBB1F822A3BDC2A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158848   (490158) от 17.08.2017
-
-VA - Global Underground: Adapt (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superpitcher - Snow Blind (14:44)
-02. Lusine feat. Sarah McIlwain - Ticking Hands (4:47)
-03. Lake People - Pull Off (4:19)
-04. Fjaak - Spnd Ballett (3:23)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 05:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A2DDA155876A60772B53D0AB0A54A62D426A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055429   (488429) от 22.09.2016
-
-VA - Chilled House (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lissat & Voltaxx - Sweet Love (feat Jenniffer Kae - Lexer remix)[06:26]
-02. Milk & Sugar - Canto Del PilAnn (feat Maria Marquez - Kellerkind remix)[06:17]
-03. Rober Gaez - Lay On You (Mark Lower dub) [06:07]
-04. Lissat & Voltaxx - Will You Be Gone (feat Jenniffer Kae)[05:52](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E7A6086A86D3E1A27D89FB966E0A67EA297C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243778   (488195) от 29.08.2018
-
-Primal Code - La Via Della Seta (2018) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annie's Diaries (08:14)
- 02. White River (06:18)
- 03. Morgana (06:39)
- 04. Varanasi (07:37)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCADF71C6C37738D666D16AE2D796FA2A132396
 ```
 
 https://mybot314.ru/tekegram_catalog/

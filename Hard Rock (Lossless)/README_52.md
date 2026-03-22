@@ -1,3 +1,174 @@
+###  Публикация: 1130713   (408612) от 17.09.2019
+
+Art Nation - Liberation (2017) Sony Music [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Town (3:41)
+ 02. Maniac (3:41)
+ 03. The Real Me (4:05)
+ 04. Kiss Up & Kick Down (3:16)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA4A2251042CA1F4BDDBFF2F0DDCB4D9EC8DFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413464   (408340) от 04.10.2020
+
+Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend! (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Life One Soul [00:03:45]
+02. Let It Be [00:04:27]
+03. In the Name [00:03:33]
+04. Lonely People [00:03:23](   Читать дальше...   )Жанр: Hard Rock, BalladsПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834AA76D86F2F1B7838973FA45125E9D79874431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413363   (408098) от 04.10.2020
+
+David Lee Roth - 8 Albums, 1 EP (1985 - 2013) 10 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что David Lee Roth (р. 10 октября 1954) родился в захолустье штата Индиана, ему довольно рано удалось познакомиться с большим шоу-бизнесом. Дело в том, что его дядя Manny Roth являлся владельцем популярного нью-йоркского заведения "Cafe Wha?", и именно в этом кафе семилетний David впервые соприкоснулся с творчеством таких личностей как Bob (   Читать дальше...   )Жанр: Hard RockПродолжительность: 07:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0D627B4A71FADB08C32869B2B61D0BCBC5F7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252570   (407909) от 06.10.2018
+
+Alter Bridge - Live At The Royal Albert Hall Featuring The Parallax Orchestra (2018) 2CD [FLAC|Lossless|image + .cue] <Hard rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Last Hero
+02 The End Is Here
+03 Words Darker Than Their Wings
+04 Waters Rising(   Читать дальше...   )Жанр: Hard rock, Alternative MetalПродолжительность: 02:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61BDF36C3CAFB4C135E7DEF77164A75F8C18C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252644   (407810) от 06.10.2018
+
+Cinderella - The Mercury Years (2018) 5CD Box Set [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bad Attitude Shuffle
+2. All Comes Down
+3. Talk Is Cheap
+4. Hard To Find The Words(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 05:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C52FABB5B76017377EFBEFAF482ABC82E7B7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573941   (407491) от 03.09.2022
+
+King's X - Three Sides Of One (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Three Sides of One - грядущий тринадцатый студийный альбом американской рок-группы King's X, выход которого намечен на 2 сентября 2022 года на лейблах Inside Out Music и Sony Music. Это будет их первый студийный альбом за четырнадцать лет, начиная с XV альбома 2008 года, ставшего самым продолжительным перерывом между двумя студийными альбомами в их карьере.01. Let It Rain (4:16)
+02. Flood, Pt. 1 (3:03)
+03. Nothing But the Truth (6:03)
+04. Give It Up (3:00)(   Читать дальше...   )Жанр: Progressive Hard RockПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A8DFAB6F7F2FD87F558A40B5D720EE3F620170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413600   (407128) от 05.10.2020
 
 Slade - Cum On Feel the Hitz: The Best of Slade (2020) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard Rock>
@@ -581,180 +752,6 @@ Jimi Anderson Group - I Belong (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74E533EC5E389F84614A5BF8EB02B5EB5BBAD6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415810   (374311) от 13.10.2020
-
-Boy Hits Car - Worldwide Alive! (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Nu Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rebirth Of Consciousness (5:33)
-02. Move With Me (4:39)
-03. As I Watch The Sun Fuck The Ocean (4:32)
-04. Erifsievol (5:04)(   Читать дальше...   )Жанр: Hard Rock, Nu Metal, Alternative RockПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98DDBA5EBFCFF2C8064A6631BD25B5962643347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415502   (374297) от 13.10.2020
-
-Brother Firetribe - Feel The Burn (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Salute You (4:49)
-02. Arianne (3:58)
-03. Night Drive (4:01)
-04. Chariot of Fire (4:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E799C6AE10D277506B403B2C03C8ADF63E9EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415686   (373902) от 13.10.2020
-
-Slade - Cum On Feel The Hitz - The Best Of Slade (2020) 2xCD [FLAC|Lossless|image + .cue] <Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373902.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Cum On Feel The Noize (4:23)
-02. Skweeze Me, Pleeze Me (4:28)
-03. Mama Weer All Crazee Now (3:43)(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 02:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66472696FB185841C56DFB1D2FDBB891A552C550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253914   (373783) от 13.10.2020
-
-Mad Max - 13 Albums, 14CD (1982-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Melodic Rock, AOR, Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mad Max («Безумный Макс») — немецкая рок-группа, играющая в стиле от хэви-метал до мелодик-рок, АОР. Названа в честь полицейского Макса Рокатански, более известного как Безумный Макс, история которого легла в основу 4 культовых фильмов в жанре антиутопия. Группа существует с 1981 года, всего группой было выпущено 12 студийных альбомов и 1 сингл. Культовая группа (   Читать дальше...   )--------------------------
-
-01. Hurricaned (3:30)
-02. Talk To The Moon (4:13)(   Читать дальше...   )Жанр: Melodic Rock, AOR, Hard 'n' Heavy |Продолжительность: 10:24:00 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407608DCAD95FD0D9D113CABEE418005362F268C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575818   (373365) от 11.09.2022
-
-Crosson - 5 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United [00:04:14]
-02. Stop Pretending That You Love Me [00:03:53]
-03. Fallen From Grace [00:04:05]
-04. One Way Love Affair [00:04:14](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 5 CD, 03:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C97C69AC48671056EDD2C3557E500146DC5FAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575856   (373258) от 11.09.2022
-
-SirGibson - Elder Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illusions
-02. String Break
-03. Claire
-04. All I Wanna Do(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D8EDE2E16E0ADD2303466F635BC8BB5FB3EEAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

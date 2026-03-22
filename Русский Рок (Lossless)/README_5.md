@@ -1,3 +1,32 @@
+###  Публикация: 1451618   (1028049) от 04.03.2021
+
+Дубы-колдуны - Не повторяется такое никогда? (1995) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пролог (00:37)
+02. Дикие гитары (02:40)
+03. Песенка велосипедистов (02:24)
+04. Клён (03:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F2DF8D860AA73ED4BE20F18324CC35F8E17D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453148   (1027249) от 09.03.2021
 
 Skyforest - Collection 4 Releases (2014-2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Post Black Metal, Blackgaze, Folk Metal>
@@ -716,35 +745,6 @@ Kruger - Аномалия (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B59770D0D6F024F5423C21E654E74D773C9EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466198   (1018437) от 30.04.2021
-
-Инна Пиварс и Гистрионы - Певчие Птицы В Лесу Берендеев (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Певчие птицы в лесу Берендеев - 1 (intro) (1:33)
-2.Синий Лес (3:46)
-3.Восточная (2:58)
-4.Аленушка (4:31)(   Читать дальше...   )Жанр: Psychedelic Rock, Folk RockПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974851995D5B431DC35DF5DDAC1C3F4C38976AFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,138 @@
+###  Публикация: 466309   (81452) от 11.03.2012
+
+VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Л.Керубини, Introitus et Kyrie.mp3 - 7,14
+02 Л.Керубини, Dies Irae.mp3 - 10,26
+03 Г.Берлиоз, Agnus Dei.mp3 - 11,38
+04 Дж. Верди, Requiem aeternam.mp3 - 5,12
+05 Дж. Верди, Dies Irae.mp3 - 2,04
+06 Г. Форе, Agnus Dei.mp3 - 7,03
+07 Г. Форе, In Paradisum.mp3 - 3,55
+08 А. Моцарт, Lacrimosa.mp3 - 3,36
+09 А. Моцарт, Hostias.mp3 - 5,00
+10 А. Моцарт, Agnus Dei.mp3 - 10,542005Жанр: Классическая музыкаПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F911E1ABFF38DC59A08092B2C256D1984EF895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465228   (80970) от 09.03.2012
+
+Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<Classical, Vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_80970.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 'O sole mio (02:40)
+2. Funiculi, funicula (01:22)
+3. Libiamo ne lieti calici (Brindisi) (03:06)
+4. Sous le ciel de Paris (01:59)
+5. Torero quiero ser (01:09)
+6. Parlami d'amore Mariu (02:52)
+7. Manha de Carnaval (02:33)
+8. Lolita (02:38)
+9. Dicitencello vuie (03:37)
+10. Core 'ngrato (03:37)(   Читать дальше...   )2002  |Жанр: Classical, VocalПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB49B563E52B71EF620BEDB692B7D41BA2315F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458979   (78761) от 27.02.2012
+
+Ludwig Van Beethoven - Missa Solemnis (1990) [FLAC|Lossless]<камерная>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_78761.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kyrie
+2. Gloria
+3. Credo
+4. Sanctus / Praeludium / Benedictus
+5. Agnus Dei1990Жанр: камернаяПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0F2795AB8100CC44245DEA2815A10A0CC9F08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453154   (77225) от 19.02.2012
+
+Jon Schmidt & Steven Sharp Nelson (The Piano Guys) - Hits Volume I: Limited Founders Edition (2012) [FLAC|Lossless]<Rock, Classical Music, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_77225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Meets Mozart (5:19)
+02. Moonlight (3:29)
+03. Without You (3:39)
+04. The Cello Song (3:19)
+05. Rolling In The Deep (3:54)
+06. Cello Wars (Radio Edit) (3:11)
+07. O Fortuna (From Carmina Burana) (3:22)
+08. Bring Him Home (From Les Miserables) (4:18)
+09. Charlie Brown Melody (3:03)
+10. Rock Meets Rachmaninoff (3:22)(   Читать дальше...   )2012 |Жанр: Rock, Classical Music, InstrumentalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776777   (71211) от 02.02.2025
 
 VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -624,119 +759,6 @@ Robert Schumann - The Complete Piano Works (13 CD Set) (1989) [APE]<Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:636B3A230715F22A3A0064B38F747BF5A9B9B7F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730364   (53193) от 15.06.2024
-
-VA - Mozart: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice - I. Allegro (3:08)
-02. Katya Kramer-Lapin - 2 Transcriptions on Themes from Mozart's Requiem, S. 550 - No. 2, Lacrymosa (3:36)
-03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331╱300i - I. Andante grazioso (2:15)
-04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7239D9197A716CA7CDE730CEC9CCFC2995485A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730729   (52795) от 19.06.2024
-
-Maurice Ravel - The Complete Works (2020) 21CD [FLAC|Lossless|image + .cue] <Classics>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52795.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-5: Piano works
-CD6-7: Chamber music
-CD8-12: Orchestral works
-CD13-15: Songs, Choral worksЖанр: ClassicsПродолжительность: 24:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57AEFDE9E2D02AFFD7D4FF33EB7D1CC8B2F77A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732073   (52203) от 24.06.2024
-
-Mozart - Complete Piano Sonatas (2014) (Михаил Воскресенский) [FLAC|Lossless|tracks] <Classical, Piano, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52203.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:Жанр: Classical, Piano, SonataПродолжительность: 05:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEE65386C66151E0281A3E0FEA7BCB967336643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732524   (52002) от 25.06.2024
-
-VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-03. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
-04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A27317C18E043FDD6A0E0E4B899E5AC0236265
 ```
 
 https://mybot314.ru/tekegram_catalog/

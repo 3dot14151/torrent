@@ -1,3 +1,119 @@
+###  Публикация: 1048996   (544861) от 04.09.2016
+
+De Staat - O (2016) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peptalk
+02. Make the Call, Leave It All
+03. Get on Screen
+04. Murder Death(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Experimental RockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654D514C2209750A420F9AE7FDEF0643717D8B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310944   (544538) от 27.06.2019
+
+Weeping Willows - After Us (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Alternative country>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butterfly
+02. Let Go
+03. Save Us From Ourselves
+04. I Travel With You(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Alternative countryПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8C5E8967558F2731FBF91E07A6008EC8054102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311233   (543744) от 28.06.2019
+
+Cachorro Grande - Baixo Augusta (2012) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Não Entendo, Não Aguento (4:18)
+ 02. Difícil de Segurar (2:46)
+ 03. Tudo Vai Mudar (3:00)
+ 04. Baixo Augusta (4:22)(   Читать дальше...   )Жанр: Pop Rock, Alternative Rock, Rock & RollПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EE7C4A8B484304EC77EAC50A0558D3C1245188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311207   (543743) от 28.06.2019
+
+Night Moves - Can You Really Find Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mexico
+02. Recollections
+03. Keep Me In Mind
+04. Strands Align(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DA52F33EE95C9A046D6A09A800417B964C4AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154098   (542779) от 29.07.2017
 
 Manafest - Stones (2017) [FLAC|Lossless|tracks] <Alternative Rock, Rap Rock, Christian>
@@ -627,119 +743,6 @@ The Kills - Midnight Boom (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19FF0CE0BC2B41D6A08A61661902033B31572ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313990   (522326) от 11.07.2019
-
-The Kills - Ash & Ice (2016) [FLAC|Lossless|tracks + .cue] <Garage Rock, Lo-Fi, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doing It To Death (4:08)
- 02. Heart Of A Dog (3:47)
- 03. Hard Habit To Break (3:53)
- 04. Bitter Fruit (4:15)(   Читать дальше...   )Жанр: Garage Rock, Lo-Fi, Indie RockПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB19B4F45C176CBFEF33A642D5935D4D6A1C89FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313976   (522324) от 11.07.2019
-
-The Kills - No Wow (2005) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Wow/Telephone Radio Germany (4:48)
- 02. Love Is A Deserter (3:49)
- 03. Dead Road 7 (3:23)
- 04. The Good Ones (3:30)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E56D95B3B7DA96B26D541175FD620E6C29BC5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313927   (522269) от 11.07.2019
-
-The Kills - Keep On Your Mean Side (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock, Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superstition (4:40)
- 02. Cat Claw (3:33)
- 03. Pull A U (3:23)
- 04. Kissy Kissy (5:03)(   Читать дальше...   )Жанр: Blues Rock, Alternative Rock, Indie RockПродолжительность: 00:42:027
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB20F5362F3A1AE956D9E2E1C899240BD0B41ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313992   (521431) от 12.07.2019
-
-The Kills - Future Starts Slow (2011) Single [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Starts Slow (Radio Edit) (3:42)Жанр: Indie RockПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7ACB24EDD304846E58907BD1E558E2442223AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,120 @@
+###  Публикация: 457440   (78124) от 24.02.2012
+
+Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_78124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Du Temps (Single) (03:38)
+02. Du Temps (Tomer G Reloaded Club Mix) (06:34)
+03. Du Temps (Mico C Club Remix) (05:14)
+04. Du Temps (Mico C Radio Edit) (03:36)
+05. Du Temps (Instrumental) (03:35)2012Жанр: Pop, DanceПродолжительность: 00:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA41F798A24F881D22853FE8FC69015AAFEAF1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772473   (71781) от 11.01.2025
+
+VA - Nipper's Greatest Hits - The 60's Volume 2 (1988) [OGG Vorbis|480 Kbps] <Rock, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Browns - The Old Lamplighter
+02. Hank Locklin - Please Help Me, I'm Falling
+03. Floyd Cramer - On The Rebound
+04. Jimmy Elledge - Funny How Time Slips Away(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED17BC25639FED3355637B9F79FB83A20B506CBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775214   (71502) от 25.01.2025
+
+VA - Dance Classics Gold 3 (1992) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Last Dance
+02. The Jacksons - Can You Feel It
+03. Kool & The Gang - Get Down On It
+04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2D756BE1B6395912DAE29C2948A3ED5B63AA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775104   (71493) от 25.01.2025
+
+VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool & The Gang - Celebration
+02. Gloria Gaynor - Never Can Say Goodbye
+03. The Four Tops - Don't Walk Away
+04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DE7B8D4BA03ADD2A77248D5530F706F5EE93E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775217   (71487) от 25.01.2025
 
 VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
@@ -629,122 +746,6 @@ VA - Hammer Hits (1991) 2 CD [OGG Vorbis|480 Kbps] <House, Soft Rock, Europop, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DAC81E36FC8883833F575DB3011D0BF5AA55D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782419   (69998) от 01.03.2025
-
-VA - 80! (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Minds - Don't You (Forget About Me)
-02. Frankie Goes To Hollywood - Relax
-03. Duran Duran - Wild Boys
-04. Tears For Fears - Shout(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0465A882F4BE6DB17FD63DE8432763967087F034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782361   (69990) от 01.03.2025
-
-VA - Neue Hits '90 - Die Internationalen Super-Hits (1990) 2 CD [OGG Vorbis|480 Kbps] <Pop Rock, House, Pop Rap, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lisa Stansfield - All Around The World
-02. Technotronic featuring Felly - Pump Up The Jam
-03. Sydney Youngblood - If Only I Could
-04. Soul II Soul - Get A Life(   Читать дальше...   )Жанр: Pop Rock, House, Pop Rap, EuropopПродолжительность: 01:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170123EA171FD5C075215E080A66D15EEAB85A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782805   (69954) от 02.03.2025
-
-VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Disco, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falco - Der Kommissar
-02. A-Ha - Take On Me
-03. Captain Sensible - Wot!
-04. Orchestral Manoeuvres In The Dark - Enola Gay(   Читать дальше...   )Жанр: Pop, Dance-pop, Euro-Disco, EuropopПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BB5E0BD52926E99C0CC25C710B12A44B421DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782675   (69924) от 02.03.2025
-
-VA - One Shot '80 Volume 3 (1999) [OGG Vorbis|480 Kbps] <Synth-pop, Disco, Dance-pop, Europop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul
-02. F.R. David - Words
-03. The Alan Parson Project - Eye In The Sky
-04. William Pitt - City Lights(   Читать дальше...   )Жанр: Synth-pop, Disco, Dance-pop, Europop, PopПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9451AA592947AECCD84C75EA93DFCA1B9C0B4E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

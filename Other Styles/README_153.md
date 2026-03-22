@@ -1,3 +1,148 @@
+###  Публикация: 1653776   (206037) от 17.08.2023
+
+VA - Б. Рубашкин, И. Ребров•Звезды русской эмиграции (1999) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Б. Рубашкин - Казачок
+02. Б. Рубашкин - Два друга
+03. Б. Рубашкин - Моя Одесса
+04. Б. Рубашкин - Татьяна(   Читать дальше...   )Жанр: FolkПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E9D8BD1C807040EE97ABE0F780FD93D1CEE85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654716   (205013) от 22.08.2023
+
+VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Simon - Natalia (8:16)
+02. Mikhail Catan - Lucid Dream (6:30)
+03. Marga Sol - Hidden Tribes (A X L Remix) (5:36)
+04. Efrén Atienza - Apollonia (Stephane Salerno Remix) (6:03)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654724   (205011) от 22.08.2023
+
+VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ali Termos - La Serenissima (MI.LA Remix) (5:54)
+02. Wadd - Back (6:19)
+03. Marga Sol - Mirage (6:14)
+04. Yassine H - Pyramid Vibes (5:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546121FFCF0C4AE0DED798E7B9884EC7ED4018E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611130   (202866) от 10.02.2023
+
+Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC 2.0|44.1/48/16/24|WEB-DL|tracks] <Film, Bandes originales de films>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Califfa (Main Theme) [00:02:37]
+02. D'amore si vive [00:03:00]
+03. Love Theme (Version 2) [00:02:48]
+04. Prima e dopo l'amore [00:01:57](   Читать дальше...   )Жанр: Film, Bandes originales de filmsПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645A5E2C1FD8884384B7E4ADCD413AECEFBBF354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830277   (202380) от 26.10.2025
+
+Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 3-4 (1966) [FLAC 24/96, 192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202380.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Potemkine
+02. Michelle
+03. Chez nous(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D8F8BAA5F3B828FD06B326D2EEEBC01DA4B4C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830280   (202378) от 26.10.2025
 
 Paul Mauriat - Le grand orchestre de Paul Mauriat - Volume 5 (1967) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
@@ -600,151 +745,6 @@ Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|WEB-DL|tracks|image] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9608D0F67DA7502765692DAE71D60862A3057976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637015   (197641) от 02.06.2023
-
-VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197641.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome to Kollektiv
-2. VOV-А6/CH
-3. Lullaby
-4. A Fridge Called Nora(   Читать дальше...   )Жанр: OSTПродолжительность: 01:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55ABE762F6CB633D33D79B7D2A7D742111BCE6AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637028   (197632) от 02.06.2023
-
-VA - Atomic Heart, Vol.2 (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogrov, Atomic Heart - Welcome to Kollektiv (03:54)
-02. Boogrov, Atomic Heart - VOV-А6/CH (02:26)
-03. Palina, Atomic Heart - Lullaby (02:28)
-04. Mick Gordon, Palina, Atomic Heart - A Fridge Called Nora (04:11)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE96DB97F3A20878711581EA8E44FCBA1FE700F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 21723   (197027) от 14.06.2023
-
-ДАЖЕ НЕ ДУМАЙ 2 - Официальный саундтрек (2004)
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Даже не думай дважды - Master Spensor
-2. Я не люблю - 63 Регион
-3. Марат - Не замужем
-4. Pizness - Децл feat. M.C. Молодой(   Читать дальше...   )Жанр: OSTПродолжительность: 57:26 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29DBDDD2BC9603B7BF6E6409B93C7C52D952043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650832   (194852) от 03.08.2023
-
-VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194852.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Particles/кошечка/Atomic Heart - Prekrasnoe Dalyoko
-2. ScaryON/BassnPanda/Atomic Heart - BEA-D Theme
-3. Geoffplaysguitar/Atomic Heart - Colossus BEA-D
-4. ScaryON/BassnPanda/Atomic Heart - Electronica IM02(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B6CE5E18A6C31939FBC2FB8653F4B04189D900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652215   (194563) от 10.08.2023
-
-VA - Мурка•Блатные и уличные песни (2000) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Димитриевич - Мама, я жулика люблю
-02. А. Димитриевич - Что-то грустно мне
-03. А. Димитриевич - В этой жизни умирать не ново
-04. А. Димитриевич - В Париж он бельше не вернется(   Читать дальше...   )Жанр: FolkПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6ECF87EBB191F662F31922CFFDCA38A00E92C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

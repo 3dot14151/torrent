@@ -1,3 +1,32 @@
+###  Публикация: 1024435   (717770) от 08.06.2016
+
+Scotch - Evolution (1985) Reissue, 2016, Deluxe CD Music [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primitive Man (4:19)
+02. Take Me Up (3:32)
+03. Man In The Man (4:07)
+04. Born To Kill (5:51)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE14B580D8E75FF3D7053C017CC8D40FDAF6753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286275   (713008) от 02.03.2019
 
 DiscoBonus - Nothing Is Forever (2017) [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -721,35 +750,6 @@ Scotch - Disco Collection (2003) Compilation [FLAC|Lossless|tracks + .cue] <Ital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07C9CD34C302C4BDB418B96F76D47F63DC687863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540189   (654950) от 28.03.2022
-
-VA - Turbo Disco International - Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gibson Brothers - Cue Sera Mi Vida
-02. Jairo Pereira - Pais Tropical
-03. Supermax - African Blood
-04. Ricchi & Poveri - Acapulco(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCD33F6E0FAEDFCC450553A9AD6407647264F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

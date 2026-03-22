@@ -1,3 +1,148 @@
+###  Публикация: 1238633   (545449) от 31.07.2018
+
+Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <country, southern rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dream You (Craig Wiseman, Jerry Phillips) – 2:47
+2. I Quit Lyin' in 1986 (Roger Murrah, John Schweers, Mark Wright) – 3:01
+3. The Night They Rocked the Grand Ole Opry (Rich Alves, Gary Harrison) – 4:19
+4. The Wild Side of Life (Arlie Carter, William Warren) – 2:41(   Читать дальше...   )Жанр: country, southern rockПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07254E5E757E15209592F3BE5B24AD3ECD7223F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048444   (544847) от 04.09.2016
+
+VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|256 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544847.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hopp & Nelson Beato-End of Time-Hopp
+2. Cassie-Joint (No Sleep)
+3. Incredible Bongo Band-Apache (Grandmaster Flash Remix)-Incredible Bongo Band
+4. Dawin-Dessert(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DC59701D585233C79F955F368F39444D8A51E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049164   (544784) от 04.09.2016
+
+Medwyn Goodall - Kissed by the Sun (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Shadow of the Mountains
+02. Sinking Sun
+03. Peace of Mind
+04. Day in the Sun(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4016CF4ABDB4B1A8A92795F341E7C662002B99A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238784   (544605) от 01.08.2018
+
+7and5 - The Lost Voice (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer to Heaven (4:41)
+02. Life at Once (3:46)
+03. Father (4:37)
+04. Mi Deh Yah (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDEC78E89A467A0CF269761A806EC609E9FCE4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238815   (544603) от 01.08.2018
+
+Simon Daum - Of One Heart (2018) [MP3|320 Kbps] <Instrumental, Piano, New age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Matter What (3:21)
+02. A New Life (5:08)
+03. Set Free (2:48)
+04. Distant Call (2:27)(   Читать дальше...   )Жанр: Instrumental, Piano, New ageПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74938CD824FC976A810920DA7AEBF13A1D1EB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049027   (544542) от 04.09.2016
 
 Zack Hemsey - (Discography) (2006-2014) [FLAC|Lossless|WEB-DL|tracks]<Instrumental, Hip Hop>
@@ -621,158 +766,6 @@ Valentina Babor - Piano Princess (2015) [FLAC|Lossless|tracks + .cue] <Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:819712ABBE8C36FBA8818C5FC2C18C3FC8117F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050101   (540373) от 07.09.2016
-
-Kitaro - Asian Cafe (2002) 2016 Domo Records [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet
-02. Linden
-03. Unicorn
-04. Legend Of The Road(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535AFE6B783905B2862AC7925E0A2D97D7863FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311251   (540053) от 30.06.2019
-
-Andrei Denisov - Easy to Fly (1996) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На крыльях любви (5:05)
-02. Спящее дитя (Симе) (3:51)
-03. Счастливое ничто (5:40)
-04. Забытые грёзы (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37208E8AB7CAA719B633AD6E238323DD7388E454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531989   (540045) от 06.08.2012
-
-VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, Chillout, Lounge, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540045.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wholeness Of The Essence
-2. True Sensuality
-3. Essence
-4. La Vie Rouge
-5. Deep Desire
-6. Serene Harmony
-7. Rivers Of Lust
-8. Blue Heaven
-9. Open Windows
-10. Love Dream(   Читать дальше...   )Жанр: New age , Enigmatic, Chillout, Lounge, DowntempoПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E93F3A84B91ACEE64E6CD3679617B859DD9C273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311232   (539969) от 30.06.2019
-
-Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fellows (03:51)
-02. Gem (03:57)
-03. Fields of Gold (03:31)
-04. Shining Woman (03:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290B0A889FFE48EA7D725B9C3FFA51A152C1783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226421   (539753) от 14.08.2010
-
-Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539753.jpg" />
-</div>
-
-
-###  Подробнее
-
-(15:30) 1. Dancing Gallery
-(11:34) 2. Dreams
-(09:50) 3. Sunset
-(06:49) 4. Thea
-(04:17) 5. Simple MindednessЖанр: Relax, New AgeПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

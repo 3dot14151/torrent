@@ -1,3 +1,177 @@
+###  Публикация: 917029   (590001) от 10.07.2015
+
+Nils Gessinger - Pass-ion (2011) [FLAC|tracks+.cue]<Jazz, Funk, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toses [04:52]
+02. Bondone [06:26]
+03. Catinaccio [08:48]
+04. Fugazze [03:56](   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFEBAC846A3276720D9A3F35DC439DEE38961A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551485   (589781) от 16.05.2022
+
+Woody Herman - Four Classic Albums (1958 - 1962) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589781.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Northwest Passage [3:05]
+02. Caldonia [2:57]
+03. Wild Root [3:20](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 02:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FA09A0D98D4A6970405727104144691F200788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917291   (589609) от 11.07.2015
+
+Melanie Durrant - Anticipation (2015) [FLAC|tracks+.cue]<Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By Your Side (02:41)
+02. Wait (03:21)
+03. Life Goes On (Since You've Been Gone) (03:16)
+04. Ain't Coming Back (03:27)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CEF5421ED8FE1B4B8655A843677E7073DBD8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917296   (589568) от 11.07.2015
+
+Charenee Wade - Offering: The Music of Gil Scott-Heron & Brian Jackson (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offering (Feat. Stefon Harris) (04:31)
+02. Song of the Wind (Feat. Stefon Harris) (07:42)
+03. A Toast to the People (06:37)
+04. Home Is Where the Hatred Is (Feat. Stefon Harris) (04:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E9AC9271022442DE08C2B6536B07ADF0E92AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551757   (589433) от 17.05.2022
+
+Charnett Moffett - Internet (2006) Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.E.M. [3:51]
+02. Icon Blues [3:13]
+03. PTL [3:48]
+04. Kings and Queens [4:25](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E260773C64DC0C5011DEA871A68800E257C1AAAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551755   (589431) от 17.05.2022
+
+Charnett Moffett - For The Love Of Peace (2004) Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning [3:29]
+02. I Love the Lord [7:47]
+03. Numbers [7:17]
+04. Free Spirit [3:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1701A9F175B8104CE1E57367093221E3889790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551752   (589398) от 17.05.2022
 
 Charnett Moffett - Beauty Within (1989) Blue Note Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -574,184 +748,6 @@ Mary Stallings - But Beautiful (2013) [FLAC|Lossless|tracks + .cue] <Straght-ahe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68DA6024583D44D1B7D357B3D73A719A30971136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301299   (586339) от 10.05.2019
-
-Rene Urtreger & Agnes Desarthe - Premier rendez-vous (2017) Naive [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [6:52]
-02. Le premier rendez-vous [6:05]
-03. Theme pour un ami [3:36]
-04. La geante [2:29](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D9E3FE3B20201E98C61B3DC2EB5BDD69AE30CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357446   (586276) от 02.07.2011
-
-Ella Fitzgerald - Ella Fitzgerald and Friends For Lovers (2007) [APE|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My One and Only Love - with Nelson Riddle (3:14)
-02. I Didn't Know About You - with Duke Ellington (4:13)
-03. There's a Lull in My Life - with Stan Getz (3:26)
-04. This Time the Dream's on Me - with Billy May & Benny Carter (4:37)
-05. April in Paris - with Louis Armstrong (6:34)
-06. Body and Soul - with Nelson Riddle (3:43)
-07. Dream a Little Dream of Me - with Count Basie (4:06)
-08. These Foolish Things (Remind Me of You) - with Oscar Peterson (7:38)
-09. Midnight Sun - with Stan Getz (3:58)
-10. Prelude to a Kiss - with Ben Webster & Stuff Smith (5:29)(   Читать дальше...)Жанр: Jazz, Vocal JazzПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301351   (586263) от 10.05.2019
-
-Gino Vannelli - Black Cars (1984) [FLAC|Lossless|image + .cue] <jazz, jazz/rock, fuzion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Cars
-2. The Other Man
-3. It's Over
-4. Here She Comes(   Читать дальше...   )Жанр: jazz, jazz/rock, fuzionПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B88B723EEF6CE6B05DF4B3758A306E4B25664F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918852   (586040) от 16.07.2015
-
-Gianni Savelli Media Res - Magellano (2015) [FLAC|tracks|WEB-DL]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Over Gocius De Santu Micheli
-02. Thelxis
-03. Kirschrot
-04. Aria From Bachianas Brasileiras No.5(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5AE5A27E8312F21323E718DB392E6780629F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918743   (586036) от 16.07.2015
-
-Shirley Scott - Girl Talk (1967) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl Talk [03:24]
-02. Come Back To Me [03:12]
-03. We'll Be Together Again [03:45]
-04. Love Nest [03:19](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E617ACD84D04F0F431EFB595438522D5B405F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918747   (586033) от 16.07.2015
-
-Masabumi Kikuchi - East Wind (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East Wind [20:05]
-02. Green Dance [23:59]Жанр: Jazz, Post-Bop, Modern CreativeПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4EA6AAB8C57A809F41A492F48FE13DD6AC37EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

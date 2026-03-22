@@ -1,3 +1,61 @@
+###  Публикация: 1492077   (902399) от 30.08.2021
+
+VA - 7 Club: Exclusive Chill House (2021) [MP3|320 Kbps] <Chill House, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902399.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Katabtu - Twisted Mind
+002. Lu York - Owe It All
+003. Matthias Vogt - Hyperjazz
+004. Sensoreal - From Tatras To Dublin(   Читать дальше...   )Жанр: Chill House, Chillout, Deep HouseПродолжительность: 09:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A04B9068B97C0F5C4393E57C7A85548A1DA5A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492125   (902398) от 30.08.2021
+
+VA - Peak Time: Techno Party (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902398.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bass Modulators - Teckzoom
+002. Phase Objekt - Wasp-12b
+003. Agustin Giri - Spectare
+004. Eduardo De La Calle - The Dub Math(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 11:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75AE7FFF5F4429E80593D09E299A7B24D62571D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492127   (902368) от 30.08.2021
 
 VA - Soft Chaos: Electronic Set (2021) [MP3|320 Kbps] <Synthetic, Electronic, Experimental, Synthwave>
@@ -690,64 +748,6 @@ VA - Trance Collection Vol.57 (2017) [MP3|320 Kbps] <Trance, Progressive Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BD2D0FD4CF628C9DA20A97DEA6CA2B77466FA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100793   (897910) от 05.02.2017
-
-VA - Deep House Collection Vol.107 (2017) [MP3|272-320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897910.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2owl - Girl (Original Mix) 4:49
-002. 5prite & Umid - Check (Original Mix) 6:20
-003. 98U - Exceed (Solemn Eye Remix) 8:40
-004. Abriviatura IV, TeckSound - Real In My Dreams (Original Mix) 6:00(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F3D890363C4B3C1E2695EE457A074C8E0AB07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101095   (897847) от 05.02.2017
-
-VA - Record Super Chart #473 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ofenbach & Amice - Be Mine (Amice Remix)  3:23
-02.  Consoul Trainin & Amice - Take Me To Infinity (Amice Remix)  4:44
-03.  Грибы - Копы (Vincent & Diaz Remix)  4:10
-04.  Clean Bandit & Sean Paul ft. Anne-Marie - Rockabye (Denis First Remix)  4:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD85253C77CA33CA7845E9D1583F9EDE290B75E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

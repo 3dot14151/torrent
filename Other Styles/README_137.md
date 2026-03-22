@@ -1,3 +1,152 @@
+###  Публикация: 1080057   (289650) от 06.12.2016
+
+Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music from the HBO Series) (2016) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title Theme – Westworld (01:42)
+02. Sweetwater (02:53)
+03. Black Hole Sun (02:29)
+04. Paint it Black (05:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9302430A8375FE582615373228F7C06B43EFE2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335266   (289579) от 01.11.2019
+
+Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1m1 Logos (00:41)
+02. 1m1a The Opening (03:18)
+03. 1m1a The Opening (Alternate) (03:24)
+04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B5DC23CFEC91A2812BED54669F85490475A686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379695   (289510) от 08.12.2014
+
+Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Nature>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2002 - Musica, Natureza & Cia
+2010 - Melodias da Natureza, Vol. 2
+2011 - Relaxing Melodies of Nature
+2012 - Piano Impressions, Vol. 1
+2012 - Spirit Of Nature
+2013 - Piano Impressions, Vol. 2Жанр: New age, Relax, NatureПродолжительность: 05:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A901E234E9D555F8E4FC0C386DC3D0DC3FF46C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335267   (289417) от 01.11.2019
+
+Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2014(2018) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1m1 Logos (00:41)
+02. 1m1a The Opening (03:18)
+03. 1m1a The Opening (Alternate) (03:24)
+04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90DBE56D2D7B5442BE5963DA12CEF635B7BE0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335093   (289409) от 01.11.2019
+
+Tom Holkenborg - Терминатор: Темные судьбы / Terminator: Dark Fate (2019) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminated
+02. My Name Is Dani
+03. REV 9
+04. Iron Spike(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334792   (289198) от 01.11.2019
 
 Кирилл Богомилов - Русь Первозданная (2019) [FLAC|Lossless|tracks + .cue] <Folk. Instrumental>
@@ -607,151 +756,6 @@ Nanda Re - Shaman Earth Dance (2015) [MP3|320 Kbps] <New Age, Enigmatic, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF9C47C789897BB3819B30FDE88D75357A4617DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849063   (282849) от 12.12.2014
-
-VA - Enigmatic I & II (2006) [FLAC (tracks+.cue)|Lossless]<New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terry Oldfield - Majesty (5:35)
-02. Midori - Gregorian Soul (5:12)
-03. Phil Thornton - The Mask of Seduction (Short Version) (5:00)
-04. John Richardson - Spiritual Rhythms (Short Version) (5:00)(   Читать дальше...   )Жанр: New Age, EnigmaticФормат: 2хCD, CompilationПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2581FBFF95E71FFED2791A5643424320D6A7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081199   (282795) от 10.12.2016
-
-Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние между мечтами (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack, Electronica>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranded (05:54)
-02. The Shore (09:58)
-03. The Workx (06:27)
-04. Always Ready (05:18)(   Читать дальше...   )Жанр: Score, Soundtrack, ElectronicaПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292D554381620911379E748BEF4AB5E0A7ED6787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081201   (282686) от 10.12.2016
-
-Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние между мечтами (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronica>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranded (05:54)
-02. The Shore (09:58)
-03. The Workx (06:27)
-04. Always Ready (05:18)(   Читать дальше...   )Жанр: Score, Soundtrack, ElectronicaПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0777982C371AA9710F74CE837D3038A827B1768B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336000   (282582) от 05.11.2019
-
-Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Dunes (02:11)
-02. The Dry Creek (02:14)
-03. Crow's Eye (03:02)
-04. Sandfall Basin (02:32)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA3AFD35EA77F5B7BAFA62CDC466A957A5000F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964459   (282427) от 11.12.2015
-
-Niall & Juliana - Angelic Reiki (2012) [MP3|320 кб/с]<New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Open the Gates
-02. Elysian Meadows
-03. Golden Pathways
-04. Angels Calling(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC0570D94DA5F6CA6ECC0664606A8261C8121CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

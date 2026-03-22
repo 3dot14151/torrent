@@ -1,3 +1,177 @@
+###  Публикация: 1732868   (107378) от 27.06.2024
+
+Rex Stewart - 1949 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Sunny Side of the Street [2:57]
+02. Indiana [2:31]
+03. Oh! Lady Be Good [2:45]
+04. Caribbean Cradle Song [2:49](   Читать дальше...   )Жанр: SwingПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52869092339F5AD0802B6769FDB235EA47C51D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732871   (107376) от 27.06.2024
+
+Hot Lips Page - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Under the Impression [2:36]
+02. Chocolate Candy Blues [2:51]
+03. Pacifying Blues [2:34]
+04. Sharp Little Sister [2:36](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884AE7329089CCB15CB810535FA8C6EA99A7C6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732889   (107369) от 27.06.2024
+
+Szigeti Juli - Wild & Groovy (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atom Smith - Swing Delusion (3:32)
+02. All About That Bass (Electro Swing Mix) (3:29)
+03. Dance (2:40)
+04. Ain't Nobody (3:53)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8534FF0E6F8989B61CD16C92DDA6B7503D94C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733227   (107313) от 28.06.2024
+
+Phlyndc - Passion (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding Me Back (4:32)
+02. Well After Dark (5:52)
+03. Out of Control (5:30)
+04. Nice Night Out (4:07)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB69D444A97B370CAA9EE5273D972973D758895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733139   (107312) от 28.06.2024
+
+Willis Jackson - Single Action (1978) 1995, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evergreen [4:46]
+02. Bolita [8:13]
+03. Makin' Whoopee [7:01]
+04. You Are the Sunshine of My Life [7:44](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DA7DBA646F79BFD87E410A1010A3AF5F28D092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733224   (107311) от 28.06.2024
+
+Michel Morissette - Quatre (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arising (6:30)
+02. Red Ketchup (5:49)
+03. Reconnection (4:23)
+04. Spirale (5:43)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818A15700EDFF7A5C63BBF68843E2C26751B1337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733231   (107310) от 28.06.2024
 
 Victor Lob - Day Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -571,180 +745,6 @@ Louis Jordan - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35187B843C4226331385972204AFCCE87D820A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733951   (107190) от 01.07.2024
-
-Archie Shepp - 5 Original Albums (1964 - 1968) 5CD, 2018, Universal [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damn If I Know (The Stroller) [6:19]
-02. Frankenstein [13:53]
-03. Fiesta [9:57]
-04. Sophisticated Lady [7:11](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 04:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6237A40B737B08F5FD52C53E2BBDFA7D55FC5354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734113   (107172) от 02.07.2024
-
-Lennie Tristano, Lee Konitz & Warne Marsh - The Complete Atlantic Recordings (1954 -1961) 6CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Not One [5:34]
-02. There Will Never Be Another You [4:48]
-03. Donna Lee [6:17]
-04. Don't Squawk [7:20](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 06:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C5713FA0F83F351E010E1E0A1CEA752F67323D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734355   (107116) от 03.07.2024
-
-Louis Prima - The Very Best Of Louis Prima (1956 - 1962) 2CD, 2016, Not Now Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump Jive An' Wail [3:27]
-02. Allright, Okay, You Win [2:22]
-03. Sentimental Journey [2:23]
-04. Just One Of These Things [2:34](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740989F8D55A49145A2D38DE5CEFF6E2B07E9E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734852   (107059) от 05.07.2024
-
-Howard McGhee & Illinois Jacquet - Here Comes Freddy (1976) 1990, Sonet Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes Freddy [6:25]
-02. Suite For Dru [3:25]
-03. Deep In The Hat [5:22]
-04. All Soul [5:44](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8071A2EB39FA891DC6E06844657F018EC620A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734838   (107044) от 05.07.2024
-
-Sarah Menescal - Bossa Lounge E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You (Bossa Nova Version)
-02. I Love You Always Forever (Leo Portela Rework)
-03. Hunting High and Low (Summer Remix)
-04. Alive And Kicking (Leo Portela Rework)Жанр: Bossa Nova, LoungeПродолжительность: 00:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FB218DD1E52F53831B214E4A62E18C511A4497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734681   (107037) от 05.07.2024
-
-Charles Persip - And The Jazz Statesmen (1960) 1994, Bethlehem [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sevens [6:42]
-02. The Song Is You [6:44]
-03. Old Devil Moon [5:23]
-04. Soul March [7:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26CAC98C01EDD5EA9B1A004FD2DA1E7FF6CA61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

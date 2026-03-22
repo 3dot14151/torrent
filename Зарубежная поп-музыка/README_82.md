@@ -1,3 +1,119 @@
+###  Публикация: 1686876   (126271) от 24.12.2023
+
+VA - The Best Of Hit News Vol.4 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fun Fuctory - Don't Go Away (Radio Walk)
+02. Zhi-Vago - Celebrate (The Love) (Radio Version)
+03. N-Trance - Stayin' Alive
+04. 2 Brothers On The 4th Floor feat. Des'Ray & D-Rock - Fairytales (Radio Version)(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700B376BAF29EA9D57492E5F5BAD5E1C95098CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686979   (126264) от 24.12.2023
+
+VA - Bravo Hits 18 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scooter - Fire
+02. A.K. - S.W.I.F.T. - Light In Me
+03. Nana - Lonely
+04. R.N.G. - Rhythm Of My Heart(   Читать дальше...   )Жанр: Electronic, Hip Hop, RockПродолжительность: 02:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82F06B42DF670D858C0A5545C33398FB3F540CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686733   (126242) от 24.12.2023
+
+VA - The Best Of Hit News Vol.3 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Dream Collective - Oh, Baby All
+02. Fun Factory - Celebration
+03. DJ Bobo - Freedom
+04. Caught In The Act - You Know(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F517D1327F8F1C8837BB2F4ED28B34E53C989D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686679   (126199) от 24.12.2023
+
+TV Girl - Death of a Party Girl (2018) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pretty Boys (02:46)
+02.7 Days til Sunday (03:35)
+03.Blue Hair (03:37)
+04.Lonely Girls (02:55)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B5AD1E45B0D7E6DE05336C12C4961E019D0905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687077   (125737) от 25.12.2023
 
 VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
@@ -629,122 +745,6 @@ Lara Fabian - Lara Fabian (1991) [OGG Vorbis|480 Kbps] <Pop, Chanson, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1F90C5427020CC902B70DC08CECA83868BC50B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697201   (119073) от 05.02.2024
-
-Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marea (3:32)
-02. Lou (4:50)
-03. Siamo Robots (2:51)
-04. Vivo (5:01)(   Читать дальше...   )Жанр: Pop, Pop Rock, Prog Rock, Funk SoulПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA22997118B94DAB3EA0D84CAB7B5E9A5FB4C978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698586   (118476) от 09.02.2024
-
-VA - Sanremo (2024) 2 x CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Alessandra Amoroso - Fino a qui (03:52)
- 02. Irama - Tu no (03:36)
- 03. Diodato - Ti muovi (03:06)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9157DB44D35954D64B942C49228BCBB92D916F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698434   (117966) от 12.02.2024
-
-VA - Flashdance (Original Soundtrack From The Motion Picture) (1983) [OGG Vorbis|480 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Irene Cara - Flashdance...What A Feeling
-02.  Shandi - He's A Dream
-03.  Helen St. John - Love Theme From Flashdance
-04.  Karen Kamon - Manhunt(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44035DDB8B99F612770E124E92C7FFE31FF89DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699486   (117811) от 13.02.2024
-
-VA - Maxi Hit-Sensation 97-04 (2007) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A Touch Of Class - Around The World (Ruegsegger # Wittwer Club Mix)
-02.  Eiffel 65 - Lucky (In My Life) (Gabry Ponte Club Mix)
-03.  Touche - This Goodbye Is Not Forever (DJ Lucky Extended Version)
-04.  Modern Talking - Juliet (Jeo's Remix)(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 03:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E250271E2EC526E2D625E9730CA65361F2DDAB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,369 +1,25 @@
-###  Публикация: 1274991   (791710) от 09.01.2019
+###  Публикация: 1386781   (793574) от 30.05.2020
 
-VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
-02. Jay Frog & Amfree - Is This Love (Radio Edit)
-03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
-04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274946   (791709) от 09.01.2019
-
-VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Draxler - Right Time (Club Mix) 4:28
-02. Christopher G - Bassline Drops (Club Mix) 4:56
-03. Tom Bekker - What You Got (Instrumental Mix) 4:49
-04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274880   (791708) от 09.01.2019
-
-VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Dice (Original Mix)
-02. Jose Ogalla - After Now (Chris Montana Piano Dub)
-03. Scotty Boy - Ya'll Came to Jack (Original Mix)
-04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274888   (791707) от 09.01.2019
-
-Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Float (08:22)
- 02. Carousel (06:01)
- 03. Abandoned (18:00)
- 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274141   (791706) от 09.01.2019
-
-VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
-02. Find Your Way (Sunrise Mix)-Moon Rocket
-03. Baakoya (Armonica Remix)-Mabiisi
-04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274889   (791705) от 09.01.2019
-
-VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
-02. Nico Del Prato - Anymore (Radio Edit) 3:07
-03. Enormous Cats - Ready Or Not (Club Mix) 4:31
-04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274852   (791704) от 09.01.2019
-
-Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unsoi (4:54)
-02. Aamu Ja Kaste (6:20)
-03. Lumikuuro (7:02)
-04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274912   (791703) от 09.01.2019
-
-Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remote (17:58)
- 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274609   (791702) от 09.01.2019
-
-Dropzone 3.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2019Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353CF1AAFF737BFBEFC38945E5EE2D48A4A4D7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275067   (791701) от 09.01.2019
-
-Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I (4:58)
-02. II (4:42)
-03. III (5:15)
-04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275031   (791700) от 09.01.2019
-
-Джин-Тоник - Нетакой (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791700.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Нетакой (feat. Ксения Стрижакова)
-2. Вдруг это всё (feat. Алексей Кортнев)
-3. Селфи (feat. Валерий Сюткин)
-4. Старпёрская (feat. Евгений Маргулис)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F946C75BB70A00A6186BA5E54009BB27656DE07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274945   (791699) от 09.01.2019
-
-VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avantgardet - Walk Of Shame
-002. Hazey Eyes - Scars (Ukiyo Remix)
-003. Horses Without Makeup - Forget About Chlorine
-004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274948   (791698) от 09.01.2019
-
-VA - Soft Rock Nuggets (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+Love - Forever Changes (1967) Stereo [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791698.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Foreigner - Blue Morning, Blue Day
-02. Chicago - Little One
-03. Daryl Hall & John Oates - When the Morning Comes
-04. America - Don't Cross the River(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:43:51
+Love - американская рок-группа конца 60-х и начала 70-х годов. Лидеры группы - вокалист, автор текстов и гитарист Артур Ли и второй автор текстов и гитарист Брайан МакЛин. В их музыке соединились элементы рок-н-ролла, гаражного рока, фолка и психоделии. Довольно умеренная успешность группы не идет ни в какое сравнение с тем, насколько высоко оценивается её творчество (   Читать дальше...   )01. Alone Again Or (3:16)
+02. A House Is Not A Motel (3:32)
+03. Andmoreagain (3:18)
+04. The Daily Planet (3:31)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 01:13:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:967B7CC533A689DC4E66503AA89580DEA712543F
+magnet:?xt=urn:btih:325CD70B2CDF520E90FD167CEA1733679F2D8B53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,55 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274749   (791697) от 09.01.2019
+###  Публикация: 1012321   (793573) от 01.05.2016
 
-Журнал | Автомир [Россия] №2 (январь 2019) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791697.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
-Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100438E5F47A9B3850C76F1AA1464A41262025BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274895   (791696) от 09.01.2019
-
-VA - Soul Connection: True Love (2019) [MP3|320 Kbps] <DnB, Dubstep>
+VA - Running Hits (Workout, Fitness, Jogging, Spinning, Gym & Cardio) (2016) [MP3|320 кб/с] <House>
 
 >>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791696.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Highpro - Conflict (Original Mix)
-002. Vital - Clarted
-003. Brookes Brothers - Every Minute
-004. Bakground - Clubjammerz(   Читать дальше...   )Жанр: DnB, DubstepПродолжительность: 08:22:25
+01. Pete Sheppibone & SashMan - hello happiness (extended mix)
+02. DJ Oskar - She Knows Me (Original Mix)
+03. Ferry feat. Ashley Jana - Don't Ever Quit On Me Babe (Original Mix)
+04. Noisy Bears - Hold You (Feat SevenEver) (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:22:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19E2EA826115FC4093822893F3098DF839A73943
+magnet:?xt=urn:btih:45DDCF9966B7D927A8434D8F82658F1342C2BCB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +56,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274981   (791695) от 09.01.2019
+###  Публикация: 1386858   (793572) от 30.05.2020
 
-BestReminder v2019.01.09.09 Final [Multi/Ru]
+Джеймс Паттерсон, Крис Грабенстейн | Охотники за сокровищами. Страшные приключения в Африке (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые приключения Томми, Шторм, Бек и Бика занесли их в Африку. Им нужно отыскать копи царя Соломона и добыть сокровище, чтобы спасти маму и папу. От загадочных пирамид до диких джунглей – они должны следовать своим инстинктам выживания, не терять присутствие духа и быстро, очень быстро соображать.
+
+Джеймс Паттерсон – один из самых популярных современных авторов. (   Читать дальше...   )Жанр: Приключения для детейПеревод: Ирина ЮщенкоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EF1CE60C0EAE4F700355A3F922C2C690CF5B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012481   (793571) от 01.05.2016
+
+Сегодня вечером с Андреем Малаховым. Финалисты шоу «Голос. Дети» (30.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что хочется в субботу вечером? Лечь на диван и не думать о серьезных вещах. Для этого на Западе давно существуют субботние ток-шоу. Все они посвящены разным вопросам: где-то гостями студии становятся звезды, где-то обсуждают события, произошедшие за неделю. Но отличительная черта таких передач - юмор и хорошее настроение.
+
+Андрей Малахов, пожалуй, лучше других ведущих (   Читать дальше...   )В этом выпуске: В программе Андрея Малахова музыкальный вечер — в его студии собрались все финалисты главного вокального шоу страны «Голос. Дети» и музыканты, чьи песни они исполняли на проекте. Поверил ли в свою победу Даниил Плужников и что думает о его исполнении песни «Я свободен» ее автор, Валерий Кипелов? Кто выбирал песни Раяне Асланбековой? Какой талисман у Таисии Подгорной? (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16E0B86477326F7DFFAC04A7D19BE308554C9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386843   (793570) от 30.05.2020
+
+Tumult Whisk 2.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whisk - это легкий редактор HTML и PHP с предварительным просмотром в реальном времени, который обновляется по мере ввода текста. Whisk является важным приложением в вашем наборе инструментов для программирования HTML, PHP, CSS и JavaScript. Он отлично подходит для изучения веб-разработки, тестирования фрагментов кода или создания целых веб-страниц. Интегрированная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.05.2020Разработчик: Tumult Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C992BBFBF2F710055EC18498A573A9D0378053F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012540   (793569) от 01.05.2016
+
+VA - Acoustic Guitar: Ultimate Chill out Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Lang - The Big Cruise
+02. Felipe Mendez - Morning Lights
+03. Hanjo Gabler - Weightless
+04. Martin Haene - River Dream(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A7AF3161690E7A987126C047DD4469981DE4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386533   (793568) от 30.05.2020
+
+Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 [FLAC|Lossless|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got A Tiger By The Tail (2:13)
+02. Trouble And Me (1:56)
+03. Let The Sad Times Roll On (2:16)
+04. Wham Bam (2:03)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012471   (793567) от 01.05.2016
+
+Registry Life 3.27 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791695.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
-Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
-А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
-Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
+Registry Life - это универсальная утилита для исправления ошибок и оптимизации системного реестра. Реестр - это один из важнейших компонентов системы, стабильность и скорость работы которого в значительной мере влияет на стабильность и скорость работы всей системы. При работе в реестре накапливаются неверные и ошибочные записи, которые не только могут резко снизить (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBFD122EB49563904A3413D49C63BB6226EFCC81
+magnet:?xt=urn:btih:7D1BB1B38B2DB0E3A0B76DFDEF004D1A7A65243B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +222,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274855   (791694) от 09.01.2019
+###  Публикация: 1386563   (793566) от 30.05.2020
 
-DJ Emerson - At The Controls (2018) [MP3|320 Kbps] <Techno, Tech House>
+Jerry Lee Lewis - Live At The Star-Club Hamburg (1964) Reissue, 1984, Bear Family Records [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Woman Blues (4:02)
+02. High School Confidential (2:26)
+03. Money (4:39)
+04. Matchbox (2:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA6DD9EA0FB52FA68A7FC222C632C8AE9A931BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012630   (793565) от 01.05.2016
+
+VA - Billboard Hot 100 Singles Chart 07.05.2016 (2016) [MP3|128-320 кб/с] <Pop, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Desiigner - Panda
+002. Lukas Graham - 7 Years
+003. Drake feat. Wizkid & Kyla - One Dance
+004. Rihanna feat. Drake - Work(   Читать дальше...   )Жанр: Pop, Hip-Hop, RnBПродолжительность: 06:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441E299180101AE4A70CD18587D79104811C54C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386687   (793564) от 30.05.2020
+
+VA - The Official UK Top 40 Singles Chart 29.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Gaga Feat Ariana Grande - Rain On Me
+02. DaBaby Feat Roddy Ricch - ROCKSTAR
+03. S1mba Feat DTG - Rover
+04. Doja Cat - Say So(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079A6C53610E0F9600BC30C07FC2089C508ED819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011775   (793563) от 01.05.2016
+
+Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy To Be On An Island In The Sun (1975)
+02. Goodbye My Love Goodbye (Album Version) (1973)
+03. Can't Say How Much I Love You (1976)
+04. When Forever Has Gone (1974)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9446A1566CE2AF073884513C8301C9F1A138202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386643   (793562) от 30.05.2020
+
+Freddie Gibbs & The Alchemist - Alfredo (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791694.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Namtrak – What You Need (DJ Emerson Remix)6:02
-2. DJ Emerson – XLR8r (New Edit)5:38
-3. DJ Emerson – Etonic (Original Mix)6:35
-4. DJ Emerson – Boy Got Bass (Original Mix)6:44(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 04:37:34
+01. 1985 [02:32]
+02. God Is Perfect [03:59]
+03. Scottie Beam [04:04]
+04. Look At Me [02:33](   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:34:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD40576BD019B35E1ECFE15F6D3EC709E20160CD
+magnet:?xt=urn:btih:564D428AD7BDE966BBB2819CC53A4FC3D51A2832
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,107 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274495   (791693) от 09.01.2019
+###  Публикация: 1012636   (793561) от 01.05.2016
 
-Завтрак на обочине / When Strangers Appear (2001) WEB-DL [1080p] ATV [MVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один раненый. Группа таинственных незнакомцев. У каждого своя история. Кому верить? Когда перепуганный, истекающий кровью Мэтт входит в затерянное кафе, которым владеет Бет, там закручивается серия загадочных событий. Трое внешне безвредных незнакомцев прибывают в кафе, но, как утверждает Мэтт, они ищут его, чтобы убить.
-Бет решает спасти Мэтта, но его последующее (   Читать дальше...   )Производство: Австралия, Новая Зеландия, США / Beyond Films, Midnight Film Productions Limited, Persona Non Grata FilmsЖанр: Триллер, Боевик, ДетективРежиссер: Скотт РейнольдсАктеры: Рада Митчелл, Джош Лукас, Бэрри Уотсон, Кевин Андерсон, Джонатан Блик, Эрин Уилсон, Майкл Лоу, Стивен Рэй, Дра МакКэй, Серафин РочериПеревод: Профессиональный многоголосыйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 01:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E0B70982A1D33AE1D5C13EFDF7236F3F30471A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274990   (791692) от 09.01.2019
-
-Большой  (2016) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная и необычайно талантливая танцовщица Юля Ольшанская из маленького шахтёрского городка вытягивает «счастливый билет»: её замечает бывший артист балета Потоцкий и прочит будущее великой балерины, достойной главной сцены страны. Однако для того, чтобы стать бриллиантом, любому, даже самому выдающемуся алмазу, требуется огранка, и путь на легендарные подмостки Большого (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Валерий ТодоровскийАктеры: Алиса Фрейндлих, Валентина Теличкина, Александр Домогаров, Николя Ле Риш, Маргарита Симонова, Екатерина Самуйлина, Анна Исаева, Анастасия Плотникова, Анастасия Прокофьева, Анна ТарасенкоПеревод: (Не требуется)Субтитры: Русские форсированныеПродолжительность: 02:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6435A434881A0926CD16533EFC3D2BA5CF6157BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275030   (791691) от 09.01.2019
-
-Subtitle Edit 3.5.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subtitle Edit - редактор субтитров. При помощи этой программы вы сможете синхронизировать субтитры с видео, а также создавать новые субтитры. Subtitle Edit позволяет импортировать субтитры (в т.ч. - OCR), объединять и разбивать их на несколько фрагментов, настраивать их кодировку и частоту кадров, переводить их с одного языка на другой и многое другое. Пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB360ACCFD4952BCFC23C18DF1C60A59B644D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274897   (791690) от 09.01.2019
-
-VA - Epic Future House (2019) [MP3|320 Kbps] <Electro House, EDM>
+VA - Record Super Chart № 434 (30.04.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791690.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cache - Commander (Phoenix)
-002. Data Punk - Hellsclub (Original Mix)
-003. Kacper Kirtz - Chrome
-004. Ant. Shumak - For a Long Time There Is No Snow(   Читать дальше...   )Жанр: Electro House, EDMПродолжительность: 14:16:14
+01. KSHMR feat. Sidnie Tipton -  Wild Card (Original Mix)  3:18
+02. Crystal Lake & Headhunterz -  Say Goodbye (Headhunterz Edit)  4:02
+03. DJ KUBA & NE!TAN -  Party On!  3:35
+04. Twenty One Pilots -  Stressed Out (Dave Winnel Remix)  4:24(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:07:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5A2B37C106E037C5A85B151092932DAACE84717
+magnet:?xt=urn:btih:4C472B6377A84AEC8ED77C0854A60115A3CF41D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,27 +396,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275002   (791689) от 09.01.2019
+###  Публикация: 1386686   (793560) от 30.05.2020
 
-Скотт Коутон, Кира Брид-Райсли | Четвёртый шкаф (2019) [FB2]
+Бетти Смит | А наутро радость (2020) [MP3]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791689.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Третий роман цикла «Пять ночей у Фредди».
-
-Что случилось с Чарли? Этот вопрос продолжает мучить Джона. Его преследуют ночные кошмары, в которых его девушка умирает в костюме аниматроника. Он хочет забыть трагедию, произошедшую в пиццерии «Фредди Фазбера»… Как-то бессонной ночью, бродя по городу, он встречает старую подругу Джессику, которая приглашает его на встречу (   Читать дальше...   )Жанр: Триллеры, УжасыФормат: FB2
+Бруклин 1927 года. Анни и Карл так юны и влюблены. Все против их брака: родители, друзья, даже декан факультета, где учится Карл. Брак может сломать жизнь, любовь еще никому не приносила пользы – вот что твердят кругом. Но разве это может быть правдой, когда люди искренне любят друг друга? Когда они молоды, когда у них есть мечты? Анни и Карл полны решимости преодолеть (   Читать дальше...   )Жанр: КлассикаПродолжительность: 10:41:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:276096C91D648F8B4F75B9465ACFE82217580AA7
+magnet:?xt=urn:btih:0A1DFCB898ECDE50E0E9E8388BEB482305C2556E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,28 +422,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274898   (791688) от 09.01.2019
+###  Публикация: 1012567   (793559) от 01.05.2016
 
-VA - Jazz Christmas (2019) [MP3|320 Kbps] <Jazz>
+Русская Пасха в Иерусалиме (2016) HDTVRip [720p-LQ]
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791688.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anthony Shadduck - Law Years
-02. Bobby Broom - Come Together
-03. Cotonete - Layla
-04. Pier-O - Love Jazz (For The Weekend)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:42:25
+Страстная неделя – самое трудное и самое ответственное время для каждого верующего человека. В России – еще снег и последние холода. А в Иерусалиме – настоящая весна. И по традиции тысячи наших соотечественников уезжают на эту неделю на Святую Землю, чтобы оказаться в тех местах, которые связаны с именем Иисуса Христа и последними Его днями перед Распятием.
+Перед (   Читать дальше...   )Телекомпания: НеофитЖанр: ДокументальныйПродолжительность: 00:26:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28F3A05278F4E62893D145F39DA5E60A3E736F4B
+magnet:?xt=urn:btih:E55F49EF280CC3870C0E4D98342FE956A7EB1380
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,25 +449,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274346   (791687) от 09.01.2019
+###  Публикация: 1386918   (793558) от 30.05.2020
 
-Ограбление: Код 211 / 211 (2018) BDRip [720p] ATV
+Андрей Хаас | Корпорация счастья. История российского рейва (2018) [EPUB]
 
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791687.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полицейский код 211 — ограбление банка. Такой сигнал получает офицер Чандлер во время своей смены. Он бросается на место событий, чтобы не позволить преступникам сбежать с добычей.Производство: СШАЖанр: Боевик, драмаРежиссер: Йорк ШеклтонАктеры: Николас Кейдж, Софи Скелтон, Майкл Рейни мл., Дуэйн Камерон, Уэстон Кейдж, Кори Хардрикт, Ори Феффер, Марк Баснайт, Аманда Серни, Майкл БеллисариоПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:27:05
+Книга рассказывает о том, как зародилось и развивалось в 1990–2005 гг. российское клубное движение. Автор – непосредственный участник и организатор танцевальных рейвов – показывает, как за пятнадцать лет из квартирных вечеринок выросла гигантская индустрия клубных развлечений. Подробно описаны будни обитателей сквота на Фонтанке, 145, ставшего неофициальным acid-house-клубом, (   Читать дальше...   )Жанр: Культурология, История музыки, КонтркультураФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEDBC571DDDC04403F56C783288EF400AC3E8698
+magnet:?xt=urn:btih:B58478709B07EC0B4FFB0B9A1109A1E48AE6FAFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,25 +475,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275015   (791685) от 09.01.2019
+###  Публикация: 1012626   (793557) от 01.05.2016
 
-Animal Planet: Спасение животных: ураган Харви / Surviving Harley. Animals After the Storm (2017) HDTV [H.264/1080i-LQ]
+Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (1988) [FLAC|Lossless|image + .cue] <New Age, Easy Listening, Electronic>
 
->>Зарубежные TV-бренды
->>Animal Planet
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791685.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После урагана Харви и наводнения многие животные лишились крова. Волонтеры и спасатели работали не жалея сил, пристраивая бездомных животных.Производство: США, Peacock Productions, Animal PlanetЖанр: Документальный, природа, катаклизмыРежиссер: Стивен ФлислерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:39:55
+01. Melody For A Soul
+02. Love's Memories
+03. Sadness Or Happiness
+04. Liliane's Melody(   Читать дальше...   )Жанр: New Age, Easy Listening, ElectronicПродолжительность: 00:54:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AC93FB04273AB7A5A20F29C13D7BB107A00C7FE
+magnet:?xt=urn:btih:7B5067B5AB794EE198CFF130D2CD4B221D495F5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,28 +504,213 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274818   (791684) от 09.01.2019
+###  Публикация: 1386724   (793556) от 30.05.2020
 
-Poets of the Fall - Ultraviolet (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+Савраска (1989) SATRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791684.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dancing on Broken Glass
-02. My Dark Disquiet
-03. False Kings
-04. Fool's Paradise(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:11
+В южном портовом городе живет мальчик Парамон Саврасов. Внешне жизнь Савраски, как называли его друзья, проходит довольно-таки обыкновенно - школьные дела, домашние обязанности. Приближение 8 Марта нарушает обычный ритм жизни. Савраска решил раздобыть денег на подарок маме и однокласснице Серафиме...Производство: СССР | киностудия им. Александра Довженко, ТО ''Луч''Жанр: детский, семейный, комедияРежиссер: Владимир ВолошинАктеры: Дмитрий Емельянов, Елена Кузовик, Татьяна Аксюта, Алла Одинг, Григорий Либерчук, Андрей Каменцев, Анастасия Горпинченко, Алла Подлевская, Виталий Карлинский, Анна Варпаховская, Михаил Пахоменко, Георгий Морозюк, Борис Хмельницкий, Владимир Абазопуло, Богдан Бенюк, Александр Миронов, Александр Белина, Ада ВолошинаПеревод: Не требуется (Русский)Субтитры: нетПродолжительность: 01:03:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC4897694BCF1FD1710F190245ADEBF83B959B9
+magnet:?xt=urn:btih:0EE0BAD59155728B54E58CE7EB9A9EA9B2ADE0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012469   (793555) от 01.05.2016
+
+Смешанные единоборства. FIGHT NIGHTS GLOBAL 46 (29.04.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fight Nights - это лучшие российский бойцы, великолепное шоу, звезды на ринге и в зале, отличная картинка и потрясающий живой звук. В турнирах Fight Nights выступают лучшие представители контактных школ единоборств, чемпионы мира и Европы, хорошо известные не только в России.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский / ИнтершумПродолжительность: 02:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849C8D76DFFB26DADC75BADBC8B26C0FB08D5FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386685   (793554) от 30.05.2020
+
+AnyMP4 MTS Converter 8.2.18 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793554.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 MTS Converter имеет возможность конвертировать файлы МТS, M2TS и TS в другие форматы, такие как: 4K, AVI, MP4, MOV, M4V, MPEG, FLV, MKV, а так же в аудио форматы, такие как: AAC, AIFF, MP3, WAV и многое другое. С помощью AnyMP4 MTS Converter чрезвычайно просто импортировать файлы в Final Cut Pro, iMovie, Avid Media Composer с высокой скоростью и оригинальным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS X 10.6 или вышеЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A1B0D1456F43CB4AD50B4211F2797A6801EACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012484   (793553) от 01.05.2016
+
+Картинки - Подборочка настроений 1920x1200 - 6350x4330 45шт-часть-5 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборочка настроений на каждый день, приятного просмотра!)Формат: JPGРазрешение файлов: 1920x1200 - 6350x4330
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502BDA71CA92F86BC77BFE0958F3D9752E2E027C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386872   (793552) от 30.05.2020
+
+Apollonia 6 - Apollonia 6 (1984) Reissue CD, 1990, Warner Bros. Records [MP3|320 Kbps] <Electronic, Funk Soul, Synth-pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Birthday, Mr. Christian (7:09)
+02. Sex Shooter (3:40)
+03. Blue Limousine (6:22)
+04. A Million Miles (I Love You) (5:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Synth-pop, PopПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94988961C55CC0B701423B38DB008F819C5E2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010585   (793551) от 01.05.2016
+
+Ladies Of Soul - Live At The Ziggo Dome (2016)  [FLAC|Lossless|image + .cue] <Pop, RnB, Soul, Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture 2016 1:30
+02. Feel Good 3:39
+03. Night To Remember 2:23
+04. Soul & Supremes Medley 8:46(   Читать дальше...   )Жанр: Pop, RnB, Soul, Disco, FunkПродолжительность: 02:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADF310D0C9D1889C609CAD2100DE12C28A7B027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386937   (793550) от 30.05.2020
+
+Cleaner for Xcode 3.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cleaner for Xcode поможет вам сделать приложение Xcode быстрее, удалив ненужные и устаревшие файлы. Вы можете запускать программу очистки еженедельно или ежемесячно для сохранения работоспособности папки разработчика и экономии места на диске.Тип издания: macOS SoftwareРелиз состоялся: 10.04.2020Разработчик: Zhenlu ZouПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Тайский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C875577A78CA00CB6ADFC83C878CFC3A126574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012550   (793549) от 01.05.2016
+
+Пасха Христова. Прямая трансляция богослужения из Храма Христа Спасителя (2016) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793549.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь с 30 апреля на 1 мая 2016 года в кафедральном соборном Храме Христа Спасителя в Москве Святейший Патриарх Московский и всея Руси Кирилл совершил Пасхальные богослужения — полунощницу, крестный ход, Пасхальную заутреню и Божественную литургию свт. Иоанна Златоуста.Телекомпания: Россия HDЖанр: ДокументальныйПродолжительность: 02:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA610A5C8AF3064209A604F548C57C7D116F2CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

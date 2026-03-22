@@ -1,3 +1,90 @@
+###  Публикация: 1014183   (776925) от 06.05.2016
+
+Rich Robinson - Paper (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Know Me
+02. Enemy
+03. Stand Up
+04. Leave It Alone(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFC14C1D4C81DBDEC272C02DF2B212F935AE521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212256   (776095) от 11.03.2018
+
+Fastway - Fastway + All Fired Up! (1991) Remastered, 2000, guitar Fast Eddie Clarke (ex - Motorhead) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Easy Livin'
+02 Feel Me, Touch Me (Do Anything That You Want)
+03 All I Need Is Your Love
+04 Another Day(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15FD2982F6FA5198413BFDAB5B4A2C0615B27958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015602   (774170) от 11.05.2016
+
+Sunstorm (Joe Lynn Turner) - Edge Of Tomorrow (2016) Japan [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wak Away From A Goodbye
+02. Edge Of Tomorrow
+03. Nothing Left To Say
+04. Heart Of The Storm(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6B1A07A3259D901931CC9A85C7E528BCD36097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212986   (773078) от 15.03.2018
 
 The Sweet - The Polydor Albums (2017) 4CD Box set, Compilation, Reissue [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock, Pop Rock>
@@ -252,6 +339,35 @@ H.E.A.T - Greatest H.E.A.Ts (2018) Compilation, 2CD, Japanese Edition [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5542126596389E5454E2A923E640B96A4E5DC1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888405   (755456) от 14.04.2015
+
+Radioactive - F4ur [Japan Edition] (2015) [FLAC|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_755456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summetr Rains (Ft. Jami Jamison)
+02. Back To The Game (Ft. Fergie Frederiksen)
+03. Beautiful Lies (Ft. Jeff Paris)
+04. The Piper (vocals - Steve Walsh)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5758B21EB3D0A026908FEBE1D2FBF3E2382A3135
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,119 +746,6 @@ Human Zoo - My Own God (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35E39DC8811CC6670155FB8B0C02911C00AE9D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524293   (745206) от 15.01.2022
-
-Peter H Nilsson - Sign Of Myself (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher Ground
-02. Fire and Thunder
-03. Time To Remember
-04. Can't Get Over You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1B1E723C63139BFB2D9DD6CBB4206B80F1F3B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021130   (742313) от 28.05.2016
-
-Stardust Reverie - Proclamation Of Shadows (2015) [FLAC|Lossless|image + .cue]<Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Heavy MetalПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B73D10F81BA5C70BCE9AEBB556EEC48A60AA465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126805   (741003) от 20.04.2017
-
-Axxis - Retrolution (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn! Burn! Burn!  (03:02) 
-02. All My Friends Are Liars  (03:55) 
-03. Dream Chaser  (03:19) 
-04. Burn Down Your House  (03:58) (   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331E40D41CF02F0BFC66E293ED39F17228C34FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127070   (740902) от 20.04.2017
-
-Poison - The Best Of Poison: 20 Years Of Rock (2006) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk Dirty To me (3:45)
-02. I Want Action (Single Version) (3:06)
-03. I Won't Forget You (Single Version) (3:35)
-04. Cry Tough (3:38)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF27B67A9D0C95E5F14C0AE149C92C4DF540BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

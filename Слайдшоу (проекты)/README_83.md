@@ -1,3 +1,57 @@
+###  Публикация: 954593   (338935) от 08.11.2015
+
+Проекты - GOLDEN DREAMS for Sony Vegas Pro [VEG]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в SVP Pro 11,12,13.Формат: VEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FAEBB83B1CEE7EEC060433EC300E697546BE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954977   (337037) от 09.11.2015
+
+Проекты - Heavenly Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд-шоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE6BF5A0F579D7D76308CB25695F00E7EC020DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180649   (336881) от 05.11.2017
 
 Проекты - VideoHive - Simply Elegant Slideshow - 11441688 [AEP]
@@ -630,59 +684,6 @@ VideoHive - Cynosure - AE CS4 HD project - 144568 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2EBEEE7326FE28C8164F11DAF48DF63BEEBA682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842740   (327301) от 19.11.2014
-
-VideoHive - V-Presentation HD - 100971 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект презентации чего угодно на экране виртуальных дисплеев. 12 мест для фото/видео. Превью и текстовый файл помощи - в раздаче. Чистый муз. трек (192 Кбит/сек) можно извлечь из превью.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F209872E6BA752B71ADCFF53313F57335751E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957752   (326520) от 18.11.2015
-
-Проекты - Motion Array - Dynamic Slide [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5724E7E72112F86AD1D77355B1AAF3007EBE48B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

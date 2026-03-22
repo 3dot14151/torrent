@@ -1,3 +1,32 @@
+###  Публикация: 1356229   (980356) от 29.01.2020
+
+Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meek Mill & Farruko - Uptown II (02:54)
+02. City Girls - Money Fight (02:38)
+03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
+04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973429   (980258) от 08.01.2016
 
 Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Picture Score) (2007) [MP3|320 кб/с] <Soundtrack, Music, New Age>
@@ -731,35 +760,6 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB9EB5EF6CBF20FB40F42016DFC1F80FED2101F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357095   (975548) от 02.02.2020
-
-Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le Mans 66 (05:42)
-02. Wide View (01:36)
-03. Driving in the Rain (01:52)
-04. Henry Ford the Second (00:45)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D7CF592B81294BFA83C50745ED8E325C4F2EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

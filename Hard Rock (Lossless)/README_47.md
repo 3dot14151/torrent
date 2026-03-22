@@ -1,3 +1,177 @@
+###  Публикация: 1405932   (479277) от 01.09.2020
+
+Merzy - Rock the Blues (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times (04:12)
+02. Out On The Highway (03:43)
+03. Give Me What You Got (06:10)
+04. Dead & Gone (05:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020AF18B37843A4AC149D06255DE779D127D8643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204103   (478815) от 01.09.2020
+
+John Wetton & Geoffrey Downes - 25 albums, 29 CD (1980-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Art Rock, AOR, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Уэттон является одним из наиболее маститых музыкантов в истории прогрессивного рока. Его основным инструментом всегда была бас-гитара, вряд ли кто-то ещё из музыкантов может похвастаться таким послужным списком! В числе проектов, в которых участвовал Джон Уэттон: Mogul Thrash, Family, King Crimson, Roxy Music / Bryan Ferry, Uriah Heep, UK, Asia, Wishbone Ash. (   Читать дальше...   )--------------------------
+
+01. Prelude (2:15)
+02. Skyscraper Souls (18:09)(   Читать дальше...   )Жанр: Art Rock, AOR, Progressive Rock, Pop Rock, Synth-pop |Продолжительность: 25:17:34 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9775EABAACFD1A9537F8DFEE7151B1746080BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566746   (478639) от 31.07.2022
+
+Madhouse - Down 'N' Dirty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down 'n' Dirty
+02. Hard Luck
+03. Kiss And Tell
+04. Passionkiller(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7F50393F6370B4A18D2167B782BAE92EC8D1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566901   (478489) от 31.07.2022
+
+Michael Schenker Group - Universal (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergency
+02. Under Attack
+03. Calling Baal
+04. A King Has Gone(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14030C808CBC715AE9C01AB0C6D6DCC8E4D27328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160118   (478120) от 23.08.2017
+
+Burning Rain - 3 альбомa (1999-2013) Discography [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burning Rain - американская хард-рок-группа, основанная гитаристом Дагом Олдричем (экс-Lion, Bad Moon Rising, в дальнейшем - Dio, Whitesnake) и певцом Китом Сент-Джоном (экс-Medicine Wheel, Sun King, Big Trouble, St. John) в 1998 году. Также в состав группы вошли сессионный барабанщик Алекс Макарович (записывался со Steelheart) и бас-гитарист Йен Майо (экс-Hericane (   Читать дальше...   )Список альбомов:
+1999 | Burning Rain
+2001 | Pleasure To Burn
+2014 | Epic ObsessionЖанр: Hard Rock, Hard'n'Heavy |Продолжительность: 03:03:00 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7D32C1CF0DE5A6617EA2B0AE729293E5E01422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056892   (477712) от 27.09.2016
+
+Fаir Wаrning - Рimр Yоur Раst (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Longing For Love
+02. One Step Closer
+03. Out On The Run
+04. When Love Fails(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432A278FC88240E4DB152F61C923E0FC6BC55088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056810   (477614) от 27.09.2016
 
 Seven - 7 (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -592,180 +766,6 @@ Heavens Edge - Heavens Edge (1990) Remastered /2010, Rock Candy Records/[FLAC|Lo
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248700   (465262) от 21.08.2019
-
-Andrew W.K. - I Get Wet (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Time to Party (1:30)
- 02. Party Hard (3:05)
- 03. Girls Own Love (3:14)
- 04. Ready to Die (2:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CC765D2DC77A7E5D13F70161A48D52D41B4FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568200   (464217) от 07.08.2022
-
-D.F.M. - Streets of Rage (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loser Takes All
-02. Passion
-03. Trash King
-04. Streets of Rage(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FF10A4CFD7A892B6F9F903E69CB18EE01B97BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568262   (464216) от 07.08.2022
-
-Vypera - Eat Your Heart Out (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Me Down (4:12)
-02. Standing On The Edge (3:55)
-03. Spellbound (4:29)
-04. Sierra (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A73D90E1D4CC6B1B20171C40C2FBCDD02BFDEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407733   (462591) от 09.09.2020
-
-All Them Witches - Nothing as the Ideal (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Stoner Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturnine & Iron Jaw (6:49)
-02. Enemy Of My Enemy (3:30)
-03. Everest (2:07)
-04. See You Next Fall (9:50)(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Psychedelic RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82915FA85100C200C0F1449561DAB7544F54F5F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941145   (462244) от 27.09.2015
-
-Bon Jovi - Burning Bridges (2015) Japanese Edition [FLAC|(image+.cue)]<Hard Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Teardrop To The Sea
-2. We Don't Run
-3. Saturday Night Gave Me Sunday Morning
-4. We All Fall Down(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E579AF51F0625232C228C1F48643E0B746B582EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059382   (462115) от 04.10.2016
-
-Edge Of Forever - Feeding The Fire (2004) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeding The Fire
-02. Birth Of The Sun
-03. Prisoner
-04. Whatever Comes(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64997168CE0E545729591FDC499399205FAACFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

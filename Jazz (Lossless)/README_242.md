@@ -1,3 +1,177 @@
+###  Публикация: 1632683   (243935) от 11.05.2023
+
+Kenny Dorham - Una Mas (1963) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Una Mas (One More Time) [15:19]
+02. Straight Ahead [8:59]
+03. Sao Paulo [7:20]
+04. If Ever I Would Leave You [5:08]Жанр: Hard BopПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3067D1EB6D974BD2BAE56C513C8930E8F00FA713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074455   (243907) от 19.11.2016
+
+Luciana Souza - Speaking In Tongues (2015) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the Fair
+02. Hymn
+03. Straw Hat
+04. Split(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C5D41E0871CE06A519C41728BD0464939C0200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611557   (243841) от 12.02.2023
+
+Abdullah Ibrahim - Cape Town Songs: The Very Best Of Abdullah Ibrahim (1979- 1997) 2000, Nascente [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imam [6:10]
+02. Zikr [5:28]
+03. For Monk [4:40]
+04. Zimbabwe [4:18](   Читать дальше...   )Жанр: Post-Bop, World Fusion, Piano JazzПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DD4222C54C62FFEC5FE161DA3DFCD40C505771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074789   (243838) от 20.11.2016
+
+Larry Bartley - Along This Way (2003) [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Djinn (Intro) [00:58]
+ 02.The Djinn [05:34]
+ 03.Along This Way [09:00]
+ 04.Justice (...Just Us) [10:12](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAE0A71A1AE488286B2AFF3E009E459009D1F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455499   (243837) от 19.03.2021
+
+Charles Davis - For The Love Of Lori (2014) Reade Street Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begues [7:54]
+02. What'll Do? [9:12]
+03. Juliano [5:31]
+04. KD [7:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD2CB7E51A1DB94751914BC612A9C889676A1377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626398   (243835) от 14.04.2023
+
+Eric Reed - Black, Brown, and Blue (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black, Brown, and Blue [2:18]
+02. Lean on Me [4:02]
+03. I Got It Bad (And That Ain't Good) [3:15]
+04. Peace [4:58](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D300412CB471876C7CC83A8690CD13E5F02F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611555   (243834) от 12.02.2023
 
 Chico Hamilton - The Complete Remastered Recordings On Black Saint & Soul Note (1989 - 1993) 5CD, 2014, CAMJazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09BEB1C72A36EF46461A4D4811D8C7942262F1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456114   (243436) от 21.03.2021
-
-Veronica Swift - This Bitter Earth (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Bitter Earth
-02. How Lovely to Be a Woman
-03. You've Got to Be Carefully Taught
-04. Getting to Know You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC784E91AF00513C9F6FA2C406CA3E9B17CBD1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340291   (243434) от 23.11.2019
-
-VA - The Savory Collection 1935-1940 (2018) 6CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243434.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Coleman Hawkins - Body and Soul [5:54]
-02. Coleman Hawkins - Basin Street Blues [5:54]
-03. Coleman Hawkins - Lazy Butterfly [1:05](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 06:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8969C04D73F6498C82CCC236F325841CF50A158B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077673   (243432) от 01.12.2016
-
-National Youth Jazz Orchestra - Remembrance (1991) [FLAC|Lossless|image + .cue] <Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembrance (for Jim) (8:26)
-02. Remembrance (for Chris/Eamonn) (4:15)
-03. Remembrance (for Kenny/Charlie (8:01)
-04. Remembrance (for Valery) (1:30)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF63184FDB2A18298179FC499D7386BCC707F504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340297   (243419) от 23.11.2019
-
-Joe Williams - Presenting Joe Williams And Thad Jones & Mel Lewis Jazz Orchestra 1966 (1994) Blue Note Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Out of My Life Woman [3:22]
-02. Woman's Got Soul [2:23]
-03. Nobody Knows the Way I Feel This Morning [4:31]
-04. Gee Baby, Ain't I Good to You [2:52](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB1AE8F25BD59AFACD3E03FD348B2EB049BAEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078690   (243418) от 01.12.2016
-
-National Youth Jazz Orchestra - 47 Frith Street (1998) [FLAC|Lossless|image + .cue] <Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet London Bridge
-02. The Whole Thing
-03. El Rey Pedro
-04. Roxy Beaujolais(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC701EA3259A69C6EDC21E59FF2928759BAEB727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627067   (243405) от 17.04.2023
-
-Zoot Sims & Bucky Pizzarelli - Send In The Clowns (1990) 1997, MCR [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summerset [4:15]
-02. Honeysuckle Rose [4:01]
-03. A Summer Thing [3:21]
-04. Somebody Loves Me [3:38](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0D6D9C173585C095DF70304A0887813DB24933
 ```
 
 https://mybot314.ru/tekegram_catalog/

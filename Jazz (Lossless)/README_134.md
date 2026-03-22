@@ -1,3 +1,177 @@
+###  Публикация: 1297371   (604065) от 22.04.2019
+
+Polly Gibbons - All I Can Do (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Permit Me to Introduce You to Yourself
+02. Good Hands Tonight
+03. Beautiful Things
+04. If You Had the Chance(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DBEE651018628E2222EA6EC93E67947CE82153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148167   (603953) от 06.07.2017
+
+Ignasi Terraza Trio - Live at the Living Room, Bangkok (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Emotional Dance [07:30]
+02. Les dotze van tocant [04:50]
+03. Georgia on My Mind [05:00]
+04. Give Me Another [06:50](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA0437F66A99D6F27D4A988985A8EE41567C43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148162   (603952) от 06.07.2017
+
+Cor Vivaldi & Ignasi Terraza Trio - El 25 de Desembre Swing, Swing, Swing! (2012) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les dotze van tocant [02:51]
+02. Benvinguda [01:38]
+03. El desembre congelat [02:40]
+04. L'angel i els pastors [03:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBCE2BB942425BBE4E3B1588848C1BD67451D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148172   (603951) от 06.07.2017
+
+Ignasi Terraza Trio - Imaginant Miro (2014) Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imaginant Miro [04:15]
+02. El Segador [04:36]
+03. Nocturn [05:20]
+04. Polaritats [05:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F5D28CCD5A53EE3060D257B8BAAC1DC375125F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148387   (603950) от 06.07.2017
+
+Frank Tate, Harry Allen, Dave McKenna - Live in Belfast (2001) Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Brothers [8:44]
+02. On The Alamo [9:44]
+03. I'll Only Miss Her Whwn I Think Of Her [8:11]
+04. Fred [7:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E04025AC7ED96A540D7E3C04EDB7AE75B21978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148149   (603949) от 06.07.2017
+
+Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When It's Sleepytime Down South [05:42]
+02. Misty [04:28]
+03. Love for Sale [06:16]
+04. I Can't Get Started [05:20](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991136198C2516884223F2DBFAC3AE50B0A91B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148154   (603948) от 06.07.2017
 
 Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -570,180 +744,6 @@ Kenny G - The Moment (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7B645CAD97FC2F43A9C11C2B3FE9D8DAF61084D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148808   (603002) от 08.07.2017
-
-Don Braden - Workin' (2006) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoken Introduction by Cecil Brooks III [00:52]
-02. You Can't Hide love [07:28]
-03. Spoken Introduction by Don Braden [00:34]
-04. Looking for Her [01:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2C001D1E840FD2F99FD7E28DB1680FC0610667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148805   (603001) от 08.07.2017
-
-David Grisman Quintet featuring Svend Asmussen - Svingin' With Svend (1988) Zebra Acoustic [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svingin' With Svend [04:04]
-02. Nadja [06:24]
-03. Lap-Nils Polska [08:25]
-04. It Don't Mean A Thing [06:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DDB709A4423D88FF86650C7A309CC98F89745FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148661   (602999) от 08.07.2017
-
-Stan Kenton - Summer Of '51 (1987) Garland [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artistry In Rhythm [00:45]
-02. Machito [02:24]
-03. Stardust [03:18]
-04. Gone With the Wind [02:46](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9149BF086B6F56D4804254BB6C65DE095540DDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547409   (602996) от 28.04.2022
-
-Tim Garland - ReFocus (2020) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Late, I'm Late [3:51]
-02. Maternal [5:30]
-03. Thorn in the Evergreen [5:46]
-04. Dream State [3:26](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457E6D68C0E9A71BCD24A4106B78CE5E7382A0BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148807   (602990) от 08.07.2017
-
-VA - The First Ladies Of Swing (2002) K-tel Entertainment [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judy Garland - The Trolley Song [02:55]
-02. Ella Fitzgerald - My Heart Belongs To Daddy [03:10]
-03. Billie Holiday - Let's Do It [02:58]
-04. Doris Day - Bewitched [02:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A9F3AFDA0C64485A73C259785B8558D07C6569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232113   (602785) от 22.06.2018
-
-Miles Davis - Antwerp Blues (1967) 1998, Megadisc [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agitation [5:32]
-02. Footprints [9:46]
-03. 'Round Midnight [7:36]
-04. No Blues [11:28](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE97DDAD3011487CF10665D70A42CE94F28BDE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1064576   (426236) от 20.10.2016
+
+Rebecca Ferguson - Superwoman (2016) [MP3|320 Kbps] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bones   (03:49) 
+02. Mistress   (03:19) 
+03. Hold Me   (04:28) 
+04. Superwoman   (03:34) (   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F15A9023536F621BCC9DA4AC7DBB6A3503AD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324536   (425362) от 09.09.2019
+
+Liz Mitchell - Share The World (1999) ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Have A Party (4:53)
+02. Good Timing (3:59)
+03. Share The World (5:52)
+04. My Love's A Ship (3:47)(   Читать дальше...   )Жанр: Reggae, Pop, BalladПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AA721243690BAE3279C045C2FFD994D34CDD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064745   (423910) от 21.10.2016
+
+Melanie C - Version of Me (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Life
+02. Escalator
+03. Anymore
+04. Something For the Fire(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759C7871A2D509255A1175DEE203667C4592CA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572144   (423513) от 26.08.2022
+
+The Cars - Heartbeat City (1984) [OGG Vorbis|485 Kbps] <Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Again	3:47
+02. Looking For Love	3:52
+03. Magic	3:57
+04. Drive	3:55(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68689E77A023156F4D771A8FE330414BD6FA0B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250876   (422650) от 29.09.2018
 
 Technique - Michael Angelo (1983) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
@@ -623,122 +739,6 @@ Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE53776A715B9C8191A2861959B3EF93A1AC150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066729   (409931) от 27.10.2016
-
-Gram Rabbit - Miracles & Metaphors (2010) [MP3|256 Kbps] <Alternative Pop, Psychedelic Space Rock, Space Dance Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Of Our Lives
-02. Candy Flip
-03. Falling Debris
-04. Hyena(   Читать дальше...   )Жанр: Alternative Pop, Psychedelic Space Rock, Space Dance RockПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855E51F2CA54DAB6E471B72525873426A73380FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066463   (409907) от 27.10.2016
-
-VA - Shut Up And Dance (2016) 3CD [MP3|320 Kbps] <Electronic, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409907.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: HITS
-01. Alan Walker - Faded (3:30)
-02. Willy William - Ego (3:27)
-03. Flume feat. Kai - Never Be Like You (3:54)(   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 03:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F4DD9149DCEC636AB110849B095A4F992F6447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413372   (409575) от 03.10.2020
-
-Mariah Carey - The Rarities (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409575.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Here We Go Around Again (1990)
-2. Can You Hear Me (1991)
-3. Do You Think of Me (1993)
-4. Everything Fades Away (1993)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD0606918B96482B686C626B93C251E160206C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066850   (409528) от 27.10.2016
-
-VA - The Best Of Christmas Hits (2016) [MP3|320 Kbps] <Pop, Jazz, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fifth Harmony - All I Want for Christmas Is You 3:49
-02. Britney Spears - My Only Wish (This Year) 4:14
-03. Hall & Oates - Jingle Bell Rock 2:03
-04. Michael Bolton - Santa Claus Is Coming to Town 4:04(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AC8C96AA68A78423EDE4DEC8A957DCF43419B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

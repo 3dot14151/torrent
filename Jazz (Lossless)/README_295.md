@@ -1,3 +1,177 @@
+###  Публикация: 1273112   (139814) от 30.12.2018
+
+Chris Connor - Sings Lullabys For Lovers (1954) 2013, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life [2:56]
+02. Out of This World [2:55]
+03. Cottage for Sale [2:36]
+04. How Long? [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4860F8C79AE74A68693926FC71E21E68059853FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273109   (139795) от 30.12.2018
+
+Catherine Russell - Harlem On My Mind (2016) Jazz Village [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem on My Mind [4:17]
+02. I Can't Believe That You're in Love with Me [4:12]
+03. Swing! Brother, Swing! [2:34]
+04. The Very Thought of You [5:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCD89F51A1D022B07526D78252FFF0CBC5794C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273022   (139770) от 30.12.2018
+
+Sir Roland Hanna Plays The Music Of Alec Wilder (1998) Gitanes Jazz Productions [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Free [2:05]
+02. Moon and Sand [3:03]
+03. Mimosa and Me [3:31]
+04. Ellen [4:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C354FE80167859D35C8E682D0D3FFEB97DAD48A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970459   (139759) от 31.12.2015
+
+Elvin Jones - Poly-Currents (1969) Remaster, 2014, Universal[FLAC|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Agenda [13:53]
+ 02.Agappe Love [05:55]
+ 03.Mr. Jones [07:38]
+ 04.Yes [02:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCF6B76E41F6F6776B6231FE815AFD35F2B2DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970592   (139740) от 31.12.2015
+
+David Newman - Newmanism (1974) Remaster, 2015, Warner[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Baby Rae [06:52]
+ 02.Song For The New Man [05:00]
+ 03.Violet Don't Be Blue [05:01]
+ 04.Foxy Brown [04:59](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9174702E90CCAA1660B1021FE14E42ADD41BDF92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970452   (139712) от 31.12.2015
+
+George Adams - Paradise Space Shuttle (1979) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intentions [04:48]
+ 02.Send In The Clowns [04:28]
+ 03.Metamorphosis For Mingus [06:56]
+ 04.Paradise Space Shuttle [04:13](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C2A574EEE6C75AA2594E4817C7AC093282A8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970506   (139674) от 31.12.2015
 
 Joe Henderson - Big Band (1997) Verve Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz, Big Band>
@@ -571,180 +745,6 @@ Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2508F50BE02F3BA1AF22EA390985433771D6BB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349228   (138373) от 31.12.2019
-
-Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Child Is This [4:03]
-02. Christmas Tree [5:29]
-03. Hark the Herald Angels [3:53]
-04. Silent Night [6:11](   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9FAA1810CDEDC4D14CE5725F686E740688117C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349345   (138361) от 31.12.2019
-
-Lew Tabackin - Live At Vartan Jazz (1994) Vartan Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bemsha Swing [10:12]
-02. Ask Me Now [11:56]
-03. Cotton Tail [8:35]
-04. Pyramid [12:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6266A07DCEA77E787A9BAFD5B49200675996E641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679352   (138353) от 25.11.2023
-
-Lee Morgan - The Complete Recordings (1956 - 1962) 6CD, 2015, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expoobident [5:03]
-02. Easy Living [5:58]
-03. Fire [4:51]
-04. Just in Time [3:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 07:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D486B921691C1FC665E661EBECF201786EB52207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349227   (138291) от 31.12.2019
-
-Chet Baker - The Hits 1952 - 1959 (2019) 3CD, New Continent [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138291.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Chet Sings:
-01. My Funny Valentine [2:21]
-02. I Fall in Love Too Easily [3:21]
-03. But Not for Me [3:05](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Vocal JazzПродолжительность: 03:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50C0160B36E0A5590B5D6572A39B39CF8802661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521032   (138131) от 31.12.2021
-
-Artie Shaw - 1946-1950 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day [2:48]
-02. What Is This Thing Called Love [3:01]
-03. I've Got You Under My Skin [2:41]
-04. Get Out Of Town [3:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051705D430492E9BDA848730DC3A18202AB4D84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521034   (138078) от 31.12.2021
-
-Sven Erik Lundeqvist Trio - First & Foremost (2018) Storyville Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The More I See You [3:35]
-02. Softly as in a Morning Sunrise [5:40]
-03. A Lot of Living to Do [5:31]
-04. Cherokee [3:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A42D03C12CB340C9400E38F6C7BC65A80C36F04
 ```
 
 https://mybot314.ru/tekegram_catalog/

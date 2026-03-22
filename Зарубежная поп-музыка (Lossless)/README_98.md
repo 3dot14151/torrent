@@ -1,3 +1,235 @@
+###  Публикация: 1801835   (14714) от 13.06.2025
+
+The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation [00:04:13]
+02. Love Me Alive [00:03:25]
+03. Foolish Pleasure [00:02:41]
+04. The Hero [00:03:47](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802200   (14502) от 15.06.2025
+
+VA - Some Great 90s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14502.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. THE GOO GOO DOLLS - Iris (04:49)
+002. Madonna - Vogue (Edit) (04:49)
+003. Third Eye Blind - Semi-charmed Life (2006 Remaster) (04:28)
+004. Simply Red - Stars (04:08)(   Читать дальше...   )Жанр: PopПродолжительность: 06:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB00A67CA451A8808BB3670007D3C4A46892883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803104   (13931) от 21.06.2025
+
+Thomas Anders - …Sings Modern Talking - Ready for Romance (Thomas' Version) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13931.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Brother Louie (Thomas' Version)
+02. Just We Two (Mona Lisa) (Thomas' Version)
+03. Lady Lai (Thomas' Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB5871F1F1D4E7FA82C3A89529D008F16CA1BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804010   (13252) от 27.06.2025
+
+Petula Clark - Solitude & Sunshine -The Songs of Rod McKuen (2025) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Gently [00:03:00]
+02. People Change [00:02:32]
+03. Love's Been Good to Me [00:03:18]
+04. The Importance of the Rose [00:02:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6840688C88CD30182E0F18370FAC84D2AA0D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804833   (12767) от 02.07.2025
+
+VA - Summer Hits 2025 - Songs of the Summer (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ravyn Lenae - Love Me Not 03:33
+02. Charli Xcx - party 4 u 04:56
+03. Sam Gellaitry - Assumptions 03:40
+04. Teddy Swims - The Door (CYRIL Remix) 03:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CB83477DAC56F375AC1DEBBA79C19AC06FA6F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805453   (12351) от 06.07.2025
+
+Pupo - Insieme (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insieme (3:05)
+02. Benvenuta La Vita (3:54)
+03. La felicità - So nah wie noch nie (3:02)
+04. Nell' Anima (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB041ADBFAB31D342F1452A3CFE6EAD4CB8A8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805548   (12143) от 08.07.2025
+
+VA - #1 Hits of the 50s, Vol. 2 (2001) CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Dinning / Teen Angel    [0:02:37.31]
+02. Frankie Avalon / Why    [0:02:35.20]
+03. Don Gibson / Oh Lonesome Me    [0:02:26.41]
+04. Buddy Knox / Party Doll    [0:02:16.04](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F045336C8973D5B2CEF2E190D4DC53DB82FBFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805529   (12135) от 08.07.2025
+
+Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Song    [0:04:01.35]
+02. Daniel    [0:03:53.07]
+03. Honky Cat    [0:05:13.18]
+04. Goodbye Yellow Brick Road    [0:03:14.52](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DE005C53ABAFFB98E9C1FAAF5D1A61CE8D6FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805851   (12007) от 09.07.2025
 
 VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -513,209 +745,6 @@ V.A. - The Best Female Vocalists (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CD226A6B1796186995F445C6B3F5659430D0E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815997   (4697) от 02.09.2025
-
-VA - 80s Music - 150 Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4697.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Little Lies (2018 Remaster) (3:39)
-002. Tina Turner - What's Love Got to Do with It (3:50)
-003. Roxette - The Look (3:57)
-004. Pet Shop Boys - West End Girls (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 10:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334594C3C694708939AB8D62B79CA27110E473EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817604   (3328) от 11.09.2025
-
-Teddy Swims - I've Tried Everything But Therapy (Part I) (2023) [FLAC|Lossless|image + .cue] <Soul, Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Teddy Swims - певец и автор песен с сильным, многогранным голосом, сочетающим элементы R&B, soul, hip-hop, и современной поп-музыки. Он начал свою карьеру с публикации каверов на любимые песни в социальных сетях, а затем представил собственные композиции. Каверы Swims'а охватывают самые разные эпохи и жанры, от Marvin Gaye и Shania Twain до Billie Eilish, демонстрируя (   Читать дальше...   )01. Some Things I’ll Never Know (4:02)
-02. Lose Control (3:30)
-03. What More Can I Say (2:21)
-04. The Door (3:32)(   Читать дальше...   )Жанр: Soul, Pop, R&BПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C0E2B341465D019ABBDB5D4261B4B4EA32C553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817605   (3322) от 11.09.2025
-
-Teddy Swims - I've Tried Everything But Therapy (Part 2) (2025) [FLAC|Lossless|image + .cue] <Soul, Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3322.jpg" />
-</div>
-
-
-###  Подробнее
-
-В продолжении своего мейнстримового прорыва 2023 года, в альбоме "Ive Tried Everything But Therapy, Pt. 2", Teddy Swims глубже копается в своей личной жизни, находя вдохновение в любви и исцелении. Его второй полноформатный студийный альбом, более оптимистичный и энергичный, чем первый, добавляет доступного поп-звучания в его проникновенные, мощные гимны. (   Читать дальше...   )01. Not Your Man (3:37)
-02. Funeral (3:54)
-03. Your Kind of Crazy (3:02)
-04. Bad Dreams (3:04)(   Читать дальше...   )Жанр: Soul, Pop, R&BПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503F0587286529F052D8D0C5D60D7B92700F9544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818904   (1983) от 19.09.2025
-
-Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude [2:36]
-02 - Something Beautiful [4:32]
-03 - End of the World [4:11]
-04 - More to Lose [4:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8670E0FFE267A0E8B3E777863C293D63B5D9708D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819041   (1842) от 20.09.2025
-
-VA - cool hits and cosy music 100 songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Thinking Out Loud (4:41)
-002. Alex Warren - Before You Leave Me (2:56)
-003. Chappell Roan - Love Me Anyway (3:53)
-004. THE GOO GOO DOLLS - Iris (Acoustic) (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAB59DC9ADDE4236CBD35AA50B935F0BF458CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 40154   (1517) от 22.09.2025
-
-Barbra Streisand - A Collection-Greatest Hits ... And More - 1989, FLAC (image + .cue), lossless
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We're Not Makin' Love Anymore
-2. Woman In Love
-3. All I Ask Of You (From "The Phantom of The Opera")
-4. Comin' In And Out Of Your Life(   Читать дальше...   )Жанр: PopФормат: FLAC (image + .cue)Продолжительность: 51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97432E50005DC47D1650E16F84586DC0AACB69CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820013   (982) от 25.09.2025
-
-Kylie Minogue - Tension Tour//Live 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights Camera Action (Intro;Live From The Tension Tour) (1:45)
-02. Lights Camera Action (Live From The Tension Tour) (1:28)
-03. In Your Eyes (Live From The Tension Tour) (2:05)
-04. Get Outta My Way (Live From The Tension Tour) (2:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C66347AC28456C2A6C7802CF118C709061FF63B
 ```
 
 https://mybot314.ru/tekegram_catalog/

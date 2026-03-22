@@ -1,3 +1,148 @@
+###  Публикация: 963573   (287445) от 08.12.2015
+
+VA - Live in South Beach (Mixed by John Digweed) (2015) [FLAC|Lossless|WEB-DL]<Minimal, Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD1 (76:02)
+02. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD2 (67:20)
+03. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD3 (77:51)
+04. Zulu - Gardens Of God (Original Mix) (07:40)(   Читать дальше...   )Жанр: Minimal, Progressive House, Tech HouseПродолжительность: 08:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A836B73BD0DAF24FC248EB42C194972DB35627D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080850   (286630) от 08.12.2016
+
+VA - A Guy In Buenos Aires (Mixed by Guy Mantzur) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khen - Authentica
+02. Chicola - The Night We Call It the Day
+03. Kastis Torrau - Chasing You
+04. Monkey Safari - Boris (Guy Mantzur Remix)(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415EF435B207A5C89773AA648685097430C5226C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263640   (286538) от 20.11.2018
+
+VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Alfred - Cygnus (Th Moy Remix)                              [07:59]
+02. Experimental Feelings and Joy - Run (Christian Monique Remix)   [10:04]
+03. Dziathy - Festiv4l (Mendexx Remix)                              [07:36]
+04. Kade B - Shemyaza (PushnBall Remix)                             [07:40](   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080879   (286432) от 08.12.2016
+
+VA - Alpine Grooves, Vol. 8 (Kristallhutte) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riccicomoto - Shadows and Lights (Pazul and Deepling Remix) [07:17]
+02. Whilk & Misky - Clap Your Hands (Solomun Remix) [09:37]
+03. FILM - Dorian (Original Mix) [08:33]
+04. Lorenzo al Dino & Cope - Good Times (DeepFM Remix) [06:04](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7D5B9F7D8627D50EDCE4C070CCA5E07497829E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081237   (284889) от 09.12.2016
+
+VA - A 40 Track Compilation : Edinburgh (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madloch - Fiction (Analogue Mix) [08:52]
+02. Kastis Torrau Arnas D - Eye (Kaban Remix) [07:04]
+03. Philip Chedid - Yaaburni (Golan Zocher Remix) [10:30]
+04. Lost Promises - Indigo (Orsen Remix) [08:15](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 05:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07769E408BFC5BDF38C671BE5F0BE16BB3791F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335594   (284728) от 04.11.2019
 
 DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
@@ -597,151 +742,6 @@ Stärker (Stärker) - Substrate (2017) Hospital Productions [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47EE033BD8A92AC1430A74225A473417EEF382E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188653   (273686) от 03.12.2017
-
-Mr. Cloudy - Memoria / Sprayer (2017) Local Traffic [FLAC|Lossless|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memoria l (20:00)
-02. Memoria ll (18:06)
-03. Sprayer l (08:09)
-04. Sprayer ll (13:52)Тип издания: VinylЖанр: Dub Techno, AmbientПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEABE3EF7805F733317DB9F908AB082A419684D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188655   (273679) от 03.12.2017
-
-Mr. Cloudy - Perceived 2 (Magnetic Tide) (2017) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetic Tide 1 (17:50)
-02. Magnetic Tide 1 (Toki Fuko ReDub) (17:50)
-03. Magnetic Tide 2 (19:00)
-04. Magnetic Tide 2 (Toki Fuko Reshape) (18:44)Жанр: Ambient, Drone, Dub TechnoПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00A5232B38E9F51502E691690B1EEFEA61E3045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188651   (273677) от 03.12.2017
-
-Joachim Spieth - Irradiance (2017) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iliachtides (05:17)
-02. Dispersion (07:08)
-03. Luciferin (07:29)
-04. Candela (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95611C0CEC645A033C701AD977DBFC7D94063439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188649   (273676) от 03.12.2017
-
-Automatic Tasty - A World Of Moving And Connected Parts (2017) SLEEPERS [FLAC|Lossless|24Bit|tracks] <Electro, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World Of Moving And Connected Parts (03:58)
-02. Notes From Underground (04:00)
-03. I Tried To Take A Selfie (But There Was Nobody There) (03:05)
-04. R U Local ? (05:19)(   Читать дальше...   )Тип издания: VinylЖанр: Electro, AcidПродолжительность: 00:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75742CF111D41126B72C8325C94C5AC0579FE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188892   (273674) от 03.12.2017
-
-VA - Kitties Wanna Dance! Vol. 3 (2012) Suara [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pig & Dan - No Rules Limitation (07:14)
- 02. Sharam Jey & Night Talk - Lies (05:36)
- 03. Tapesh & Dayne S - All Day Long (07:33)
- 04. Hot Since 82 - Planes & Trains (06:43)(   Читать дальше...   )Жанр: House, Deep House, Minimal, Tech HouseПродолжительность: 02:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B373A8C9FC19FADDBE7C2429F99001470065160F
 ```
 
 https://mybot314.ru/tekegram_catalog/

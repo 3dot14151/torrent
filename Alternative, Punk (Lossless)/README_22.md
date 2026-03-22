@@ -1,3 +1,119 @@
+###  Публикация: 1132609   (697002) от 11.05.2017
+
+Agent Provocateur - Where The Wild Things Are (1997) [FLAC|Lossless|tracks + .cue] <Electro,Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Tape (5:19)
+02. Spinning (3:43)
+03. Agent Dan (5:26)
+04. Kicks (5:00)(   Читать дальше...   )Жанр: Electro,AlternativeПродолжительность: 01:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD305617D10656AF53335E5B8A5927445DE605DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132777   (696999) от 11.05.2017
+
+Mac DeMarco - This Old Dog (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Jangle Pop,  Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My Old Man (03:42)
+2. This Old Dog (02:31)
+3. Baby You're Out (02:38)
+4. For The First Time (03:02)(   Читать дальше...   )Жанр: Indie Rock, Jangle Pop,  Lo-FiПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4CE468B807B72E1B206BF07E42ADB6BA906BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132607   (696946) от 11.05.2017
+
+Mogli - Wanderer (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696946.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winter Sun (02:02)
+2. Road Holes (04:36)
+3. Earth (03:24)
+4. Milky Eyes (04:04)(   Читать дальше...   )Жанр: Indie, Alternative, FolkПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773479D61F6CBA0A621B18E5A28E22C4199D7F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133017   (696868) от 11.05.2017
+
+Hoops - Routines (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Dream Pop, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun’s Out (2:49)
+02. Rules (2:13)
+03. On Top (3:45)
+04. Benjals (2:20)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, Lo-FiПродолжительность: 00: 32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DF9B5C0F3C4F0815F4804CF123973433BCB736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220891   (696728) от 23.04.2018
 
 A Perfect Circle - Eat The Elephant (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -623,122 +739,6 @@ If These Trees Could Talk - Above The Earth, Below The Sky (2009) [FLAC|Lossless
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289946   (682164) от 18.03.2019
-
-Fever Feel - Fever Feel (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spitting Silver (3:57)
-02. Lose Your Mind (3:53)
-03. Far Beyond the Path You See (5:23)
-04. Who Are You? (1:48)(   Читать дальше...   )Жанр: Rock, Indie, PopПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E910B1C71D47255D82497AAF85EFA15C8F1FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289666   (682087) от 18.03.2019
-
-The Fall - Bend Sinister | The Domesday Pay-Off Triad Plus! (2019) RM. [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/18. R.O.D. (Remastered) (4:33)
- 02/18. DKTR. Faustus (Remastered) (5:34)
- 03/18. Shoulder Pads 1# (Remastered) (2:56)
- 04/18. Mr. Pharmacist (Remastered) (2:20)(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FDF635675A3F98F4BC26BE4C8B805B95671930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289938   (682078) от 18.03.2019
-
-Le Butcherettes - bi/MENTAL (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. spider/WAVES (feat. Jello Biafra) (05:47)
-02. give/UP (03:40)
-03. strong/ENOUGH (04:20)
-04. father/ELOHIM (02:19)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCFBC3490B4BAECDC1D467587FFCA6E89E0FD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289679   (682075) от 18.03.2019
-
-The Young Gods - Data Mirage Tangram (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682075.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Entre En Matière (07:11)
-2. Tear up the Red Sky (07:28)
-3. Figure Sans Nom (06:08)
-4. Moon Above (06:01)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndustrialПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758D5299BDD7440BE22C6A8A2109614D3156F0FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

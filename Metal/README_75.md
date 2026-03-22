@@ -1,3 +1,119 @@
+###  Публикация: 1255534   (363836) от 18.10.2018
+
+Soulfly - Ritual (2018) [MP3|320 Kbps] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritual
+02. Dead Behind the Eyes
+03. The Summoning
+04. Evil Empowered(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB8D57D8E428455C8CDDDB475F6FB517F4E7FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255542   (363821) от 18.10.2018
+
+Amaranthe - Helix (2018) [MP3|320 Kbps] <Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Score
+02. 365
+03. Inferno
+04. Countdown(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D998B57243CD91DD28309CEF19029974BFC3CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951594   (363314) от 29.10.2015
+
+Draconian - Sovran (2015) Deluxe Edition [MP3|320 кб/с]<Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Lies the Crown
+02. The Wretched Tide
+03. Pale Tortured Blue
+04. Stellar Tombs(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E29610D89A9115102723526EDD50824A50D6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071365   (362032) от 09.11.2016
+
+Mindahead - Reflections (2016) [MP3|192 Kbps] <Progressive, Avant-Garde, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reflection
+02 - Remain Intact
+03 - Mind Control
+04 - On The Dead Snow(   Читать дальше...   )Жанр: Progressive, Avant-Garde, Melodic Death MetalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88206D4BF73A26288A7F3A70DB77D2FAF0E5299C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071132   (362027) от 09.11.2016
 
 Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal>
@@ -640,121 +756,6 @@ Alltheniko - Back in 2066 (2012) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B636B92BED2F021873AD81918A41FBEEB4676366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072636   (352600) от 13.11.2016
-
-Raven's Gate - Blackstar Machinery (2016) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Blackstar
-02. The New Wave
-03. Kill The Enders
-04. Powerlife(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548D70B8ADAC4C79EAB510AB1D85F49A8651804F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072402   (352018) от 13.11.2016
-
-Tarja & Alissa White-Gluz - Demons In You (2016) Single [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demons In You (with Alissa White-Gluz)
-02. Demons In You (Tarja Solo Version)
-03. Demons In You (Alissa Lead Vocals Version)Жанр: Symphonic MetalПродолжительность: 00:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08ED30B33D5735AE1F2D1CF49F5A11BAF374DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953127   (351790) от 03.11.2015
-
-Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Our Souls
-02. Staring Organic Stars
-03. Summoning Ocean's Son
-04. Suicide: Open Solution(   Читать дальше...   )Жанр: MDMПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F754F33A7E2E6F4512F718595C61EBBBDADBBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179119   (351525) от 30.10.2017
-
-Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zionism (The Reaping) (0:44)
-02. Twisted Logic (3:24)
-03. The Underground (3:39)
-04. General Guidance (4:36)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0735A82B24D54DA207B744E4E8FAD8FA4CFE18E
 ```
 
 https://mybot314.ru/tekegram_catalog/

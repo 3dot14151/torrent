@@ -1,3 +1,235 @@
+###  Публикация: 1731725   (107637) от 22.06.2024
+
+VA - Compilation part 89 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kasimoff - Alone
+02. Davbo - Emma
+03. Kasimoff - Florida
+04. Menda - Hear Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0CA9C267C3B75475B490D987BA761F5EE7D9FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733234   (107346) от 28.06.2024
+
+VA - Compilation part 91 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isskoy - After You
+02. Isskoy - Desert Voice
+03. Zakhid - Desert
+04. Jumanov - Distance(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9972FFDEEDD251B3925E1EF1EFDA4CE58C1AFB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735030   (107024) от 06.07.2024
+
+VA - Compilation part 95 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Back to You
+02. Menda - Easy
+03. Afrasyab - Emotive
+04. Jumanov - Feeling(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD94322CA39152C4533073962D937E20DFA7E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735602   (106797) от 10.07.2024
+
+VA - Trance In Motion Vol.378 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liam Wilson - Life Beyond (Extended Mix)
+02. Farius - So High (Extended Mix)
+03. S5 - Plasma (Extended Mix)
+04. Northad - Dawn Chaser (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2896BBEBF09F7C7510D0BF31D587BBF350B9A7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738506   (106306) от 23.07.2024
+
+VA - Bossa Nova Lush Life (2024) [MP3|320 Kbps] <Easy Listening, Bosa Nova>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Groove Da Praia, Luca Giacco - Standing Outside in the Rain [02:28]
+002. Ituana - It's My Life [03:24]
+003. Bossa Nova Covers, Mats & My - Rolling in the Deep [03:44]
+004. Q.Z.B, Alina Renae - Gods Plan (Bossa Nova) [03:18](   Читать дальше...   )Жанр: Easy Listening, Bosa NovaПродолжительность: 07:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918B010982CF876C8BFDA9FFF883677C8D358CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738556   (106305) от 23.07.2024
+
+VA - Compilation part 101 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Aurm - Love Me
+02. Davbo - Beautiful Princess
+03. Imazee - Amor
+04. Neuron - Save Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86AC938C6BF2F9DCD8AD75F300068E003B71266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740718   (105782) от 03.08.2024
+
+VA - compilation  part 110 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azkom Music - Elzari
+02. Davvi - Strasse 39
+03. Davbo - My Flower
+04. Faniz - France(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A14A61016195BC0263092529C4350190A8BD6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743144   (105464) от 15.08.2024
+
+VA - Compilation part 113 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jambeats - Hostage
+02. Akmalov - Limitless
+03. Akmalov - Daylight
+04. Hamidshax - Unstoppable(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745250   (105129) от 25.08.2024
 
 VA - TOP Non-Stop 2010-2019 - Deep House. Volume 6 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
@@ -525,286 +757,6 @@ VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487833   (100506) от 26.04.2012
-
-VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel & Jozhy K - Number One (Lessov Dub Remix)
-02. Mescis - Lately (Proper Heat Remix)
-03. Cosmic Gate & Arnej vs. Markus Schulz feat. Departure - Sometimes They Come Wthout You Near (Gabriel & Dresden Mashup)
-04. Vadim Koks - Exoskeleton (Original Mix)
-05. Titus1 feat. Terri B! - Let It Ring (Original Mix)
-06. South Ground - Let's Rock (Original Mix)
-07. Jeter Avio feat Vera Fisher - I Will Stay (M.O.O.N. Pro Remix)
-08. JoJo - Disaster (Baggi Begovic Remix)
-09. Ivan Demsoff, Burzhuy, LMD feat. Ira Champion - One Cup The Kaffein (Original Mix)
-10. Cedric Gervais & Cid - Playa (Original Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488208   (100470) от 25.04.2012
-
-VA - The Dance Cube XXXXIII (3 CD) (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100470.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 | Продолжительность: 01:15:08
-
-01.  Andrew Wonder - Eleonora (Undercontrol Remix)
-02.  Albert A-Yellow & Bartlett Bros - Analogik (Erick Strong Remix)
-03.  DJ Shy - Mother Love (Ilya Soloviev Light Mix)
-04.  Invalyd - Beat by Beat (Stoneface & Terminal Remix)
-05.  Matt Bukovski - Alterations (Cramp Remix)
-06.  Aaron Camz - Wrong Place, Right Time (Original Mix)
-07.  Chris Turner & Lost Emotions feat Amelia - Rain (Eximinds Dub)
-08.  Tangle & Mateusz - Monumental (Original)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C30C7993310AAA6F861561E3F0C2A4116B02B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487312   (100392) от 24.04.2012
-
-VA - Sense Of Trance #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100392.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eximinds - Afterlight (Original Mix)
-002. Realistic Brain - Art (Original Mix)
-003. Sean Bay - At The End Of The World (Sean Bay Remix)
-004. Patric la Funk - Baltic (Original Mix)
-005. E.P.I.C. feat. Julie Thompson - Breathe (K.Blank & Moelamonde Remix)
-006. Michael Jay Parker - Canberra (Original Mix)
-007. Leonid Gnip - City On Clouds (Original Mix)
-008. Ralphie B - Delphi (Original Mix)
-009. Daniel Kandi & Phillip Alpha - Don't Fix It (Original Mix)
-010. Dayzanst - Double Bind (Chasing Dreams Memory Mix)2012Жанр: Uplifting Trance, TranceПродолжительность: 04:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D18990DF1AF8A80809F7E0D94010852BAFE7778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484211   (100193) от 22.04.2012
-
-VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Brandt - Mana (Original Mix)
-02. Rafael Frost - Channel 4 (Original Mix)
-03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
-05. Phunk Investigation - Smash (Original Mix)
-06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
-07. Kachu MX - Alien Bubble (Original Mix)
-08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
-09. Matula feat Goldsound - Wonderful World (Gaga Remix)
-10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483291   (100018) от 19.04.2012
-
-VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aquatica — Angels 08:20
-02. Bizzare Contact Phanatic And Electro Sun — Out Of Your Love (Sesto Sento remix) 07:47
-03. Sesto Sento And Space Cat — Getting High Power (Cosmic Tone remix) 08:15
-04. U_Recken — The Other Side (Visual Paradox edit) 06:52
-05. System Nipel — Psytronic 07:05
-06. Psynina — Sound Of Reality 07:04
-07. Aquatica And Ultravoice — Diamond Sky (Indra remix) 07:22
-08. Sesto Sento — Getting Fused (Silicon Sound remix) 07:32
-09. Visual Paradox And Cosmic Tone — Stop The Beat (Twina remix) 06:35
-10. Ultravoice — Dark Side (Psynina remix) 09:292012Жанр: Trance, Psy Trance, Full OnПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481428   (99796) от 16.04.2012
-
-VA - Kiss FM - Top-40 (10.04.2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten feat. Armin Van Buuren - Brute (Original Extended Mix)
-02. Super8 Tab - Awakenings (Original Mix)
-03. Swedish House Mafia - Greyhound (Original Mix)
-04. Mark Knight - Together (Original Club Mix)
-05. Kyau Albert - This Love (Original Mix)
-06. Laidback Luke, Arno Cost, Norman Doray - Trilogy (Original Mix)
-07. Jackwob - Electrify (Seamus Haji Club Mix)
-08. Betsie Larkin Sied Van Riel - The Offering (Extended Mix)
-09. Emma Hewitt - Colours (Armin Van Buuren Rmx)
-10. Kirsty - Twilight (Armin Van Buuren Rmx)(   Читать дальше...   )10.04.2012Жанр: DanceПродолжительность: 03:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA02FE3E1DCE4E0854740FB120BD3AC29234C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483294   (99723) от 15.04.2012
-
-VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Trance, Psychedelic Trance, Dark Psytrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fryquenciezz & Seven Dark - PsykaDelika
-02. Darkologik - Distortion
-03. Kozvox - A Few Of These
-04. Urban Freaks - Freakin’ Show
-05. MetaNoize - Sponge Of The Forest
-06. Nammah Ohm & Cerebellum Withdrawal - Expect The Unexpect
-07. Micozatka - Critical Sequence
-08. Viatoxik - Reason To Dream
-09. Irrsin - Solium Kaya
-10. Mentalecho - Anonymous2012Жанр: Trance, Psychedelic Trance, Dark PsytranceПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810F0A85457C36B5286E1D62A0177EF06CD40C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482292   (99707) от 15.04.2012
-
-VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.T.K. - Eternya 09:44
- 02. Prahlad - Shantified (Smoke Sign rmx) 07:24
- 03. Pop Art - Declaration Of A Nation 07:44
- 04. Funk Truck - Overall (original mix) 07:39
- 05. Ace Ventura - Genesis (Flegma & Nerso remix) 07:01
- 06. Zyce & Nok - Wonderland (Unseen Dimensions remix) 07:17
- 07. Unseen Dimensions - Airglow 06:42
- 08. Gandulk & Odiseo - Time To Listen 07:39
- 09. North Sector - Raw 06:56
- 10. Flegma & Nerso - Sensei 07:56(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9F5D6C933181244B2ABE354C631CA09F610D34
 ```
 
 https://mybot314.ru/tekegram_catalog/

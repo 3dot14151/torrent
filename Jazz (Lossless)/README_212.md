@@ -1,3 +1,176 @@
+###  Публикация: 1258515   (336650) от 30.10.2018
+
+Barney Kessel - It's A Blue World (1968 - 1973) 1990, Jazz Hour [APE|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On a Clear Day, You Can See Forever [4:44]
+02. Aquarius [5:03]
+03. The Look of Love [4:06]
+04. Honeysuckle Rose [6:20](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FE91C39BB99071C2A20E5222C4F58B621D7001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579438   (336616) от 27.09.2022
+
+Howard Rumsey's Lighthouse All-Stars - Music For Lighthousekeeping (1956) 1991, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me or Levey [5:43]
+02. Taxi War Dance [5:49]
+03. Octavia [5:14]
+04. Mambo Las Vegas [5:25](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92544E27BD56CFCB9CE7D0E00A55734044572D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074783   (336352) от 20.11.2016
+
+Sonny Rollins - Our Man In Jazz (1962) 1995, Classic Compact Discs[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oleo [25:28]
+ 02.Dearly Beloved [08:22]
+ 03.Doxy [15:23]Жанр: Hard BopПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49D78F9A74DC396F76EDC9FFEA54BAC48ACE1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074836   (336141) от 20.11.2016
+
+Sonny Rollins - All The Things You Are (1963, 1964) 1990, Bluebird[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yesterdays [05:15]
+ 02.All The Things You Are [09:35]
+ 03.Summertime [06:00]
+ 04.Just Friends [04:42](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7172BF5CB75AD32796B8EC27983266318612F20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420043   (335823) от 30.10.2020
+
+Billy Cobham - Ayajala Live (2015) [FLAC|Lossless|tracks + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AC/DC (8:49)
+02. On a Magic Carpet Ride (10:31)
+03. Ayajala (30:42)
+04. Drum Solo (10:45)(   Читать дальше...   )Жанр: FusionПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB4071A9912C87FDAA317B2FF2B9A84C934D0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181154   (335690) от 06.11.2017
+
+Paolo Fresu - Thinking (2006) EMI [WavPack|Lossless|image + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montevideo [06:32]
+02. DB thinking [04:48]
+03. Laborioso [06:34]
+04. Gallantry [04:08](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAACF823B788E760055D003F7774B3A0E80A4966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181163   (335689) от 06.11.2017
 
 Joe Williams - Live (1973) 1997, Original Jazz Classics [APE|Lossless|image + .cue] <Vocal Jazz>
@@ -581,180 +754,6 @@ VA - Future Sounds of Jazz - Vol. 6 (1999) [FLAC|Lossless|tracks + .cue] <Future
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A88564E8160DE4D8F3FB0448A45589E9204AD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420544   (332618) от 01.11.2020
-
-Sylvaine Helary - Glowing Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Avant Prog, Jazz Rock, Female Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apres la pluie
-02. Thinking to Dance
-03. Glowing Life
-04. Thinking of Solitude(   Читать дальше...   )Жанр: Avant Prog, Jazz Rock, Female VocalПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55768745DEBD924BF0B7553A1EEBB601E604D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420507   (332617) от 01.11.2020
-
-Paolo Fresu, Dino Rubino, Marco Bardoscia - Tempo Di Chet (2018) Tuk Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Not for Me [4:59]
-02. The Silence of Your Heart [4:24]
-03. Palfium [3:18]
-04. Postcard from Home [5:06](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, CoolПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31712CAE19DD5CD3FA77905156552BB53969CBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 134060   (331794) от 12.11.2015
-
-Candy Dulfer - Discography (1990 - 2009) 11 Albums [FLAC|image + .cue]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_331794.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Candy – милашка», - так сказали бы американцы в разговоре друг с другом. Другими словами, многочисленные концерты не только способствовали росту популярности голландской саксофонистки, но и помогли ей самой понять свои творческие корни – «фанк» и «ритм-н-блюз», разбавленный «джазом», «хип-хопом» и «соулом». Candy Dulfer начала учиться музыке в семь лет, в 14 уже (   Читать дальше...   )Альбомы:
-1990 - Saxuality 1991 - Saxuality
-1993 - Sax-A-Go-Go
-1995 - Big Girl(   Читать дальше...   )Жанр: Jazz
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420791   (331413) от 02.11.2020
-
-Jerry Gonzalez & The Fort Apache Band - Rumba Buhaina (2005) Random [FLAC|Lossless|tracks + .cue] <Post-Bop, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Along Came Betty [5:40]
-02. Crisis [9:02]
-03. This is for Albert [4:14]
-04. Up Jumped Spring [5:50](   Читать дальше...   )Жанр: Post-Bop, Latin JazzПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02918B37D39AE89826EBAA8B16DD5A572321A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956121   (331296) от 13.11.2015
-
-Hank Jones & Red Mitchell - Duo (1987) 2015, Timeless Records[FLAC|tracks+.cue]<Mainstream Jazz, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gone With The Wind [06:19]
- 02.What Am I Here For [06:58]
- 03.A Child Is Born [06:11]
- 04.Wee [05:30](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F0E716C51F5F558AAABA5D57AD9622F0DA1385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955901   (331294) от 13.11.2015
-
-Masabumi Kikuchi - Re-confirmation (1970) 2015, Unversal[FLAC|tracks+.cue]<Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tenacious Prayer Forever [18:24]
- 02.Roaming In Darkness [06:57]
- 03.Love Token [10:28]
- 04.Silence, Horison & A Dawn [03:21](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254865B0435430AE7CA1A60552766004FCF5AB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

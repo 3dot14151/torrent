@@ -1,3 +1,148 @@
+###  Публикация: 1085514   (214822) от 21.12.2016
+
+Grzegorz Skawinski - Me & My Guitar (2012) [MP3|~245 Kbps (V0)] <Prog Rock, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|   Ship Of Fools  (04:50) 
+02|   New Better World  (04:15) 
+03|   Last Thing  (03:11) 
+04|   Me & My Guitar  (04:20) (   Читать дальше...   )Жанр: Prog Rock, Hard Rock, Blues RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0137B2F58FF34D33679A8E442AADBCFF833095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586950   (214784) от 28.10.2022
+
+Bon Jovi - Burning Bridges (2015) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Teardrop To The Sea
+02. We Don't Run
+03. Saturday Night Gave Me Sunday Morning
+04. We All Fall Down(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843CAC85155ACA01AFDF7B43EB8445D5852BB83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586878   (214775) от 28.10.2022
+
+Bon Jovi - The Circle (2009) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Weren't Born To Follow
+02. When We Were Beautiful
+03. Work For The Working Man
+04. Superman Tonight(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B14C0A5D08E5CF87D38D93C8840DE3A4A0C486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586912   (214768) от 28.10.2022
+
+Bon Jovi - What About Now (2013) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Because We Can
+02. I'm With You
+03. What About Now
+04. Pictures Of You(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F80A48C2A46D23F3DA8EA1E023BE8A31EA8268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085566   (214616) от 21.12.2016
+
+Hobbit - Two Feet Tall (1999) [MP3|320 Kbps] <Classic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midyear's Eve
+02. Two Feet Tall
+03. Love Is Forever
+04. Up And Down(   Читать дальше...   )Жанр: Classic Rock, Prog RockПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89D1DD7693FE0859CBD195A161914FB96A2F9F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586832   (214539) от 28.10.2022
 
 dArtagnan - Felsenfest (2022) 3CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
@@ -600,151 +745,6 @@ Blur - The Ballad Of Darren (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2295E9A0D75395E7C2306B7A67836B3E00D2CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648574   (208108) от 24.07.2023
-
-Elvis Presley - Integral 1954-1962 (2023) 6CD, Diggers Factory [MP3|320 Kbps] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - ELVIS PRESLEY INTEGRAL 1954 - 1962
-CD-02 - ELVIS PRESLEY INTEGRAL 1954 - 1962
-CD-03 - ELVIS PRESLEY INTEGRAL 1954 - 1962(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 6 CD, 05:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4E9925C3B7FD965EB59A4AF675F3FB14083975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649294   (207839) от 28.07.2023
-
-The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) ROAR Records[MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Me Up (Remastered 2009) [03:33]
-02. Brown Sugar (Remastered 2009) [03:50]
-03. Miss You (Remastered) [04:49]
-04. Beast Of Burden (2009 Mix) [04:25](   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 02:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610BA731C3A37F27D15C0EDED7A7D6C0C65C0899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649761   (207684) от 29.07.2023
-
-Eagles - Beacon Theatre, New York 1974 (2016) Reissue, 2023, Zip City [MP3|320 Kbps] <Rock, Folk, World, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peaceful Easy Feeling [00:04:41]
-02. Already Gone [00:04:53]
-03. Good Day In Hell [00:04:56]
-04. Silver Threads And Golden Needles (feat. Linda Ronstadt) [00:02:40](   Читать дальше...   )Жанр: Rock, Folk, World, CountryПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA15BF6964C430DE9D49317E7050624EC049657A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650249   (207514) от 31.07.2023
-
-Rush - Pinkpop (live) (1979) Reissue, 2023, Cult Legends [MP3|320 Kbps] <Progressive Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (live) [00:00:19]
-02 - A Passage To Bangkok (live) [00:03:35]
-03 - Xanadu (live) [00:12:32]
-04 - The Trees (live) [00:04:49](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1324E23C85901231564A3174F1619C2E846AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650418   (207147) от 04.08.2023
-
-The Animals - Live In The Sixties (1966-1967) Reissue, 2023, London Calling [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - C.C. Rider (Live_ Francia TV 1966) [00:02:48]
-02 - The Same Thing (Live_ UK Radio 11th Nov 1966) [00:02:48]
-03 - Paint It Black (with Interview) (Live_ UK Radio 14th Nov 1966) [00:04:05]
-04 - Jailhouse Rock (Live_ UK Radio 14th Nov 1966) [00:02:52](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D5FEC46364583B3D7040A6289A766F97EF0EDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

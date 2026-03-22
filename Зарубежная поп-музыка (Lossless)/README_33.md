@@ -1,3 +1,235 @@
+###  Публикация: 1399905   (724995) от 02.08.2020
+
+VA - Claw Collection, Vol. 1 (Essential Dance Tunes Only for Dj's) (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Berte - Sin Tu Amor (Extended Mix) (5:04)
+02. Paul - Tonight (Original Extended Mix) (4:37)
+03. Fabio Amoroso - Roadhouse Blues (Stefano Iezzi Original Mix) (4:57)
+04. Joe Berte - The Queen of the Night (Joe Berte Extended Mix) (5:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDCFB4318FA33F05B8A7A69B6BC7D149A071DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284995   (724789) от 24.02.2019
+
+Bodies Without Organs - Prototype (2005) [FLAC|Lossless|image + .cue] <Europop, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixteen Tons Of Hardware (3:28)
+02. Conquering America (3:20)
+03. Son Of A Gun (3:25)
+04. Open Door (Ballad Version) (3:29)(   Читать дальше...   )Жанр: Europop, Synth-pop, DiscoПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84761A5DA64E33581E95CBE082136D319FB6F951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284899   (724783) от 24.02.2019
+
+Vera Lynn - Something To Remember - Wartime Memories (1995) Mono [FLAC|Lossless|image + .cue] <Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Something To Remember You By
+02 Yours
+03 Wish Me Luck As You Wave Me Goodbye
+04 I'll Pray For You(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA55B983594AC6245942BF59FC8CA98DACB6C8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023421   (724403) от 05.06.2016
+
+Bottle Of Moonshine - Believe The Numbers (2015) [FLAC|Lossless|tracks] <60's-70's Retro Pop, Female Vocal Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Your Ground
+02. Centerfold
+03. Happiness In Boxes
+04. To The Lighthouse(   Читать дальше...   )Жанр: 60's-70's Retro Pop, Female Vocal JazzПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B02C40B6F7B4D978788F5DFD9C3DFA3E17652F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218446   (723297) от 09.04.2018
+
+Наталия Могилевская - Самое... Самое (2003) |Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Плачь
+02. Снегопад
+03. Зима
+04. Лимоновый фонарь(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9659F248402CBF504E72DB4F591EFA738A7B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285154   (722766) от 25.02.2019
+
+Kipper - This is Different (2006), Bang & Olufsen [WV|Lossless|image + .cue] <Instrumental Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Rebello   (feat.Ding Ding) [07:10]
+02. Jenny Linn Smith   (feat. My Generation) [03:56]
+03. Neil Stacey   (feat. To Be Free) [04:27]
+04. Tommy Blaize   (feat. We Come In Peace)  [03:49](   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AF8FD7A740126F19E09925C1047C99AAA14572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023778   (721901) от 06.06.2016
+
+VA - 100 Hits - 80's Dance (5CD) (2009) [FLAC|Lossless|image + .cue] <Disco, Synth-pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721901.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. The Jacksons - Can You Feel It 03:43
+02. Miami Sound Machine with Gloria Estefan - Dr.Beat 04:16(   Читать дальше...   )Жанр: Disco, Synth-pop, PopПродолжительность: 06:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4270E0064789496C4403CFAABABDC5899CE508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399947   (721286) от 04.08.2020
+
+VA - Summer Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Don't Start Now (3:03)
+02. Lizzo - Juice (3:15)
+03. Bruno Mars - 24K Magic (3:45)
+04. Iyaz - Replay (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A904D9D836F7E81E1FDE0FADDAB7E07C9A708B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285585   (721076) от 26.02.2019
 
 Robyn - Honey (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop>
@@ -513,238 +745,6 @@ Kaija Koo - Kuka sen opettaa (2014) [FLAC|Lossless|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8F6BB00ED8A1DEDFC84DD9BBB7FF48DDBF4FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024558   (716026) от 09.06.2016
-
-Laid Back - Happy Dreamer (2007) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Day [07:37]
-02. Universe Lovesong [03:46]
-03. Groovin On A Feeling [04:08]
-04. Once [04:10](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFACE0BBCBD40255B0264D26C0A8A1AA83C940B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670169   (715012) от 19.06.2013
-
-Texas - The Conversation (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Conversation [02:44]
- 02. Dry Your Eyes [02:41]
- 03. If This IsnҴ Real [00:00]
- 04. Detroit City [03:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130597   (714488) от 02.05.2017
-
-Michael Larsen - Solang es deine Sehnsucht gibt (1987) [FLAC|Lossless|image + .cue] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714488.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Die letzten Flamingos
-2. In einer Sommernacht
-3. Traumfrau
-4. Solang' es deine Sehnsucht gibt(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDD512016814F7437515193BF11FF15E5FA1C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130661   (714339) от 02.05.2017
-
-Jeanne Mas - PH (2017) [FLAC|Lossless|tracks + .cue] <Chanson, Pop, Rock, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Désir en désirs (04:07)
-02. Autre que moi (03:30)
-03. Desperado (02:43)
-04. Demi-tour (03:58)(   Читать дальше...   )Жанр: Chanson, Pop, Rock, Female VocalПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4CD1D8389FBA8477FDECE3D05CFD13EF3A89CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130635   (714329) от 02.05.2017
-
-Sylvan Esso - What Now (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound
-02. The Glow
-03. Die Young
-04. Radio(   Читать дальше...   )Жанр: Electropop, Indie PopПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A7E47077F3CB4CCD208A54F46F08DFF190EB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025014   (714080) от 10.06.2016
-
-Matia Bazar - Brivido Caldo (2000) [FLAC|Lossless|tracks] <Pop, Italo-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brivido Caldo    04:08
-02. Vorrei Averti Qui    04:15
-03. Non Abbassare Gli Occhi    04:14
-04. Solo Tu    03:33(   Читать дальше...   )Жанр: Pop, Italo-pop, DiscoПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73F6D9D0D02751FD3CCDA09058D19C0BEAABB6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024913   (713954) от 10.06.2016
-
-Rick Astley - 50 (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Singing (3:58)
-02. Angels On My Side (3:36)
-03. Wish Away (3:27)
-04. This Old House (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC92EDBA7985142F28E6DC235DAF3FCBBE27F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024908   (713951) от 10.06.2016
-
-Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Crowd (4:27)
-02. Magnetised (3:55)
-03. Concrete (3:50)
-04. Constellations (4:35)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC0F0EC4D7F86018AF40476737E5E5BDF0DDBFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

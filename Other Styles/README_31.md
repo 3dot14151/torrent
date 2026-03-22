@@ -1,3 +1,29 @@
+###  Публикация: 189811   (861059) от 06.04.2010
+
+Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Atlas burn-in & demagnetizing disc (00:10:41)Жанр: TestПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109183   (860759) от 26.02.2017
 
 The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [MP3|320 Kbps] <Soundtracks, Classical, Epic>
@@ -734,35 +760,6 @@ Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Tradi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110720   (852089) от 03.03.2017
-
-Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Nature
-02. Varanasi
-03. Cause and Effect
-04. Inner Strength(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

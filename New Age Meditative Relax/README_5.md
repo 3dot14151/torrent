@@ -230,6 +230,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 49378   (799510) от 03.04.2017
+
+G.E.N.E. [Полная дискография] [1991-2000] [MP3|160 CBR] <New Age, Ethnic, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_799510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Ethnic, MeditativeФормат: MP3Продолжительность: 59:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122501   (798844) от 05.04.2017
 
 VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
@@ -716,35 +742,6 @@ Shinnobu - The Enigma VII (Star Seeds) (2019) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43BE3F23EAB563F0E3F3ED151989FC738A26795C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123668   (786379) от 08.04.2017
-
-VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Interstellar Meditation Music Zone - Sunrise Energy (Morning Meditation)  3:43
-02.  Mantra Yoga Music Oasis - Open Your Eyes (Power Day)  3:55
-03.  Relax Time Universe - Relax For Mind And Body  3:17
-04.  Relax Time Universe - Breathing Technique (Slow)  3:36(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 03:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB96F21987582C67091329B7C37C2ACFB560102D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1123668   (786379) от 08.04.2017
+
+VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Interstellar Meditation Music Zone - Sunrise Energy (Morning Meditation)  3:43
+02.  Mantra Yoga Music Oasis - Open Your Eyes (Power Day)  3:55
+03.  Relax Time Universe - Relax For Mind And Body  3:17
+04.  Relax Time Universe - Breathing Technique (Slow)  3:36(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 03:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB96F21987582C67091329B7C37C2ACFB560102D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123889   (786167) от 09.04.2017
 
 Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
@@ -713,35 +742,6 @@ Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B18EC7007B24BF1B689F0613553E1B88FCD76296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210785   (778520) от 04.03.2018
-
-Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria (8:20)
- 02. Heart Of The Sun (4:55)
- 03. Flight In Weightlessness (7:36)
- 04. Propitiation (6:48)(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6486BDEB83926AD1728D5A7740CE2313422AF247
 ```
 
 https://mybot314.ru/tekegram_catalog/

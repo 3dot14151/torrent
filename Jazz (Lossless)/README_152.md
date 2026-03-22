@@ -1,3 +1,177 @@
+###  Публикация: 1309870   (549517) от 21.06.2019
+
+Diana Krall - Doing All Right: In Concert (2011) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Fall In Love
+02. The Look Of Love
+03. 'Deed I Do
+04. I'll String Along With You(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E1CC464520735FFD5A147AFC57C533FFA8257F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047591   (549403) от 30.08.2016
+
+Laurent Cugny Big Band Lumiere - Santander (1991) EmArcy[FLAC|Lossless|tracks + .cue] <Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lady, Like Yours [11:12]
+ 02.Santander [04:46]
+ 03.Sunset Saturne [02:23]
+ 04.Cobalt [10:18](   Читать дальше...   )Жанр: Modern Big BandПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9167665AC876A949CAC19625BBA39A448D19E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047588   (549401) от 30.08.2016
+
+Shelly Manne - 2 3 4 (1962) Remaster, 2012, Universal[FLAC|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Take The ''A'' Train [07:35]
+ 02.The Sicks Of Us [06:01]
+ 03.Slowly [05:35]
+ 04.Lean On Me [06:29](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4A741014D303010CD8B3D5A75EF82FCC44728B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047517   (549396) от 30.08.2016
+
+Masahiko Togashi - Song For Myself (1974) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Chamber Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Haze [09:55]
+ 02.Fairy-Tale [10:53]
+ 03.Song For Myself [08:11]
+ 04.Song For My Friends [11:39]Жанр: Avant-Garde Jazz, Chamber MusicПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F829748B0AFC8AA3F14C941B590BAEFA97BAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047582   (549392) от 30.08.2016
+
+Eddie Marshall - Dance Of The Sun (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The High Priestess Of Gone [12:13]
+ 02.The Stroll [07:25]
+ 03.Salt Peanuts [08:01]
+ 04.Dannielle [08:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80BAB7D7E15A4B52B4C0BCF35B12E5C0B87403E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047669   (549388) от 30.08.2016
+
+Les McCann - On The Soul Side (1995) Jazz Heritage[FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Shabalala [05:10]
+ 02.Early Riser [08:42]
+ 03.Back Rub [07:17]
+ 04.Vu Jade (The Feeling Of Never Having Been There Before) [08:13](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE032D31AE6F5D60ED71655BAEEC120D74BD3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309755   (549360) от 21.06.2019
 
 Scott Bradlee's Postmodern Jukebox - Jazz Age Thirst Trap (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Soul, Covers>
@@ -577,180 +751,6 @@ Christina von Bülow - On the Brink of a Lovely Song (2018) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC13EF90863ED57729BE8B59E809B169A00EFE54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049004   (545863) от 03.09.2016
-
-Tone Jansa Quartet featuring Woody Shaw - Dr. Chi (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dr. Chi [15:21]
- 02.Odra [08:04]
- 03.Stroll And Flight [12:34]
- 04.Nostalgia [03:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5654016170ED90C17BC26C26D4624A20F031C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048653   (545811) от 03.09.2016
-
-Russell Malone - All About Melody (2016) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Real Side
-02. Message to Jim Hall
-03. Message From Jim Hall
-04. Nice Lady(   Читать дальше...   )Жанр: Contemporary Jazz, Guitar JazzПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC328D3164EAD8181E8E3B23F1A38BC06F495AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049017   (545807) от 03.09.2016
-
-Sadao Watanabe - How's Everything (1980) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Up Country [10:55]
- 02.Mzuri [03:55]
- 04.All About Love [04:52]
- 05.Nice Shot [07:38](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E776DD42A85FB7A1D6D20622FB644AB876066D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048791   (545806) от 03.09.2016
-
-Bobby Hackett - A String Of Pearls & Trumpets' Greatest Hits (1965) 2002, Collectables[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Perfidia [02:48]
- 02.Adios [02:39]
- 03.Blue Moon [03:12]
- 04.Georgia On My Mind [03:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F648F3418F0DD27A4DC1FD4B84465F6507047176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310756   (545340) от 26.06.2019
-
-Xose Miguelez - Ontology (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ontology [4:32]
-02. Chasing Myself [4:21]
-03. Frozen Roses [3:40]
-04. Sweet Delia [7:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28CAF682E5E1DB877DFA7E42B429B71D618D8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049289   (544979) от 04.09.2016
-
-Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mr. Blues [03:53]
- 02.On A Clear Day (You Can See Forever) [03:08]
- 03.Hush Puppies [03:28]
- 04.Danger Zone [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323884CFBF6FBDDEF1B8F12333949A0A91E269B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

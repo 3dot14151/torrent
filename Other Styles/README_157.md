@@ -1,3 +1,148 @@
+###  Публикация: 1595975   (169782) от 10.12.2022
+
+African Imperial Wizard - 4 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Neo Folk,  Power Electronics>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sundjata [00:05:55]
+02. Shaka kaSenzangakhona [00:05:35]
+03. Kaocen Ag Geda [00:05:13]
+04. Ekang Nna [00:05:57](   Читать дальше...   )Жанр: Industrial Neo Folk,  Power ElectronicsПродолжительность: 4 CD, 02:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4CA2ECD650F830684F2B0080AB4356741E9DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344602   (169734) от 11.12.2019
+
+Rodrigo Y Gabriela - 11:11 (2010) [MP3|320 Kbps] <Latin, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanuman
+02. Buster Voodoo
+03. Triveni
+04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232DB9D8932BF0800C00EB9F26D7EBD491A1C181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 150192   (169343) от 11.12.2019
+
+VA - Tarantinomania (1999) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pumpkin and Honey Bunny Speach (0:13)
+02. Dick Dale and His Del-Tones - Misirlou (2:11)
+03. Urge Overkill - Girl, You'll Be a Woman Soon (3:01)
+04. Rem Jem - Black Betty (2:27)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A539F11E6CD428942BD600676C11D8C03084238D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431059   (168819) от 12.12.2020
+
+Faith Hill - Faith (1998) Warner 9 46790-2 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Kiss (3:15)
+ 02. You Give Me Love (3:35)
+ 03. Let Me Let Go (4:25)
+ 04. Love Ain't Like That (3:50)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA7968F442058A7981E66E3B8CA0C01DA7D8619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 7944   (168752) от 12.12.2019
+
+Ottmar Liebert - Nouveau Flamenco  (1990) [MP3|320 kbps] <Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcelona Nights
+02. Heart Still / Beating (4 Berlin)
+03. 3 Women Walking
+04. 2 the Night (Fast Cars) (4 Frank)(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32113FCD8FC96FBCF53C9A0E60F56DE214085746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515706   (168515) от 08.12.2021
 
 Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American, New age, World music>
@@ -599,151 +744,6 @@ VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34E3AFCF2F93F6220FBAC64C2C3C9FAD749FCA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597528   (164085) от 17.12.2022
-
-VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tigerforest - Bellefontaine (Original Mix) (5:33)
-02. Dharma Frequency - Floating Dreams (Original Mix) (4:00)
-03. Elmara - Northern Lights (Original Mix) (3:38)
-04. Eskadet - Te Revoir (Original Mix) (6:37)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597822   (164080) от 17.12.2022
-
-Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Day (3:41)
- 02. Morelia's Waltz (3:36)
- 03. Beethoven's Silence (2:39)
- 04. Lonely Island (3:56)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71225143E2B54AE2C8C3600E5B3D7FD03609C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549080   (163946) от 02.11.2023
-
-Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [FLAC|Lossless]<Folk / Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Христос Воскрес!
-02. Разлад
-03. Монолог собаки
-04. Появились молодые...(   Читать дальше...   )Жанр: Folk / RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169626627403A2AD4A35793A9BC5DFF450D627E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531612   (163888) от 02.11.2023
-
-Марина Капуро - Золотые хиты (2002) [FLAC|Lossless]<Folk, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поле, поле
-02. Летела гагара
-03. В горнице
-04. Деревня(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C50AD9AFEE71E26E93FF6BD60E1FDFA4F52E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346577   (163563) от 19.12.2019
-
-John Towner Williams - Звёздные войны: Скайуокер. Восход / Star Wars: The Rise of Skywalker (2019) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fanfare and Prologue
-2. Journey to Exegol
-3. The Rise of Skywalker
-4. The Old Death Star(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9025BA742BB5201FE4DC27F30FC474746D4A3449
 ```
 
 https://mybot314.ru/tekegram_catalog/

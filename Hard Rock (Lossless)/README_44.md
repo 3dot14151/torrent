@@ -1,3 +1,178 @@
+###  Публикация: 1558664   (530075) от 21.06.2022
+
+Larry Sandman - More Than Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spirits Of Louisian'
+02. Quicksand
+03. Broken Wings
+04. More Than Free(   Читать дальше...   )Жанр: Hard Rock, Blues, Blues RockПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257D338611145F2062C2CF0B0DEC66598CD78E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926932   (529827) от 12.08.2015
+
+Styx - Live at the Orleans Arena, Las Vegas (2015) [FLAC|image + .cue]<Classic-Rock, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grand Illusion (5:50)
+02. Too Much Time On My Hands (5:36)
+03. Fooling Yourself (The Angry Young Man) (6:37)
+04. Lady (3:11)(   Читать дальше...   )Жанр: Classic-Rock, Hard-RockПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41E7CA4DB09130906B1E17AA1C4BAFC805AA9A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926915   (529731) от 12.08.2015
+
+Gun - Gun Sight (1969) Remastered /2000, Repertoire/ [FLAC|tracks+.cue]<Hard Rock, Psychedelic Rock, Heavy Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head in The Clouds 04:41
+02. Drown Yourself in The River 02:56
+03. Angeline 05:36
+04. Dreams And Screams 05:16(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Heavy PsychПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DA89AD36AED0D34B3DCB0FBFFA3147C22623AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052038   (529273) от 13.09.2016
+
+Circus Of Power - Circus Of Power (1988) Japan [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Motor
+02.White Trash Queen
+03.Call Of The Wild
+04.Needles(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E02F3CFF48C3253450955537058A5B76372A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050434   (528953) от 06.07.2019
+
+Bachman-Turner Overdrive - 20 альбомов, 1 Box Set (1973 - 2016) 29 CD [FLAC|Lossless|image + .cue] <Hard Rock, Cassic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bachman-Turner Overdrive - канадская группа, образованная в 1972 году в городе Виннипег. Инициатором создания этой группы был бывший участник The Guess Who - Randy Bachman (Рэнди Бэкмен, в другом варианте - Бахман).
+Bachman покинул The Guess Who на вершине её популярности, как раз после их самого успешного альбома "American Woman", видимо надоело всегда (   Читать дальше...   )Список альбомов:
+1973 Bachman-Turner Overdrive
+1973 Bachman-Turner Overdrive II
+1974 Not Fragile(   Читать дальше...   )Жанр: Hard Rock, Cassic RockПродолжительность: 22:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E074F93674A77884554A5B9DD406A1230A2288F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558842   (528793) от 22.06.2022
+
+Face The Legacy - Ashes on the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downfall (00:03:45)
+02. United As One (00:03:08)
+03. Unbreakable Chains (00:03:38)
+04. I Still Burn (00:03:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1592942F5923C70631BC4421DE83BC1C493DD2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558781   (528749) от 22.06.2022
 
 Sleazy RoXxX - Trinity Junction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
@@ -577,180 +752,6 @@ Johnny Gioeli - Deen Castronovo - Set The World On Fire (2018) Japanese Edition 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A830232FBEFF07CCA4C0331313EE37C151FF09D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560864   (517793) от 02.07.2022
-
-Crashdiet - Automaton (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automation
-02. Together Whatever
-03. Shine On
-04. No Man's Land(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7869BA1FD47509D97DB40CD007F5AC5B820B7F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561047   (516797) от 03.07.2022
-
-Mad Dillon's Deputies - Still Unbreakable (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are Yo Ready
-02. Modesty
-03. Horrorwood
-04. Hell Sent Goddess(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9C83D020BE10B302A0A3D6A54979C4C47B616E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534770   (516525) от 16.08.2012
-
-Led Zeppelin - Hard Zepp (2012) [FLAC|Lossless]<Hard Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Communication Breakdown (2:27)
-02. Whole Lotta Love (5:34)
-03. Heartbreaker (4:14)
-04. Living Loving MaidЖанр: Hard RockПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929994   (516145) от 22.08.2015
-
-Bon Jovi - Burning Bridges (2015) [FLAC|Lossless|WEB-DL]<Melodic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Teardrop To the Sea
-02. We Don't Run
-03. Saturday Night Gave Me Sunday Morning
-04. We All Fall Down(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19C8318C2EF9F009EA172B39BC77B0E02183DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561276   (515720) от 04.07.2022
-
-The Vaticants - Eastern Sunset (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Moral Bankruptcy (00:04:37)
-02 - Living for Nothing (00:04:39)
-03 - Alley of Brandt (00:04:14)
-04 - Libertalia (00:03:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0790AECC5F483969A1923196A48601DE330FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561148   (515650) от 04.07.2022
-
-Flatline Feedback - Scraps (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - This Music (00:05:24)
-02 - Fear the Lightning (00:04:03)
-03 - Suntide (00:03:20)
-04 - Freedom (00:04:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBA1D2CEEEFFF1D0C2C2AC7CCE6987E0999B5C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

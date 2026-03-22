@@ -1,3 +1,32 @@
+###  Публикация: 1294438   (628109) от 08.04.2019
+
+Toyah - Desire (серия "Другие восьмидесятые") (1987) Reissue, Remastered, 2015, Vertical Species [MP3|320 Kbps] <Avant-Pop, New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echo Beach (Martha and the Muffins cover)
+02. Moonlight Dancing
+03. Revive the World
+04. The View(   Читать дальше...   )Жанр: Avant-Pop, New Wave, SynthpopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B3309EE54EC663137B11B56B9302A5ED908198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294986   (624105) от 10.04.2019
 
 November Group - November Group (серия "Другие восьмидесятые") (1982) Vinyl, LP [MP3|320 Kbps] <New Wave>
@@ -719,35 +748,6 @@ Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб/с]<Electronic, Ambient, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:709FB2A72E409198C078D98D1718ADA9170E7195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303504   (572703) от 21.05.2019
-
-Blancmange - 4 Albums (1982-1985) [MP3|320 Kbps] <Electronic, Synth-pop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blancmange - британский электронный нововолновый дуэт, образованный в 1979 году в Хэрроу, Лондон, Англия, вокалистом Нейлом Артуром (англ. Neil Arthur) и мультиинструменталистом Стивеном Люкомбом (англ. Stephen Luscombe), и соединивший в своём творчестве (согласно Allmusic) «артовые танцевальные ритмы Talking Heads с причудливой мелодраматичностью британского синт-попа (   Читать дальше...   )Список альбомов:
-1982 - Happy Families (R-2008) CD
-1984 - Mange Tout (R-2008) CD1
-1984 - The B-Sides And Remixes (R-2008) CD2(   Читать дальше...   )Жанр: Electronic, Synth-pop, New WaveПродолжительность: 04:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A53ED9AA48810179DB967F32ECC37496ED7631
 ```
 
 https://mybot314.ru/tekegram_catalog/

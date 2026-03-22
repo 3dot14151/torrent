@@ -1,230 +1,26 @@
-###  Публикация: 485733   (89604) от 20.04.2012
+###  Публикация: 478744   (98680) от 05.04.2012
 
-Wrath of Earth [En] (RePack) 1995 | Pilotus
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот уж поистине одна из наиболее неизвестных и неоцененных игр. Wrath of Earth (Гнев Земли) - это веселый футуристический FPS с несколькими инновациями, которые сегодня редко встретишь в современных навороченных 3Д-играх. Вы играете за командира разведки, причем можно как за мужчину, так и за женщину. Ваша задача - разобраться в неразберихе на шахтерской колонии Арагон, где роботы, естественно, взбесились, персонал, естественно, почти весь уничтожен, и вдобавок появилась информация о вторжении чужаков (веет некоторой шаблонностью сюжета).Тип издания: RePackЖанр: Трехмерный шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485789   (89602) от 20.04.2012
-
-В. Добров | Правильный ремонт дома и квартиры [2008] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремонт может быть капитальным и косметическим. Вы можете делать его самостоятельно или прибегнуть к помощи ремонтной бригады, но в том и другом случае придется вначале решить, какого результата вы ожидаете: евроремонта, ремонта в авангардном стиле или нечто другое. А затем следует выбрать необходимые инструменты, стройматериалы и прочие вспомогательные средства. Если вы делаете ремонт самостоятельно, то знание последовательности проведения работ (с чего начать — замена сантехники, ремонт потолка, стен, окон, полов и т. д.) будет для вас не лишним.2008Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFB5A3427ED54EE2C47FF72B289A90856C40A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485467   (89598) от 20.04.2012
-
-VA - Дискотека 777 Русская vol. 2 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Вместе Мы
-02. ВИА Гра - Диско
-03. Митя Фомин - Хорошая Песня
-04. Чай Вдвоем - Улетай
-05. СтаЯ - Сердце (Radio Edit)
-06. Юрий Шатунов - А Лето Цвета
-07. Пропаганда - Нет-Да
-08. Тимур Темиров - Веришь
-09. Глюкоза - Кошка
-10. Батишта & Shaplin feat. Уляна Глушкова - Когда Наступит Ночь(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA09ADAA4D6D0D63D54A3257472CAB211D839CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485416   (89593) от 20.04.2012
-
-Empires Of Eden - Channelling The Infinite (2012) [MP3|192 кб/с]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Out (Feat. Rob Rock) 05:19
- 02. Hammer Down (Feat. Udo Dirkschneider) 05:02
- 03. This Time (Feat. Steve Grimmett) 04:38
- 04. Channelling The Infinite (Feat. Sean Peck) 05:38
- 05. Lions For Lambs (Feat. Alessandro Del Vecchio) 05:14
- 06. Cyborg (Feat. Carlos Zema) 05:24
- 07. World On Fire (Feat. Louie Gorgievksi) 04:29
- 08. Your Eyes (Feat. Mike Dimeo) 04:38
- 09. Born A King (Feat. Danny Cecati) 06:26
- 10. As Flames Scorch The Ground (Feat. Vo Simpson) 03:46(   Читать дальше...   )2012Жанр: Melodic Power MetalПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF279DA39DDA723F3ED9A3FE33B5C1366E67009D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485302   (89592) от 20.04.2012
-
-Футбол. Лига Чемпионов 2011-12. 1/2 финала. "Челси" (Англия) - "Барселона" (Испания) (Первый матч) (2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89592.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 апреля. Лондон, стадион "Стэмфорд Бридж"
-"Челси" (Англия) - "Барселона" (Испания)Жанр: СпортПродолжительность: 01:51:12 (01:00:05 + 00:51:07)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8FFA0367AB59BC207049A586FB971D94EE3705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485383   (89589) от 20.04.2012
-
-HyperSnap 7.14.01 + Portable [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89589.jpg" />
-</div>
-
-
-###  Подробнее
-
-HyperSnap - инструмент для захвата изображения, позволяющий скопировать не только окна стандартных программ, но и игры, скринсейверы и видеофильмы. С помощьюНазвание программы: HyperSnapЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485491   (89588) от 20.04.2012
-
-Cookie Monsta - Riot (2012) [MP3|320 кб/с]<Dubstep, Drumstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89588.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. RIOT! (5:16)
-2. Level Up (5:32)
-3. Time to Get Crunk (4:58)
-4. HedRokkA (4:44)2012Жанр: Dubstep, DrumstepПродолжительность: 00:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70538524ADB789ECAF28D4F6927EA98F33091E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485483   (89586) от 20.04.2012
-
-[Wallpapers] HD Pictures №24
+[Wallpapers] Desktop Wallpapers №3
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89586.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №24
-Название: HD Pictures №24
+[Wallpapers] Desktop Wallpapers №3
+Название: Desktop Wallpapers №3
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 7000х7000
+Разрешение файлов: 1620x1200 - 2560х1600
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89E0A95C44DD67CCB6ECDD3BDD74AFE9C4C3418A
+magnet:?xt=urn:btih:D6641E1CE65B50E0800D2A823F3D0FFD6DD65289
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,34 +28,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485283   (89583) от 20.04.2012
+###  Публикация: 478668   (98678) от 05.04.2012
 
-VA - Танцевальный Русский Хит часть 2 (2012) [MP3|256 kbps]<Pop>
+[Wallpapers] Best HD Wallpapers Pack (05.04.12)
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89583.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ваня Романов Feat. Jordan - Я Для Тебя Живу
-02. Andi Vax Sound Stuff - 8 Марта
-03. Ксения - Разукрасить Мечты
-04. Gaponoff & Саша Ветер - Melted Stars (Radio Edit)
-05. Наталья Бучинская И Елена Яловик - Лучшая Подруга
-06. Dna Family - Когда Любовь Живет
-07. Горячие Головы - Возвращайся
-08. Reflex - Первый Раз (Версия 2012)
-09. Пропаганда - Нет-Да
-10. Валентина - Между Нами(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:09:10
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:291727B35DC8C3E74BD031742AA14409CAF99601
+magnet:?xt=urn:btih:D203FFAC266941C94B84A4964A9424433F1F33AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485694   (89580) от 20.04.2012
+###  Публикация: 478707   (98677) от 05.04.2012
 
-Кто получит ананас? (1978) DVDRip [H.264]
+[Wallpapers] Best HD Wallpapers Pack (06.04.12)
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89580.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тигренок шел в гости к слоненку и нес в подарок ананас, но хитрая обезъяна выманила и съела угощение.Жанр: Детский, Рисованная анимацияРежиссер: Елена БариноваПерсонажи: Андрей Игнатенко, Л. ДзюбПродолжительность: 00:09:28
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76402FF340461B9DE8310774CEED79ADEF68B3B8
+magnet:?xt=urn:btih:F9EA97D0100D54E609057980959D5B0F122F5F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,34 +80,124 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485473   (89575) от 20.04.2012
+###  Публикация: 478743   (98676) от 05.04.2012
 
-VA - Клубные новинки Vol.67 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+[Wallpapers] HD Wallpapers №6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98676.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №6
+Название: HD Wallpapers №6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBE441D85932FCE8BC08FEB9F04A3682A5C927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478271   (98675) от 05.04.2012
+
+[Wallpapers] HD Wallpapers №2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98675.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №2
+Название: HD Wallpapers №2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640FFE617127CCA5E7252E7BB64BF837D9CA41BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478746   (98674) от 05.04.2012
+
+[Wallpapers] Nature Pictures №37
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98674.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №37
+Название: Nature Pictures №37
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0333DC5491E6BBD0E6E1993541A7EA3A466320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477531   (98673) от 05.04.2012
+
+VA - Master Plan 2011 (2012) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89575.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix)
-02. Betsie Larkin and Sied Van Riel - The Offering (Extended Mix)
-03. Biokinetix - sextime (Polypheme remix)
-04. Cassie - King Of Hearts (Sam Young remix)
-05. D-Mad feat. Emma Lock - Counting On Love (Original Mix)
-06. Daddys Groove and Little Nancy - Its Not Right, But Its Okay (Extended Mix)
-07. Desusino Boys - Xerox
-08. Digital Mass - Episode Se7en (Original Blue Mix)
-09. DJ Kiriloff feat. Gloria House - La Isla Blanca (Extended Vocal Mix)
-10. Dj Viduta - Coming Back For More(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:27:43
+01. Neelix - Call Me 08:05
+02. Vertical Mode - Deep Vibration 07:17
+03. Generic - Big Bad 07:06
+04. Durs - Refresh 06:32
+05. Pick - Darkness 07:49
+06. Twisted Reaction - New Generation Of Science 07:20
+07. Aqualize - Land of 2 Suns (Inner State remix) 07:25
+08. E-Clip - Chandra (Red And Blue remix) 06:48
+09. Mirikina - Revolution (Etienne Am remix) 07:57
+10. Cabal - Back Breaker 07:15(   Читать дальше...   )2012Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 03:01:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E2DEDA54781CAC9DCEA34D081CDBE65A6147EF3
+magnet:?xt=urn:btih:445554B12A6938B3B1A0C8F08777544942B7DE2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,32 +205,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485185   (89574) от 20.04.2012
+###  Публикация: 478254   (98672) от 05.04.2012
 
-Lovelock - Burning Sound (2012) [MP3|320 кб/с]<Tech House, Electronic, Nu Disco>
+VA - Громкий Успех Megapolis (2012) [MP3|256 кб/с]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89574.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Burning Feeling 6:32
-02. The Fog 4:13
-03. Don't Turn Away (From My Love) 8:54
-04. South Beach Sunrise 5:22
-05. New Age Christ 5:00
-06. Maybe Tonight 6:37
-07. Love Reaction 4:56
-08. Deco Delight 7:112012Жанр: Tech House, Electronic, Nu DiscoПродолжительность: 00:48:45
+001 ВИА Гра - Диско
+002 Like Chocolate feat. Alex Mica - Maria Maria (Radio Edit)
+003 Никита - Прости
+004 LaRoxx Project - Jabba Jabba (Radio Edit)
+005 Бурановские Бабушки - Party For Everybody (Евровидение 2012 Россия)
+006 DJ Project feat. Adela - Bun Ramas (Radio Edit)
+007 Алина Гросу - Взрослая
+008 Sean Paul feat. Ester Dean - How Deep Is Your Love
+009 Иракли & Даша Суворова - Нелюбовь
+010 Rihanna - Birthday Cake2012Жанр: PopПродолжительность: 05:51:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFA6FC5EA9072BB0C221301DD188C90E7853C43D
+magnet:?xt=urn:btih:61B82ACE9A585D770355E52183C0F1DE022F258B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,27 +240,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485561   (89571) от 20.04.2012
+###  Публикация: 478354   (98671) от 05.04.2012
 
-Журнал | АиФ. Спецвыпуск. Общество №5 [2012] [PDF]
+VA - Absolute Dance April (2012) [MP3|320 кб/с]<Dance>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89571.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Говорят, трудовое законодательство в России одно из самых хороших, защищающее работников, а не работодателей.
-Но в то же время именно в нашей стране права трудящихся нарушаются чуть ли не чаще, чем в других государствах.
- Поэтому все мы просто обязаны быть специалистами по трудовому праву. И "АиФ" вам в этом поможет. Каким должен быть правильный трудовой договор, чтобы обещанную зарплату не урезали? Что делать, если работодатель не оплачивает больничный лист? Как правильно должны рассчитать отпускные? Какую компенсацию обязаны выплатить при увольнении? В этом выпуске на самые важные вопросы ответили для вас самые компетентные эксперты.2012Формат: PDF
+01. Vincent Voort - Driven (original mix)
+02. Rico Bernasconi & Beenie Man feat. Akon - Girls (T & K remix)
+03. Dazzle - Global Forcast (original mix)
+04. Sander Van Doorn - Outro (Edx's festival mix)
+05. Rene Rodriguez & DJ Antoine feat. MC Yankoo - Shake 3X (radio edit)
+06. Infected Mushroom - Pink Nightmares
+07. Cut & Run - Bangkokd (original mix)
+08. Stan Kolev & Matan Caspi - Nirvana (original mix)
+09. Alexey Romeo & Plage feat. Alateya - Summer Night (Dabruck & Klein remix)
+10. Fresh - Hot Pursuit (Dave Lebon remix)2012Жанр: DanceПродолжительность: 05:25:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF36FA3EB5766D5B16D2F4E467DDA424F25D41ED
+magnet:?xt=urn:btih:9E4692B90BC96A07F216EA20C5930E3A7FF02CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,29 +275,95 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485507   (89565) от 20.04.2012
+###  Публикация: 478122   (98670) от 05.04.2012
 
-[Wallpapers]Best Magnificent Landscapes Full HD Wallpapers
+VA - EveryBody Dance Now! Весна (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astero & Inusa Dawuda - I don't know
+02. Azuro feat. Elly - Toca me (Video Edit)
+03. Radio Killer - You and me
+04. Drei Ros feat. Diedra - Crazy
+05. Mohombi - Maraca
+06. Offbeat Orchestra feat. Sunstroke Project - Epic sax
+07. David Guetta feat. Jennifer Hudson - Night of your life
+08. Nirvana - Smells like teen spirit (Larin Disco Fever remix)
+09. Deepside Deejays - Never be alone
+10. Slam DJ's feat. Zeni - Touch(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EB52D9DB2A4CD4AFBB31F6451D4E1E02FAB16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478640   (98669) от 05.04.2012
+
+VA - Club music for Djs vol.11 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laurent Davidsson - Nebula (Maarten Wuyts Remix)
+02. Nick Hussey & Jamie van Goulden feat Peter Hook & IMU - Salty (Original Mix)
+03. Usher, Mell Tierra - Yeah Eagle (Anton Neumark MashMix)
+04. Anton Neumark - Ultimate Music Mix 171 Chicago Only music (20.02.12)
+05. Anton Neumark - Ultimate Music Mix 174 Birthday in St.Petersburg (12.03.12)
+06. Stonebridge, Chris Kaeser, Funky Junction - MDF (Fred Lilla Remix)
+07. Liubo Dummec - Vibe (Original Mix)
+08. Geler, Sasha Flash - In The Fog (Original)
+09. Anton Neumark - Ultimate Music Mix 172 Manila Only music (27.02.12)
+10. Anton Neumark - Ultimate Music Mix 173 Barcelona Only music (6.03.12)2012Жанр: Dance, ClubПродолжительность: 06:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FE177AA451677857C37FD2558DF6657D6DD425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478670   (98668) от 05.04.2012
+
+[Wallpapers] HQ Wallpapers by KSV (05.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89565.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers]Best Magnificent Landscapes Full HD Wallpapers
-Название: Best Magnificent Landscapes Full HD Wallpapers
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpegВремя раздачи: до 5 скачавших
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AA42618E458DB735ED0E2A463BEBE5E3C3565F0
+magnet:?xt=urn:btih:1F0AFB9F4911AEBC57F53B6442E11CF53A8C9275
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,34 +371,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485530   (89560) от 20.04.2012
+###  Публикация: 478272   (98667) от 05.04.2012
 
-VA - Включи меня снова (2012) [MP3|175-241 kbps]<Pop | Dance>
+[Wallpapers] HD Wallpapers №3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98667.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №3
+Название: HD Wallpapers №3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBA4795946E7E0BA8093F53805048ED9467E18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477979   (98666) от 05.04.2012
+
+VA - Танцевальный клубный поп хит vol.3 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89560.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Тимати ft. Джиган (Geegun) - Reebok Is Back
-02. А.Р.М.И.Я - Львица
-03. Sak Noel - Only One (Original)
-04. Lalo Project & Papa Jastifan - Alone
-05. Dj A-Newman & Lexa ft. V.I. So Fly - Помоги Мне (Radio Edit)
-06. Ёлка - Лава
-07. Время И Стекло - Кафель
-08. Ruslanshow ft. Project Марина Прахт - Ангел Ночи
-09. Deepcentral - So Divine (Radio Edit)
-10. Пыльца - Запасной Аэродром(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 07:50:58
+01. Dj Fait! Aka Raving Stuff - Spring Passion (Radio Edit)
+02. Vanilla Ninja-When The Indians Cry
+03. Geri Holliwell - Let Me Love You More
+04. Bush - The Sound Of Winter
+05. Андрей Ковалёв И Пилигрим - Кленовый Лист
+06. Diego Poblets, Vanessa Da Matta - Ai Cross (Anton Neumark Btl Mix)
+07. Adele - Set Fire to the Rain
+08. Anton Neumark, Stephano Noferini - Spaceball 2012 (Buenos Aires Live Mashup)
+09. Emin - Сердце Бьётся
+10. Example - Changed the Way You Kiss Me (Radio Edit)2012Жанр: Pop,Dance, ClubПродолжительность: 06:57:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53ABEF5108915DA4F6C10BFB82577FD4F139BBB6
+magnet:?xt=urn:btih:056A26A3E012EBB7904E6E3F7BACE53145FA250E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,26 +436,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485397   (89558) от 20.04.2012
+###  Публикация: 478664   (98664) от 05.04.2012
 
-Анонимка (1987) SATRip
+[Wallpapers] Avto Wallpapers №1
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89558.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По одноименной пьесе Сергея Михалкова.
-Герой пьесы - хирург клинического отделения пластической косметологии Василий Васильевич Телкин, готовится отметить свое 60-летие. Но из вышестоящей инстанции в институт была переслана анонимка, в которой против Телкина выдвигались абсурдные обвинения. Несмотря на то, что Василий Васильевич пользовался всеобщим уважением, его (   Читать дальше...   )Жанр: Телеспектакль, комедияРежиссер: Эдуард ЛивневАктеры: Леонид Броневой, Светлана Немоляева, Валентина Талызина, Валерий Еремичев, Александр Петров, Валерий Володин, Александр Голобородько, Наталья Мартинсон, Александр Михайлушкин, Ольга СмирноваПродолжительность: 01:09:36
+[Wallpapers] Avto Wallpapers №1
+Название: Avto Wallpapers №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F321386E86B9A4A8CA5721EDBE4C0A2B101C1755
+magnet:?xt=urn:btih:BD30B228770E669401B508027D6F93ECCF94AFD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,34 +466,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485634   (89556) от 20.04.2012
+###  Публикация: 478667   (98663) от 05.04.2012
 
-VA - Весенний заряд. Треки то,что надо! (2012) [MP3|256 кб/с]<Pop>
+[Wallpapers] Nature Pictures №36
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98663.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №36
+Название: Nature Pictures №36
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBAA4A1C98145F6753A29CF666BD6A193CD4156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478660   (98661) от 05.04.2012
+
+[Wallpapers] HD Wallpapers №4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98661.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №4
+Название: HD Wallpapers №4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A2ACDA5A604021A17EFDF3B712C33ACB6D47CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477841   (98658) от 04.04.2012
+
+VA - Гуляночка блатного радио (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98658.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Александр Закшевский - Гуляем (3:29)
+2. Сергей Рыбачев - Ресторанчик (2:54)
+3. Лукьяновка - А мне бы все забыть (3:32)
+4. Палыч - Мадам (4:07)
+5. Светлана Калина и группа ЖАrА - Сигареточка (3:46)
+6. Маша Вакс - Жига (3:44)
+7. Владимир Утёсов - Сирень (3:18)
+8. Александр Дюмин - Пили Водочку (3:24)
+9. С. Михайлов - Родная (3:38)
+10. И.Круг - Милая зайка моя (3:13)2012Жанр: ШансонПродолжительность: 06:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29651C9206FBB1D8BE097806A725157DB6A26D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476474   (98655) от 04.04.2012
+
+VA - Platin Chill Out & Bar Grooves (25 Wonderful Island Lounge Tunes) (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Вельвет - Все забудется (3:47)
-2. Ани Лорак - Обними меня (3:19)
-3. DJ Smash feat. Винтаж - Москва (Radio Edit) (3:44)
-4. Анна Седокова - Такси (3:22)
-5. Света - Не новая игра (3:27)
-6. 4POST (Дима Бикбаев) - Навстречу небу (2:58)
-7. Пыльца - Виктор (2:47)
-8. Сергей Жуков & Opium Project - Я буду с тобою (Radio Mix) (3:17)
-9. Dj Sava & Andreea D & J Yolo - Money Maker (3:50)
-10. Градусы - Заметает (Timur Karabaev & Denis Agamirov Radio Edit) (3:47)2012Жанр: PopПродолжительность: 06:01:15
+01. Thomas Lemmer-I Like It (Letting Go Mix)
+02. Simon Le Grec-Sophie
+03. Fenena Mijas-Be With You (feat. Sandrina Middleton) (Cafe Buddha Edit)
+04. Aimee Sol (feat. Jamie Fishburn)-Walls (Aqua Del Mar Edit)
+05. Lounge Deluxe-Ocean Dreams (Hotel Bar Mix)
+06. Michael E-The Nature of Sound
+07. Aqualise (feat. Jane Henley, Tony Remy)-Plonge avec moi
+08. Johannes Huppertz (feat. Twila.too)-Sapristi
+09. Thomas Lemmer-Is It Too Late (feat. Lena Belgart) (Original Album Mix)
+10. Andrea Depp-Canot(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 02:11:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6751F41C483360BEF566AF5F885C88BAB2ECCD05
+magnet:?xt=urn:btih:E091CBBEBDF342D851845C9B7291422D1C554D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,25 +596,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485248   (89554) от 19.04.2012
+###  Публикация: 477860   (98654) от 04.04.2012
 
-Легенда о Костоломе / Legend of the Boneknapper Dragon (2010) [720p] BDRip
+[Wallpapers] Girls Desktop Wallpapers Pack 26
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89554.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иккинг и юные Викинги отправляются в путешествие со своим наставником Плевакой, чтобы помочь ему победить своего заклятого врага - легендарного дракона Костолома.Жанр: мультфильм,Режиссер: Джон ПуглисиАктеры: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, ТиДжей Миллер, Кристофер Минц-Плассе, Кристен Уиг, Джон Ди Маджио, Кевин Майкл РичардсонПеревод: Многоголосый закадровыйПродолжительность: 00:16:33
+[Wallpapers] Girls Desktop Wallpapers Pack 26 
+Название:  Girls Desktop Wallpapers Pack 26 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 5616х3744
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FE309C54CCE929360F264E7CC3B08AE8E869624
+magnet:?xt=urn:btih:EB6393884F5787AA98A5A36268E8E98727E81BA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,49 +626,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485159   (89552) от 19.04.2012
+###  Публикация: 478086   (98653) от 04.04.2012
 
-Autodesk AutoCAD Mechanical 2013 (x86, x64) (Русский)
+Глеб Черниговцев | 100 cпособов найти работу [2004] [PDF]
 
->>След.
->>Архив Программ
+>>Разное (категория книг)
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89552.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AutoCAD® Mechanical – это AutoCAD® для машиностроительного проектирования. AutoCAD Mechanical является частью технологии цифровых прототипов Autodesk®. Продукт объединяет в себе функциональность AutoCAD – мирового лидера среди 2D САПР – с преимуществами обширных библиотек стандартизированных компонентов и средств автоматизации, ускоряющих выполнение задач проектирования. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485202   (89550) от 19.04.2012
-
-StatSoft STATISTICA 8.0.725 [Eng]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89550.jpg" />
-</div>
-
-
-###  Подробнее
-
-STATISTICA - это система для статистического анализа данных, включающая широкий набор аналитических процедур и методов:  более 100 различных типов графиков, описательные и внутригрупповые статистики, разведочный анализ данных, корреляции, быстрые основные статистики и блоковые статистики, интерактивный вероятностный калькулятор, T-критерии (и другие критерии групповых различий), таблицы частот, сопряженности, флагов и заголовков, анализ многомерных откликов, множественная регрессия, непараметрические статистики, общая модель дисперсионного и ковариационного анализа, подгонка распределений, добыча данных, нейронные сети и многое другое.
+Книгу «100 способов найти работу» можно уверенно назвать учебным пособием, которое поможет вам не растеряться в современном деловом мире.
 
-Продукты серии STATISTICA основаны на самых современных технологиях, полностью соответствуют последним достижениям в области IT, позволяют решать любые задачи в области анализа и обработки данных, идеально подходят для решения практических задач в маркетинге, финансах, страховании, экономике, бизнесе, промышленности, медицине и т.д.Название программы: StatSoft STATISTICAЯзык интерфейса: Eng
+Многие из нас мечтают найти работу, которая соответствовала бы нескольким требованиям. Каковы же эти требования? Прежде всего, разумеется, достойная оплата труда. Еще хотелось бы, чтобы работа была интересной и давала возможность для полной самореализации.
+
+«Мечта», – скажете вы. Может быть, но не такая уж несбыточная. А вот чтобы воплотить данную мечту в реальность, вам просто необходимо прочитать эту книгу.
+
+В ней вы найдете не только способы поисков работы, причем довольно оригинальные, но и научитесь вести себя на собеседовании, что просто необходимо для получения долгожданной работы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A536E1EF41E9334194D922F6890B8F76CBB445CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478129   (98651) от 04.04.2012
+
+Подшивка журналов | The Finer Edge [2006-2007] [PDF] [EN]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о ножах и другом холодном оружии. Коллекционирование, описание.2006-2007Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169E7BE15C7C412235C91E4059DED06349C4DBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477752   (98648) от 04.04.2012
+
+Arnett Cobb With The Red Garland Trio - Blue And Sentimental (1960) [FLAC|Lossless]<Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98648.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sweet Georgia Brown (5:06)
+2.Black Velvet (5:22)
+3.Blue Sermon (7:43)
+4.Georgia On My Mind (6:55)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 01:12:30
 
 ## Скачать торент
 ```bash
@@ -596,25 +713,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485044   (89545) от 19.04.2012
+###  Публикация: 478057   (98647) от 04.04.2012
 
-[RePack] Blades of Time Limited Edition [Ru] 2012 l R.G. World Games
+9-мм самозарядный пистолет для бесшумной и беспламенной стрельбы. Краткое руководство службы. [1984] [PDF]
 
->>3
->>4
+>>Разное (категория книг)
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89545.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Аюми - бесстрашная охотница за сокровищами. Она великолепно вооружена и необычайно прекрасна. В поисках ценных трофеев девушка отправляется на таинственный и, конечно же, полный опасностей остров. Как выяснилось, это место богато не только сокровищами - оно буквально пропитано гнетущей магией Хаоса. А очень скоро Аюми поймет, что остров скрывает множество древних тайн и может подарить немало полезных навыков и способностей. Используя все, что подвернется под руку: мечи, ружья, а главное, революционно новую игровую механику «Перемотка времени» - способность поворачивать время вспять - Аюми изящно и зрелищно расправится с полчищам врагов и разгадает десятки удивительных головоломок, избежит хитроумных смертельных ловушек и вырвется из цепких объятий мистического острова. Колоритные персонажи, сногсшибательные визуальные спецэффекты, горы сокровищ, огромное разнообразие боевых умений - Blades of Time оставит незабываемые впечатления не только у начинающих геймеров, но и у самых взыскательных поклонников приключенческих (   Читать дальше...   )Тип издания: RePackРазработчик: Gaijin EntertainmentЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+Настоящее Краткое руководство службы является руководством при изучении и эксплуатации 9-мм автоматического пистолета для бесшумной и беспламенной стрельбы.1984Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25650D85F4C9FC55833CDBC8C3FAB2D7DBB13F9B
+magnet:?xt=urn:btih:91946F98FBE48EAAAB71E1252C8BACD850FA853C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +739,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485009   (89543) от 19.04.2012
+###  Публикация: 477515   (98646) от 04.04.2012
 
-Чип и Дейл спешат на помощь / Chip 'n Dale Rescue Rangers (1989-1992) SATRip (1 канал)
+Микки Спиллейн | Змея [1992] [MP3]
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89543.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Знаменитый мультсериал Уолта Диснея о захватывающих приключениях отважных спасателей - Чипа, Дэйла, Рокфора, Гайки и Вжика, которые всегда готовы отправиться навстречу неожиданным опастностям и невероятным приключениям лишь бы помочь в беде.Жанр: Рисованная анимация, Детский, ПриключенияРежиссер: Кори Бартон, Питэр Каллэн, Джим Каммингс и другиеПерсонажи: Чип, Дейл, Рокфор, Гайка, Вжик и другиеПеревод: Профессиональный (дублированный): Останкино 1991 (1-23, 25-53) + Невафильм (24, 54-65).Продолжительность: ~ 22:04:00 (65 серий)
+Серия: Майк Хаммер
+Оригинальное название:1992Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BB9C7B3E91E1CA62E0492BFD7997E90B5236F35
+magnet:?xt=urn:btih:5F5E3B0CFBD79BDDBA397B968D1B48B0F7993900
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,106 +766,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485042   (89542) от 19.04.2012
+###  Публикация: 477867   (98644) от 04.04.2012
 
-ACDSee Pro 5.2 Build 157 Final RUS
+[Wallpapers] Desktop Wallpapers Pack 38
 
->>След.
->>Архив Программ
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89542.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ACDSee Pro - профессиональная программа для работы с цифровыми фотографиями, которая обладает расширенным набором функций, рассчитанных на профессиональных фотографов. Поддерживает более 100 форматов графических файлов, позволяет работать с RAW-изображениями, автоматически сортировать фотографии по параметрам, полученным из цифровых фотокамер, содержит эффективный визуальный метод добавления к изображениям метатегов и быструю пакетную обработку большого количества картинок, в том числе и в RAW формате.    Продукт позволяет просматривать, редактировать, систематизировать, публиковать и архивировать каталоги фотографий. Кроме того, осуществляется поддержка и обработка RAW файлов, имеются мощные средства систематизации, такие, как настраиваемые папки и категории, функции быстрого редактирования, визуальная маркировка и поддержка управления цветом для ICC и ICM профайлов, которые отвечают всем профессиональным потребностям пользователей. Продукт помогает существенно упростить процесс обработки цифровых фотографий от (   Читать дальше...   )Название программы: ACDSee ProЯзык интерфейса: RUS
+[Wallpapers] Desktop Wallpapers Pack 38 
+Название:  Desktop Wallpapers Pack 38 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 4486х3163
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483496   (89537) от 19.04.2012
-
-Установочный диск и драйверы к МФУ HP LaserJet 3390/3392/3050/3052/3055 All-in-One 1.0 [Русский]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Установочный диск и драйверы к МФУ HP LaserJet 3390/3392/3050/3052/3055 All-in-One.
-При установке данного диска в CD/DVD/DR-ROM происходит автоматический запуск "авторун"-программы (смотри ниже "скриншот") для автоматического поиска присоединенного непосредственно к компьютеру или к доступной сети много-функционального устройства серии HP LaserJet 3390/3392/3050/3052/3055, затем происходит автоматическая установка и настройка драйверов, сопутствующего программного обеспечения TolBox в Windows 95, 98, 200Х, ХР (утилиты печати, сканирования и факсимильного сообщения).
-Установка в Windows 7, 8 в автоматическом режиме и установка программного обеспечения вызывает ошибку. Можно установить только драйверы МФУ.Название программы: Установочный диск и драйверы к МФУ HP LaserJet 3390/3392/3050/3052/3055 All-in-OneЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485145   (89536) от 19.04.2012
-
-Gran Turismo 4 [Multi5\-] (RePack/Emulator) 2005/2012 | MarkusEVO
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89536.jpg" />
-</div>
-
-
-###  Подробнее
-
-При создании GT4 команда разработчиков снова выезжала на пересканировку реальных гоночных треков. По сравнению с прошлой игрой, GT3, в Gran Turismo 4 окружение трасс стало максимально приближенно к таковым в реальной жизни. Также корректировке подверглись многие повороты. Для максимально правильной передачи технических свойств поведения авто на дороге, при разных условиях, Кадзунори Ямаути и его команда тестировали большое количество машин. При этом каждому разработчику присваивалась определенная машина, на которой они проходили различные тесты, с разными условиями. Такой личный опыт позволил сделать физический движок как можно более достоверным.
-В начале карьеры игрок имеет в своем распоряжении 10 000 кредитов. Этого хватит только на приобретение подержанного авто 80-х или 90-х годов. Игроки, имеющие сохранение Gran Turismo 3, могут импортировать из него до 100 000 кредитов в профиль игрока в GT4, также как и лицензию класса А и В. Хотя многие гонки не имеют ограничений на лицензию, для продвижения «вверх» по (   Читать дальше...   )Тип издания: RePackЖанр: Racing (Cars) / Simulator / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283973   (89535) от 19.04.2012
-
-Пакет Personalization Panel для Windows 7 Starter и Home Basic с темами и автопатчем 2012 / Personalization 2.0 [Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Personalization Panel - приложение, которое я создал примерно полтора года назад, в рамках проекта Winreview. Основное назначение программы  - это добавление возможностей оформления в "урезанные" редакции Windows 7. Спустя два года команда разработчиков расширилась, программа сменила домашнюю страницу, и мы разделили полномочия - я по-прежнему помогаю/пишу (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:FB1084DFC8BA8E065E2EB7FF3D51BF9F08D9CE36
 ```
 
 https://mybot314.ru/tekegram_catalog/

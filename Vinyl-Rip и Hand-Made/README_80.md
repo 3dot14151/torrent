@@ -1,3 +1,365 @@
+###  Публикация: 1609307   (94726) от 04.10.2025
+
+Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypocrisy — шведская дэт-метал-группа, образованная в октябре 1991 года в Людвике Петером Тэгтгреном.1992 - Penetralia
+1993 - Osculum Obscenum
+1994 - The Fourth Dimension
+1996 - Abducted(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 17:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822026   (94694) от 04.10.2025
+
+Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard 'n' Heavy, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skid Row — американская хэви-метал группа, образованная в 1986 году в Томс-Ривер, штат Нью-Джерси.1989 - Skid Row
+1991 - Slave To The Grind
+1995 - Subhuman Race
+2003 - ThickskinЖанр: Hard 'n' Heavy, Glam MetalПродолжительность: 06:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708248   (91159) от 04.10.2025
+
+Ойме (Oyme) - Коллекция (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Traditional Folk, World & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ойме (в переводе с эрзянского языка, — душа) — музыкальная группа, образована в 2010 году. Творческая деятельность группы посвящена культуре финно-угорских народов России.
+Группа работает по двум направлениям: традиционная программа и world music.2016 - Штатол
+2023 - Mastorava vol. 1
+2023 - Путь одинЖанр: Traditional Folk, World & CountryПродолжительность: 02:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD88E2D6CDCB2E81D07BA297F2699EB2AE22415D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483502   (88881) от 16.04.2012
+
+Red Hot Chili Peppers – Californication (1999) [FLAC 2.0 24/192 | image (VinylRip)] <Funk Rock/Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Funk Rock/Alternative RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB63894A9936B5F9F40346F536EFE6F522B6EC9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482977   (88635) от 15.04.2012
+
+Чайф - 25 лет выдержки (2009) [FLAC 2.0 24/96 | image (VinylRip)]<Рок-н-ролл, Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шаляй-валяй
+02. Кот
+03. Вольный ветер
+04. Белая ворона
+05. Оранжевое настроение
+06. Ой-йо
+07. Всему своё время
+08. Давай вернемся
+09. Поплачь о нём2009Жанр: Рок, Рок-н-РоллПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420BEC04286E9FAC5EB3CCA0CE1BD5DAF8614AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482730   (88403) от 14.04.2012
+
+Крематорий - Двойной альбом (1993) [APE 2.0 24/96 | tracks (VinylRip)]<Рок-н-ролл, Хард-рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Проходящие Мимо
+02. Реанимационная Машина
+03. Клаустрофобия
+04. Адольф
+05. Таня
+06. Кондратий1993Жанр: RockПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14E85105F90560DED479EC47FD0AEE807526CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480589   (87423) от 09.04.2012
+
+Scorpions - 2 альбома (1974-1975)  [FLAC 2.0 24/192 | tracks (VinylRip)]<hard-rock, heavy-metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: hard-rock, heavy-metalПродолжительность: 00:37:32
+
+01. Dark Lady
+02. In Trance
+03. Life's Like A River
+04. Top Of The Bill
+05. Living And Dying
+06. Robot Man
+07. Evening Wind
+08. Sun In My Hand(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB315CD2F2FB1839040EE4CCCCAD22B83C2C343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475795   (85522) от 31.03.2012
+
+Europe - The Final Countdown (1986)  [APE 2.0 24/48 | tracks (VinylRip)]<hard rock,heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Countdown
+02. Rock the Night
+03. Carrie
+04. Danger on the Track
+05. Ninja
+06. Cherokee
+07. Time Has Come
+08. Heart of Stone
+09. On the Loose
+10. Love Chaser1986Жанр: hard rock,heavy metalПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9561E9AE966EAFF6D3C5534CE24DE9BBD1CBAF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772072   (71791) от 09.01.2025
+
+Asphyx - Studio Albums (10 releases) (1991-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asphyx - дэт-метал-группа из Олдензаала, Нидерланды, образованная в 1987 году.1991 - The Rack
+1992 - Last One On Earth
+1994 - Asphyx
+1996 - Embrace The DeathЖанр: Death/Doom MetalПродолжительность: 08:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D258F60699F0E93AFC8E2E0FA36E43C2B2B2238E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772862   (71761) от 12.01.2025
+
+Paper Lace - The Best Of Paper Lace (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71761.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Billy - Don't Be A Hero
+A2 I Did What I Did For Maria
+A3 Jean
+A4 Mary In The Morning(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A869FCE7BD10D9FB1748344D68FA9A2CEECF52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773546   (71691) от 16.01.2025
+
+Epysode - Studio Albums (2 releases) (2011-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epysode - прогрессив-метал группа из Бельгии, основанная в 2011 году.
+Сайд-проект Сэмюэля Аркана с участием приглашенных музыкантов2011 - Obsessions
+2013 - FantasmagoriaЖанр: Progressive MetalПродолжительность: 02:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32DD798D905B07A58154B82095B4DC73A4E8DC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773749   (71667) от 17.01.2025
+
+Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Jazz-Fusion, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майлз Кеннеди — американский музыкант, играл в группах Citizen Swing, The Mayfield Four. Наиболее известен как вокалист и гитарист Alter Bridge, а также как вокалист и ритм-гитарист сольного проекта гитариста Guns N' Roses Слэша (Saul Hudson)2018 - Year Of The Tiger
+2021 - The Ides of March
+2024 - The Art Of Letting GoЖанр: Hard Rock, Jazz-Fusion, Post-GrungeПродолжительность: 02:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9699B02E6B0275518FF1DD8DC5B48FBA30F2C19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774310   (71548) от 20.01.2025
 
 Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -392,352 +754,6 @@ Dreamland — группа из Швеции, играющая в стиле м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB62A4D72FF04AC9CFEBF47D5A2FBE15E9213F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778883   (70785) от 10.02.2025
-
-The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Deathrock, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70785.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last Band — шведская рок-группа из Гётеборга, начала свою деятельность в начале 2011 года.2012 - Mean Machine
-2015 - Rats of Gothenburg
-2016 - The Fall
-2018 - HisingenЖанр: Hard Rock, Deathrock, ThrashПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FA646273187BF14D039B0B1D3BB77DF69967CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779996   (70561) от 16.02.2025
-
-VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TT - Потерянный рай (spiller remake)
-02. Stark - You
-03. Party - Подари любовь
-04. Nek - La Vita E(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E75A1EC4D380373866CE73E20381F038050014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780426   (70441) от 18.02.2025
-
-Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infringement - группа из Осло, Норвегия, основана в 2015 году.2017 - Transition
-2019 - Alienism
-2024 - Black Science and White LiesЖанр: Progressive RockПродолжительность: 02:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EB588A761C5E97F4CCB7AB919819C9CDFD8FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780434   (70440) от 18.02.2025
-
-Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Innerspace - прог-рок коллектив, основан в Монреале, Квебек, Канада в 2009 году.2012 - The Village
-2017 - Rise
-2024 - The Last SignЖанр: Progressive RockПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B419DBBE1A7874884CE39AC8FC615F2F551AA459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780615   (70370) от 19.02.2025
-
-Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ritual был сформирован в 1992 году в Стокгольме, Швеция, барабанщиком Йоханом Нордгреном, басистом Фредриком Линдквистом, гитаристом Патриком Ландстром и клавишником Джона Гамблом.1995 - Ritual
-1999 - Superb Birth
-2003 - Think Like A Mountain
-2007 - The Hemulic Voluntary BandЖанр: Progressive RockПродолжительность: 04:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39709344AA50CB2FE2B26C5FCB2CF9DE66F5DF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780851   (70339) от 20.02.2025
-
-JoNo - Studio Albums (4 releases) (2006-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock, AOR>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70339.jpg" />
-</div>
-
-
-###  Подробнее
-
-JoNo - рок-группа была основана в Готланде, Швеция, в 2006 году.2006 - JoNo
-2013 - Requiem
-2015 - Silence
-2017 - LifeЖанр: Progressive Rock, AORПродолжительность: 03:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D88F3F3E52DA0822861F8270E1656415EE051B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781287   (70250) от 22.02.2025
-
-Greta Van Fleet - Studio Albums (4 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard rock, Blues rock, Progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greta Van Fleet - хард-рок -группа из Франкенмута, Мичиган (США)2017 - From The Fires (EP)
-2018 - Anthem Of The Peaceful Army
-2021 - The Battle At Garden's Gate
-2023 - StarcatcherЖанр: Hard rock, Blues rock, Progressive rockПродолжительность: 03:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE654F16C7372F156FBF78A93C82F53AAD4533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781193   (70235) от 22.02.2025
-
-Von Hertzen Brothers - Studio Albums (9 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Von Hertzen Brothers - финская рок-группа, сформированная в 2000 году тремя братьями.2001 - Experience
-2006 - Approach
-2008 - Love Remains the Same
-2011 - Stars AlignedЖанр: Progressive RockПродолжительность: 08:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796CC5343902C10793666EE3898A6BE37C1AC58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781374   (70214) от 23.02.2025
-
-Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic rock, Progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starset — американская рок-группа из Колумбуса, штат Огайо, сформированная в 2013 году.2014 - Transmissions
-2017 - Vessels 2.0
-2019 - Divisions
-2021 - HorizonsЖанр: Electronic rock, Progressive rock, Alternative metalПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BB3154237C7AA7BEBD0C9DA875F75E08D12021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781492   (70212) от 23.02.2025
-
-Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Punk Blues, Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Sara — хард-рок-группа из Лос-Анджелеса2009 - The Airport Sessions (EP)
-2012 - Dead Sara
-2015 - Pleasure To Meet You
-2017 - The Covers (EP)Жанр: Hard Rock, Punk Blues, GrungeПродолжительность: 03:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F401F421CC359B8F0C4944D8078D8F05320D4337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781566   (70190) от 23.02.2025
-
-Bury Your Dead - Studio Albums (7 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hardcore, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bury Your Dead - американская группа из Бостона, штат Массачусетс, сформированная в 2001 году.2003 - You Had Me At Hello
-2004 - Cover Your Tracks
-2006 - Beauty and the Breakdown
-2008 - Bury Your DeadЖанр: Hardcore, MetalcoreПродолжительность: 03:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1927BCD5C264DD0F320F733431C923E1FC6E168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781989   (70079) от 26.02.2025
-
-Nightrage - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightrage — музыкальная группа, играющая мелодичный дэт-метал. Была создана в 2000 году в Салониках греческими гитаристами Мариосом Илиопулосом и Гасом Джи.2003 - Sweet Vengeance
-2005 - Descent Into Chaos
-2007 - New Disease Is Born
-2009 - Wearing a Martyr's CrownЖанр: Melodic Death MetalПродолжительность: 08:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63355DB2D842FCCB4CEED27C14C56504962D683D
 ```
 
 https://mybot314.ru/tekegram_catalog/

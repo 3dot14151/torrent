@@ -1,3 +1,159 @@
+###  Публикация: 359460   (581152) от 07.07.2011
+
+VA - Загорелое Лето (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079C7E8EC275082A6F153A607AFAE38700A532CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359843   (581150) от 07.07.2011
+
+VA - Взорви танцпол 4 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F7D1BE54E472B3B8C70541158E2FA027ABE79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360191   (581094) от 07.07.2011
+
+VA - Летний прикид! Русский (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E67895D727207C155239C47484C794427F1E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359882   (581090) от 07.07.2011
+
+VA - Песня Года Vol.2 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5311714253693D748CCD62F8ABDB75E91B24952D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359473   (581033) от 07.07.2011
+
+VA - 200-ка Master Hit Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6945B37C4ECD104F2DC0FA9FC30504AB51B4EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359344   (580960) от 07.07.2011
+
+VA - Музыкальная энергия пиратских станций (2011) [MP3|128 kbps]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,DanceПродолжительность: 12:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E9D2105063BD8320AAE6AF99815AB15DFC66C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359811   (580893) от 07.07.2011
 
 VA - 1000% Ballads  (2011) [MP3|256 kbps]<Pop>
@@ -550,174 +706,6 @@ VA - Русское радио. Убойное лето №3 (2016) [MP3|~192-32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451F1577DB1DA0409C0A0A85C705FD59DB91A4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042611   (578389) от 13.08.2016
-
-VA - German Top 100 Single Charts (22.08.) (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578389.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mike Perry feat. Shy Martin  -  The Ocean  3:03
-002. Major Lazer & Justin Bieber & MO  -  Cold Water  3:05
-003. Alan Walker  -  Sing Me To Sleep  3:09
-004. Shawn Mendes  -  Treat You Better  3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671B218A096DD74D3FD8588F143B59C0DBA62882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042629   (578318) от 13.08.2016
-
-VA - Русское радио. Бархатный сезон (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578318.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Макс Барских - Последний Летний День
-002. Дима Билан - Неделимые
-003. Григорий Лепс - Одиноко
-004. Homie - Птица Рай(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D043DAAB03EF2D3D4B17C94B46B196B3FBA89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233593   (578175) от 01.07.2018
-
-VA - German Top 50 Official Dance Charts 29.06.2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Profesor - Bella Ciao (HUGEL Remix)
-02. Purple Disco Machine - Dished (Male Stripper)
-03. Calvin Harris, Dua Lipa - One Kiss
-04. Shakedown - At Night (Purple Disco Machine Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0640727ED6617148BD7FA8CDC1E5C3E1627372E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554184   (577622) от 30.05.2022
-
-Claudia Mori - Compilation (2022) [MP3|320 Kbps] <Pop, Italo Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un'altra volta chiudi la porta (Chiudi la porta)
-02. E' amore
-03. Nata per me
-04. Dal dire al fare(   Читать дальше...   )Жанр: Pop, Italo PopПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF199904D6EE6ED5FBEE25FCAA1B5CEE8F32F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361357   (577432) от 10.07.2011
-
-VA - Летний попсовый рай (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBF7554CC82D7E7494734FB870A60BE4310465F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361354   (577430) от 10.07.2011
-
-VA - Музыкальные Новости Русского Радио (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02506F71FDE87579AB1A766A7B3AD3882FF83045
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1686117   (126766) от 21.12.2023
+
+VA - Dance Mix 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - End Of The Night (Radio Edit) [03:42]
+02. Jay Derson - Scream Out Loud (Radio Edit) [04:05]
+03. Xander G - Let You In [02:27]
+04. Göktuğ Erkün - Slowly [02:55](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA927A2184092C2E807233A107BE2D1C60CAB7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686562   (126468) от 23.12.2023
+
+VA - Planeta Mix Hits 2024: Winter Edition (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLuis - Beautiful Life [02:57]
+02. Deep Emotion - Everything [03:01]
+03. DJ Pasi - Vamos A La Playa [02:42]
+04. Aaron Paris - Dale [02:35](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483918EBE2537287F14FEA80478DDF57A5F556D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688412   (125055) от 30.12.2023
+
+VA - Dance 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comeon - Crash & Burn (01:56)
+02. Anka - Lonelyy (02:42)
+03. Yampolsky & Stacy Nich - Fly (Roland UA Remix) (06:22)
+04. Jay Derson - Scream Out Loud (Radio Edit) (04:05)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E661E68303D0DFA2FB8A24C69F993D72DF4A338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690326   (124037) от 06.01.2024
+
+VA - The Best Club Tracks 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Fall - I'm in Love (Christopher Phonk Radio Remix) [03:19]
+02. Maxi Kinzel - Tonight [03:08]
+03. Bass Leuwenberg - Midnight Hour [02:16]
+04. KOLDSTREAM - Emotion [05:26](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E775C269F69A3582D8A80CDAF63E327B8042BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690402   (123908) от 07.01.2024
+
+VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TwoRule - Shivers [03:03]
+02. Moses - Let Me Down Slowly [03:32]
+03. Alperen Ocak - Creepin' (I Don't Wanna Know) [02:54]
+04. TwoRule - Numb [02:41](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE3266E4F7A0683588AF2D7F3CC94B023A24D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691674   (123080) от 13.01.2024
 
 VA - Winter Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -600,149 +745,6 @@ VA - Ultimate House Winter 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:483C437B9FDDA52F6F05F85E2AA225ED2647C2CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700774   (116706) от 19.02.2024
-
-VA - Milk & Sugar Winter Sessions 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Tension (Chromeo Remix) [4:07]
-02. Lorenz Rhode - Back (Purple Disco Machine Remix) [6:33]
-03. Mattei & Omich - Wrong Is Right (Milk & Sugar Extended Edit) [5:16]
-04. Lenny Kravitz - Low (David Guetta Extended Remix) [4:41](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F778370704DD6342034B06C907BA9C256E1DDD1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701469   (116370) от 21.02.2024
-
-VA - Gaming Music Chill After Hours (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorbunoff - Illusion (02:36)
-02. Baccij - Remember (02:39)
-03. Gorbunoff - I can't stop (02:11)
-04. N.E.O.N & Dellahouse - Do It (Radio Edit) (03:52)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46AA0F065D94C360DEC5942E970A7BA3853F6EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704216   (114487) от 03.03.2024
-
-VA - EDM Superhits (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenya Grace - Strangers (02:53)
-02. Billy Gillies - DNA (Loving You)Жанр: Dance, Club, House, ElectronicПродолжительность: 01:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB438CD571D11E34D98B1D661D21ADB527766A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707062   (113415) от 15.03.2024
-
-VA - Black Hole House Music 03-24 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomcraft - That Beat (Extended Mix) [5:17]
-02. ZOYA - Endless (Extended Mix) [5:24]
-03. Johan Gielen & Arkayne - Save Face (Club Mix) [3:50]
-04. Maratone - All You Want (Extended Mix) [6:14](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4B358D9966F48A6C9228F7EADA4BB4E1E45973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707513   (113291) от 17.03.2024
-
-VA - Dance Chart 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.E.O.N, Dellahouse & Deep Strips - Your Love (04:15)
-02. Kevin Havis - Summetime (02:43)
-03. Fatten Klaus - Easy to Love (04:40)
-04. Deep Surr - By My Side (03:05)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65F617019829288CDC7A4D87A60CB9AEC40C913
 ```
 
 https://mybot314.ru/tekegram_catalog/

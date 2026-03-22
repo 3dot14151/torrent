@@ -1,3 +1,160 @@
+###  Публикация: 1354655   (987044) от 23.01.2020
+
+VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Groove - Taken (Root Edit)
+02. Purity Of Soul - Start Me Up (Purity Mix)
+03. French Kiss Lovers - Deep Colour (French Edit)
+04. 6ex - Shaft (Nineteen Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BA0B9D6534DC2D287F0703962726E40A02139B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354998   (986171) от 24.01.2020
+
+VA - Ibiza Spinning House Hits 2020 Session [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Red Hardin - La Boca (Fitness Version) 4:05
+2. Dj Vulkano - Panini (Fitness Version) 4:48
+3. Dj Space'c - Baiana (Fitness Version) 4:52
+4. Lawrence - Nice To Meet Ya (Fitness Version) 4:50(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B56D82702DAECC608CC5918B95E725DCA34ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612488   (986147) от 02.02.2013
+
+VA - Back to Bed: Deep Sounds for Lazy Sundays No.1 (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florian Muller - Deeplachord
+02. Cunnie Williams - Saturday (Feat. Monie Love) - Penner+Muder Remix
+03. Fritz Zander - Lose Yourself
+04. Autodeep - Set Me Free
+05. Franksen - Think - Pawas Remix
+06. Chopstick - Beavers Rose
+07. Declo - It's Me - Feygin Mix
+08. Brothers Of Zion - Ilook - Tony Lionni Remix
+09. Till Von Sein - The Jam
+10. Re-up - Dirty Chord(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5E02F77B326A7691C89D3352CA74927463C5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611714   (985994) от 02.02.2013
+
+VA - Mega House Top 100 (2013) [MP3|320 кб/с]<house, dance, club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985994.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:Жанр: house, dance, clubПродолжительность: 01:19:36
+
+ 01. Sander Van Doorn vs Julian Jordan - Kangeroo [03:11]
+ 02. Basto - I Rave You (SD Radio Edit) [03:04]
+ 03. Laura Broad ft Chris Brown - Nobody Can (Wolfpack Radio Edit) [02:58]
+ 04. Mickey ft Billie - Weekend (Extended) [04:06]
+ 05. Hook N Sling ft Evermore - Surrender [03:35]
+ 06. Julian Jordan - Rock Steady [03:20]
+ 07. Mobin Master & Ian Carey - Lights Out (Ian Carey Radio Edit) [03:24]
+ 08. Patrick Hagenaar - Another Chance (Radio Edit) [02:50](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491D4F1CBF426860B761562B878E7AFCEE3660ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355159   (984981) от 25.01.2020
+
+VA - Black Hole House Music 01-20 (2020) [MP3|320 Kbps] <House, Progressive House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Nostalgia (Extended Mix) 7:01
+02. Orkidea - One Man's Dream (Pure Progressive Mix) 8:23
+03. John Grand - Deep Fake (Club Mix) 6:28
+04. Martin Graff - Red Sand (Extended Mix) 6:09(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6292B4E2112BC06075724D6F44FAFD3A90A299FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971138   (984599) от 04.01.2016
 
 VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
@@ -625,151 +782,6 @@ VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:013185456265A11E59B2D616F26228AD73EA6A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359423   (963282) от 13.02.2020
-
-VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simply Red - Sunrise (Motivo Simply Mad Mix) (4:40)
-02. Tori Amos - Don't Make Me Come To Vegas (Timo On Tori) (6:03)
-03. Unknown Artist - Is It Real? (2:31)
-04. Poww Project - Junkhouse (Silverboys Remix) (5:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4858107F1F1D1D9617B82F45CE0DDC7C7AF826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359424   (963281) от 13.02.2020
-
-VA - Битва Dj - Dj Denis Binokl & Dj Arseniy (2008) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Spirals Permission To Fly (7:09)
-02. TommyBoy & Soultan Feat. Zara - B With U (Add2Basket Remix) (6:29)
-03. D-Pulse - Cant Stop Morning Light (Yvel & Tristan Remix) (6:36)
-04. Yvel & Tristan - Adagio (6:36)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BD35305244667ED50DBE660CBB358F730C8AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359421   (963280) от 13.02.2020
-
-VA - Housemission II - Do You Remember (Mixed by DJ Ярик) (2004) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Ярик - Intro (0:29)
-02. Instant Funk - Got My Mind Made Up (4:06)
-03. Greens Keepers - Should I Sing Like This (3:44)
-04. Atwater Syndicate - Anti-Matter (4:20)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A80312B2213F827A9A9FD86DCE6A2E05D6797D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359414   (963279) от 13.02.2020
-
-VA - Body (Mixed by Dj Zezick) (2005) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (6:17)
-02. Untitled (4:15)
-03. Untitled (5:41)
-04. Untitled (5:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE3026BB6A07E07312C404BB1697B43ACA29611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359426   (963277) от 13.02.2020
-
-VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (5:58)
-02. Untitled (5:24)
-03. Untitled (4:16)
-04. Untitled (2:31)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E14779C171A141FBECD629A22C404F1C6B060A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1580029   (232112) от 30.09.2022
+
+Def Leppard - Def Leppard (2015) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Go
+02. Dangerous
+03. Man Enough
+04. We Belong(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6D22AE07BF00648BAD97E379EDB314F008A938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645164   (231988) от 08.07.2023
+
+Mourning Knight - A World of Dreams (2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fractured Fairytale (16:57)
+02. The Great Escape (8:43)
+03. Return to Earth (10:30)
+04. Duel in the Sun (6:42)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C56636EA1D566FB96BF7CBB7AD84E074411CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646296   (231844) от 14.07.2023
+
+Quidam - Sny Aniołów (Sny Aniolow) (1998) Remaster, 2023, GAD Records [MP3|320 Kbps] <Neo-Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Przebudzenie [00:01:44]
+02 - Moje anioly [00:04:21]
+03 - Morelowy sen [00:05:17]
+04 - Wesola [00:06:59](   Читать дальше...   )Жанр: Neo-ProgressiveИздательство: GAD RecordsПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7EC8DFD651BD39A9BA753ACEC3FEFD9F19ED39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553456   (231816) от 01.06.2022
+
+Def Leppard - Diamond Star Halos (2022) Limited Edition [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_231816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take What You Want (4:16)
+02. Kick (3:42)
+03. Fire It Up (3:20)
+04. This Guitar (3:50)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2D04C28A3EECDB7ABBF5CA299BB263B1D11A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647618   (231389) от 20.07.2023
+
+King Crimson - Mister Stormy's Monday Selection, Vol. 10 (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sheltering Scape
+02. In The Wake Of Poseidon (Greg Lake Vocal)
+03. The Letters (Robert Fripp Guitar)
+04. Man With An Open Heart (Edit)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3194EF469B878607E8567DBFBA80AD7F2CBEF269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648479   (231379) от 23.07.2023
 
 The Residents - 13th Anniversary Show - Live In The USA (1986) Reissue, Remastered, 2015, Klanggalerie (2CD)[MP3|320 Kbps] <Alternative Rock, Avantgarde, Experimental>
@@ -599,157 +744,6 @@ Disc 2: Hotcakes, Outtakes, Rarities & Thank You! I’ll Eat It Here: Live at th
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A50BD4BF2F648AB0D1FA6BA608F5901E15D4194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268450   (227834) от 10.12.2018
-
-Paul McCartney & Wings - Wild Life (1971) Remastered, 2018, Capitol Records [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wild Life — дебютный альбом британской рок-группы Wings, вышедший в 1971 году, альбом также является третьим студийным альбомом в дискографии Пола Маккартни вне и после его участия в группе The Beatles. Первоначальный состав Wings образовали Пол и Линда Маккартни, работавший с Полом и Линдой над их предыдущим сольным альбомом Ram барабанщик Denny Seiwell, а также (   Читать дальше...   )01. Mumbo
-02. Bip Bop
-03. Love Is Strange
-04. Wild Life(   Читать дальше...   )Жанр: RockПродолжительность: 01:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25C256328EF62F338373F2BDE0A7188C7A27D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650015   (227668) от 30.07.2023
-
-Richard Wright - Wet Dream (1978) Remix by Steven Wilson, 2023, Rhino [MP3|320 Kbps] <Progressive rock, instrumental rock, jazz fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mediterranean C (2023 Remix) [00:03:54]
-02. Against The Odds (2023 Remix) [00:03:57]
-03. Cat Cruise (2023 Remix) [00:05:48]
-04. Summer Elegy (2023 Remix) [00:04:59](   Читать дальше...   )Жанр: Progressive rock, instrumental rock, jazz fusionПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D5890A0F9E9EF766F0A4C6888BD9718156BEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649972   (227523) от 30.07.2023
-
-Sweet - Give Us A Wink (Alternative Mixes & Demos) (2022)  [MP3|320 Kbps] <Rock, Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Scott Talking About Give Us a Wink (June 2022) [05:22]
-02. Fox On The Run (Rough Mix) [03:40]
-03. White Mice (Munich Mix) [05:00]
-04. Cockroach (Munich Mix) [05:00](   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D48EA698D068C8F1A5CF6125EC2778F07D706B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341934   (227519) от 30.11.2019
-
-Kozmik Landing - Distant Land (2019) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Float Instead of Sink (04:02)
-02. Shade of Blue (02:59)
-03. Slow It Down (04:49)
-04. Distant Land (05:31)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171336B2934C55E24CA3147288516D2F2D99F405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586643   (227001) от 09.12.2012
-
-Eagles - Hell Freezes Over (1994) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Get Over It
-02.Love Will Keep Us Alive
-03.The Girl from Yesterday
-04.Learn to Be Still
-05.Tequila Sunrise
-06.Hotel California
-07.Wasted Time
-08.Pretty Maids All in a Row
-09.I Can't Tell You Why
-10.New York Minute(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA8F93B78C265E76B94EA9F68FAD839879D17F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

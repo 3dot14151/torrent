@@ -1,3 +1,61 @@
+###  Публикация: 1483456   (1006778) от 14.07.2021
+
+VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006778.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peetu S - Afterlife
+002. Human Force - Sun Rising High
+003. Green Court - Silent Heart
+004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484309   (1006116) от 19.07.2021
+
+VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (3:20)
+02. Markul, Джарахов - Я в моменте (2:06)
+03. Nessa Barrett feat. jxdn - la di die (3:15)
+04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485304   (1005442) от 25.07.2021
 
 VA - Record Super Chart 24.07.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Flash Sound Mix: Electro House (2021) [MP3|320 Kbps] <House, Electro, Club,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:648296A9D1A769AAC72E8D63187C250D489796E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839213   (1003322) от 27.11.2025
-
-VA - Viral Beats (2025) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003322.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kase Kochen - Images Of The Divine (00:06:02)
-002. Ghost In The Metaverse - Ahora Noto (00:02:05)
-003. Zeskullz - Acid Bastards (00:06:08)
-004. Cyberpunkers - Aetherion (00:05:38)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C54E81DA4E9D41CFB4301B4C519A9052599E5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349958   (1003299) от 06.01.2020
-
-VA - Vibrant Color Sound: Top 100 Dj Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003299.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Angelo & Don Argento - Entrance Of The Underworld
-002. Verve - Freedom (Apo Tulup Remix)
-003. Divorosso - Boxy Baby
-004. Lessovsky - Fluids(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4670BF7C40B18A4A5E224E43DE871A3241B0F07
 ```
 
 https://mybot314.ru/tekegram_catalog/

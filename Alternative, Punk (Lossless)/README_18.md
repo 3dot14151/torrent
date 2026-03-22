@@ -1,3 +1,88 @@
+###  Публикация: 1282323   (745408) от 12.02.2019
+
+Tunic - Complexion (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Nothing
+02. Envious
+03. Getting Sick
+04. Evan(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FA02C4A3B65631FDC4CA20866170E21FDA51D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282299   (745404) от 12.02.2019
+
+Angelo De Augustine - Tomb (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomb 04:18
+02. All to the Wind (02:52)
+03. You Needed Love, I Needed You (03:25)
+04. I Could Be Wrong (04:09)(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFBECCEF494964F1423DF5F170C2E22A3CE8E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282458   (745403) от 12.02.2019
+
+10,000 Maniacs - Trouble Me (1989) Mini-Single [FLAC|Lossless|tracks + .cue] <Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble Me (LP Version) (03:08)
+02. The Lion's Share (LP Version) (03:00)Жанр: Folk Rock, Alternative RockПродолжительность: 06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2AD4082AF1DD3C2267D87B48DFB352E7DEDFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282491   (745393) от 12.02.2019
 
 HEALTH - VOL. 4 :: SLAVES OF FEAR (2019) [FLAC|Lossless|tracks + .cue] <Noisecore, Industrial>
@@ -433,6 +518,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399355   (733419) от 31.07.2020
+
+Alanis Morissette - Such Pretty Forks in the Road (2020) [FLAC|Lossless|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smiling (04:17)
+02. Ablaze (03:57)
+03. Reasons I Drink (03:36)
+04. Diagnosis (04:46)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B940C7599D37BE4928C3E11154DA8D15E3EC8988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399465   (732958) от 01.08.2020
 
 The Psychedelic Furs - Made of Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -626,122 +740,6 @@ Fake Club - Fucbakle (2014) [FLAC|Lossless|tracks] <Alternative Rock, Garage Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BEB7C4CA58E8B287B9BA62FD58A9A37478B5313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127479   (731051) от 22.04.2017
-
-Incubus - 8 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt.Rock, Alt. Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восьмой студийный альбом американских альтернативных рокеров Incubus «8». Продюсером нового альбома Incubus 8 стал Skrillex. Совсем недавно в студии вместе с Incubus и Чино Морено был замечен Skrillex. Теперь же музыканты поделились новостью о том, что Сони Джон Мур (Skrillex) непросто участвовал в записи одного из будущих треков, а стал продюсером альбома. Гитарист (   Читать дальше...   )01. No Fun (3:22)
-02. Nimble Bastard (New Mix) (3:40)
-03. State Of The Art (3:47)
-04. Glitterbomb (4:45)(   Читать дальше...   )Жанр: Alt.Rock, Alt. MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6CBD33A0EAD11F4E0EE92717FAE5023A9AE6A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283812   (731044) от 19.02.2019
-
-Talos - Far Out Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy Was I Wrong (02:42)
-02. The Light Upon Us (03:49)
-03. The Light (Interlude) (01:04)
-04. To Each His Own (03:10)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE81C0A1C5B05AFE67D007E496C9F860E795B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284012   (731038) от 19.02.2019
-
-Liza Anne - Fine But Dying (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paranoia (03:08)
-02. Small Talks (02:40)
-03. Panic Attack (03:44)
-04. Socks (03:01)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9172E5D19D6C85443034057B4D701055F05138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283911   (730984) от 19.02.2019
-
-Phoebe Bridgers - Stranger In The Alps (2017) Deluxe Edition, 2018, Dead Oceans [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke Signals (05:24)
-02. Motion Sickness (03:49)
-03. Funeral (03:52)
-04. Demi Moore (03:18)(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D8736B6845E4380E94208F6782910AD7F91C6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1746074   (45236) от 29.08.2024
+
+Roses Of Thieves - Gateway To Utopia (2024) [MP3|320 Kbps] <Melodic Power Metal, Folk Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Perilous Journey [00:03:03]
+02 - Seize The Sky [00:03:21]
+03 - Blunderbuss [00:03:17]
+04 - Be The Captain [00:03:46](   Читать дальше...   )Жанр: Melodic Power Metal, Folk Metal, Female VocalПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54D9A1D551FC27FA93D4815D77650424C9A0FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746844   (44723) от 03.09.2024
+
+Lyran Lions - Star Rider (2024) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born for Metal [00:03:14]
+02. Outbreak [00:03:03]
+03. Abandoned and Abused [00:03:00]
+04. Star Rider [00:04:04](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D732DE679F4B3AACB93AE8108339C060A913D151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748618   (43985) от 10.09.2024
+
+Massacration - Metal Is My Life (2024) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Macetation Apocalypse (03:44)
+ 02 - Revenge of the Bull (03:39)
+ 03 - November Gay (04:51)
+ 04 - Metal Milf (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7B9D030A5C69C01DAD6D1E98B3BCDF1C1001ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750341   (43021) от 19.09.2024
+
+Nightwish - Yesterwynde (2024) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterwynde (2:43)
+02. An Ocean Of Strange Islands (9:26)
+03. The Antikythera Mechanism (5:55)
+04. The Day Of... (4:35)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CBF7E6AEA7FA1FC702052717C8F270AA6EE6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750960   (42742) от 22.09.2024
 
 Nightwish - Yesterwynde (2024) Limited edition earbook, 2024, Napalm Eagles [MP3|320 Kbps] <Symphonic Metal>
@@ -627,119 +743,6 @@ Arch Enemy - Blood Dynasty (2025) [MP3|320 Kbps] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72926C15FCBC08547779D04F1C80A6F7C68B69FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795127   (19561) от 02.05.2025
-
-Behölder (Beholder) - In the Temple of the Tyrant (2025) [MP3|320 Kbps] <Epic Doom, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Pale Blood Sky
-02. Dungeon Crawl
-03. Into The Underdark
-04. Eyes Of The Deep(   Читать дальше...   )Жанр: Epic Doom, Power MetalПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2BC081B3AE11CD2BA4ABEB8CDE03CDB08DFC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795217   (19460) от 03.05.2025
-
-Iron Maiden - The First Ten Years I (1990) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Free (03:19)
- 02. Burning Ambition (02:42)
- 03. Sanctuary (03:15)
- 04. Drifter (live) (06:04)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC2213D9695A6000C1451BF80325F2D4592C664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796244   (18830) от 09.05.2025
-
-Game Over - Face the End (2025) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Hour
-02. Lust for Blood
-03. Neck Breaking Dance
-04. Grip of Time(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BD9598F012007F82088C829AFC53F2BADED0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691604   (18057) от 17.05.2025
-
-Nightwish - 50 альбомов (1996-2016) Дискография [MP3|320 кб/с]<Symphonic Metal>
-
->>След.
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightwish — финская метал-группа, исполняющая песни преимущественно на английском языке. Была образована Туомасом Холопайненом в 1996 году в городе Китеэ. Раннее творчество Nightwish отличалось сочетанием женского оперного вокала бывшей вокалистки Тарьи Турунен, клавишно-симфонической аранжировки и тяжёлой гитарной основы пауэр-метала. Этот стиль чаще всего определяют (   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 43:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2733881E08A193FF1B9FB70CBB7A254C8A726F20
 ```
 
 https://mybot314.ru/tekegram_catalog/

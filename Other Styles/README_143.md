@@ -1,3 +1,148 @@
+###  Публикация: 1339429   (264668) от 21.11.2019
+
+Nostradamus II - For A Thousand Years (2007) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mari Usque Ad Mare (From Sea To Sea) (2:58)
+02. Who Will You Be? (The Light Of Time) (4:29)
+03. I'll Come With You (3:22)
+04. Simply Forget (3:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA055041D5C760849BB2FF433E705E2D1D48C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339428   (264667) от 21.11.2019
+
+Nostradamus - A Storm Of Dreams (1998) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Whisper Of An Angel (5:28)
+02. Amarilli (Radio Edit) (3:51)
+03. Dreamin' A' You (3:08)
+04. A Storm Of Dreams (3:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D1742C069E5C4AEE3C65C5E303982D35BD7A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339580   (264570) от 21.11.2019
+
+Gregorian - 20/2020 (2019) Limited Edition 2CD [MP3|320 Kbps] <New Age, Enigmatic, Ambientpop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallelujah (New Version 2020) (04:58)
+02. Frozen World (Remastered Version 2020) (03:20)
+03. Pie Jesu (New Version 2020) (03:55)
+04. Fairytale Of New York (Remastered Version 2020) (04:10)(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientpopПродолжительность: 02:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDE988278D6C3C0FE16268C2B7EFE635F92E434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339857   (264565) от 21.11.2019
+
+Gregorian - 20/2020 (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Ethnic>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound of Silence (New Version 2020)
+02. Moment of Peace (New Version 2020)
+03. Hymn (New Version 2020)
+04. In the Air Tonight (New Version 2020)(   Читать дальше...   )Жанр: New Age, Enigmatic, Ambientpop, EthnicПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377C035CE88E23946037F1A68FF519D5109DFAF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191139   (264448) от 13.12.2017
+
+Willy Astor - The Sound of Islands Guitar (2017) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Guitar, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siracusa (03:45)
+02.  Kalipe (05:35)
+03.  Blackbird (02:05)
+04.  Bossa Valente (03:00)(   Читать дальше...   )Жанр: Acoustic, Guitar, InstrumentalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799735A7A317845F24358CB396F759E4B8440DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338783   (264285) от 22.11.2019
 
 Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F5B3B88F5906FAC17639A7E90DDF0C2F6202F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341533   (262285) от 28.11.2019
-
-White String Orchestra - Aktuelle Hits im modernen Streichersound (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Song (4:24)
-02. Gangsta's Paradise (4:21)
-03. Jesus to a child (4:28)
-04. Children (4:07)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, CoverПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664BC8A912E5CF8200D96E030F56688C2C5CBD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341223   (262283) от 28.11.2019
-
-Valefim Planet - Contradiction (2019) [MP3|320 Kbps] <Electronic, New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Spirit (05:32)
-02. Do Not Forget Me (05:31)
-03. I'm Flying Away (05:00)
-04. Loneliness Forest (07:07)(   Читать дальше...   )Жанр: Electronic, New age, EnigmaticПродолжительность: 01:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB42A057FBBCCB8EF4BD17D6EBCB563FFD11E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193266   (262220) от 20.12.2017
-
-VA - Nrj Latino Hits Only ! 2CD (2017) [MP3|320 Kbps] <Reggaeton, Cumbia, Other>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrique Iglesias Feat. Descemer Bueno, Zion & Lennox - Subeme La Radio 03:28
-02. J Balvin & Willy William - Mi Gente 03:09
-03. Maluma - Felices Los 4 03:49
-04. Shakira - Me Enamore 03:46(   Читать дальше...   )Жанр: Reggaeton, Cumbia, OtherПродолжительность: 02:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDF2ECB60F4E31C94002F14CB0FBAEB17B3773B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193505   (262117) от 21.12.2017
-
-VA - Mosaic - the Very Best New Age Music VA - Mosaic - the Very Best New Age Music   2017,  2CD  [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Kelly — Sacred Mountain (Beyond the Horizon 2)
-02. Jon Richards — The Triple Goddess (The Sacred Tree)
-03. Paul Sills — Childhood (Awake and Dreaming)
-04. Karl Maddison — Sacred Mountain (On the Road to Tibet)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76B7C44E9F56EA5BCB77ED0A265985383858483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194045   (261786) от 23.12.2017
-
-Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of the Seasons
-02. The Triple Goddess
-03. Lady of the Forest
-04. The Sacred Tree(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

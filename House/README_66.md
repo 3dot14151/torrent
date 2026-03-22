@@ -1,3 +1,148 @@
+###  Публикация: 1634049   (233824) от 18.05.2023
+
+VA - The Good Life 2023 (Best Deep House, Relax House, Chill House, Tropical House, Chillout, Study, Happy Music) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Profesor Esteban - Summer Off [05:41]
+02. Sam & Claude - Friday Feelings (Everyday) [05:00]
+03. Joshua Miller - Sun & Moon (Vintage Beach Mix) [06:08]
+04. Claude Ravin - What to Do? [06:03](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40849BE103587629A1025D0215C88EB34D40DE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642054   (233512) от 25.06.2023
+
+VA - Ibiza House Anthems (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disciple Sounds - Midnight (Radio Edit) [02:41]
+02. House Generator - Love Is The Way (Original Mix) [03:54]
+03. Funky Glow - Believe In House (Original Mix) [03:39]
+04. 95th Avenue - Meet Nobody (Dub Mix) [03:48](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5A484CB46DFCB2A432BF3D4CAB3A58D05CE6F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646660   (231777) от 17.07.2023
+
+VA - 40 Dance Summer Hits (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephan F - Feel The Vibe [02:47]
+02. Dani Corbalan - Pray [02:44]
+03. Rob Helen - Beautiful Liar [03:02]
+04. Robert Lain - Get Together [02:24](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8F5771D1B38721869DE9B7347509A8DC90DF00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636469   (231590) от 30.05.2023
+
+VA - Armada Electronic Elements - Ibiza (2023) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_231590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kölsch feat. Troels Abrahamsen - All That Matters (ARTBAT Extended Remix) (8:49)
+02. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) (6:09)
+03. Yotto & Booka Shade - Encounters (Extended Mix) (6:23)
+04. AVIRA feat. Dan Soleil - Wildfire (Extended Mix) (5:42)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB23699856A884312F4F1CD1E9EFA8264F69161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646432   (231504) от 19.07.2023
+
+VA - Deep Melancholic Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Hosking - Falling Pictures (Original Mix) [02:46]
+02. Matt Woodford - Promises (Original Mix) [02:35]
+03. Alexandra Schwarz - Inside My Mind (Original Mix) [03:00]
+04. Basic Stuff - Movin (Original Mix) [02:52](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D3904291DBCF95E9832639B4C00E275DEE4F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646791   (231437) от 20.07.2023
 
 VA - Black Lemon Top 100 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -600,162 +745,6 @@ Bob Sinclar - III (2006) [MP3|320 Kbps] <House, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0893CACD42503B726C29E1CFDDB2BC8A79DC9ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342395   (225673) от 01.12.2019
-
-VA - Ibiza Winter Party 2020 (2019) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Ruland – Burning Down (feat Dana Kelson) (3:00)
-02. Eddy Chrome – Your Memory (Mister Shuffle edit) (2:55)
-03. Lost Heartbeat – Beach Love (2:57)
-04. Cheap Sunglasses – Your Energy (Ibiza Bitches edit) (3:20)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBDA354A02CE39AB4D4A663EAB6AD9295E35AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650762   (224759) от 03.08.2023
-
-VA - IBIZA 2023 (Deluxe Version) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mood 5 & Liana - Good 2 Me (Stardust Dub Mix) [5:54]
-02. Proone - Hold Me Close (Original Mix) [4:10]
-03. Raw Ordio - Love Her (Original Mix) [5:05]
-04. Lukas Steph & August Norr feat. Ruya Fanny - Be Free (Original Mix) [4:38](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A67E3D2B0BC655B2D93571C4319A4E1D172AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587120   (224747) от 10.12.2012
-
-VA - Deep Winter Chill (2012) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Francesco Demegni - Freedom in Light Dance - Original Mix (3:47)
-2. Bank Of Sound - Capital Minds - Beach Groove Mix (3:53)
-3. Blue Groove - Raspberry Colt - Jazzin Wth Anima Mix (3:50)
-4. Diskoo - Fax - House Mix (3:50)
-5. Jaquin Roraso - Stop the Sex - Da Bossa Mix (3:54)
-6. Tee Glam - Omni Passion - Glamorous & Gliter Mix (3:53)
-7. Anphibia - Kolhos - Free Jam Mix (3:49)
-8. Frank Phonic - Pratica - Chillhouse Da Editare (4:06)
-9. London Jazz Soul Project - Lovely Chillout - Piccadilly's Night Mix (3:53)
-10. Funk Da Jazz House - Daddy Now - Fdj Deephouse Mix (3:52)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE747A5C41CB9C479946B47B0374CED6963733F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965758   (224598) от 15.12.2015
-
-VA - Best Of Massive EDM Party (2015) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Stellar - The Prophecy [04:29]
-02. Hate & Love - Like Stars (feat. Firas Abi Ali) [06:44]
-03. Claus Backslash - Ibiza (Need U)Жанр: House, Progressive HouseПродолжительность: 03:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC14A040E1448E40F88B805608B0CB174670712E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586999   (224468) от 10.12.2012
-
-VA - Milano Fashion Nights: House Music Compilation (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Carbonero - Magnus
-02. Roberto Carbonero - Woman in Love - Stefano Albane
-03. Phreo - Passion
-04. Luca La Greca - Deep Breath
-05. Moreno Pezzolato - Word - Marcelo Tag Remix
-06. Lovework - Lady Deep - Main Mix
-07. Pavel Sheemano - Cow
-08. Alene Barret - You Come in the Night - Deep M
-09. Manuel Battista - What You Want
-10. Roberto Carbonero - Ellen(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A805FB7862434F40A399CEEB32D8FF17C8DB4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

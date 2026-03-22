@@ -1,3 +1,145 @@
+###  Публикация: 1416027   (367333) от 16.10.2020
+
+Uriah Heep - Uriah Heep FM Broadcast February 1974 (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Livin' (Live)
+02. Sweet Lorraine (Live)
+03. Stealin' (Live)
+04. July Morning (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663F8D9A4DF33D0E5325F6D2223C1F3C9DE3E168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070420   (366417) от 07.11.2016
+
+Smokie - Greatest Hits (1999) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Next Door To Alice (3:28)
+02. Lay Back In The Arms Of Someone (4:06)
+03. I'll Meet You At Midnight (3:16)
+04. She Rides Wild Horses (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13E98AC168B3C5B6BC73034F143DF96FE6BDD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416688   (365250) от 17.10.2020
+
+T. Rex - T. Rex FM Broadcast 1976 (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride A White Swan (Live)
+02. Life's A Gas (Live)
+03. Teenage Dream (Live)
+04. Metal Guru (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBF08D813E0B42DE29FEAB5CE678F48BBE17D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416438   (365108) от 17.10.2020
+
+Santana - FM Broadcast Santana Live (2014) [MP3|320 Kbps] <Rock, Indi Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Well Alright (Live)
+02. Black Magic Woman / Gypsy Queen (Live)
+03. Dance Sister Dance (Live)
+04. Europa (Live)(   Читать дальше...   )Жанр: Rock, Indi Rock, Pop RockПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF889503C60CF4DB46F6B7D435C7565A55B153F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416683   (364967) от 17.10.2020
+
+Eagles - Live From The Forum MMXVIII (2020) [MP3|320 Kbps] <Classic Rock, Legends>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Rock, LegendsПродолжительность: 2 CD, 02:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23146CA756436D61E8DC7312B1E393B6F37AD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416652   (364958) от 17.10.2020
 
 Bruce Springsteen - Letter To You (2020) [MP3|320 Kbps] <Rock>
@@ -606,148 +748,6 @@ Ricochet - Pieces of the Ricochet (2020) [MP3|320 Kbps] <Progressive Rock, Heavy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC186CEFD004B3119110B40840A10A806B534FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417701   (355894) от 21.10.2020
-
-Lachy Doley - Double Figures (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gimme Some Lovin' (05:51)
- 02. Fire to Save (04:01)
- 03. Conviction (05:29)
- 04. Make It Up (04:39)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893373F70D15786D5758A906571D7B61E945E73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577832   (354858) от 20.11.2012
-
-The Rolling Stones - Grrr! (2012) [MP3|~190 кб/с (V2)]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 03:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97031C33EFEEA088C85373621DEEE42904B7FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178804   (353965) от 29.10.2017
-
-Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Production [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Man
-02. Louisiana Lady
-03. Shot In The Head
-04. Can't Stand The Heat(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E5E34EBC634D6061CA5561AF6506C8B251B88C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953235   (351787) от 03.11.2015
-
-Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psychedelic, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawlin' Kingsnake
-02. Underground River
-03. Bow'd Up
-04. For Suki(   Читать дальше...   )Жанр: Psychedelic, Blues RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34AEC2EC9F3D05B63DA7ABF846730F474091322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953004   (351693) от 03.11.2015
-
-Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night’s Makeup
-02. Broken Heart
-03. Highway
-04. Whiskey & Whitley(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

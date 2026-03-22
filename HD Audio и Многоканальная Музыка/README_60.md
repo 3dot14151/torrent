@@ -1,3 +1,322 @@
+###  Публикация: 1658450   (191320) от 08.09.2023
+
+Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191320.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Suzy Was Her Name
+A2 The More I Gave You
+A3 You Are Love K
+A4 Dance With Me(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E03226C41056FEB0CB904CFB334615685CA32D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658519   (191318) от 08.09.2023
+
+Vega - Battlelines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes And Zeros [00:04:18]
+02. Killers [00:04:16]
+03. Battlelines [00:04:20]
+04. Love To Hate You [00:04:32](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3BC4B6498F8A257742894B2B624E47743A252E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658445   (191300) от 08.09.2023
+
+The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191300.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Roses from the South (Gilbert and Sullivan)
+A2 Blue Danube Band (Johann Straus)
+A3 Ave Maria Band (Gounod)
+A4 Poet and Peasant (Suppe)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658504   (191294) от 08.09.2023
+
+Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various - "Party Time" (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Latin, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191294.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mambo Jambo (Que rico el mambo)/Mambo No. 8
+A2 Siboney/Maria-La-O
+A3 Ay Mama Ines (Mama Ines)/Carioca
+A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, Easy ListeningПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658510   (191222) от 08.09.2023
+
+The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|tracks] <Big Beat, IDM, Electropop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:09]
+02. Live Again [00:05:09]
+03. No Reason [00:04:52]
+04. Goodbye [00:05:49](   Читать дальше...   )Жанр: Big Beat, IDM, ElectropopПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CDD7FB0336E06AC4EB91D18142BE4C84EC1015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012354   (191028) от 06.11.2022
+
+Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes The Nights
+02. Got To Get You Into My Life
+03. Rain
+04. Tell All The World About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658410   (190972) от 09.09.2023
+
+OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deutsche Härte>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wem die Stunde schlägt [00:05:04]
+02. Richter und Henker [00:04:37]
+03. Soll das Liebe sein? [00:04:11]
+04. Nur ein Mensch [00:04:14](   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HärteПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68F2FEB897CB57B7F3D3E5AA91EB2A8C6FFF96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658727   (190968) от 09.09.2023
+
+Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190968.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Remember
+A2 Drivin' Drivin'
+A3 U Can't Stand It
+A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059507   (190749) от 07.11.2022
+
+George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190749.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Soul Limbo
+A2 Are You Happy?
+A3 Tell It Like It Is
+A4 Land Of 1000 Dances(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658993   (190636) от 10.09.2023
+
+OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190636.jpg" />
+</div>
+
+
+###  Подробнее
+
+OSI — американская прогрессив-рок-группа, первоначально созданная гитаристом Fates Warning Джимом Матеосом в 2002 году.2003 - Office of Strategic Influence
+2006 - Free
+2009 - Blood
+2012 - Fire Make ThunderЖанр: Progressive MetalПродолжительность: 04:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658763   (190478) от 10.09.2023
+
+Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190478.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In The Navy
+A2 Get Away Holiday
+A3 Citizens Of The World
+B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659500   (190207) от 11.09.2023
 
 Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, Stadium Rock and Metal>
@@ -422,323 +741,6 @@ Demons & Wizards - сайд-проект вокалиста Ханси Кюрш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661630   (188544) от 15.09.2023
-
-Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave You Or Forsake You
-02. Reason To Rock
-03. It's Not Late For Love
-04. Somebody's Watching You(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661987   (188279) от 16.09.2023
-
-Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vindictiv - прогрессив-метал группа из Стокгольма, Швеция, основанная в 2004 году.2008 - Vindictiv
-2009 - Ground Zero
-2013 - Cage of Infinity
-2015 - World of FearЖанр: Progressive MetalПродолжительность: 03:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662007   (188255) от 16.09.2023
-
-Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mark Robert Boals (родился 5 декабря 1958 г.) - американский хэви-метал вокалист1998 - Ignition
-2000 - Ring Of Fire
-2002 - Edge Of The WorldЖанр: Power MetalПродолжительность: 05:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9BF7D6F234F9345E1DB71915500F6983F1995D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583852   (188193) от 16.09.2023
-
-Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stone Sour — американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман. Просуществовав до 1997 года, коллектив прекратил свою деятельность, но в 2000 году, после успеха дебютного альбома Slipknot, Тейлор с Экманом решили вернуться к своему (   Читать дальше...   )2002 - Stone Sour
-2006 - Come What(ever) May
-2010 - Audio Secrecy
-2012 - House Of Gold And Bones - Part 1Жанр: Hard Rock, Heavy MetalПродолжительность: 09:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E4519727C61B26E164259B1C28DFA4215BA805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827449   (188101) от 21.10.2025
-
-Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винсент Нил Уортон (англ. Vincent Neil Wharton; род. 8 февраля 1961, Голливуд, США) — американский музыкант, вокалист, в первую очередь известный как вокалист американской глэм-метал-группы Mötley Crüe1993 - Exposed
-1997 - Carved In Stone
-2010 - Tattoos & TequilaЖанр: Hard RockПродолжительность: 02:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3859703AFDF4F32DD867C90A54641393996B9248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662444   (188078) от 17.09.2023
-
-Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seventh Wonder — прогрессив-метал группа, была создана в Стокгольме в 2000 году бас-гитаристом Андреасом Бломквистом, гитаристом Йоханом Лифвендалом и барабанщиком Джонни Сэндином.2005 - Become
-2006 - Waiting In The Wings
-2008 - Mercy Falls
-2011 - The Great EscapeЖанр: Progressive MetalПродолжительность: 06:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434CC2B40B5BD6A7B47CC4DB3FA555D8965DB38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662672   (187674) от 18.09.2023
-
-Rory Gallagher - Big Guns – The Very Best Of (2005) 2 x SACD, Compilation, Remastered, Capo [DST64|2.0,5.1|2822,4/1|SACD-R] <Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Big Guns 03:53
-02. What’s Going On 02:48
-03. Tattoo’d Lady 04:50(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DD56C160D1B5089EBE19F225669505BDA5F3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662856   (187530) от 19.09.2023
-
-Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-Rip]<Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187530.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Song For Eden
-A2 Jerusalem Is Falling
-A3 Design The Century
-A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662814   (187452) от 19.09.2023
-
-VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Bizet (1976) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Opera, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187452.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Serbami Ognor (Semiramide, Act I)
-A2 Se M'Ami Ancor ... Al Nostri Monti Ritorneremo (Il Trovatore, Act IV)
-A3 Un Di Felice (La Traviata, Act I)
-A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Carlo, Act II)(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662671   (187437) от 19.09.2023
-
-The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187437.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-01. Baba O'Riley (Remastered 2022) [5:04]
-02. Bargain (Remastered 2022) [5:35]
-03. Love Ain't For Keeping (Remastered 2022) [2:12](   Читать дальше...   )Жанр: RockПродолжительность: 09:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD2346C677D75BCB07502ED54E6B6F2DE708A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663172   (187205) от 20.09.2023
-
-The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphabet City (3:44)
-02. Deep End (Paul’s in Pieces) (4:29)
-03. Weird Goodbyes (feat. Bon Iver) (5:03)
-04. Turn off the House (4:35)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BCA0E5193A9AD9D3B7F99C4FA4769BD18598A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,141 +1,25 @@
-###  Публикация: 1552037   (587673) от 20.05.2022
+###  Публикация: 1550545   (590671) от 14.05.2022
 
-Alexandr Misko - Covers and New Versions, Vol. 1 (2019) [MP3|320 Kbps] <Fingerstyle, Guitar>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's a Pirate (1:29)
-02. With or Without You (3:59)
-03. River Flows in You (3:47)
-04. Wanderer (4:25)(   Читать дальше...   )Жанр: Fingerstyle, GuitarПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A75F6C72E11F8B27B96160CF50C3889C5F5FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552040   (587671) от 20.05.2022
-
-Alexandr Misko - Covers and New Versions, Vol. 2 (2020) [MP3|320 Kbps] <Fingerstyle, Guitar>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misirlou (2:16)
-02. My Heart Will Go on (Titanic Theme) (3:15)
-03. Forsaken 2019 (3:58)
-04. Caravan 2019 (3:29)(   Читать дальше...   )Жанр: Fingerstyle, GuitarПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C4D9BB03C01E72CE5D607A1293D7923697B160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552048   (587627) от 20.05.2022
-
-VA - Italian Chillout Cafe (2022) [MP3|320 Kbps] <Chillout>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melania & Christian Lisi - Mi Sono Innamorata Di Te (3:01)
-02. Zerosospiro - Il Desiderio (4:54)
-03. David Florio - Doce Doce (4:54)
-04. Mariva Cory & Soulstance - Un' Ora Sola Ti Vorrei (4:21)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C0555DEC991015AF790A32316319F0D58A9484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552032   (587620) от 20.05.2022
-
-VA - Disco Top 50 (2022) [MP3|320 Kbps] <Disco, Pop, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Cheatham - Get Down Saturday Night (4:02)
-02. Lipps Inc. - Funkytown (Single Version) (3:55)
-03. Gloria Gaynor - I Will Survive (Original 7'' Version) (3:19)
-04. Bee Gees - Stayin Alive (4:46)(   Читать дальше...   )Жанр: Disco, Pop, ClubПродолжительность: 03:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F79D7D34153A625A47FC71CF7EECD12A525383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040284   (587466) от 04.08.2016
-
-VA - Top 100 EDM Songs & DJ Tracks July (2016) [MP3|320 Kbps] <House, Progressive, Club>
+Sub Morphine - Long Drive (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587466.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Armin van Buuren & Human Resources -  Dominator (Extended Mix) 4:22
-002. W&W & Hardwell feat. Lil Jon -  Live The Night (Extended Mix) 4:34
-003. Will Sparks feat. Luciana -  Stay Up Till The Mornin (Original Mix) 3:19
-004. EDX -  Roadkill (EDX's Ibiza Sunrise Remix) 6:16(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 10:23:41
+01. HyperVisor (3:52)
+02. NightLine (4:05)
+03. StarLight (4:28)
+04. Long Drive (4:19)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:58:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E772AE3329C9074BE054888BACBA85F896452A3
+magnet:?xt=urn:btih:AA0B9D581125CBD7EE2AEE0E81B1F68F8D1EFA7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +27,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040398   (587455) от 04.08.2016
+###  Публикация: 1550819   (590668) от 14.05.2022
 
-VA - Fitness on the Beach Dance Music for Summer Workout (2016) [MP3|320 Kbps] <House, Dance>
+VA - Spring Clubbing EDM Party (2022) [MP3|320 Kbps] <Club, Dance, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целых 200 треков отличной музыкальной составляющей вашего дня! Зажги свой день отличными ритмами потрясающего звучания современной музыки! Получи заряд бодрости и позитива в твои колонки!001. Joseph Bazan - Dreams
+002. Fly & Sasha Fashion - Help Me
+003. Steve Modana - Into Paradise
+004. Bonte Carlo - Troubadour(   Читать дальше...   )Жанр: Club, Dance, EDMПродолжительность: 14:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423A849DCC325D92C21AA5A731FA631226752D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550815   (590666) от 14.05.2022
+
+VA - EDC Radio: Vanilla Disco (2022) [MP3|320 Kbps] <Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, которая филигранно балансирует на границе двух музыкальных эпох и стилей, органично сочетая в себе две составляющие - современной клубной музыки и танцевального диско. Она сохраняет мелодию и атмосферу ретро диско, но при этом обладает современным звучанием за счёт использования востребованной и узнаваемой аранжировки.001. Ale G DJ & Davide Inserra - I Am The Fire
+002. Indicate - Cojeme
+003. Pete Le Freak Power - Five Six Seven Eight
+004. Humphrey Robertson - Touch Of Summer(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 09:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2376CF2A4B786B16F25625F226DE7DAE07A2F378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550509   (590617) от 14.05.2022
+
+VA - Dance Hits 90S: Radio Show (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недаром говорят, что хорошая музыка не имеет срока годности, с чем невозможно не согласиться. Просто слушаешь и наслаждаешься каждым звуком, каждой нотой, каждым мгновением при прослушивании, получая при этом эстетическое удовольствие. На примере сегодня рассматривается весьма привлекательная, сочная подборка танцевальной музыки легендарных 90-х годов!001. Blur - Song
+002. Ingrid Michaelson - You And I
+003. Norah Jones - Turn Me On
+004. The Xx - Islands(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 11:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15489616DCC05F0E8A6339016E7D956C1F77EAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744378   (590498) от 26.07.2014
+
+VA - Trance Shivers Vol.1-22 (2013-2014)(Обновляемая) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aurosonic & Neev Kennedy - Now I See (club mix)
+02.Aly & Fila And Giuseppe Ottaviani - Brilliant People (Mark Sherry Radio Edit)
+03.Aurosonic - My way
+04.Armin Van Buuren Pres. Perpetuous Dreamer - Future Funland (Astura Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 65:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363C6FE067455BDFA84DB6F4ABD27DA156642300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916648   (590389) от 09.07.2015
+
+VA - Summer Music (2015) [MP3|320 кб/с]<Pop, Dance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587455.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mikkel Heimburger - Go for Broke
-02. Paul A. Grogan - Future Disco - Full Vocal
-03. Stefan Schnabel - Gold Hunter
-04. Paul A. Grogan - Touch Me Here - Joshua Ryan Remix(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:43:44
+Лето – пора самых ярких музыкальных новинок, а значит, время собрать все лучшие треки в одном месте! Summer Music 2015 – это сборник, где каждый трек воплощает неповторимую летнюю атмосферу и разделяет её с вами! Убедитесь в этом сами, ведь в одной компиляции сосредоточены самые горячие новинки сезона. Не даром этот диск уже вторую неделю держится на первой странице (   Читать дальше...   )01. Mans Zelmerlow - Heroes  (3:11)
+02. Flo Rida - GDFR  (2:58)
+03. Егор Крид - Невеста  (3:26)
+04. Mark Ronson - Uptown Funk (feat. Bruno Mars)  (3:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:25:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54E0541C60367E0CB7D742C53B14F9BB26CBC2C6
+magnet:?xt=urn:btih:7840A5D1B729502FC3B17314EF4FD6FC33B2D6D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040202   (587453) от 04.08.2016
+###  Публикация: 916742   (590361) от 09.07.2015
 
-VA - Турбохит Летний (2016) [MP3|256 Kbps] <Pop>
+VA - Сладкая вата Русский сборник попмузыки (2015) [MP3|256 кб/с]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587453.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Василий Романов - Необыкновенная
-002. Prince Royce - La Carretera
-003. James Bay - Hold Back The River
-004. Kygo - Stole The Show(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:19
+001. Интонация (In2Nation) и Та Сторона - За Своей Мечтой
+002. Наргиз – Ты - моя нежность
+003. Анастасия Стоцкая - Накрыла Любовь
+004. Ёлка - Прекрасна(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5E39A701A75E4BB28C7D77AB889B5591BDBA986
+magnet:?xt=urn:btih:B7F9DDA2E94AB8D089D15FACB6425E397C826FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040129   (587425) от 04.08.2016
+###  Публикация: 916684   (590337) от 09.07.2015
 
-VA - Самые сливки дискотек №7 (2016) [MP3|192-320 Kbps] <Pop>
+VA - Rock Ballads (New & Better) (2015) [MP3|320 кб/с]<Hard Rock, Art Rock, Soft Rock, Pop-Rock, Blues Rock>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587425.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Татьяна Котова - Танцуй
-002. Славво - Вуй Аман Аман
-003. Алена Roxis - Лучшие Друзья
-004. David - Знай (Version 2016)(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:15
+01. Aerosmith - What Could Have Been Love [03:44]
+02. Daughtry - Gone Too Soon [03:36]
+03. Jimmy Barnes - Walk On [04:21]
+04. Bon Jovi - Amen [04:12](   Читать дальше...   )Жанр: Hard Rock, Art Rock, Soft Rock, Pop-Rock, Blues RockПродолжительность: 01:12:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7443088144C7622DCB595CEBAE0D6C791E55A347
+magnet:?xt=urn:btih:C9C4D023BE4603CB5113C277342963ACC9166A14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040143   (587423) от 04.08.2016
+###  Публикация: 1551226   (590184) от 15.05.2022
 
-VA - Bass Killer 7 (2016) [MP3|320 Kbps] <Dubstep, Drum and Bass, Electro House, Trap, Future Bass>
+Michael Buble - Compilation (2022) [MP3|320 Kbps] <Vocal Jazz, Jazz-Pop>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587423.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Captain Panic feat. Messinian — Alien Bass (Original Mix) (4:07)
- 02. Gramatik — War of the Currents (Lookas Remix) (3:15)
- 03. Jauz & Marshmello — Magic (4:50)
- 04. Skrillex & Rick Ross — Purple Lamborghini (3:35)(   Читать дальше...   )Жанр: Dubstep, Drum and Bass, Electro House, Trap, Future BassПродолжительность: 01:37:59
+01. These Foolish Things (Remind Me Of You)
+02. Comin' Home Baby (Duet with Boyz II Men)
+03. Help Me Make It Through the Night
+04. Can't Help Falling in Love(   Читать дальше...   )Жанр: Vocal Jazz, Jazz-PopПродолжительность: 03:04:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73356C6A52223B60348556128DE3154C9CC71571
+magnet:?xt=urn:btih:9E49560B54F17C436C439550299D839B8643A2C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,57 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040201   (587421) от 04.08.2016
+###  Публикация: 1551296   (590103) от 15.05.2022
 
-VA - Летний Хит-Релиз. Русский Сборник (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Jedy Feat. Олеся Май - Сказка
-02. 30.02 - Я Верю
-03. Emotion - Самая
-04. Валерия - Тело Хочет Любви(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A18A5494AE027802172D4C792F725DF85596E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300984   (587230) от 09.05.2019
-
-VA - New Music Releases Week 18 (2019) [MP3|320 Kbps] <Pop, Hip Hop, RnB, Dance>
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 119 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587230.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dave Winnel - Brain Bug
-002. Dido - Take You Home (Joe Stone Remix  Edit)
-003. Stella Santana - Yayaya
-004. Wh0 - Happy People(   Читать дальше...   )Жанр: Pop, Hip Hop, RnB, DanceПродолжительность: 10:21:07
+Dance:
+01. 71 Digits x Flo Rida - Low (Extended Mix)
+02. Akon Feat. Eminem - Smack That (Jonvs & Bagy Remix)
+03. Arash & Junona Boys & Dor Halevi - Broken Angel (Dj Baur VIP Edit)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:46:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79279F07011341FB443577E860945A701556DB68
+magnet:?xt=urn:btih:B895A2689F2246D082B13D039E36D29BE598D5E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,115 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040172   (587061) от 04.08.2016
+###  Публикация: 917065   (589994) от 10.07.2015
 
-VA - 90s Club Mix XXL Vol.1 (2016) [MP3|256 Kbps] <Eurodance, House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Hool -  Meet Her at the Loveparade (Radio Edit) 3:32
-02. Robert Miles -  Children (Dream Version Special Radio Edit) 3:36
-03. Reel 2 Real -  I Like to Move It (Erick More Club Mix) 5:52
-04. Bass Bumpers -  The Music's Got Me (Radio Version No.1) 4:01(   Читать дальше...   )Жанр: Eurodance, House, TechnoПродолжительность: 05:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87825C5E25C9B3BABE91EC21B6735DA2A7CC6655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040248   (587059) от 04.08.2016
-
-VA - Танцевальный Рай - Disco Remix (2016) [MP3|320 Kbps] <Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Service & Antiloop -  Flash In The Night 3:38
-02. Boney M Feat. DJ Alvin -  Ma Baker 3:17
-03. Dj Tequila & Dj Grappa  & Ricchi & Poveri -  Mamma Maria 3:25
-04. F.R.David -  Words 3:25(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 05:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A83C94D158DCC14E8942B2C5D61980C88CBABD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040203   (587058) от 04.08.2016
-
-VA - Хитовые Летние Песни 7 (2016) [MP3|256 Kbps] <Поп, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Archi-M & Самира - Так Красиво
-002. Lvndscape & Holland Park Feat. Nico Santos - Waterfalls
-003. Milen - Тебе
-004. Usher - Clueless(   Читать дальше...   )Жанр: Поп, DanceПродолжительность: 06:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE35B3F6F64BFBE611338A31D32665F6071D149B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040321   (587057) от 04.08.2016
-
-VA - Дискотека 80-90 х По-Новому Зарубежный выпуск 36 (2016) [MP3|192 Kbps] <Disco, Eurodance>
+VA - Summer Dance (2015) [MP3|320 кб/с]<House, Bigroom, Progressive, Funky>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. C.C. Catch -  Nothing But A Heartache (Longer UltraTraxx Retro Fox Mix) 11:14
-02. Mark Medlock -  Baby Blue (Longer UltraTraxx Summer Mix) 7:18
-03. Radiorama -  Vampires (Extended UltraTraxx Request Mix) 13:27
-04. Snap! -  Cult Of Snap! (UltraTraxx X-Tended Mix) 10:25(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 07:41:44
+01. Heat Spring - When It's Gone (Feat. Flo Rida) (Big Beat Remix Edit)
+02. M.Iam.I - Roll (Feat. Ludacris, Slow To Die & Adriana)
+03. Daniel Tek Vs Matthew Bee - Gimme The Noise (Alien Cut Remix) (Feat. Aryfashion)
+04. Kryder - Percolator (Feat. Cajmere)(   Читать дальше...   )Жанр: House, Bigroom, Progressive, FunkyПродолжительность: 01:36:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0B04C2AF16E42376E41EF3A399C125FADC00DED
+magnet:?xt=urn:btih:3B705B1FAB7C125875A08D1CE478C50F62FB6A30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,57 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040365   (587054) от 04.08.2016
+###  Публикация: 916931   (589935) от 10.07.2015
 
-VA - Options Remake 150 Tracks - JULY (2016) [MP3|320 Kbps] <House, Progressive, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Vs Speedy J -  Pull Over 2:26
-002. Dash Berlin & DBSTF Feat. Jake Reese, Waka Flocka & DJ Whoo Kid -  Gold (Club Mix) 3:34
-003. Bob Sinclar Feat. Vybrate, Queen Ifrica, Makedah -  New New New (Nico De Andrea 2016 Remix) 5:30
-004. NERVO feat. Child Of Lov -  People Grinnin' (feat. The Chi 4:16(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 15:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3100E8A1EB9DD1024492F384E257A8E2427480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918474   (586860) от 15.07.2015
-
-VA - Ваши любимые песни от радио Шансон Часть 2 (2015) [MP3|256 кб/с]<Шансон>
+VA - Ищу тебя Новые хиты шансона (2015) [MP3|256 кб/с]<Шансон>
 
 >>Неофициальные сборники
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586860.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Александр Забазный - Славный Мой Город
-002. Геннадий Лист - Израненный Вечер
-003. Владимир Кисткин - Ты Пойми
-004. Дмитрий Треликовский - Мы Будем(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:23
+001. Группа Централ - Держись
+002. Евгений Любимцев - Никто меня не любит
+003. Виталий Волин - Птица
+004. Сергей Черновской - Мадам(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:38:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15C074CEF7BCBF7670744BC08508AC39638E401D
+magnet:?xt=urn:btih:7EC2C87CC0412DAACBFD604725BBAB7C8E7BEDCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552196   (586757) от 21.05.2022
+###  Публикация: 917120   (589924) от 10.07.2015
 
-Alexandr Misko - Roundtrip (2019) [MP3|320 Kbps] <Fingerstyle, Guitar>
+VA - Верность Топ новинок попмузыки (2015) [MP3|256-320 кб/с]<Pop>
 
 >>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586757.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Waves (3:03)
-02. Late Passenger (3:50)
-03. Rain and Thunderstorm (5:44)
-04. Snow in Stuttgart (4:32)(   Читать дальше...   )Жанр: Fingerstyle, GuitarПродолжительность: 01:03:13
+001. Майя Подольская - Верность
+002. Дима Билан - Болен тобой
+003. Бьянка - Любимый дождь
+004. Вера Брежнева - Доброе утро(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D20C8BAB56B8C3C2D517B39A1C8EBD2FD6B55C88
+magnet:?xt=urn:btih:1694E233DE147719934152ED43260D55C51FD553
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +375,318 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552643   (586690) от 21.05.2022
+###  Публикация: 916992   (589863) от 10.07.2015
 
-VA - Music News vol.189 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Новинки Русского Рока Выпуск 4 (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Каспий - Открытый космос
+02. Stereoдождь - Смотри как рушится их мир
+03. KiMATA - Авеню Свободы
+04. 18 Plus - Белые ночи(   Читать дальше...   )Жанр: RockПродолжительность: 03:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44397208AF52FDBA6886B0432E285C3EC4C5797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917022   (589792) от 10.07.2015
+
+VA - New Clear Radio Vol1 (2015) [MP3|~245 кб/с (V0)]<Pop , Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589792.jpg" />
+</div>
+
+
+###  Подробнее
+
+(03:27) 1. The Clash - Rock The Casbah
+(03:56) 2. The Psychedelic Furs - Pretty In Pink
+(04:31) 3. Mumford & Sons - I Will Wait
+(02:39) 4. Plain White T's - Take Me Away(   Читать дальше...   )Жанр: Pop , RockПродолжительность: 07:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEDE298D50C5A73377DA02F9A51ECBD919661A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917163   (589642) от 11.07.2015
+
+Dj Parafich - Pumping (Scouse) Romantica vol. 14 [Ultimate Energy 2] (2015) [MP3|320 кб/с]<Pumping house, Scouse house, Hard bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Broken Heart (Rusklubb Mix)
+02 Decoy
+03 Wipe Away My Tears (Paul Forcer Remix)
+04 Move Your Love (Dj New Man Remix)(   Читать дальше...   )Жанр: Pumping house, Scouse house, Hard bassПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0935CAB3DA5BADD4B7796C5F4123772DD1B900D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917297   (589588) от 11.07.2015
+
+VA - Summer Rhythm Ibiza Club Life (2015) [MP3|320 кб/с]<House, Progressive House, Dutch House, Bounce>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Napt - Hold Tight
+02. Duke Dumont - Nicht Vor Mitternacht (Original Mix)
+03. Frankho - Brain Drop (Original Mix)
+04. Fabio D'elia & Kawkastyle - Respawn (Original Mix)(   Читать дальше...   )Жанр: House, Progressive House, Dutch House, BounceПродолжительность: 10:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F022E3E87A1541F6F7D1B83408D1575490227D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917171   (589547) от 11.07.2015
+
+VA - Rarity Rock (1968-1979) [MP3|320 кб/с]<Classic Rock, Blues Rock, Jazz-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Hull - Squire (5:08)
+02. Alan Hull - One More Bottle Of Wine (4:14)
+03. Alan Hull - Bad Side Of Town (3:56)
+04. Andwella - Hold On To Your Mind (3:53)(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Jazz-RockПродолжительность: 09:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFB073FAC38B7F67E284FEF9D7382897A685946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917477   (589544) от 11.07.2015
+
+Rod Stewart - Picture In A Frame. The Best Ballads (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'd Rather Go Blind (3:52)
+02. This Old Heart of Mine (4:06)
+03. I Don't Want To Talk About It (4:51)
+04. Sailing (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FBE1162DBDE9A80BE99C778CD232D1CB6405E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917160   (589465) от 11.07.2015
+
+Би-2 - Нечетный воин. Лучшее (2005-2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Би-2 & Диана Арбенина- Медленная звезда
+02. Brainstorm-Ты не один
+03. Би-2 & Инна Желанная- Небо без края
+04. Би-2 & David Sterry-Теперь ты знаешь(   Читать дальше...   )Жанр: RockПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A0B33071DC7C1B5BBE71E38B1FCD0A99543FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917612   (589106) от 12.07.2015
+
+VA - Extra Lounge (episode 9) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernd Filz - Behind (07:04)
+02. Late Night Alumni - Drummer (04:30)
+03. Enrico Donner - Forget Me Not (06:01)
+04. Miss Jaedha - Izea Remembered (05:11)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A810968FF9287165B2F39537AC31371DDDDE8942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917694   (589047) от 12.07.2015
+
+VA - Дискотека забытых хитов (зарубежная) - 14 (2015) [MP3|245 - 268 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugh Bullen - Night Girl (06:32)
+02. Blu-I Boy - Night Of Ecstasy (Night Version) (04:56)
+03. Helen - Zanzibar (Remix) (06:02)
+04. Marrianne - Passion (06:00)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84052C0345756F9E973F02D8C43D3A3B2E22BEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917704   (589041) от 12.07.2015
+
+VA - Летние super новинки (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589041.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бьянка - Любимый Дождь
+002. Fidel Wicked - Miss V
+003. Дио.Фильмы - Стая
+004. Gorgon City Feat. Katy B - Lover Like You(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0976B69C06EA608169673346D1F104EBEC6FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917608   (589024) от 12.07.2015
+
+VA - Любимые медляки. Часть 1 (2015) [MP3|320 кб/с]<Pop, Rock, R&B>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586690.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Christina Aguilera feat. Lil' Kim & Mya & Pink - Lady Marmalade (Thunderpuss Radio Mix) (04:12)
- 002. Adamnim - Больно (02:40)
- 003. Adamnim - Мультивселенная (Больно 2) (02:40)
- 004. Aila - Ищу Тебя (03:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:30:08
+01. Taylor Swift - Blank Space
+02. Jeremy Fisher - Mother
+03. Air - Cherry Blossom Girl
+04. Alex Lloyd - Lonely Town(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 04:56:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA6D2481AF1C030667AD5E85B9B0A4A217278AAA
+magnet:?xt=urn:btih:C253D9D4927979D73EA0B1F0A955666E518CA61B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552259   (586688) от 21.05.2022
+###  Публикация: 1551936   (588965) от 18.05.2022
 
-VA - Laidback Acoustic (2022) [MP3|320 Kbps] <Pop>
+VA - Morning Motivation (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586688.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Laura Zocca - I Want You Back (2:46)
-002. The Mayries - I Love The Way You Love Me (3:23)
-003. Laurence O’Brien - There She Goes - Acoustic (2:55)
-004. Music Travel Love - Let Her Go (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 06:58:18
+01. Calum Scott - Rise (3:36)
+02. Kygo, X Ambassadors - Undeniable (3:00)
+03. Masked Wolf, Bebe Rexha - It’s You, Not Me (Sabotage) (2:56)
+04. Ed Sheeran - Overpass Graffiti (4:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE92482DC2899349036705357F8FF4C00317BC21
+magnet:?xt=urn:btih:748C61A17452F130E2F0443CDC87079811E30FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,173 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552202   (586681) от 21.05.2022
+###  Публикация: 1551686   (588916) от 18.05.2022
 
-Aria - The Best Of Aria (2019) [MP3|320 Kbps] <Classical, Classical Crossover>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ebben (4:43)
-02. Un Bel Di (5:15)
-03. Secret Tear (7:21)
-04. Ave Maria (4:26)(   Читать дальше...   )Жанр: Classical, Classical CrossoverПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03CB58F2FC8416ECD8BEA567C2A23225A72388B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551850   (586678) от 21.05.2022
-
-VA - I Prefer Rock (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
+VA - New Rock 2022 [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586678.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Популярные песни текущего года и хиты весеннего сезона, композиции мастеров rock и хард рок музыки а так же недавно обозначившихся новичков в жанре alternative и rock indie – все это вы найдете в очередном разно жанровом микс-сборнике "I Prefer Rock".001. 64 Nudos - Desde Las Cloacas
-002. Lazuli - L'homme Volant
-003. Maroon 5 - Convince Me Otherwise
-004. Leafblade - The Goddess(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 08:47:20
+001. Pabst - Locker Room (3:43)
+002. Machine Gun Kelly,blackbear - make up sex (feat blackbear) (2:02)
+003. DON BROCO - Fingernails (4:12)
+004. Adam Jensen - Chaos (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 05:49:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:917EF626C41CD85A6792EA9F0689216BE477530D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918390   (586675) от 15.07.2015
-
-VA - 100 Best Rock Ballads (2015) [MP3|256 кб/с]<Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Colours Red - Beautiful Day (Album Version)
-02. Saxon - Song for Emma (2010 - Remaster)
-03. Kingdom Come - Friends
-04. ZZ Top - Blue Jean Blues (Remastered Album Version)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 07:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDA89BB03F123182FB9E42F1751C8091E249E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551918   (586646) от 21.05.2022
-
-VA - Urban Glow: May Release Trance Set (2022) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вашему вниманию новую очередную майскую подборку отличной популярной электронной музыки в стиле Trance, которую только удалось найти на самых востребованных музыкальных площадках европы. Вас ждет целых сто двадцать качественных композиций для позитивного настроения.001. Sergo Bordo - Bright Lights
-002. Snydex - Ambition
-003. Rex Mundi - Nothing At All
-004. Kym Ayres - More & More(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0622455F64770CA2111AC0476688CDD98516BFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040576   (586549) от 05.08.2016
-
-VA - Futuretrance (2016) [MP3|320 Kbps] <Trance, Future Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicologik -  Lion from the North 5:47
-02. E&G -  Leamus 5:48
-03. Grant Saxena -  Backblast 6:33
-04. DJ Bismark & SDG -  Infinity (The Stars Remix) 5:47(   Читать дальше...   )Жанр: Trance, Future Trance, ProgressiveПродолжительность: 04:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D233D835FC1641D9E87F95BACD84CEFD7E2A5167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809768   (586421) от 02.08.2014
-
-Madonna - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masterpiece 2012
-02. Music 2000
-03. Hung Up 2005
-04. 4 Minutes (Feat. Justin Timberlake and Timbaland) 2008(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8DF397482B7F9B9CBCF23EB39AF78BBD404CF4
+magnet:?xt=urn:btih:9DC950E1693927CB66D2F7829BEF47B66431855B
 ```
 
 https://mybot314.ru/tekegram_catalog/

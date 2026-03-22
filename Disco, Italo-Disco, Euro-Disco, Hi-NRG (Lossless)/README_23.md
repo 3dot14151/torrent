@@ -1,3 +1,32 @@
+###  Публикация: 1679459   (138018) от 25.11.2023
+
+The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Nu-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Second Chance (feat. Kimberly Davis) (The Shapeshifters Reprise)
+02 – Bring On The Rain (feat. Joss Stone)
+03 – Slippery People (feat. Ramona Renea & Fiorious)
+04 – Finally Ready (feat. Billy Porter)(   Читать дальше...   )Жанр: Electronic, Disco, Nu-Disco, HouseПродолжительность: 2CD, 02:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC10AB3CAC5EFB2ECA89DBFEA4E2DC95E46E25A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679452   (137740) от 25.11.2023
 
 Baccara - When I'm With You (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Dance, Euro-Disco>
@@ -720,35 +749,6 @@ Kasper Bjorke - Puzzles (2024) [FLAC|Lossless|WEB-DL|tracks] <new disco, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFE26195A67CA7D3CFA0A079D82812990B116064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720484   (110334) от 03.05.2024
-
-Italove - I Finally Realized (2024) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Finally Realized
-02. I Finally Realized (Clayback Clay Remix Radio Edit) (feat. Clayback Clay)
-03. I Finally Realized (Vanello Remix) (feat. Vanello)
-04. I Finally Realized (Janousek Remix) (feat. Janousek)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF20CB2D81A4C0CC75A9B72A471CD8C359E1C750
 ```
 
 https://mybot314.ru/tekegram_catalog/

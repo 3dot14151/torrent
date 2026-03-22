@@ -1,3 +1,32 @@
+###  Публикация: 1357095   (975548) от 02.02.2020
+
+Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Mans 66 (05:42)
+02. Wide View (01:36)
+03. Driving in the Rain (01:52)
+04. Henry Ford the Second (00:45)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D7CF592B81294BFA83C50745ED8E325C4F2EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974735   (975474) от 12.01.2016
 
 The Piano Girls - Hey Guys, Listen to My Piano (2014) [MP3|320 кб/с] <New Age>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1720B062A974FF1FF948667554E119641A194BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975966   (970471) от 16.01.2016
-
-VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [MP3|320 кб/с] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ennio Morricone - L'Ultima Diligenza Di Red Rock (7:32)
-02. Ennio Morricone - Overture (3:11)
-03. Jennifer Jason Leigh, Kurt Russell, Samuel L. Jackson - "Major Warren Meet Daisy Domergue" (0:33)
-04. Ennio Morricone - Narratore Letterario (2:02)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714B0B750589E2691BD649F6609AAD757B92E413
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1294861   (625794) от 09.04.2019
+
+Sabrina - Boys: The Best Of Sabrina (2013) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Boys (Summertime Love) (Maxi Version) (5:47)
+02 Hot Girl (New Version) (3:29)
+03 All Of Me (Maxi Version) (5:16)
+04 Afraid To Love (4:46)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E6EF7DBB80548C11BC813DD196CE7536E21212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144830   (625635) от 23.06.2017
 
 Bad Boys Blue - House Of Silence (1991) [FLAC|Lossless|image + .cue] <Disco, Eurodance>
@@ -741,41 +770,6 @@ VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:232D7B8E6E71D10F7C0154EDE3275768EFB03E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806971   (594165) от 22.07.2014
-
-VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul (3:22)
-02. Modern Talking - You Can Win If You Want (3:46)
-03. Bonnie Tyler - Bitterblue (3:48)
-04. Blue System feat. Dionne Warwick - It's All Over (3:54)
-05. Blue System - Sorry Little Sarah (3:29)
-06. Touche - This Goodbye Is Not Forever (3:36)
-07. Millane Fernandez - Boom Boom (3:29)
-08. Isabel - Will My Heart Survive (3:01)
-09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
-10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4E2B1C06F5CF8327E40335EC6D95BC59823F87
 ```
 
 https://mybot314.ru/tekegram_catalog/

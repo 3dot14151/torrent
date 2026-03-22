@@ -1,3 +1,90 @@
+###  Публикация: 1204588   (784681) от 06.02.2018
+
+VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.3 (2018) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orecch - Parallel Realities
+02. Shyisma - Technology
+03. Beyond Within - Deep Fields (chrizzlix remix)
+04. Filtron Essence - Universal Psychedelic(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 03:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE6EC83DE290F3013189C8067E9A8F05DACF48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204573   (784659) от 06.02.2018
+
+VA - Deep House Collection Vol.156 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaliyah - Try Again (BeatBlasters Remix) 5:26
+02. Adamant & Darian Crouse - Love Me Strong (Original 530 West 27th Stree) 6:25
+03. Alex Kostadinov - Do The Thing (Original Mix) 5:47
+04. Alex Senna & Pimp Chic! - Talk Slow (Original Mix) 4:21(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFAFD9BB716F48A5F1A8713750E3C4713BBEBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204482   (784653) от 06.02.2018
+
+VA - Romantic Drum Vol 2 (2018) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Techstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WTRFALL – Lose (Original Mix)
+02. Delta Heavy, Dirty Audio, Holly – Stay (Maduk Remix)
+03. Onykia – When You’re Not You (Original Mix)
+04. Kaskade & Deadmau5 – Beneath With Me feat. Skylar Grey (Fearbace Bootleg)(   Читать дальше...   )Жанр: Drum & Bass, Drumfunk, TechstepПродолжительность: 03:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFAC3A896D983CC4E23B83208E37A102FA2EFE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204858   (784411) от 07.02.2018
 
 VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillelectro, Downtempo>
@@ -658,93 +745,6 @@ VA - Deep House Collection vol.157 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D508674DE3819708C08CA7D6D024B7E9AD750D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390972   (781843) от 18.06.2020
-
-VA - Chillout Top 100: The Best Relaxing Music (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781843.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. S.A.T feat. Angel Falls - Endless Summer (Alastair Pursloe Remix) 4:31
-002. Desib-L - It's Only Just (Last Midnight Train Remix) 5:09
-003. Iris Dee Jay feat. Maria Opale - For You (Rayan Myers Remix) 4:12
-004. VetLOVE - Voice (Dub Mix) 4:28(   Читать дальше...   )Жанр: Downtempo, ChillOut, Ambient, Deep-House, Balearic, Relax, ElectronicПродолжительность: 08:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4DCA7B9A390694F36DEF4707015393B58891E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206666   (781737) от 15.02.2018
-
-VA - Jammer Electro Mix: Dance Generation (2018) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781737.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Raul Del - I Like To Looking (Original Mix)
-002. Alfrenk - Lord (Original Mix)
-003. TekanismTheory - Black Force (Original Mix)
-004. Adrien Kepler - Following the Girl (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 11:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847C7860F8D4FDFF5767295C93C864F0F55DAB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206707   (781735) от 15.02.2018
-
-VA - Cryptic House 11 (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Deep House, Tech House, Tribal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nico Sun  -  Arra  7:35
-02.  Boshoco  -  Warda (Anatolian Sessions Remix)  6:48
-03.  Sous Sol  -  Gyaan  8:12
-04.  Quatri (Syr)  -  La Mer Orientale  8:03(   Читать дальше...   )Жанр: Deep House, Tech House, Tribal HouseПродолжительность: 03:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF63DF58DA7FE308493C9A1DBA17E04817A6F625
 ```
 
 https://mybot314.ru/tekegram_catalog/

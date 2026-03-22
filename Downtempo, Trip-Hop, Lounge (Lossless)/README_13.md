@@ -1,3 +1,61 @@
+###  Публикация: 1544936   (618391) от 17.04.2022
+
+VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Move (03:34)
+02. Martin Hiska - Shangla (03:40)
+03. Michael E - Lost In Thought (05:18)
+04. Beamy - Elmwood (04:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC737B4501B86FB899C881FA2560FC4A603702A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911034   (618169) от 22.06.2015
+
+VA - Vargo Lounge - Summer Celebration 3 (2015) [FLAC|Lossless|WEB-DL]<Lounge, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jayeson Andel - A Little Spaced (4:50)
+02. Kirsty Hawkshaw - Beautiful Danger (5:00)
+03. Klangstein feat. Nosie Katzmann - Within You (3:59)
+04. Vargo - Silver Lining (4:39)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4822076F28008E0D6144AF594394EFE707B756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295761   (617089) от 14.04.2019
 
 VA - The Beatless Collection Vol. 1 (2008) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Electro>
@@ -689,64 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A70DA2A89EB07171263B0B15AB70393CC1EC3C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303359   (572923) от 21.05.2019
-
-VA - Sweet Lounge Session Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stepo Del Sol - Summer Dreams
-02. Taco-Town - Con Su Permiso
-03. Mazelo Nostra - Memories Of Love
-04. Bob Zopp - Summer On The Strand(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018AD68CDD74B9EFA0EE66734F46E8F7C075F418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303476   (572914) от 21.05.2019
-
-VA - Sweet Lounge Session Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Dancing Waves (Original Mix)
-02. Lilli - Melody (Original Mix)
-03. Golden Tone Radio - On The Shore (feat Shed)
-04. James Butler - Floating Vibes (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCBCBC66ED5258B879B82DE2431FBCECDE9823C
 ```
 
 https://mybot314.ru/tekegram_catalog/

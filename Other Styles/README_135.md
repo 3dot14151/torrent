@@ -1,3 +1,148 @@
+###  Публикация: 1423905   (297751) от 14.11.2020
+
+Faith Hill - Take Me As I Am (1993) Warner 9 45389-2 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me as I Am (3:18)
+ 02. Wild One (2:45)
+ 03. Just About Now (2:57)
+ 04. Piece of My Heart (4:01)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17BA697B040A0EB222653BDDC66FE6D046CB57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423906   (297736) от 14.11.2020
+
+VA - Kontor Top Of The Clubs: The Biggest Hits Of The Year MMXX (2020) [MP3|320 Kbps] <House, Club-House, Deep-House>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VIZE & Joker Bra feat. Leony - Paradise [2:56]
+02. Dua Lipa - Physical (Alok Remix) [3:09]
+03. SAINt JHN - Roses (Imanbek Remix) [2:56]
+04. Joel Corry feat. MNEK - Head & Heart [2:46](   Читать дальше...   )Жанр: House, Club-House, Deep-House, Electronic, DanceПродолжительность: 06:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015B556F5A7BDB72886642E1CDFE5689D62489FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078786   (297663) от 02.12.2016
+
+Jean-Michel Jarre - Oxygene 3 (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene (Part 14) (5:28)
+ 02. Oxygene (Part 15) (6:40)
+ 03. Oxygene (Part 16) (6:50)
+ 04. Oxygene (Part 17) (4:21)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECCC94C78F8094EAD6724617F95FF899B417B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184838   (297157) от 19.11.2017
+
+Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps] <Country, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And Bobby McGee (Remastered) (4:29)
+ 02. Sunday Morning Coming Down (Remastered) (5:18)
+ 03. For The Good Times (Remastered) (3:57)
+04. The Silver Tongued Devil And I (Remastered) (3:34)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8ED73B9EA8A6781BB8D15B4618B390996489E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961342   (297106) от 03.12.2015
+
+NBA 2K9 Soundtrack (2008) [MP3|240-320 кб/с]<OST/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beastie Boys - Root Down (03:32)
+02. Blackwizard - Dem Nah Ready fe We (03:31)
+03. Blockhead - Duke of Hazzard (04:02)
+04. The Bloody Beetroots - Mac mac (04:00)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD723686050AEDE518013C8853229606ACADE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961547   (297105) от 03.12.2015
 
 NBA 2K13 Soundtrack (2012) [MP3|256-320 кб/с]<OST/Soundtrack>
@@ -600,148 +745,6 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector'
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47BC3A1568DFAD78765FCF58CE34C328A728EE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421265   (293728) от 11.12.2011
-
-Ритмы мира - Космический транс (2002) [FLAC|Lossless|tracks] <Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Создание (9:24)
-02. Эдем (8:28)
-03. Танец Огня (5:14)
-04. Синяя Планета, Часть Первая (8:36)(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C2ECF2FBAF88D49A52D6E5C0B0A4A3418A1DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962515   (293513) от 05.12.2015
-
-VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crab Nebula - Indira Bula
-02. Ishtar's Song - Barenan
-03. Aldebaran Eye of the Taurus - Gita Davi
-04. The Pleiads - Sarala Rati(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF590ED2A910EC6E5185EBAD021D5F6C3A33D75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962523   (293504) от 05.12.2015
-
-VA - Ethereal Dreams Vol. 2 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jekha - Light of Fire
-02. Albena - Alnasi
-03. Sangmo - Chort
-04. Dalai Surama - Mystic Gold(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB3B73E35B110DDC53D48159F35C90A82654D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185483   (293491) от 21.11.2017
-
-Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293491.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Doorway to Bliss
-2. Open The Heart
-3. Alive and at One
-4. Connecting with The Divine(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED62064E7070DDD72DEA03998459292FBD6037E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266070   (293390) от 11.12.2010
-
-Отбросы / Misfits (2009) [MP3|128-320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 03:29:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

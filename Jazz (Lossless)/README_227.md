@@ -1,3 +1,177 @@
+###  Публикация: 964544   (282423) от 11.12.2015
+
+VA - Blue Note Live At The Roxy Vol. 1 (Alphonse Mouzon, Ronnie Laws, Donald Byrd) (1976) 2012, EMI Music[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alphonse Mouzon - New York City [05:34]
+ 02.Alphonse Mouzon - Just Like The Sun [04:19]
+ 03.Alphonse Mouzon - Without A Reason [08:02]
+ 04.Ronnie Laws - Captain Midnight [04:49](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311A1096E32A4B7DBBD8F1923EDD2069F2F08486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964482   (282234) от 11.12.2015
+
+Paul Hardcastle - The Collection (2009) [FLAC|Tracks+cue]<Nu Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Circle
+02. Dancing Lights
+03. Northern Lights
+04. You May Be Gone(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChilloutПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EAF27A6176E3C9B2287A164931E8A32D684F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264382   (281247) от 23.11.2018
+
+Connee Boswell - Connee Boswell And The Original Memphis Five in Hi-Fi (1956) 2007, BMG [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When My Sugar Walks Down the Street [2:44]
+02. Say It Isn't So [3:24]
+03. At the Jazz Band Ball [2:43]
+04. Japanese Sandman [2:28](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E38E9F28386B6580AB8DF18F4BD302FA2D6B981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082030   (281124) от 11.12.2016
+
+George Cables - Cables Vision (1979) 1992, Original Jazz Classics[FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Morning Song [06:51]
+ 02.I Told You So [08:58]
+ 03.Byrdlike [08:51]
+ 04.Voodoo Lady [06:05](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC43A988885532F920F1C68206AC1D519E5B0374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264380   (281093) от 23.11.2018
+
+Acoustic Alchemy - Thirty Three and a Third (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East of Babylon
+02. Carmen's Man
+03. The Swallow's Tale
+04. Thirty Three and a Third(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0438AA1BD56033A5888EE15EEDC68B5D0CABEBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964890   (281065) от 12.12.2015
+
+Jerome Cooper - In Concert. From There To Hear (2001) Mutable Music[APE|tracks+.cue]<Modern Creative, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bantul [06:27]
+ 02.Monk Funk [15:10]
+ 03.My Funny Valentine [15:00]
+ 04.My Life [16:20](   Читать дальше...   )Жанр: Modern Creative, World FusionПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C90DDCFE461A7FA2352A4C26A2A6FE7E3BE0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081576   (281054) от 11.12.2016
 
 VA - The Art Of Jazz: The Traditional & The Modern Sound (1991) 2CD, Jazz Life[FLAC|Lossless|image + .cue] <Dixieland, Swing, Bop, Hard Bop, Big Bang>
@@ -571,180 +745,6 @@ Bodil Niska - Night Time (2008) Bare Jazz Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC2F47207C59D57A2683D613984596CCFC0D8FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187572   (278860) от 29.11.2017
-
-Charles Mingus - The Complete 1960 Nat Hentoff Sessions 3CD, 2016, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278860.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Folk Forms No.1 [13:06]
-02. Original Faubus Fables [09:08]
-03. What Love [15:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EFC0C373B8130CF32C2A06260774E73BF4479D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264856   (277919) от 25.11.2018
-
-Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.1 (2000) Egea [FLAC|Lossless|image + .cue] <Jazz-Rock, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up from the Skies [9:34]
-02. Orange Was the Colour of Her Dress Then Blue Silk [8:34]
-03. Subway [13:43]
-04. Orgone [11:20](   Читать дальше...   )Жанр: Jazz-Rock, Jazz FusionПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8682ACB2579AC66D7E0009B4B47F5052BCCED55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264857   (277918) от 25.11.2018
-
-Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.2 (2000) Egea [FLAC|Lossless|image + .cue] <Jazz-Rock, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Free [18:16]
-02. Little Wing [21:15]
-03. Wake Up [6:32]
-04. There Comes a Time [12:44](   Читать дальше...   )Жанр: Jazz-Rock, Jazz FusionПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66419D6C67365DD1B78BDAEE9FBCF3149791CFF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264860   (277916) от 25.11.2018
-
-Gil Evans - The Honey Man (1986) 1994, New Tone Records [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Stop Shuffle [3:43]
-02. Sudway [16:38]
-03. Goodbye Pork Pie Hat [10:25]
-04. Voodoo Child (Slight Return) [8:22](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80C3C28F368074B4015EF5EAA9A44DEDA4FBF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264868   (277913) от 25.11.2018
-
-Jiro Inagaki - Woodstock Generation (1970) 2009, P-Vine Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening [2:38]
-02. Woodstock [4:30]
-03. I Want to Take You Higher [3:49]
-04. Mama Told Me [2:41](   Читать дальше...   )Жанр: Jazz-Funk, Jazz-RockПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B828303A1834D46CB25BB907E92CD6FE0F8D582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264895   (277721) от 25.11.2018
-
-Tanja Raich - Twenty-Four Reasons (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – What Child Is This?
-02 – God Rest Ye Merry Gentlemen
-03 – Christmas Cards
-04 – Es Wird Scho Glei Dumpa(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A34442DCB5C0CE7BE9043C4D3BF6E7E5563CF60
 ```
 
 https://mybot314.ru/tekegram_catalog/

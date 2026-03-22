@@ -1,3 +1,148 @@
+###  Публикация: 1796954   (66907) от 13.05.2025
+
+VA - Sounds Like Summer, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva Scolaro & Steen Thottrup - One (Calmabohain Extended Mix) (05:27)
+02. Tom One - Deeper & Deeper (03:15)
+03. Lemongrass - Got It On The Dancefloor (04:52)
+04. Cataldo - Summernight (04:30)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC6BC010B6EC52B4214BCFED333182875CE8FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796940   (66906) от 13.05.2025
+
+VA - 25 Years Of Anjuna Mixed By Durante (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (00:58:50)
+01. Dusky - Stick By This (Mixed) (05:13)
+02. Ben Böhmer & Malou - Lost In Mind (Volen Sentir Vision Mixed) (04:28)
+03. Khen - Yellow (Mixed) (07:04)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971BE99E933133E63ABF18AAD15F66C139D846C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797793   (66720) от 18.05.2025
+
+VA - Deep House Touch 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leveled Bridge - My Friend (Deep Mix) [02:43]
+02. Dusty Rockers - Tell Me Why (Deep Mix) [03:14]
+03. Paolo Maserati - Symphony (Dave Burn Remix) [02:57]
+04. Gordon Dogs - All The Time (Original Mix) [02:59](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350EEAF823B7681A8206BC7435C776A4216F7DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798706   (66586) от 24.05.2025
+
+VA - Kings of Ibiza 2025 (Real Deep Touch Downs) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenhya - In the Ocean (Summer Dub Mix) (02:18)
+02. Calmabohain - Take Me Away (03:26)
+03. Lemongrass - Easy Rider (05:14)
+04. Mia Lemar - Drop by Drop (04:35)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAF04FC58E94420EEE45530E1C787184BBB9970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799196   (66516) от 26.05.2025
+
+VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup & Kaia Mainz - Dreamers (daZZla Deep Remix) (06:14)
+02. Living Room - Fisheye (Pearldiver Deep Edit) (03:29)
+03. Calmabohain - Never Forget (03:25)
+04. Mia Lemar - Squire Of Desire (HerbLF Close To Dub Mix) (06:34)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799348   (66485) от 27.05.2025
 
 VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -600,151 +745,6 @@ VA - Deep-House Heaven, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:444099AE2B702C4B6279DF892CECBD8C3EA2FE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717830   (58650) от 24.04.2024
-
-VA - Sirup Ibiza 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INAMAR - Dolce Vita (Extended Mix) [4:21]
-02. MADDS - No Name (Extended Mix) [3:33]
-03. Vito V - Fast Love (Extended Mix) [5:22]
-04. Jordan Levit - Holding On (Extended Mix) [3:20](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC81E754212B6DE485AFDAA03A401FCADB83AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721453   (57294) от 07.05.2024
-
-VA - Best Of EDM Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Good Day (02:34)
-02. Teknova - Gimme! Gimme! Gimme! 2k24 (02:35)
-03. JLuis - Parachute (02:48)
-04. Stephan F & Ya-Ya - No Broken Heart (03:09)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2289B5FAB73989B19597B035386E37BB157606F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722503   (56876) от 11.05.2024
-
-VA - Déepalma Ibiza 2024 (2024) [MP3|320 Kbps] <House, Deep House, Progressive House, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G Club - Guitarra G (Afterlife Remix) (05:50)
-02. Gorge - Higher (Club Mix) (06:02)
-03. Green George - For You (Extended Mix) (06:56)
-04. Flowers on Monday - Another Day (Original Mix) (07:29)(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Organic HouseПродолжительность: 08:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD10DB6C8E8E20B13D3A77704212920A4D51CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722675   (56774) от 12.05.2024
-
-VA - The Dreamers, Vol. 01 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blex (AR) - Sueños (07:36)
-02. Bagsol - Hastío (07:39)
-03. Nicolas Soria - Last Forever (07:57)
-04. Paul Losev - A Guardiaün (06:37)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520058384410E4EDAD9455B1A2B91BC111979823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725607   (55472) от 25.05.2024
-
-VA - Best Of the Spring 2024 [MP3|320 Kbps] <Progressive House, Melodic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha Sound - Deliverance (Original Mix) (6:32)
-02. Invisible Signs - Astrasia (Original Mix) (8:42)
-03. ppdee & Asida Aya - Bubbles (Extended Mix) (7:56)
-04. Asida Aya - Variation (Original Mix) (5:58)(   Читать дальше...   )Жанр: Progressive House, Melodic HouseПродолжительность: 01:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8742BFD93515EF28662DDD5EE57A12BDE147CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

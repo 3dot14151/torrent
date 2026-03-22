@@ -1,3 +1,125 @@
+###  Публикация: 904389   (655467) от 02.06.2015
+
+Nekrogoblikon - Heavy Meta (2015) [MP3|320 кб/с]<Melodic Death Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of Infinity
+02. We've Had Enough
+03. Bring Us More
+04. Snax & Violence(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9052F8B1D2804E294063AC4DA3ED3470E1D25291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515790   (654830) от 27.06.2012
+
+Vaura - Selenelion (2012) [MP3|320 кб/с]<Experimental Psychedelic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654830.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Souvenirs (4:43)
+ 2.Drachma (4:22)
+ 3.The Emanation (4:48)
+ 4.En/Soph (5:11)
+ 5.Relics (4:48)
+ 6.Obsidian Damascene Sun (4:46)
+ 7.Uncreated Light (Transfiguration) (4:33)
+ 8.The Column's Vein (2:29)
+ 9.Vanth (5:29)
+ 10.Selenelion (7:02)(   Читать дальше...   )Жанр: Experimental Psychedelic MetalПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE6CBEC5CB3725BF162F2AF395A468BBB89B6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227048   (652348) от 23.05.2018
+
+Icon - Icon (1984) Reissue, 1993, Capitol Records [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652348.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. (Rock On) Through The Night
+2. Killer Machine
+3. On Your Feet
+4. World War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C29058AA12FAE0CBD848E9DEED8EE3A1B7D42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031358   (652160) от 04.07.2016
+
+Warfect - Scavengers (2016) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purveyors Of Cadavers
+02. Reptile
+03. Anatomy Of Evil
+04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1BA0067804D2A3C688BDA43F67A62F67473594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031620   (652151) от 04.07.2016
 
 Divine Intervention - Traveler (2016) [MP3|320 Kbps] <Heavy Metal>
@@ -641,126 +763,6 @@ Embryo - Embryo (2015) [MP3|320 кб/с]<Melodic/Symphonic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A6142600ED3640AF03DDB6A53E1651E1F6A1B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141802   (648505) от 11.06.2017
-
-Carach Angren - Dance And Laugh Amongst The Rotten (2017) Deluxe Edition [MP3|320 Kbps] <Sympho Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening
-2. Charlie
-3. Blood Queen
-4. Charles Francis Coghlan(   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC35D260A697B51E2ABC5D1DFD7D917547D31099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292273   (648393) от 28.03.2019
-
-Rammstein - Deutschland (2019) Single [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648393.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deutschland
-2. Deutschland (Rmx by Richard Z. Kruspe)Жанр: Industrial MetalПродолжительность: 00:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C60E269E8EAAD4D900543E5ABEECA0F5F6978C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517573   (648023) от 01.07.2012
-
-The Prophecy23 - Green Machine Laser Beam (2012) [MP3|320 кб/с]<Melodic Death Metal/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tough Cool and Here to Mosh 00:40
-02. Ice Road Trucker Vs the Sun 03:45
-03. Don't Step Back 03:04
-04. Beyond the Purple Pipes 03:43
-05. Green Machine Laser Beam 03:36
-06. Sergeant P of the 23 00:18
-07. We Are the Pit Police 03:37
-08. Wake Me Up for Lunch 03:57
-09. Honor to Whom, Honor Is Due 04:12
-10. Captain Quick and the Pirates 04:07(   Читать дальше...   )Жанр: Melodic Death Metal/Thrash MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018E2935E30932767B280B07E8DB5F01827C3DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905825   (647957) от 07.06.2015
-
-Secrets Of The Sky - Pathway (2015) [MP3|320 кб/с]<Post-Metal, Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647957.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I
-2. Three Swords
-3. II
-4. Angel In Vines(   Читать дальше...   )Жанр: Post-Metal, Doom Metal, Progressive MetalПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C3D9AA587D886322C00831CF708035C706D52E
 ```
 
 https://mybot314.ru/tekegram_catalog/

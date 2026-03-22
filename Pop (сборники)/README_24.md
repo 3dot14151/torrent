@@ -1,3 +1,32 @@
+###  Публикация: 1114129   (834996) от 13.03.2017
+
+VA - Hits Cocktail Vol.3 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charming Horses Feat. Jona Bird - Follow (Radio Edit)
+02. Kygo & Selena Gomez - It Ain't Me
+03. Krono feat. Paul Kostick - You're Beautiful (Extended Mix)
+04. Anne-Marie - Ciao Adios(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4771F9CF7644AA93A962088FE2DBB66E94322AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379985   (834978) от 02.05.2020
 
 VA - NEW от Виталия72  (1) (2020) [MP3|256-320 Kbps] <Поп, Дансе>
@@ -722,35 +751,6 @@ VA - Положительный заряд отличного настроени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52B0033A5472EE26178597ECD3D1FD4998D20EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115552   (826656) от 18.03.2017
-
-VA - Отдыхаем с лучшими хитами. Звездная тусовочка выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Usher - Wait For It 3:29
-002. Great Good Fine Ok - Get Away 3:27
-003. Jojo - Vibe 3:08
-004. Ани Лорак - Сопрано 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C6B66E56B1AC8029192543F96D564ADF9CF2E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

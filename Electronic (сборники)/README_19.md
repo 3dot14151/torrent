@@ -1,3 +1,61 @@
+###  Публикация: 1357892   (971916) от 05.02.2020
+
+VA - Catalyst: Basslife DnB (2020) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971916.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. L.E.G.E.N.D. - Like That (Original Mix)
+002. Fuj - Deep Exile (Original Mix)
+003. Battery - Transistor Bass
+004. Smuggler Feat. Dubflex - Be Careful(   Читать дальше...   )Жанр: Drum And Bass, Bassline, DubstepПродолжительность: 07:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0963CC3D9F66D7AA471B9782368D2CE87D599CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357771   (971907) от 05.02.2020
+
+VA - Luxury Deep House (2020) [MP3|320 Kbps] <Deep, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971907.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Renato Gratis - Wolf (Original Mix)
+002. Nnatn - Lost (Original Mix)
+003. Re.You - Work It Now
+004. The Loop - Take Control (Pacific Time Mix)(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 11:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A179F5FFAA957F95DAB14F28CA2D2BE02F2614FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357894   (971900) от 05.02.2020
 
 VA - Trap Sound: Experimental Electronic (2020) [MP3|320 Kbps] <Electronic, Synth, Techno>
@@ -709,64 +767,6 @@ VA - Soul At Rest: Ambient Atmosphere (2020) [MP3|320 Kbps] <Ambient, New Age, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE366846497E0345D7289ED476410596741969F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358996   (966286) от 10.02.2020
-
-VA - Flow Of Feeling: Electro House Party (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966286.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luciano Scheffer - Baj (Monojoke Remix)
-002. Esee Free - Stronger (Original Mix)
-003. Club Shakerz - Lose Control
-004. Jaga - Back To Love(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89170A2750D2FF8EEC77CB94E26F5C3E8C51B0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359080   (966276) от 10.02.2020
-
-VA - Beatport Tech House: Pack Electro Sound #09 (2020) [MP3|320 Kbps] <Deep, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worldtraveller - Ocean Motion
-02. Christopher Lake - Rescue You (Original Mix)
-03. Schneider & Haze - Si Balla
-04. Sergio Wos - Filling Me Up(   Читать дальше...   )Жанр: Deep, Tech House, ElectroПродолжительность: 04:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC4732D38D05B6C015E318FD632BDF627EF437B
 ```
 
 https://mybot314.ru/tekegram_catalog/

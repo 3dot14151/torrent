@@ -1,3 +1,119 @@
+###  Публикация: 924214   (558952) от 03.08.2015
+
+Xandria - Fire & Ashes (2015) EP [MP3|320 кб/с]<Symphonic Metal, Power Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Voyage Of The Fallen
+2. Unembraced
+3. In Remembrance
+4. I Would Do Anything For Love (But I Won't Do That) (Meatloaf Cover)(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Gothic MetalПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E5C0DD0CAC2597A9BFBDD6DBFDE0F8DD16BE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235591   (558668) от 12.07.2018
+
+Chelsea Grin - Eternal Nightmare (2018) [MP3|320 Kbps] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Rose
+02. The Wolf
+03. Across the Earth
+04. See You Soon(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEF6D5DA29340733CED87ABCBFE6DAFF58269E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045841   (557827) от 24.08.2016
+
+Running Wild - Rapid Foray (2016) Limited Edition [MP3|320 Kbps] <Heavy, Power, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Skies, Red Flag
+02. Warmongers
+03. Stick to Your Guns
+04. Rapid Foray(   Читать дальше...   )Жанр: Heavy, Power, Speed MetalПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F063237E7C68F27DF801D139DFF12C7C911D11BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153699   (557811) от 27.07.2017
+
+Paradise Lost - Medusa (2017) Limited Edition [MP3|320 Kbps] <Doom-Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557811.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fearless Sky
+2. Gods Of Ancient
+3. From The Gallows
+4. The Longest Winter(   Читать дальше...   )Жанр: Doom-Death Metal, Gothic MetalПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9AAB627A11F1819A99096CC7B9E74EBB50E970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924563   (557673) от 04.08.2015
 
 Hibria - Hibria (2015) Japanese Edition [MP3|320 кб/с]<Power Metal>
@@ -629,122 +745,6 @@ Dee Snider - For the Love of Metal (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C4A401F01681D748E44C7E23ADF651F0210C2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211883   (549569) от 26.07.2018
-
-Nightwish - Decades (2018) 2CD Compilation [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549569.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. The Greatest Show on Earth (Remastered)
-02. Élan (Remastered)
-03. My Walden (Remastered)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 02:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E8E60873004404A1696431DC2A9DC7CADDD21A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047978   (548354) от 31.08.2016
-
-My Regime - Dogmas (2016) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Black Stone
-02. A.A.
-03. Mind the Gap
-04. Darkness Will Arise(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B83EB12A8C11BF59638925CD0020BB344CE71B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547421   (547610) от 28.08.2014
-
-Dio - Singles Box Set (2012) Anthology [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of Rock 'N' Roll (Live at Intermission, 1986)
-02. Rainbow In The Dark (Live at Intermission, 1986)
-03. Sacred Heart (Live at Intermission, 1986)
-04. Time To Burn (Live at Intermission, 1986)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 03:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95304DB8B9EA957FD2DD3042D2C26B5BB38FD9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048337   (547425) от 01.09.2016
-
-Vicious Rumors - Concussion Protocol (2016) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская метал-группа VICIOUS RUMORS, основанная в 1979 г. Джеффом Торпом, выпустила новую работу, получившую название "Concussion Protocol" на SPV/Steamhammer. Продюсером материала был гитарист коллектива, Geoff Thorpe и звукорежиссер Juan Urteaga, работы проходили в студии Trident (MACHINE HEAD, TESTAMENT, HEATHEN, EXODUS, DRAGONLORD). В качестве (   Читать дальше...   )01. Concussion Protocol (04:56)
-02. Chemical Slave (05:51)
-03. Victims Of A Digital World (04:13)
-04. Chasing The Priest (04:14)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5A17A164DEEF7F1220A92F01F7FE7126DD3D04
 ```
 
 https://mybot314.ru/tekegram_catalog/

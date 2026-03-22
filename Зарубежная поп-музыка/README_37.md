@@ -1,3 +1,119 @@
+###  Публикация: 1296660   (610327) от 18.04.2019
+
+VA - Indie Country Folk (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Whitehorse – Old Oak Tree [03:20]
+02. David Lawrence – Night Calling [02:50]
+03. Harriet Whitehead – Breaking All the Ties [03:18]
+04. Tom Whitehorse – Lovers Tomb [03:25](   Читать дальше...   )Жанр: PopПродолжительность: 01:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00875467475188F10434567495AA40A1076ECA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296595   (610326) от 18.04.2019
+
+Nicklas Sahl - Planets (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Killed Your Night
+02. Cut Me Loose (feat. SKAAR) - Acoustic
+03. Planets
+04. New Eyes(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD5CAD7AF99C61A7C1C03D06E21956BAE029160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296585   (610256) от 18.04.2019
+
+Beyonce - Homecoming: The Live Album (2019) [MP3|320 Kbps] <Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome (Homecoming Live)
+02. Crazy In Love (Homecoming Live)
+03. Freedom (Homecoming Live)
+04. Lift Every Voice and Sing (Homecoming Live)(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 01:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F110A99FDCA7EC4FF9DF0E5F4671E9BB293BC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296728   (610243) от 18.04.2019
+
+VA - NOW Thats What I Call Music! 2 (2019) [MP3|320 Kbps] <Synthpop, Reggae, Dancehall>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610243.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Queen - Radio Ga Ga
+02. Nik Kershaw - Wouldn't It Be Good(   Читать дальше...   )Жанр: Synthpop, Reggae, DancehallПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4A1A7AD7EE6004D90C2BCDA587EC4F8DD116E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146652   (609490) от 02.07.2017
 
 The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
@@ -631,125 +747,6 @@ VA - DMC Dance Mixes 299 Ibiza (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29AFA0F1729B248201C525B272A5957674AD4517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231868   (602767) от 22.06.2018
-
-VA - 50 Jahre Discofox (2018) [MP3|320 Kbps] <Disco, Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602767.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Anna-Maria Zimmermann - Tanz (DJ Echolot Mix)
-02. Annemarie Eilfeld - Dein Herz ist eine Geisterstadt (Radio-Edit)(   Читать дальше...   )Жанр: Disco, Pop, SchlagerПродолжительность: 01:16:53
-
-01. Thomas Anders - Love is in the Air (Radio Version)
-02. Bad Boys Blue - Come back and stay(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F9320528AFED6B52F4D265E1FCBD705251FC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297679   (602669) от 25.04.2019
-
-Chrysta Bell - ThisTrain (2011) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Train
-02. Right Down To You
-03. I Die
-04. Swing With Me(   Читать дальше...   )Жанр: Nuar, Trip-Hop, BlueПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2437F452DE986C2D25569BE3DD92368F84CE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547438   (602468) от 29.04.2022
-
-VA - DMC Essential Club Hits 188 (2022) [MP3|320 Kbps] <House, Tech House, Techno, Electro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer - Take Me Out (Extended)
-02. Bolier & Moya - Cold Tonight (VIP Extended)
-03. Burns - Talamanca (Robin Schulz Extended Remix)
-04. Dario D'Attis & Dani Koenig Ft Ron Carroll - Come Back (Original)(   Читать дальше...   )Жанр: House, Tech House, Techno, Electro HouseПродолжительность: 01:18:46 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A43B6A33860A95BB84B6A29BC07F7D4B113DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547457   (602378) от 29.04.2022
-
-VA - Billion Sellers - The Best Of DMC (Classic Mixes) (Vol.1) (2022) [MP3|320 Kbps] <Rock & Roll, Disco, Dance-pop, Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beatles - Ultimate Beatles Mix (Part 2 & 3) (Mixed By Kevin Sweeney)
-02. Elvis Presley - Elvis Presley Megamix (Brian Butler & Sharon Fisher)
-03. Michael Jackson - DMC 25 Years On Sony Megamix (Part 2 & 3) (Mixed By Rod Layman)
-04. Elton John - Elton John Megamix (Part 1 & 2) (Mixed By Rod Layman)(   Читать дальше...   )Жанр: Rock & Roll, Disco, Dance-pop, BeatПродолжительность: 01:19:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9EB5879299C871E35C89F979655FDB3E238165
 ```
 
 https://mybot314.ru/tekegram_catalog/

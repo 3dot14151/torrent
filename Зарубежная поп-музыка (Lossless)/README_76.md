@@ -1,3 +1,235 @@
+###  Публикация: 1270204   (214215) от 18.12.2018
+
+VA - Now That's What I Call Merry Christmas (2018) [FLAC|Lossless|tracks + .cue] <Pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем ближе новогодние праздники и Рождество, тем чаще задумываемся, а что к столу за музыкальное сопровождение будет. Кто-то смотрит телеэкзерсизы с басковыми и прочими дублируемыми на каждом канале, а кто-то загодя подбирает музычку по душе. Ведь Новый год и Рождество праздники для души. Чтоб помочь таким искателям, предлагаем вот этот свеженький сборник.01. Justin Bieber - Mistletoe  (3:02)
+02. Ariana Grande - Winter Things  (2:37)
+03. Pentatonix - Mary, Did You Know  (3:19)
+04. Sam Smith - Have Yourself a Merry Little Christmas  (2:42)(   Читать дальше...   )Релиз состоялся: 6 октября 2018 г.Жанр: Pop, rockПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9940BA00180FF74CE3BA9AC5730F2BD44289A667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344111   (213621) от 09.12.2019
+
+Vanessa Paradis - Best Of & Variations (2019) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <French Pop, Pop-Rock, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angora (2:08)
+02. Dans l'univers (4:07)
+03. Le baiser (4:10)
+04. Tu me manques (pourtant tu es là) (4:15)(   Читать дальше...   )Жанр: French Pop, Pop-Rock, Chanson |Продолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92DE99B0ABD151B0A68076A195926BA7C4382F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960836   (213562) от 18.08.2023
+
+Скрябiн та Проекти Кузьми (Скрябин) - 18 Albums + 6 Single + 2 Live's + Compilation & Remixes (1995-2019) [APE, FLAC|Lossless|image + .cue, tracks + .cue, tracks] <Alternative Pop, Rock, Syn ...
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213562.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Скрябін» - український музичний гурт, що за час своєї творчої активності пройшов шлях від дарквейву, синті-попу, постпанку і техно до нової романтики та поп-року. Склад гурту також неодноразово змінювався. Єдиним постійним учасником колективу з часу його заснування і до своєї смерті був Андрій «Кузьма» Кузьменко. Як правило, музику гурту поділяють на «старий» (приблизно (   Читать дальше...   )1995 - Птахи
+1997 - Казки
+1997 - Мова Риб
+1999 - Технофайт(   Читать дальше...   )Жанр: Alternative Pop, Rock, Synth Pop |Продолжительность: 33:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0B57345681070F32141AB8BF006898DB911565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 281546   (212277) от 22.07.2022
+
+Riccardo Fogli - I Grandi Successi (2008) 2CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_212277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storie Di Tutti I Giorni
+02. Che Ne Sai
+03. Se L'amore Sei Tu
+04. Tu Cosa Fai Stasera(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19961003A615EF5597453B61AC85D549C562DB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638140   (212056) от 07.06.2023
+
+VA - Pop Blockbusters 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_212056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troye Sivan - Angel Baby
+02. Shawn Mendes - Treat You Better
+03. Maroon 5 - Animals
+04. The Weeknd - Out of Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DBE4A405EFF39C1856AD42BC36505B4AF20E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029091   (211420) от 01.08.2022
+
+Joe Dassin - 23 Succes (1989) [APE|Lossless|image + .cue] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'ete indien
+02. La fleur aux dents
+03. Marie-Jeanne
+04. Les Champs-Elysees(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C7D2D65E9895E1AC1E0740FD8968425D8BC7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640367   (211221) от 17.06.2023
+
+Texas - The Very Best Of 1989 – 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say What You Want
+02. Black Eyed Boy (Radio Edit)
+03. Inner Smile
+04. Mr Haze(   Читать дальше...   )Жанр: Alternative Pop, Pop RockПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE6D1B7B25C8D54E9502F9FEBBBFFCEEED3FFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602506   (210771) от 05.01.2023
+
+Madonna - The Universal (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dress You Up (5:19)
+02. Holiday (6:16)
+03. Into The Groove (5:17)
+04. Everybody (6:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AF379D794A5DE92362AD33D9A7FA65383DC6B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645138   (209409) от 08.07.2023
 
 Taylor Swift - Speak Now (Taylor's Version) (2023) 2xCD [FLAC|Lossless|tracks + .cue] <Country, Pop Rock>
@@ -513,238 +745,6 @@ Dresden China - Dresden China (1986) 2010 Reissue, Remastered, DWS Records [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD697BADCECE202F87FD0CD571F581B8BA8699F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654776   (204655) от 24.08.2023
-
-Requiem - POPulist Agendas (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tired, Hot and Bothered [00:04:11]
-02. Suddenly I Have A Dreadful Urge To Be Happy [00:03:17]
-03. Things That Mark Twin Didn't Say [00:03:33]
-04. I Can't Help But Feel I'm Starting To Lose The War [00:03:59](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87B952E82CC23669A7158E5CD3AAAD1DF816CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655297   (204485) от 25.08.2023
-
-Supermax - Meets The Almighty (1981) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As There Is You
-02. Tonight
-03. Hammer
-04. Today I Fall In Love Again(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4D050E6FDE30DD6ECC6FAFD1605DBE62029CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656815   (202877) от 01.09.2023
-
-VA - Best Summer Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Travolta - Summer Nights (From “Grease”) (3:34)
-02. Klangkarussell - Sonnentanz (6:02)
-03. Paenda - Second Summer (2:46)
-04. Michel Teló - Ai Se Eu Te Pego (Ao Vivo) (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 04:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9259980BBD8BA86B57DAA754DFA1D1C66993B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613860   (202560) от 20.02.2023
-
-VA - 80s Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaka Khan - Ain't Nobody (4:05)
-02. Michael McDonald - I Keep Forgettin (Every Time You're Near) (3:42)
-03. Tina Turner - The Best (5:29)
-04. Fleetwood Mac - Little Lies (2018 Remaster) (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 03:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4291B4DD394CE96B79BA37192B33B16E0D63F9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613739   (202554) от 20.02.2023
-
-Mylene Farmer - L’emprise (2022) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двенадцатый студийный альбом. В музыке Милен Фармер всегда было много печали, но на «L’Emprise» она зашкаливает. Это ее личный, откровенный альбом.01. Invisibles
-02. À Tout Jamais
-03. Que L’aube Est Belle
-04. L’emprise(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D341659188EC9A9704BE4356D67C252421E4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197681   (202294) от 22.08.2023
-
-Toto Cutugno - Maestro Collection (2012) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenata (3:52)
-02. L'italiano (4:01)
-03. Donna, donna mia (3:04)
-04. Solo noi (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A0B8BC903C0C980318241D24947E7578764D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618809   (201330) от 13.03.2023
-
-VA - Pop Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ed Sheeran - Bad Habits                                 [03:50]
-2. Bruno Mars - Leave the Door Open                        [04:02]
-3. Dua Lipa - Levitating                                   [03:23]
-4. David Guetta - I'm Good (Blue)                          [02:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC82F867CEEE239BF83DF72BAF764E89A265B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489422   (200754) от 27.03.2023
-
-Kim Wilde - Pop Don't Stop (Greatest Hits) [2CD] (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Second Time (7' Version)_ (3:47)
-02. Never Trust A Stranger (7' Version)_ (4:06)
-03. Million Miles Away (7' Version)_ (4:13)
-04. Another Step (Closer To You) (7' Version)_ (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E758976084362D4B595D6F233D086C9211EC06C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

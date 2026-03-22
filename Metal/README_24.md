@@ -1,3 +1,32 @@
+###  Публикация: 1110491   (852023) от 03.03.2017
+
+Emmure - Look At Yourself (2017) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Asked for It (01:32)
+02. Shinjuku Masterlord (03:09)
+03. Smokey (02:01)
+04. Natural Born Killer (02:38)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA1E61A1CD018E9D0CB984A9628183A72CBBDF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110509   (851919) от 03.03.2017
 
 Sinister - Syncretism (2017) [MP3|320 Kbps] <Death Metal>
@@ -710,35 +739,6 @@ Bastian - Rock Of Daedalus (2016) [MP3|320 кб/с] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:281FF72278B59B75B4A86B69C0219A8D320D3CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003886   (841864) от 04.04.2016
-
-Papa Serpiente - Rock Evolution (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841864.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Rebirth
-3. Angel Of Mine
-4. Face The Truth(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04AC00FD10A47E43819A00D93AF77066A2D6883B
 ```
 
 https://mybot314.ru/tekegram_catalog/

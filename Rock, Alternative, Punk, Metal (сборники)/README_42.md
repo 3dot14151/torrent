@@ -1,3 +1,235 @@
+###  Публикация: 1434132   (153556) от 23.12.2020
+
+Ivanhoe - Last Warning (2020) 2xCD, Compilation, Japan Edition [MP3|320 Kbps] <Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153556.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Symbols Of Time (05:53)
+ 02. Human Letargo (06:12)
+ 03. No Sorrow (04:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC072BBC03062906D1C0B29BFC52B207948CDB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434222   (153246) от 23.12.2020
+
+VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это возвращение к ушедшим ощущениям музыкантов: от чувства единения с природой до личных эмоций. Это реинкарнация ранних мелодий, которые звучат по-другому в постоянно меняющемся мире вокруг нас. Мелодические эмоции похожи на дежавю - вы ранее уже чувствовали что-то подобное, но эти ощущения новые, еще более воодушевляющие.001. Fire In The Radio - Rewind
+002. Fours - Is This The Night
+003. Lewis Capaldi - Fade
+004. Tim Burgess - Empathy For The Devil(   Читать дальше...   )Жанр: Rock Indie, AlternativeПродолжительность: 07:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B459051EA7ACEC9C653A4DAFE8874325C81577B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434218   (153014) от 23.12.2020
+
+VA - Rock Classics 60s-80s: Remastered Version (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок - это, пожалуй, единственный стиль, интерес к которому не угасает с годами, а рок-хиты никогда не выходят из моды. Подтверждением тому служит большое количество ремиксов и кавер-версий на знаменитые рок-хиты всех времен. Представляем вам сборник рок-композиций, ставших уже классическими, но не утратившими своей популярности среди современных меломанов.001. The Everly Brothers - Cathy's Clown
+002. The Band - This Wheel's On Fire
+003. Genesis - Invisible Touch
+004. The Clash - Police On My Back(   Читать дальше...   )Жанр: RockПродолжительность: 12:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073B42FE511388AF03E6777C10B6F43C984125A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347324   (151568) от 23.12.2019
+
+Suzi Quatro - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil Gate Drive
+02. Cat Size
+03. 48 Crash
+04. Official Suburbian Superman(   Читать дальше...   )Жанр: RockПродолжительность: 02:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7FDC893B5C1C0AA318572E9A51CC711E43953C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677532   (150503) от 18.11.2023
+
+VA - The Gate Of Oblivion (2023) [MP3|320 Kbps] <Metal, Hard-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Whirlwind - Cannons Of Infuriation
+002. Attest - Reign Of Nil
+003. Ticinum - Il Muto Dall'accia Al Collo
+004. Aphyxion, Immerse - Heavy Shadows(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 09:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691276103A63D83D47D221034C29D49C627CAFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677435   (150341) от 18.11.2023
+
+Firehouse - Collection (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firehouse — самая любимая команда, ещё юности. Первые 2 альбома невероятно сильные. Все песни хитовые. Вокалист улётный, очень круто валит. Гитарные партии просто чума. Энергетика бешеная. Впервые услышал альбом 92 года, Hold Your Fire, в середине 90х, у друга на бобине. И на следующий день купил кассету SONY HF и побежал в звукозапись. У нас в студиях был только (   Читать дальше...   )01. Reach For The Sky
+02. Rock You Tonight
+03. Sleeping With You
+04. You're Too Bad(   Читать дальше...   )Жанр: RockПродолжительность: 05:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00315206AE9089CDEEED58066F1052EC4278003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969330   (149121) от 26.12.2015
+
+VA - Nuclear Blast Presents: Best Metal (2015) [MP3|320 кб/с] <Heavy Metal, Sympho Metal, Thrash Metal, Groove Metal, Power Metal, Industrial Metal, Melodic Death Metal, Gothic Black Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slayer - Repentless
+02. Nightwish - Йlan
+03. Thy Art Is Murder - Holy War
+04. Battle Beast - Touch in the Night(   Читать дальше...   )Жанр: Heavy Metal, Sympho Metal, Thrash Metal, Groove Metal, Power Metal, Industrial Metal, Melodic Death Metal, Gothic Black MetalПродолжительность: 01:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7D5B0F7B27B3F80DDB4B9293F9D6A99FEF9FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677583   (149086) от 19.11.2023
+
+David Hallyday - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive
+02. J'ai Quelque Chose À Vous Dire
+03. Move
+04. Ooh La La(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BCF5868A60058242B3968ED58762780BBCF189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347709   (148656) от 24.12.2019
 
 VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
@@ -519,238 +751,6 @@ VA - December Rock Party (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B4CA80D688F16C1E2EC9E1258EF70BECC79D665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520939   (138886) от 30.12.2021
-
-Tony Joe White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Life
-02. Saturday Night in Oak Grove Louisiana
-03. We'll Live on Love
-04. High Horse(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2F6059CB64A208E48E3E7E3ACE0FC87FDC11CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520935   (138869) от 30.12.2021
-
-Snowy White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding the Blues
-02. Red Wine Blues
-03. Highway to the Sun
-04. Land of Plenty(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 07:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC55970637894BEE8AC9208D4368D0C8180F3CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970767   (138808) от 31.12.2015
-
-VA - Rock Collection 1988 (2015) [MP3|320 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-01. Death Angel - 3rd Floor
-02. Lita Ford - Back to the Cave
-03. Anthrax - Be All, End All(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 24:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9271A04310E45F697C71498566A5A23CCFF1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435981   (138789) от 30.12.2020
-
-VA - The Urban Rock Music (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на сеанс настоящей рок музыки! Представляем Вам разностилевой рок сборник под названием "Urban Rock Music". Исполнители представляемого лонгплея в своих песнях сочетают откровенную агрессию с довольно яркой и ранимой мелодикой. В результате получаются весьма драйвовые, забойные боевички, но не лишённые философской изюминки.001. Islander - Freedom
-002. Guns N' Roses - Sweet Child O' Mine
-003. Cathedral Bells - A Passing Phase
-004. Mrs. Green Apple - Stardom(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98903D428B49E17776D66E8457E3D9A67E0C62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520980   (138581) от 30.12.2021
-
-VA - Русский рок 2021 [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grechka - ночью (13:18)
-02. Animal Jazz - Если дышишь (4:05)
-03. Splean - Топай! (2:52)
-04. TRITIA - Негде ставить крест (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 03:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0773B8E94705C7861F15CBBA6A8C89248B55AC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970835   (138439) от 31.12.2015
-
-VA - Rock Collection 1989 (2015) [MP3|256 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Dream Theater - A Fortune in Lies
-02. Terrorizer - After World Obliteration(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 25:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B565164419C27625E07D6AB47A1BD159E9811D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970804   (138346) от 31.12.2015
-
-VA - Rock Collection 1987 (2015) [MP3|320 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-01. Bruce Springsteen - Ain't Got You
-02. Warlock - All We Are
-03. Anthrax - Among the Living(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 22:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7260F8632E3D31970D49576E5D70326290D1645B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521054   (137674) от 31.12.2021
-
-Chris Bell - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24 Hours a Day
-02. Cold-Hearted Woman
-03. Bad News
-04. Two Jobs(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3098E6A9207A0D994061E82A0E5A602D7D86D92
 ```
 
 https://mybot314.ru/tekegram_catalog/

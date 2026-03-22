@@ -1,3 +1,319 @@
+###  Публикация: 1768673   (33027) от 25.12.2024
+
+The Wind Blowers - Whiskey & Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues in the Bottle (3:28)
+02. Blues on the Bayou (2:20)
+03. Broken Strings and Empty Bottles (2:46)
+04. Devil's Road and Lonely Souls (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4787CC2BB5ADD1890EC901B48B3789C1952A4046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768767   (32829) от 27.12.2024
+
+The Magician - Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <deep house, nu disco, synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Together [00:02:11]
+02. Superfly [00:03:25]
+03. Knights Of Heaven [00:03:21]
+04. Never Alone [00:03:15](   Читать дальше...   )Жанр: deep house, nu disco, synthpopПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34C132681E138870D029334560C69FC3AE3005D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769774   (32605) от 29.12.2024
+
+Marcus Trummer - From The Start (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding Out For You (3:39)
+02. Let You Down (3:30)
+03. Hard Time (3:44)
+04. Waiting For Change (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D7076721D0ACFA92AA589AFD9D024E2EAC4957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769389   (32428) от 31.12.2024
+
+Robbie Williams - Better Man (Original Motion Picture Soundtrack) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feel (From Better Man: Original Motion Picture Soundtrack) [3:01]
+02 - I Found Heaven (From Better Man: Original Motion Picture Soundtrack) [3:03]
+03 - Rock DJ (From Better Man: Original Motion Picture Soundtrack) [4:02]
+04 - Relight My Fire (From Better Man: Original Motion Picture Soundtrack) [2:37](   Читать дальше...   )Жанр: Pop, Pop Rock, SoundtrackПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F934744AC8BF3737D36CD820F3739FB9DD09DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770441   (32319) от 01.01.2025
+
+Just Magnetic - Life Electric (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maw N' PawЖанр: Blues RockПродолжительность: 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1467D96E64384C2928D0BA56EEECBD71CDED93D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770443   (32306) от 01.01.2025
+
+Matteo Lombardi, Vittorio Iannucci, Marty Zylstra - Warrior Anthems (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Roar (2:53)
+02. The Sparks (3:07)
+03. The Highway (3:18)
+04. Shock Of Electricity (2:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B09903CEDA49B344C100BB163339A281F2A9E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770540   (32305) от 01.01.2025
+
+Stranger Vision - FAUST Act I: Prelude To Darkness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue In Heaven [00:01:39]
+02. Strive [00:05:21]
+03. Nothing Really Matters [00:05:14]
+04. Look Into Your Eyes [00:04:45](   Читать дальше...   )Жанр: Melodic Heavy, Progressive MetalПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A965900182B617AE8DEFECAE0075040F9A615299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770397   (32304) от 01.01.2025
+
+Marvin J. Galaxy - Mean Ways (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel the Groove (3:40)
+02. Mean Ways (4:31)
+03. Nightwatch (Part One) (3:01)
+04. Wanderers of Love (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B7BFE83758C6D9D0B9AB155DFFCBE69D51C568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770395   (32301) от 01.01.2025
+
+Dave Hobbs - Opus One (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Belong To Him (3:36)
+02. In Your Eyes (3:40)
+03. Bring My Cadillac Back (4:35)
+04. Home (3:46)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB5D6CCDB0536A1C8F465BE52063CD2DF1796B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 125709   (32244) от 02.01.2025
+
+Андрей Сапунов и группа «Лотос» - Лотос - 1987, FLAC
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Белый день (А. Сапунов / С. Андреев)
+2. Немного счастья на двоих (А. Сапунов / И. Фрадкина)
+3. Евпатория (А. Сапунов / И. Фрадкина)
+4. Свежий ветер (А. Сапунов / И. Фрадкина)(   Читать дальше...   )Жанр: RockПродолжительность: 33:54 + допись 07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D5BFEA2D03555F715280E87ADC472F26DC420F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770829   (32096) от 03.01.2025
+
+Patriarkh (ex- Batushka) - Prophet Ilja (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WIERSZALIN I [00:01:21]
+02. WIERSZALIN II [00:04:11]
+03. WIERSZALIN III [00:05:59]
+04. WIERSZALIN IV [00:05:29](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134776AD9072BDB422D0ADC1F057C2A212EC878D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770889   (32095) от 03.01.2025
 
 The Smoothies - January Cozy Nights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -426,320 +742,6 @@ Atreyu — американская группа из округа Ориндж,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DEF3DBD049D016F76E5CA9945AD101DD6633FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772105   (31474) от 09.01.2025
-
-Conquer Divide - Studio Albums (2 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Conquer Divide - металкор/пост-хардкор-группа, образованная в 2013 году в Мичигане, США.2015 - Conquer Divide
-2024 - Slow BurnЖанр: Metalcore, Hard RockПродолжительность: 02:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB123D138774B2872581C8BDBFE4D52E6C0644F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772111   (31473) от 09.01.2025
-
-Tremonti - The End Will Show Us How (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Groove metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mother, The Earth and I (5:06)
-02. One More Time (4:26)
-03. Just Too Much (3:47)
-04. Nails (3:53)(   Читать дальше...   )Жанр: Groove metalПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB43A32BE03B754BB7C19F4FD2BBE676AF106E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772119   (31472) от 09.01.2025
-
-Theatres Des Vampires - Studio Albums (12 releases) (1996-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theaters des Vampires — итальянская группа, известная преимущественно темой вампиризма в своих текстах. Первоначально это был блэк/готик-метал-проект Алессандро Нунциати (он же Лорд Вампир) до его увольнения в 2004 году, после чего группа продолжила готик-метал/электро-рок-проект под руководством Сони Скарлет и Зимона Лиджои.1996 - Vampyrisme, Necrophile, Necrosadisme, Necrophagie
-1999 - The Vampire Chronicles
-2001 - Blody Lunatic Asylum
-2001 - Iubilaeum Anno Dracula 2001Жанр: Melodic Black/Gothic MetalПродолжительность: 09:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646BAAA9256AAE3C08BCF7B0F87D21797D0FB85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772112   (31463) от 09.01.2025
-
-Sevendust - Studio Albums (14 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sevendust - американская рок-группа из Атланты, Джорджия. Основана в 1994 году.1997 - Sevendust
-1999 - Home
-2001 - Animosity
-2003 - SeasonsЖанр: Nu Metal, Hard RockПродолжительность: 12:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0BC8293CADA9E7A6C024203F19C040FD5798FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772109   (31458) от 09.01.2025
-
-The Halo Effect - March Of The Unheard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic death metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conspire To Deceive (3:57)
-02. Detonate (3:58)
-03. Our Channel To The Darkness (3:29)
-04. Cruel Perception (4:04)(   Читать дальше...   )Жанр: Melodic death metalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84992B19E112EE12001EFDED88AD42DF3A7CDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772411   (31370) от 10.01.2025
-
-Malia - One Grass Skirt to London (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal jazz, Soul, Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Way We Were (6:03)
-02.  Pure Imagination (3:35)
-03.  Suicide Is Painless (3:23)
-04.  I Have Nothing (4:51)(   Читать дальше...   )Жанр: Vocal jazz, Soul, BluesПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE8082C6F12C81FF23D02299433A9BF3D5AD585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772279   (31363) от 10.01.2025
-
-Franz Ferdinand - The Human Fear (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audacious (3:24)
-02. Everydaydreamer (3:13)
-03. The Doctor (2:20)
-04. Hooked (2:41)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA5995BACC6D7B9685588E2C1821C6085356435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772504   (31269) от 11.01.2025
-
-VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 02:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54501A797742A1E8A27B91017DF64843A38CD094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593932   (31199) от 12.01.2025
-
-Tremonti (Creed, Alter Bridge) - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] <Hard Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mark Tremonti — американский гитарист и вокалист. Со времен участия в Creed, Тремонти стал широко известен своими способностями в написании песен и техническим мастерством и был награждён несколькими наградами, в число которых входит Грэмми. В течение трех лет подряд журнал Guitar World выбирал его в качестве гитариста года. В 2011 году Total Guitar включил его в (   Читать дальше...   )2012 - All I Was
-2015 - Cauterize
-2016 - Dust
-2018 - A Dying MachineЖанр: Hard Rock, Post-grungeПродолжительность: 05:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772458   (31139) от 12.01.2025
-
-Борис Гребенщиков - Pictures of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures of You (5:12)
-02. Talk with Me (Axios) (5:35)
-03. Eloise (4:11)
-04. Slide (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947D470F5BCE1822F788BECB4CBB1D48AC6DE9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315031   (31112) от 13.01.2025
-
-Mark Duffy - Tribute To Glen Campbell (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country, Pop Rock, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31112.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 By The Time I Get To Phoenix
-A2 Gentle On My Mind
-A3 Try A Little Kindness
-A4 Mary In The Morning(   Читать дальше...   )Жанр: Country, Pop Rock, Easy ListeningПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D4B38EF5C7D7EF32B226734F85391AEC28A60B
 ```
 
 https://mybot314.ru/tekegram_catalog/

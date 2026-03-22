@@ -1,3 +1,323 @@
+###  Публикация: 1686908   (126213) от 24.12.2023
+
+Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pack Up (00:03:52)
+02 - Come In, It's All For Free (00:02:55)
+03 - Brown Hair (00:03:28)
+04 - Dance On Little Beauty (00:02:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD25F85FBD24463DB3CD1E8E3EB830CA39AF2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686570   (126211) от 24.12.2023
+
+Jack and the Axes - Proof Is In The Poison (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Love To You (4:47)
+02. Another Man With The Blues (3:28)
+03. Wasted Time (6:56)
+04. Baby I See You (4:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6EF387A954974FCBEBA4103D8017B759B01F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686616   (126209) от 24.12.2023
+
+Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - They Dance (00:05:21)
+02 - Quiet Eyes (00:04:12)
+03 - Save The Best For Later (00:05:18)
+04 - Have A Heart (00:04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF06F42BC208187BE6804096D6BCF6C2FA059EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686755   (126208) от 24.12.2023
+
+Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Tarot Will Teach You (Live)
+02 – Golden Dawn (Live)
+03 – Under No Nation (Live)
+04 – Behind the Plank (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE805B6CD0FAD9A78D328A2C3AFD21694EA1AEC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686655   (126203) от 24.12.2023
+
+Phil Seymour - Live On The Sunset Strip (Live) (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love You So Much (00:02:36)
+02 - I Found A Love (00:03:31)
+03 - Then We Go Up (00:03:20)
+04 - If You Don't Want My Love (00:04:05)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237661A17388EF135CE2FABDA6E8195C9E194CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686903   (126201) от 24.12.2023
+
+Assemblage - Album (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic Rock, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Satisfaction (00:05:31)
+02 - It's Not Easy (00:06:35)
+03 - Dirty Gurty (00:04:40)
+04 - Drink Deep (00:05:19)(   Читать дальше...   )Жанр: Psychedelic Rock, FunkПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C511A8DBF38A06F0E8E97CC40E5F8E319CBDDBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686629   (126198) от 24.12.2023
+
+Neon Fields - Neon Fields (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Paths (00:02:47)
+02 - Rituals (00:04:30)
+03 - Bleak (00:04:48)
+04 - Meant To Be (00:04:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417BED38F603D60F5C513A45D289C9BF70DFFA28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686523   (126196) от 24.12.2023
+
+Elisa - Intimate - Recordings at Abbey Road Studios (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Overture Un Filo Di Seta Negli Abissi
+02 – Quando Nevica
+03 – L’Anima Vola
+04 – Luce (Tramonti A Nord Est)(   Читать дальше...   )Жанр: Alternative, Pop RockПродолжительность: 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F85A5CB7A455FE31EB641D459FF04CEC499B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686533   (126195) от 24.12.2023
+
+Sefirot - The Mystical Lybrary (2023) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Give Up (00:04:13)
+02 - Son of Ice and Fire (00:05:51)
+03 - My Moonlight (00:05:04)
+04 - Secret of the Forest (00:04:39)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335F49E154DB4524D7D6EE30CE459B7C295BDC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686699   (126188) от 24.12.2023
+
+Satis - Despair (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Depression (00:10:13)
+02 - Anger (00:06:24)
+03 - Fear (00:10:23)
+04 - Grief (00:08:23)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:54
+bandcamp
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9DDDCE7F9695746C88F76874193BA46128ABF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686547   (126187) от 24.12.2023
+
+Nebula Drag - Western Death (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crosses (00:04:49)
+02 - Sleazy Tapestry (00:03:45)
+03 - Failure (00:08:46)
+04 - Kneecap (00:03:48)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859DAF0F9AF3F7979000208362D9231C31E2B47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686722   (126186) от 24.12.2023
 
 Simple Stone - Through This Dark (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard & Heavy>
@@ -421,323 +741,6 @@ All India Radio - Diamonds in the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76343340DF5EBCFCBE5D14D0BAED9AB995AEB332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687942   (125460) от 27.12.2023
-
-Mildreda - Blue-Devilled (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark Electro, Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening [00:04:58]
-02. Karma Oyster [00:05:53]
-03. Friendly Fire [00:05:32]
-04. Damaged Goods [00:02:59](   Читать дальше...   )Жанр: EBM, Dark Electro, IndustrialПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D59996F50FB1DA371A8E944766D3E2FBBD24AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687458   (125459) от 27.12.2023
-
-Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dissection — шведская мелодик-блэк-дэт-метал-группа, основанная вокалистом и гитаристом Йоном Нёдтвейдтом в Стрёмстаде в 1989 году.1993 - The Somberlain
-1995 - Storm of the Light's Bane
-2006 - ReinkaosЖанр: Melodic Black Metal, Melodic Death MetalПродолжительность: 02:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1893713EB2807D5E00F0CD097C709DE67DACF8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687132   (125431) от 27.12.2023
-
-Набережная Космонавтов - Les Slowed Monologues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Лицо на стене (00:04:57)
-02 - Огни ночных подъездов (00:05:50)
-03 - Все умрут (00:04:48)
-04 - Красное и белое (00:04:45)(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01869508AA43B42F96103500A16A517D0111FEE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687930   (125430) от 27.12.2023
-
-Gods of Gaia - As Daylight Dies (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:26]
-02. Bow to Me [00:04:09]
-03. I Want Out [00:04:17]
-04. As Daylight Dies [00:03:15](   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31222425CFD084D48FEC2A9D6DEF623B79D58F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687802   (125410) от 27.12.2023
-
-Never Elected - Turbulent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Grunge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - All Rise (00:04:56)
-02 - Hate Breeds Hate (00:04:20)
-03 - It's Over (00:04:06)
-04 - So Damn Easy (00:05:04)(   Читать дальше...   )Жанр: Hard Rock, GrungeПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFEA7FF28EAD975BB1CB5167F37D1AF21F99361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688236   (125304) от 28.12.2023
-
-Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gud finns visst (4:42)
-02. Jeremia (10:23)
-03. Stygn (5:37)
-04. Hur kunde vi (5:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A7235674259CCA700D30519C81FC98CB0268AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687955   (125291) от 28.12.2023
-
-Рогатая Нога - Первая кровь, Часть 1-2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Punk, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2023 - Первая кровь, Часть 1
-2023 - Первая кровь, Часть 2Жанр: Heavy Metal, Punk, New WaveПродолжительность: 2 CD, 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C5D95C6186A7A006C0DC156CF62E412F66C278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687948   (125289) от 28.12.2023
-
-Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore, Deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Flag [00:04:04]
-02. Atomic Diplomacy [00:02:38]
-03. Dreams of Calpurnia [00:04:18]
-04. Flat Six [00:03:21](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8FBFA7C51DC4BF8B555FA7C697569A9D8370DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688230   (125286) от 28.12.2023
-
-Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Experimental Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125286.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Denature (04:50)
-A2. Stilled the Hollows' Sway (06:11)
-A3. Penitent (05:52)
-A4. The Reeking Suns (07:42)(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749E5739F5667A55E0031CE70D36F4150631BA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688196   (125282) от 28.12.2023
-
-Dominum - Hey Living People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortalis Dominum (3:52)
-02. Danger Danger (3:30)
-03. Hey Living People (3:47)
-04. Cannibal Corpses (3:13)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FF7F04AFB4BA4C36D7F17631378D6D869FDE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688691   (125045) от 30.12.2023
-
-Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deathstars — шведская индастриал-метал-группа, основанная в январе 2000 года. Группа не придерживается каких-либо жанровых рамок и играет в своем стиле, называемом deathglam.2002 - Synthetic Generation
-2006 - Termination Bliss
-2009 - Night Electric Night
-2014 - The Perfect CultЖанр: Industrial Metal, Gothic MetalПродолжительность: 05:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3035BDF9F7357190C37FA16E67DD32509DC92E
 ```
 
 https://mybot314.ru/tekegram_catalog/

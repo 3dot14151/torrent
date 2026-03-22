@@ -1,3 +1,119 @@
+###  Публикация: 1270521   (155321) от 20.12.2018
+
+VA - Grease - 70s Party Songs (2018) [MP3|320 Kbps] <Pop, Funk, Hard Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Valli - Grease
+02. Kc & The Sunshine Band - That's the Way (I Like It)
+03. Tom Robinson Band - 2-4-6-8 Motorway
+04. The Trammps - Disco Inferno(   Читать дальше...   )Жанр: Pop, Funk, Hard Rock, DiscoПродолжительность: 01:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CC58CD0CCCD5A16C2B475C048479015372C470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600742   (155227) от 28.12.2022
+
+VA - Best Of 2022 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Sacrifice
+02. Maggie Rogers - That's Where I Am
+03. Lady Gaga - Hold My Hand
+04. Noah Kahan - Stick Season(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561A8A682205A64DAD60B9DDD5226C0D3A3D1DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676920   (154721) от 15.11.2023
+
+VA - Hit News Vol. 3/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Unlimited - Here I Go
+02.  Sabrina - Angel Boy
+03.  Masterjam - I Wanna Know
+04.  Hyena - Naked In The Rain(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C3FAE67723BC99A15796A31F30CAA92A64097A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676954   (154654) от 15.11.2023
+
+VA - Hit News Vol. 4/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cartouche - Touch The Sky (Remix)
+02.  Osmania - Face Of A Stranger
+03.  Moratto - Warriors
+04.  Laurae - Vita Spericolata(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD70E5FE7CCBBC2A83D85AAC669902E22B23FDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194606   (153419) от 26.12.2017
 
 VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -629,119 +745,6 @@ Ace Of Base - Cruel Summer (1998) Remastered, 2015, Mega Records [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:209CCB0CA6F10ECFEC9142E01B743F569D97DDC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271167   (148738) от 24.12.2018
-
-VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148738.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Frank Sinatra - White Christmas                         [03:26]
-2. Dean Martin - Let It Snow! Let It Snow! Let It Snow!    [01:53]
-3. Sammy Davis Jr. - A Man With A Dream                    [02:48]
-4. Frank Sinatra - Silent Night, Holy Night                [03:12](   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D56494D672B2EE90DAF0DE0C0CB9847F06EDC63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519436   (148709) от 24.12.2021
-
-VA - Morning Motivation Pop (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears For Fears - Everybody Wants To Rule The World (4:13)
-02. NEIKED, Mae Muller, Polo G - Better Days (2:40)
-03. Maroon 5, Christina Aguilera - Moves Like Jagger (Studio Recording From The Voice Performance) (3:22)
-04. SERA - Take A Chance (2:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0619CDC5C3390A54F430F139E635197843C4AEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589291   (147978) от 15.12.2012
-
-Adriano Celentano - 20 Greatest Hits (2005) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D310AD234FBEAFF498FCE20183D4680F7CD8DC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271944   (147638) от 25.12.2018
-
-VA - Tasty Recordings: Best Of 2018 (2018) [MP3|320 Kbps] <Funk, Soul, Diisco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147638.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Discotron - Last Night A DJ Saved My Life (Original Mix) (06:35)
-02. Audio Jacker - Turn Up The Muzik (Original Mix) (07:13)
-03. Disko Junkie - House Is A Feeling (Original Mix) (05:11)(   Читать дальше...   )Жанр: Funk, Soul, DiiscoПродолжительность: 02:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D0CA91E2BE52B92AE94ECB58F22316462E50B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

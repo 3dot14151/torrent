@@ -1,3 +1,57 @@
+###  Публикация: 1849415   (1053777) от 23.01.2026
+
+Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Places, Things (and Foods) Every Jew Should Know (2022) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Celebrate Jewish culture with this fun collection of facts and stories!
+
+Jewish traditions aren't just something they sing about in Fiddler on the Roof. Explore them all with this delightful book of essential Jewish foods, philosophers, pop culture, and more. It's sure to be way more satisfying than the typical encyclopedia—but probably not as exciting as finding (   Читать дальше...   )Жанр: Энциклопедии, Традиции народовЯзык: АнглийскийИздательство: CallistoФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023E9339C39F1EBCD5A28480C9050ECA8F69A217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849414   (1053776) от 23.01.2026
+
+I. McNeil | An Encyclopedia of the History of Technology (2002) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr Johnson wrote, ‘A man may turn over half a library to make one book’. In the present case around a score of writers have turned over about as many libraries to make this Encyclopaedia. The Book of Proverbs states, ‘God hath made man upright; but they have sought out many inventions’. Whatever one may think about Charles Darwin’s ‘Descent of Man’, it is a fact (   Читать дальше...   )Жанр: Энциклопедии, История, ТехнологииЯзык: АнглийскийИздательство: Taylor & Francis e-LibraryФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756C5842B25BA20B1EF3F6ACDBC879D4BDAAF1DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849412   (1053775) от 23.01.2026
 
 William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious Ethics. 3 Volume Set (2022) [PDF] [EN]
@@ -638,58 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D612832E7DF4F066658B85BC6B1F01AAF610C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967592   (1045019) от 16.01.2023
-
-А. Поленов | Большая энциклопедия грибника. Собираем и готовим (2014) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит всю необходимую информацию о грибах, произрастающих на территории России. Построение в форме справочника-определителя позволит даже самому неопытному грибнику идентифицировать добычу и узнать о её свойствах. В описании к каждому грибу указаны места произрастания, сезон сбора и рекомендации по приготовлению. Книга дополнена рецептами грибных блюд, которые (   Читать дальше...   )Жанр: энциклопедия, кулинария, домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEC631442D63E230F6D32CFE507350B18D07C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450636   (1039689) от 13.01.2021
-
-С. Лукашевич | Краткий словарь морских выражений [1925] [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании автор стремился охватить термины и понятия, которые давали бы неподготовленному читателю руководствоваться морской популярной литературой. При составлении словаря автор исключил термины и выражения, отражающие бытовую сторону царского флота и дофильтрационный период Красного Флота. Книга представляет интерес лицам, занимающихся морским делом, (   Читать дальше...   )Жанр: Словарь, профессиональная терминологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C2500D0FB13EA62201591DD73305C75958A54E
 ```
 
 https://mybot314.ru/tekegram_catalog/

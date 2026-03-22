@@ -1,3 +1,119 @@
+###  Публикация: 1127479   (731051) от 22.04.2017
+
+Incubus - 8 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt.Rock, Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмой студийный альбом американских альтернативных рокеров Incubus «8». Продюсером нового альбома Incubus 8 стал Skrillex. Совсем недавно в студии вместе с Incubus и Чино Морено был замечен Skrillex. Теперь же музыканты поделились новостью о том, что Сони Джон Мур (Skrillex) непросто участвовал в записи одного из будущих треков, а стал продюсером альбома. Гитарист (   Читать дальше...   )01. No Fun (3:22)
+02. Nimble Bastard (New Mix) (3:40)
+03. State Of The Art (3:47)
+04. Glitterbomb (4:45)(   Читать дальше...   )Жанр: Alt.Rock, Alt. MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6CBD33A0EAD11F4E0EE92717FAE5023A9AE6A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283812   (731044) от 19.02.2019
+
+Talos - Far Out Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy Was I Wrong (02:42)
+02. The Light Upon Us (03:49)
+03. The Light (Interlude) (01:04)
+04. To Each His Own (03:10)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE81C0A1C5B05AFE67D007E496C9F860E795B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284012   (731038) от 19.02.2019
+
+Liza Anne - Fine But Dying (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paranoia (03:08)
+02. Small Talks (02:40)
+03. Panic Attack (03:44)
+04. Socks (03:01)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9172E5D19D6C85443034057B4D701055F05138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283911   (730984) от 19.02.2019
+
+Phoebe Bridgers - Stranger In The Alps (2017) Deluxe Edition, 2018, Dead Oceans [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke Signals (05:24)
+02. Motion Sickness (03:49)
+03. Funeral (03:52)
+04. Demi Moore (03:18)(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D8736B6845E4380E94208F6782910AD7F91C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021903   (730682) от 31.05.2016
 
 Marilyn Manson - Lest We Forget (The Best Of) (2004) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative, Industrial>
@@ -623,122 +739,6 @@ PJ Harvey - 5 альбомов (1995-2007) [FLAC|Lossless]<Alternative Rock, Ind
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218295   (723018) от 09.04.2018
-
-30 Seconds To Mars - America (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk on Water (3:05)
- 02. Dangerous Night (3:20)
- 03. Rescue Me (3:38)
- 04. One Track Mind (3:52)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213AB09F99F6851833EA85D061834CA5C8161DEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129259   (722400) от 28.04.2017
-
-Body Count - Bloodlust (2017) [FLAC|Lossless|tracks + .cue] <Rapcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Civil War (feat. Dave Mustaine) (04:24)
-02. The Ski Mask Way (03:36)
-03. This Is Why We Ride (05:26)
-04. All Love Is Lost (feat. Max Cavalera) (03:36)(   Читать дальше...   )Жанр: Rapcore, HardcoreПродолжительность: 41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4EA07E0C573C6B2645E5F638766CC3D6256FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400117   (721412) от 04.08.2020
-
-Black Orchid Empire - Semaphore (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt.Rock, Alt. Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emissaries (0:53)
-02. Singularity (2:53)
-03. Natural Selection (3:15)
-04. Motorcade (4:06)(   Читать дальше...   )Жанр: Alt.Rock, Alt. MetalПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27084F00E6B3A1C4969AB7C3E89869CBA1A62D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285588   (721194) от 26.02.2019
-
-WIZO - Bleib Tapfer / Für'n Arsch (1992) Compilation [FLAC|Lossless|tracks + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bleib Tapfer 
-01. Bei Dir (1:32)
- 02. Mein Tod (3:25)
- 03. Nice day (4:20)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6901C7F69C0F07783E9A94AC0BDA289840E4C10
 ```
 
 https://mybot314.ru/tekegram_catalog/

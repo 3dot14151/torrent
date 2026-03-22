@@ -1,3 +1,177 @@
+###  Публикация: 1041406   (582432) от 09.08.2016
+
+Gary Hoey - Dust & Bones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boxcar Blues 3:43
+02. Who's Your Daddy 4:15
+03. Born To Love You 3:15
+04. Dust & Bones 4:09(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3E7A5D0F3835338FE49C10EA3EE4B1536ED1FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553416   (581953) от 26.05.2022
+
+Electrified - My World On Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Horse (03:18)
+02. Shot Through The Heart (03:53)
+03. My World On Fire (04:02)
+04. Beneath The Sky (03:26)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6938567F1079E9D8FAF033765D9EE987673381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041749   (581516) от 10.08.2016
+
+Моtоrgun - Моtоrgun (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heading For Tomorrow
+02. Rebel Souls
+03. Back To Ashes
+04. Deliverance(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2C6E0AAAF69DAEC62A3BB245DF3DF5EC6A6A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553688   (580030) от 28.05.2022
+
+Michael Schenker Group - Universal (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergency (feat. Barry Sparks & Simon Phillips) (3:49)
+02. Under Attack (4:37)
+03. Calling Baal (feat. Tony Carey) (0:39)
+04. A King Has Gone (feat. Michael Kiske, Bobby Rondinelli, Bob Daisley & Tony Carey) (4:54)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2B133420C36451828AFAD675A8BFC07CCAF2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554181   (579104) от 29.05.2022
+
+Alistair Terry - Yonge At Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный альбом Alistair Terry, который был записан после того, как бывшая группа фронтмена "Pet Hate" прекратила свое существование. Интересно, что Alistair Terry начал записывать свои песни с 15 лет, часть этих идей вошли в этот единственный сольный проект, который ему предложил сделать бывший продюсер "Pet Hate" Roger Boden. Альбом вышел на (   Читать дальше...   )01. Destiny (2:28)
+02. Moon Over Malaya (3:15)
+03. Language Of Love (3:12)
+04. I Thought I Needed You (3:52)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CED2FD77874C0899CE4C0A7D9513FBC05020EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554185   (579032) от 29.05.2022
+
+Epic - Like A Phoenix (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Need (3:31)
+02. Love Will Find A Way (4:15)
+03. I Can Take You (4:39)
+04. Sleepless Angel (4:11)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1DE16BC0AE49CED8BBD833BD44F93AB161A250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554031   (579023) от 29.05.2022
 
 Sarayasign - Throne of Gold (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -583,180 +757,6 @@ Deep Purple - Now What?! (2013) 5CD Box Set [FLAC|image+.cue]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20EC620F7698F4183A021ED9C4BDCA10FDC60D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234649   (567832) от 07.07.2018
-
-Magnum - Lost On The Road To Eternity (2018) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peaches and Cream (4:54)
-02. Show Me Your Hands (5:45)
-03. Storm Baby (6:13)
-04. Welcome to the Cosmic Cabaret (8:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A7B1B52DDA711E898992712AA75D76C5167E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555621   (567497) от 05.06.2022
-
-Bort - The Wreck of the Hesperus (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock, Doom, Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Reckoning
-02. Permanent Failure
-03. New Ideal
-04. Dawn of Day(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Doom, Desert RockПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CED480FDA4810E51F89371F551BF81287371E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555606   (566885) от 05.06.2022
-
-Def Leppard - Diamond Star Halos (2022) Japanese Edition [WavPack|Lossless|image + .cue] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take What You Want
-02. Kick
-03. Fire It Up
-04. This Guitar(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D16F6B78F8E77B0CE9E186EC7C03D7F99F2752D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923129   (566243) от 30.07.2015
-
-Alice Cooper - Billion Dollar Babies (1973) Hybrid SACD, Limited Edition /2014, Audio Fidelity/ [FLAC|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Hooray [4:14]
-02. Raped And Freezin' [3:15]
-03. Elected [4:05]
-04. Billion Dollar Babies [3:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC9C0FB451045C71A2F0F153AD4C98CA0B36801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152600   (565685) от 23.07.2017
-
-Legion - Legion (2010) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Leave Me Alone  (04:23) 
-02.Trouble  (04:20) 
-03.Caught In The Madness  (04:29) 
-04.Coming For You  (04:49) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59153E3EED857720B2C3125956E96F20BD869524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044436   (565538) от 20.08.2016
-
-Now Or Never - II (2016) Jpanase Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice Inside
-02. Sonic Ecstasy
-03. King for a Day
-04. I Shall Remain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBC3987300124978CCAB2EE0705D20380B1CBB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

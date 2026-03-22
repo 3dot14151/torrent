@@ -1,3 +1,32 @@
+###  Публикация: 1124693   (773608) от 13.04.2017
+
+Valery Ponomarev - Live At Sweet Basil (1994) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Announcement [00:44]
+ 02.Valery'S Changes [13:16]
+ 03.Be Careful Of Dreams [10:16]
+ 04.Friend Or Foe [14:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27430D3AE9483E9A15CAFD7B38C27BB2A9F14064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124976   (773607) от 13.04.2017
 
 The Syd Lawrence Orchestra - Big Band Spectacular! (2016) [FLAC|Lossless|tracks + .cue] <Big Band>
@@ -716,35 +745,6 @@ George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA67812B6E0B39DA8C85D85BFF1241BEBC114884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391938   (770690) от 23.06.2020
-
-Oscar Peterson - The Will To Swing 1949-1971 (1991) 2CD, Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770690.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Fine And Dandy [4:38]
-02. Tenderly [5:45]
-03. Fascinatin' Rythm [2:57](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0724C532CD3509B5CE25D10C7C30A580CBCC17C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

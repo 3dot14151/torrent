@@ -1,3 +1,174 @@
+###  Публикация: 1643046   (231608) от 30.06.2023
+
+Jimmy Smith - Milestone Profiles (1981 - 1993) 2CD, 2006, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Henderson - The Kicker [4:09]
+02. McCoy Tyner - Song for My Lady [7:33]
+03. Flora Purim - Dindi [3:37]
+04. Jim Hall & Ron Carter Duo - St. Thomas [4:48](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D56249C85DD1B0E124F70AED6B63FBE8B66598B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647789   (231407) от 23.07.2023
+
+Lionel Hampton And His Orchestra - Jazz Flamenco (1957) 1996, RCA [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got A Brand New Baby [5:28]
+02. Bop City Flamenco [6:06]
+03. Lovely Nights In Spain [3:24]
+04. Spain [4:38](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7016CEA99488C12678018673C8EEDEA7038731BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647489   (231350) от 23.07.2023
+
+Clark Terry Quintet - Top And Bottom Brass (1959) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milli-Terry [4:20]
+02. The Swinging Chemise [6:58]
+03. My Heart Belongs To Daddy [3:14]
+04. Blues For Etta [7:22](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF939A84B0D1D5E74DBC6A1460A9E7B16272308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648022   (231339) от 23.07.2023
+
+VA - Yasukuni Terashima Presents: Jazz Bar (2017) Terasima Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edgar Knecht - Lilofee [6:04]
+02. Lello Petrarca - Un Sogno D'estate [3:20]
+03. Jesper Bodilsen - Se Non Avessi Piu' Te [8:19]
+04. Jacob Christoffersen - On The Horizon [4:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: TYR-1061
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCBD8CDC4FC57B74AC84B1333E8D7ECA7D53C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648193   (231337) от 23.07.2023
+
+Clifford Jordan Quartet - Bearcat (1962) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bearcat [5:02]
+02. Dear Old Chicago [5:32]
+03. How Deep Is The Ocean [5:03]
+04. The Middle Of The Block [5:09](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3708E08F94232206A46844896D413C1BB4809F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648429   (231334) от 23.07.2023
+
+Dave Brubeck - Ballads (1956 - 1991) 2015, Sony Music [FLAC|Lossless|image + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia De MexicoЖанр: Cool, Piano JazzПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F28085EA9D7EE8C5B17EBEDDA6310B9633B9B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648935   (231239) от 26.07.2023
 
 Charlie Rouse / Paul Quinichette - The Chase Is On (1957) 2004, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
@@ -577,180 +748,6 @@ Hank Crawford - From The Heart (1962) 2004, Collectables [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B08902CF6C71FEC84866813F878E9022C093DB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424528   (228206) от 17.11.2020
-
-Duke Ellington - Festival Session (1959) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdido [4:39]
-02. Copout Extension [8:22]
-03. Duel Fuel - Part I [2:45]
-04. Duel Fuel - Part II [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2FB3FED75A90CC69AB2E131B6609E065D61727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268343   (228132) от 10.12.2018
-
-Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex [3:55]
-02. Beautiful Woman [4:37]
-03. The Jam with Albert [9:21]
-04. Elementary Guitar Solo No.5 [6:52](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B337278C6813F6A8E213CACB5C513429B841F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424531   (228091) от 17.11.2020
-
-Miles Davis - Workin' (1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Never Entered My Mind [5:24]
-02. Four [7:13]
-03. In Your Own Sweet Way [5:47]
-04. The Theme (take 1) [2:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3CAFE31AB1A3A640ADF739B250452F606B0858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583780   (228089) от 16.10.2022
-
-Eric Reed - For Such A Time As This (2020) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradox Peace [1:05]
-02. Western Rebellion [4:20]
-03. Thelonigus (For Thelonious Monk and Charles Mingus) [5:31]
-04. Stella by Starlight [3:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF18B36E4084FF2DACB3C932BECEB8BB894DDF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583632   (228081) от 16.10.2022
-
-Dick Wellstood - Live At The Sticky Wicket (1986) 2CD, 1997, Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228081.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lullaby of Birdland [4:18]
-02. How About You? [4:48]
-03. If Dreams Come True [4:43](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A94F7C0FAAD25BC35979C35A60C11A03AAA122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341909   (227690) от 30.11.2019
-
-Mildred Bailey - Smoke Dreams 1935 - 1939 (1999) Definitive Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Day Is Gone [3:33]
-02. A Porter's Love Song To A Chambermaid [3:17]
-03. Picture Me Without You [3:16]
-04. It All Begins And Ends With You [3:06](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE618562713412ACC538EFDFEE9EB4C41082B6A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

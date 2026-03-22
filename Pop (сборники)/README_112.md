@@ -1,3 +1,177 @@
+###  Публикация: 1647493   (195543) от 19.07.2023
+
+VA - Relax FM for a Good Evening 2 (2023) [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lake Street Dive - Rich Girl (5:24)
+02. Ed Sheeran - Thinking out Loud (4:56)
+03. Aly & AJ - Slow Dancing (4:27)
+04. Luke Combs - Fast Car (4:25)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 03:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AA02E1A7C5223084F4B7041E9A4B220C0F68D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648586   (195353) от 23.07.2023
+
+VA - Summer Hits (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mau P - Drugs From Amsterdam (5:23)
+02. Luis Fonsi - Despacito (4:41)
+03. SZA - Kill Bill (4:35)
+04. Sam Smith - Unholy (feat. Kim Petras) (4:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D020CBDE6335B769E9724F50B7EACB1D35FE448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648648   (195314) от 24.07.2023
+
+VA - Лето на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jax Jones feat. Calum Scott - Whistle (3:01)
+02. Amirchik - Молчание (2:55)
+03. Filatov & Karas - Мимо Меня (3:03)
+04. Dua Lipa - Dance The Night (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88E0F6144685F7B1BF16A011DF50759644E8D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649909   (194892) от 31.07.2023
+
+VA - Свежий Русский Хит от ALEXnROCK часть 13 (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я небольшой почитатель современной поп музыки. Может что то зацепить, но выветривается очень быстро. Пока выбирал песни для сборника, переслушал много лажи. И ведь стараются, творят подобную шляпу. Музыки нет, есть звуки. Мужская лирика превратилась в примитивное нытье. Подростки непонятно что, мямлят дебильными голосами блеющих баранов, маты пихают везде. Подобное (   Читать дальше...   )01. Сергей Лазарев - Вкус Малины
+02. Ella - Танцевать
+03. Те100стерон - Нет Ответа
+04. Минаева feat. Егор Сесарев - Где Не Будет Слез(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E3F55CB0B5176B0AD5607EF7DF6AD4342F7FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640782   (193648) от 27.08.2023
+
+VA - Виниловый бублик (1901-2019) [MP3|128-320 Kbps] <Classic, Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия музыкальной коллекции с удалённого YouTube канала Виниловый бублик / UCxS1inqcdR8Zwf2x5CzAjjA
+
+Канал "Виниловый бублик" был открыт в 2017 году и посвящался записям на виниловых пластинках.
+За 6 лет работы канала было опубликовано более 4 тысяч аудиозаписей.(   Читать дальше...   )Жанр: Classic, Pop, RockПродолжительность: 1250:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423AAD3102B5930012DEFE0E74B28EF5F71EDD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587565   (192246) от 01.11.2022
+
+VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 2 (2022) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудио версия сборника клипов. В него вошло много лирики, поэзии и очень хорошей музыки. Надеюсь в это сложное время, музыка осени отвлечёт вас от проблем. Это 2я часть. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Rod Stewart - Rhythm Of My Heart
+02. Richard Marx - Right Here Waiting
+03. Рондо - Ну и пусть
+04. Natalie Imbruglia - Torn(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57CFDA5CC868AF92AEEB1B2CB302837221299A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588017   (192119) от 02.11.2022
 
 VA - Halloween Party 2022 (Powered By Xtreme Sound) (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -570,180 +744,6 @@ VA - Discotron Remixes (2020) [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACC1C4D75125630FFA50460940FDCC44820BA749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668871   (173167) от 14.10.2023
-
-VA - German Top 100 Single Charts 13.10.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173167.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AYLIVA - Hässlich (2:16)
-002. Sira, Bausa & badchieff - 9 bis 9 (2:11)
-003. cassö, Raye & D-Block Europe - Prada (2:12)
-004. Tate McRae - greedy (2:11)(   Читать дальше...   )Жанр: PopПродолжительность: 04:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6369701FC9D591AD8D3C23A810D32BEC065FD767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669166   (172791) от 16.10.2023
-
-Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Kawn Janni Maak
-02. Sokkar
-03. Fenee
-04. Ana Lahale(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD0E7FAA6E59BC81FE3D25F56FF4BF3BF4AF696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343959   (169294) от 11.12.2019
-
-VA - Old School Hits Collection от ALEXnROCK Часть 2 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудио версия видеосборника. В него вошла самая хитовая музыка нулевых. Это 2я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Nicole Kidman & Ewan McGregor - Come What May
-02. Elize - Hot Stuff
-03. Blue - One Love
-04. 4 Strings - Diving(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC99268D643F35BAFAEB19C985C397D7FCFDD216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596692   (168979) от 11.12.2022
-
-Delta Goodrem - Compilation (2022) [MP3|320 Kbps] <Pop, Vocal>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In This Life
-02. Innocent Eyes
-03. Touch
-04. Wings(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE04E498FCCD5D7CA3BFEF12F7F737CDCBFF2476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344750   (168965) от 12.12.2019
-
-VA - Planet Dance Music: Euromix Energia Total (2019) [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mc Kevinho - O Grave Bater
-002. Jason Born - Give Me Everything
-003. Dj Snake, J Balvin, Tyga - Loco Contigo
-004. Olivia Grace - Higher Ground(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A350659179DAC6CFA3F8BA9A25BDEE9DCCF5DAFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344735   (168455) от 12.12.2019
-
-VA - Новый Год 2020 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моральный кодекс - Москва новогодняя 8:02
-02. Мумий Тролль - С Новым годом, крошка! 5:05
-03. Григорий Лепс - Новый год 4:34
-04. Emin - Первый снег 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0808A15A02CC6A176D3DE6463EF5239C6FCF5637
 ```
 
 https://mybot314.ru/tekegram_catalog/

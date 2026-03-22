@@ -1,3 +1,32 @@
+###  Публикация: 1750937   (42721) от 22.09.2024
+
+Purple Disco Machine - Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W.T.P [00:04:26]
+02. Beat Of Your Heart [00:03:29]
+03. Dirty Pleasures [00:05:32]
+04. Honey Boy [00:03:47](   Читать дальше...   )Жанр: Electronic, Disco, Nu-DiscoПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E683C2CC44A6B76BCB741888443E7BA23CCF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751075   (42616) от 23.09.2024
 
 Linda Jo Rizzo - Best Of Linda Jo Rizzo (1999) [OGG Vorbis|480 Kbps] <Electronic, Euro-Disco>
@@ -716,35 +745,6 @@ Good Ride - Faces (2023) [MP3|320 Kbps] <Italo-Disco, Italo-Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35239E03586F138345F5E37206D4E82497109AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784435   (24985) от 11.03.2025
-
-VA - ZYX Italo Disco Collection (The Memory Label) (2002) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyber People - Polaris (Club Mix)
-02. Ken Laszlo - Hey Hey Guy (US Remix)
-03. Brian Ice - Tokyo (DJ Version)
-04. Hypnosis - Droid (Automatic Piano)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, DiscoПродолжительность: 03:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75ECDB8F1DE2B26E7133E7F8DBB01EBA154D44BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

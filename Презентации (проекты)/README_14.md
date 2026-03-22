@@ -1,3 +1,55 @@
+###  Публикация: 1006968   (824986) от 13.04.2016
+
+Проекты - VideoHive - Veil Nebula - 119479 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вступление (превью) к Вашему фильму.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE59E5C5666CB454F5AC04238B98787E26D33F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006906   (824917) от 13.04.2016
+
+Проекты - VideoHive - Sound Form & Strokes Trailer [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект предназначен, чтобы быть гладким, броским глазу, и привлекательным. Прекрасная последовательность, чтобы ввести области Вашей компании изящным способом. Или для визуализации аудио.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CB8246AC2F4076E4F3E048EF2B76079600F901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006677   (824896) от 13.04.2016
 
 Проекты - VideoHive - Kappa Website Promotion Full HD [AEP]
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5ABE54819D19ED15394B2B9507F92D6F3EC6AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009528   (809666) от 21.04.2016
-
-Проекты - VideoBlocks - Touch Screen [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания видео-презентаций, рекламы продукта, корпоративного видео.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26381901591B0E0EB33049CEA9D9F485B80E92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009537   (809660) от 21.04.2016
-
-Проекты - VideoHive - Promote Your Product or Service with Charlie [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект предназначен для продвижения вашего бизнеса с характером.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CD49FF7EBE8790B401650CBF15A8E1BEF9D98F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1493918   (892546) от 05.09.2021
+
+Clive Nolan - Song of the Wildlands (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Story Begins (3:05)
+02. There's a Threat (4:53)
+03. Crossing the Ocean (4:28)
+04. Beowulf's Promise (3:23)(   Читать дальше...   )Жанр: Progressive Rock, Rock OperaПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB11A7CE4DB03983F5D93F3A56AF3C0CC062C0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993901   (891610) от 07.03.2016
+
+Estes Brothers - Transitions (1971) Reissue, Remastered, 2002 [FLAC|Lossless|tracks + .cue] <Rock, Acid Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Coming Down (3:36)
+02. This Morning (9:21)
+03. Wooden Thoughts (3:53)
+04. Do What Is Real (5:21)(   Читать дальше...   )Жанр: Rock, Acid Rock, Psychedelic RockПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CAB4E83DE4162F45E8057BBCE20C708A455C063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993887   (891593) от 07.03.2016
+
+Chain - Two Of A Kind (1973) Reissue, 1997 [FLAC|Lossless|tracks + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two of a Kind (4:44)
+02. Reconsider Baby (4:40)
+03. Everybody Has to Lose Sometime (8:23)
+04. Blues With a Feeling (4:48)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3936173A8EB9103C69B400905AB2AA08C8248DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993894   (891573) от 07.03.2016
+
+The Frost - Through The Eyes Of Love (1970) Reissue [FLAC|Lossless|tracks + .cue] <Hard Rock, Psychedelic Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black as Night (7:37)
+02. 1500 Miles (Through the eyse of a Beatle) (3:39)
+03. Through the Eyes of Love (God Help Us Please) (6:16)
+04. Maybe Tomorrow (2:53)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Classic RockПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3BA768E0F0CAB488EB17D0A131F14345242B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994391   (891525) от 07.03.2016
 
 The Ventures - Live in Japan '65 (1995) [FLAC|Lossless|image + .cue] <Instrumental Rock>
@@ -624,124 +740,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FF8046159CC25638390F57769007D284E12DC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494829   (886086) от 09.09.2021
-
-Eddie Tatton - Canons Under Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Small Voice
-02 - Rise
-03 - Namaste
-04 - Hope(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562062314630C24CE6A0283846D936AB0D2CAF9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103325   (885913) от 12.02.2017
-
-Blackfield - V (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blackfield — это проект лидера Porcupine Tree Стивена Уилсона и израильского музыканта Авива Геффена.
-
-Всё началось с того, что в 2000 году Геффен, большой поклонник Уилсона и Porcupine Tree, пригласил последних выступить в Израиле. После ряда концертов между ним и Стивеном Уилсоном завязалась дружба, а двумя годами позже Геффен уже пел на двух треках «поркупайновского» (   Читать дальше...   )01. A drop in the ocean (1:24)
-02. Family man (3:37)
-03. How was your ride? (3:59)
-04. We'll never be apart (2:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58580BAC1DCC24062EC4BE6377D75459E94196A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995242   (884494) от 11.03.2016
-
-VA - Love Rock Hits (2000) 3CD Box [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky Valance - Tell Laura I Love Her (2:49)
-02. Danny Williams - Moon River (2:43)
-03. Ronnie Carroll - Roses Are Red (2:35)
-04. Susan Maughan - Bobby’s Girl (2:32)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCDCB801855D49513C8A23B178E6013104C90B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870715   (884318) от 19.02.2015
-
-VA - Pure... Rock (2012) [FLАC|Lоssless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - New Killer Star (Album Version) (2003) - 4:40
-02. Jeff Buckley - Grace (Album Version) (1994) - 5:22
-03. Soul Asylum - Misery (Single Version) (1995) - 4:26
-04. Train - Calling All Angels (Album Version) (2003) - 4:02(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard Rock, Heavy Metal, Melodic Rock, Pop Rock, Blues RockПродолжительность: 04:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D295888240346D22E6AEBF7FBB7B4B216DF5829
 ```
 
 https://mybot314.ru/tekegram_catalog/

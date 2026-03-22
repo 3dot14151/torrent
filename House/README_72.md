@@ -1,3 +1,148 @@
+###  Публикация: 1195697   (140891) от 30.12.2017
+
+VA - International Sports Collective 7 (2017) [MP3|320 Kbps] <House, Euro-House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Greed & Alina Libkind  -  Scars (Radio Edit)  2:50
+02.  Mark Hills  -  Break (Radio Mix)  3:24
+03.  Cliff Wedge  -  No One Like U (Radio Edit)  3:46
+04.  Masterbeat  -  Hold Me Tonight (Radio Edit)  3:30(   Читать дальше...   )Жанр: House, Euro-House, Vocal HouseПродолжительность: 02:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16159A4D08C78AA45D0AC67B6F0921AB12FF561D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273114   (139807) от 30.12.2018
+
+VA - Addicted 2 House, Vol. 30 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alaia & Gallo, J8Man - Hot 4 U
+02. Popcorn Poppers, Kiki Doll - The Leader (Radio Edit)
+03. Massivedrum - Don't Stop (Radio Edit)
+04. Kid Massive feat. Rebecca King Vanilla Ace Remix - H(   Читать дальше...   )Жанр: HouseПродолжительность: 01:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689DF06FC48661A85C824080720B72D8E0071B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088477   (139173) от 31.12.2016
+
+VA - Deep Dark and Sexy Vol.1: Finest Deep and Elektro House (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buben - My Oxygen
+02. Poenitsch & Jakopic - Two People - Radio Edit
+03. Maksim Biserov - Shambhala Residents
+04. Christos Fourkis - Come In My Life(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6F9927924E7A7AFABC101C8464B99970346201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273356   (138059) от 31.12.2018
+
+VA - 5 Years Of Futura Groove Records (2018) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Kinnard - The Radio Is My Life (Original Mix)
+02. Ramses Jair - Deep Culiacan (Original Mix)
+03. Joy Marquez, Alex Barrera, Chriss Lerman & Abdel Karim Ft. JAC - Neurotic Nation (Original Mix)
+04. Mijangos - Detroi (Original Mix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 03:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C941A5238705224FDBEED771A57BE86FADDEA252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273273   (137883) от 31.12.2018
+
+VA - Classic Car Dance Hits 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raffee - Society 3:45
+02. Parafies - Outrage 2:52
+03. Dj Farre - Raw & Bumpin' (Club Mix) 5:54
+04. Idin Gorji, Tina Amy - You & I (The Remixes) 3:16(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B06CB69CA40B32C035DF7FAFEE486B16E2D24E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824488   (136970) от 15.10.2025
 
 FaraoN - 20 Hits Dance Music Collection (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -624,151 +769,6 @@ VA - Clubbing 2024 (2023) [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48B0A0DF8C9053320D65E83AA03A9C84482EBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686117   (126766) от 21.12.2023
-
-VA - Dance Mix 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristian Ferrer - End Of The Night (Radio Edit) [03:42]
-02. Jay Derson - Scream Out Loud (Radio Edit) [04:05]
-03. Xander G - Let You In [02:27]
-04. Göktuğ Erkün - Slowly [02:55](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA927A2184092C2E807233A107BE2D1C60CAB7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686562   (126468) от 23.12.2023
-
-VA - Planeta Mix Hits 2024: Winter Edition (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLuis - Beautiful Life [02:57]
-02. Deep Emotion - Everything [03:01]
-03. DJ Pasi - Vamos A La Playa [02:42]
-04. Aaron Paris - Dale [02:35](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483918EBE2537287F14FEA80478DDF57A5F556D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688412   (125055) от 30.12.2023
-
-VA - Dance 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comeon - Crash & Burn (01:56)
-02. Anka - Lonelyy (02:42)
-03. Yampolsky & Stacy Nich - Fly (Roland UA Remix) (06:22)
-04. Jay Derson - Scream Out Loud (Radio Edit) (04:05)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E661E68303D0DFA2FB8A24C69F993D72DF4A338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690326   (124037) от 06.01.2024
-
-VA - The Best Club Tracks 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Fall - I'm in Love (Christopher Phonk Radio Remix) [03:19]
-02. Maxi Kinzel - Tonight [03:08]
-03. Bass Leuwenberg - Midnight Hour [02:16]
-04. KOLDSTREAM - Emotion [05:26](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E775C269F69A3582D8A80CDAF63E327B8042BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690402   (123908) от 07.01.2024
-
-VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TwoRule - Shivers [03:03]
-02. Moses - Let Me Down Slowly [03:32]
-03. Alperen Ocak - Creepin' (I Don't Wanna Know) [02:54]
-04. TwoRule - Numb [02:41](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE3266E4F7A0683588AF2D7F3CC94B023A24D80
 ```
 
 https://mybot314.ru/tekegram_catalog/

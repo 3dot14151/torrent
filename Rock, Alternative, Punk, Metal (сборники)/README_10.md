@@ -1,3 +1,32 @@
+###  Публикация: 1377516   (851507) от 22.04.2020
+
+John Lennon - 100% John Lennon (2020) 2CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (2010 Mix)
+02. Jealous Guy (Remastered 2010)
+03. (Just Like) Starting Over
+04. Watching The Wheels(   Читать дальше...   )Жанр: RockПродолжительность: 06:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDB631C3F77EA49018F6E9C49B480D17B44277E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377653   (851499) от 22.04.2020
 
 Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
@@ -713,35 +742,6 @@ VA - Rock Your Day (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1615A09FF2DA1ECA754B9371809EDFFDC44B98BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379916   (835975) от 01.05.2020
-
-VA - Home Sweet Rock (2020) [MP3|320 Kbps] <Rock , Indie Rock, Rock Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Talking Heads - This Must Be the Place (Naive Melody) (2005 Remaster) (4:56)
-2.David Bowie - Sound and Vision (2017 Remaster) (3:04)
-3.Fleetwood Mac - Dreams (2004 Remaster) (4:17)
-4.The Rolling Stones - Gimme Shelter (4:30)(   Читать дальше...   )Жанр: Rock , Indie Rock, Rock PopПродолжительность: 04:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279B97DD3C002A484B46DE957D1F14ECA20EA77F
 ```
 
 https://mybot314.ru/tekegram_catalog/

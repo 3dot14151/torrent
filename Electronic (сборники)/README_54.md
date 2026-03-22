@@ -1,3 +1,90 @@
+###  Публикация: 1011592   (796447) от 28.04.2016
+
+VA - Trance Desire Vol. 67 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia, Jonathan Mendelsohn -  A New Dream (Original Mix)  6:16
+02. Andrew Rayel -  Andrew Rayel - 550 (Senta Aeth  7:44
+03. Karanda -  Agony - Shawn Mitiska Remix  7:08
+04. Fabio XB & Liuck ft. Christina -  Back To You (Purple Stories Re  8:38(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E2ACE793508F26F8FB33A5A3C82EB9A80E9DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011600   (796443) от 28.04.2016
+
+VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Styler & Charlie Darker -  D2b (Steve Aoki Remix)  3:53
+02. Borgeous -  Souls (Andres Fresko Remix) (Feat. M.Bronx)  4:08
+03. TIA Milano -  Wizard (Dirty Mix)  4:38
+04. DJoly -  Volcano (Original Mix)  4:52(   Читать дальше...   )Жанр: House, Trance, BigroomПродолжительность: 06:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9AABA709BB3991C5570212CAAC4928DEA4FC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011779   (796442) от 28.04.2016
+
+VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Goldstone - Please Full - Deepfully Mix
+02. Carl Kennedy - Skank Henz - King Size's Cool Groove
+03. Claude Roberts - Ready for the Trip - Deephouse Mix
+04. George Deep - A Touch of Elegance - Pure Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB9F230921F5DA82F609140A278B03CBBC118FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011608   (796440) от 28.04.2016
 
 VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, Soulful>
@@ -658,93 +745,6 @@ VA - Ibiza 2015. Massive Energy Flux. Vol.1 (2015) [MP3|256-320 кб/с] <Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25A151B94D3C40F99E74B17528FB345CE636C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200551   (795472) от 21.01.2018
-
-VA - Trance Collection Vol.67 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Beat Service feat. Ben Hague  -  Why Me (Andy Kern Uplifting Mix)  6:10
-002.  Driftmoon feat. Julie Elven  -  Midnight Sun (Extended Mix)  7:15
-003.  Feel-X feat. Robin Vane  -  Found Myself (Original Mix)  6:06
-004.  Sam Laxton feat. Noire Lee  -  Thunderstorm (Extended Mix)  5:30(   Читать дальше...   )Жанр: Vocal Trance, Uplifting Trance, Progressive TranceПродолжительность: 10:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A675334B81BFA9217622D0FFA11884D06ADA42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012110   (795416) от 29.04.2016
-
-VA - Bass Killer 5 (2016) [MP3|320 кб/с] <Dubstep, Electro House, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Awoltalk & Croix — Midnight Special (Original Mix) (3:36)
- 2. Baby Eazy-E3 — Gangsta Gangsta (Dr. Fresch Remix) (3:21)
- 3. Botnek — Clickbait (Original Mix) (3:33)
- 4. BURNS — Beauty Queen (Original Mix) (3:21)(   Читать дальше...   )Жанр: Dubstep, Electro House, TrapПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5039AA0FA06D883BA76583B255F79C7AE4E43E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386237   (795236) от 28.05.2020
-
-VA - Beatport Tech House: Electro Sound Pack #94 (2020) [MP3|320 Kbps] <Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795236.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hartronn - Boomers
-002. Jacob Groening - Atura
-003. DJ Nanni - Kriminal (Original Mix)
-004. Double Reaktion - Dark Silence(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 14:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CC1DAFBF6EF7EC311C9BBDD8DA6607A044FC03
 ```
 
 https://mybot314.ru/tekegram_catalog/

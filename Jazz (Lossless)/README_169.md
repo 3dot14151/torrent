@@ -1,3 +1,177 @@
+###  Публикация: 1405015   (487393) от 28.08.2020
+
+Ruby Braff And The Flying Pizzarellis - C'est Magnifique! (2002) 2007, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lulu's Back in Town [7:50]
+02. Was I to Blame for Falling in Love with You? [4:56]
+03. You're a Lucky Guy [9:47]
+04. When a Woman Loves a Man [6:04](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E34FD61E7C9FAEC63E5B87B6E51600FB2BCDF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566074   (486525) от 27.07.2022
+
+Ahmed Abdullah Quartet - Liquid Magic (1988) Silkheart [APE|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mayibue [7:37]
+02. Reflections On A Mystic [5:16]
+03. Ebony Queen [8:15]
+04. Mystery Of Two [3:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C61568F350E187DB886100E23F608886175AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244009   (486184) от 30.08.2018
+
+Tom Harrell Quintet - Open Air (1987) SteepleChase [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terrestris [10:21]
+02. The Touch of Your Lips [9:13]
+03. Tricotism [6:03]
+04. Lover [6:51](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542A8BD742E94A8CBD2B01174D8F6D811B08608B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937814   (486165) от 16.09.2015
+
+Contrevent - Terre De Feu (1993) /CTV/[APE|image+.cue]<Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kilometre-Heure [03:58]
+02. Terre De Feu [07:16]
+03. Nutella [07:47]
+04. Le Miroir Des Yeux [07:22](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC45C80093D56C81ADCCDB6D92A9A6A49106244A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937802   (486160) от 16.09.2015
+
+Charlie Mariano - Innuendo (1993) /Lipstick Records/[FLAC|tracks+.cue]<Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innuendo [05:32]
+02. Innamorata [07:52]
+03. Side Dish [07:21]
+04. Dorothee [03:49](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583E62E139FCB75BE243B9EFB3EEB0DDB014C1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937828   (486157) от 16.09.2015
+
+Lou Donaldson Quartet - Forgotten Man (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confirmation [06:00]
+02. Wiskey Drinkin' Woman [05:35]
+03. This Is Happiness [03:45]
+04. Tracy [04:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C0D3CCA193D0EA4FE1FBCD9D95E24475F99760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937797   (486154) от 16.09.2015
 
 Ornette Coleman - The Unprecedented Music Of Ornette Coleman (1968) /2014, Studio Songs/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
@@ -577,193 +751,6 @@ Bill Evans - Re: Person I Knew (1974) /2012, Universal/[FLAC|tracks+.cue]<Post-B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C707762BB17DAA72A0328EB740430BA7A61094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405496   (483694) от 30.08.2020
-
-Jason Marsalis - Music Update (2008) ELM Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guess Who's Back? [1:10]
-02. Offbeat Personality [6:08]
-03. Ballet Class [4:27]
-04. Discipline Returns Once Again [3:56](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318C7B2736AC8E87E96D541151F5CC3E5637C069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405494   (483692) от 30.08.2020
-
-George Cables Trio - Skylark (1995) 1996, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fungii Mama [6:26]
-02. Fee-Fi-Fo-Fum [9:37]
-03. Manha de Carnival [7:40]
-04. Skylark [8:21](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1239117831B218BEEC55AAC8A5C22FC34B1D13B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545442   (483125) от 11.09.2012
-
-Bobby Hutcherson - Wise One (2009) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бобби Хатчерсон (Bobby Hutcherson, род. 27.01.1941, Лос-Анджелес) - американский джазовый вибрафонист. Рос в Пасадене (Калифорния), с 8 лет играл на фортеапино. Перешел на вибрафон, услышав записи Милта Джексона. Учился у Дэйва Пайка, подрабатывая в местных клубах. Стал известным после записи с Эриком Долфи (Out To Lunch, 1964).01. Wise One :: 07:52
-02. Like Sonny :: 05:50
-03. Aisha :: 05:10
-04. Equinox :: 05:30
-05. All Or Nothing At All :: 06:58
-06. Nancy (With The Laughing Face) :: 04:36
-07. Spiritual :: 06:42
-08. Out Of This World :: 06:17
-09. Dear Lord :: 04:59Жанр: Jazz, Post-BopФормат: CD, AlbumПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319464   (482840) от 12.08.2019
-
-Bill Evans - 3 Essential Albums (1963 - 1967) 3CD, Universal, 2018 [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482840.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - At Town Hall:
-01. I Should Care [5:31]
-02. Spring Is Here [5:03]
-03. Who Can I Turn To [6:21](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 02:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0055AC9A694B5BD5507E9080D39C70C850AB0DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566477   (482448) от 29.07.2022
-
-The Uptown String Quartet - Just Wait A Minute! (1992) Bluemoon [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Wait a Minute [4:54]
-02. Along Came Betty [4:06]
-03. Moose the Mooche [3:59]
-04. Summertime [3:19](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DCCCD5A4E0081F5793DE5C43A67FA3F83FD58E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545350   (482415) от 11.09.2012
-
-Jheena Lodwick - 4 альбома (2002 - 2007) [APE/FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Girl In Your Arms [03:07]
-02. As Time Goes By [04:42]
-03. It Had To Be You [03:40]
-04. These Foolish Things [04:28]
-05. Angel [02:49]
-06. Don't Be Cruel [02:41]
-07. We Can Work It Out [03:58]
-08. You Don't Know Me [05:33]
-09. Singing In The Rain [03:18]
-10. Que Sera, Sare [04:58](   Читать дальше...   )Жанр: Jazz, VocalФормат: XRCD24
-
-Jheena Lodwick - вокальный талант, красивый голос которой можно услышать на нескольких альбомах, интерпретации самой любимой классики, Elvis Presley и Beatles.  Голос, который хочется слушать и слушать.Продолжительность: 00:58:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

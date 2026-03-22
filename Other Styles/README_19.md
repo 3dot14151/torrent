@@ -1,3 +1,32 @@
+###  Публикация: 1363466   (942325) от 28.02.2020
+
+Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942325.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:38| 01. Enter The Ride
+|03:17| 02. Neon Gray
+|03:31| 03. Time Capsule
+|01:42| 04. Reverse Part(   Читать дальше...   )Жанр: Soundtrack, Score, ElectronicПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C754EA5C94D8A374ECB07A4C655ABD3A0F79802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363531   (942318) от 28.02.2020
 
 Группа Терёха - По следу солнца (2020) [MP3|320 Kbps] <Folk>
@@ -714,35 +743,6 @@ Felix Slovacek - Classic Essential (1994) [FLAC|Lossless|tracks + .cue] <Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C54821FD953F43F04CBF6948634E04BE4829BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364471   (936257) от 03.03.2020
-
-Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May It Be
-02. Ballroom Of Romance
-03. Granuaile's Dance
-04. Dulaman(   Читать дальше...   )Жанр: Celtic, New ageПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5946B06C6FB016DD528D1E1EE47F7AA5EAEFD66
 ```
 
 https://mybot314.ru/tekegram_catalog/

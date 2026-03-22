@@ -1,3 +1,119 @@
+###  Публикация: 992052   (904163) от 29.02.2016
+
+Planet P Project - Planet P (1983) Remastered, 2008, Renaissance Records [FLAC|Lossless|image + .cue]<Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Static 04:04
+02. King For A Day 03:57
+03. Won't Wake Up 03:46
+04. Top Of The World 04:34(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75372E5B733BF7C105EE002A21B3DB7F47575DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991827   (904098) от 29.02.2016
+
+Suzi Quatro - All the Best (2012) 2CD, Compilation [FLAC|Lossless|tracks] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can The Can (03:35)
+02. 48 Crash (03:54)
+03. Glycerine Queen (03:50)
+04. Rolling Stone (02:47)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 02:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0408C9DEC4954A5BCCDE943A05A48C9E171FF8D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492450   (904044) от 29.08.2021
+
+Mythopoeic Mind - Hatchling (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Canterbury Scene>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear Fiesta (07:51)
+02. Winter of '73 (06:57)
+03. Fog Vision (08:27)
+04. Cottage of Lost Play (08:32)(   Читать дальше...   )Жанр: Progressive Rock, Canterbury SceneПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB93A47F93934F4383A47CFF9D87D53C878E144D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991920   (903968) от 29.02.2016
+
+Dire Straits - Sultans Of Swing (The Very Best Of Dire Straits) (1998) Compilation, 2012, Vertigo [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultan Of Swing  05:50
+02. Lady Writer  03:49
+03. Romeo & Juliet  06:05
+04. Tunnel Of Love  08:14(   Читать дальше...   )Жанр: Rock, Classic Rock, Pop RockПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31D921FA99F9A20A91E7A0B7D37EB188253A5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369440   (903816) от 23.03.2020
 
 Oleg Serkov - Love Deviant (2009) EP, приложение к журналу CHIP [FLAC|Lossless|tracks] <Rock>
@@ -632,122 +748,6 @@ Hear N' Ade - Now Hear This (2016) [FLAC|Lossless|tracks + .cue] <Hard & Heavy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6BC5E0CB46C1A3B55D66F5BAFF82B6744FFC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100752   (898011) от 05.02.2017
-
-Pride Of Lions - Fearless (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I See Is You! (3:59)
-02. The Tell (4:42)
-03. In Caricature (3:57)
-04. Silent Music (4:16)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A02414356A2F019CE48EA082C34B00C516E279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493235   (897503) от 02.09.2021
-
-Yes - The Ultimate Yes: 35th Anniversary Collection (2003) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897503.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD -1:
-01.   Yours Is No Disgrace
- 02.   Survival
- 03.   Roundabout(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA822DA1C720FE2DC20ED38732C7C4266DC9E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370277   (897036) от 27.03.2020
-
-Brian Fallon - Local Honey (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Ready (04:32)
-02. 21 Days (03:32)
-03. Vincent (04:18)
-04. I Don't Mind (If I'm with You) (03:49)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A36D7656CBF12C0765B231CE10B05787FDC8681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638176   (896749) от 02.04.2013
-
-Dan McCafferty - Two Original Albums(2CD) (2002) [WavPack|Lossless]<Blues Rock, Pop Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Honky Tonk Downstairs [03:43]
-02. Cinnamon Girl [04:21]
-03. The Great Pretender [03:04]
-04. Boots Of Spanish Leather [04:59](   Читать дальше...   )Жанр: Blues Rock, Pop Rock, Hard RockПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

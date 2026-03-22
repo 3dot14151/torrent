@@ -1,3 +1,119 @@
+###  Публикация: 1288943   (692082) от 13.03.2019
+
+Изумрудный город - Мир не прервётся (2019) [MP3|320 kbps] <Hard'n'Heavy, Female vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гинденбург (04:17)
+02. Октябрь (04:21)
+03. Капитан (04:25)
+04. Небо красное (04:38)(   Читать дальше...   )Жанр: Hard'n'Heavy, Female vocalФормат: LPПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1034798B953D3EE83392C765215FAF0B582D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221864   (691374) от 26.04.2018
+
+Crystal Ball - Crystallizer (2018) [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystallizer
+02. Curtain Call
+03. Alive for Evermore
+04. S.O.S.(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F542FCC41B4DAD5BDA8A855C56B4A2C23769F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221877   (691132) от 26.04.2018
+
+Godsmack - When Legends Rise (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Legends Rise
+02. Bulletproof
+03. Unforgettable
+04. Every Part of Me(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7819D42E56E86603062B29F239E3178D91F3208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028360   (690799) от 22.06.2016
+
+Beyond All Recognition - Beyond All Recognition (2016) [MP3|320 кб/с] <Metalcore, Electronic, Industrial metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stain Your Name (04:15)
+02. Aesthetic / Pathetic (04:03)
+03. Elation (01:27)
+04. Revelation (04:17)(   Читать дальше...   )Жанр: Metalcore, Electronic, Industrial metalПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F19877710C4BD69EA3628DDF655FB330F1757C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028355   (690662) от 22.06.2016
 
 Whitechapel - Mark of the Blade (2016) Deluxe Edition [MP3|320 кб/с] <Hardcore, Metalcore, Deathcore>
@@ -643,122 +759,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD844C473D0D523959A8D828D2169C1AF6B3880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289686   (684341) от 17.03.2019
-
-Reptilian Death - The Dawn Of Consummation And Emergence (2013) [MP3|320 Kbps] <Brutal Death Metal, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PrimEvil (1:46)
- 02. Inchoate (2:16)
- 03. Stimulate. Hike. Impel. Tear (3:04)
- 04. Soaked With The Imperfections Of Puerile Blood (2:32)(   Читать дальше...   )Жанр: Brutal Death Metal, Technical Death MetalПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3614844116F399037EEA3C07FF0D10697FD72A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289741   (684339) от 17.03.2019
-
-Nargaroth - Era of Threnody (2017) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of Epiphany (8:08)
- 02. Whither Goest Thou (6:23)
- 03. Conjunction Underneath the Alpha Weel (7:07)
- 04. ...as Orphans Drifting in a Desert Night (5:34)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8E6FB3E6790560C9A7150C22448F4B87844797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028961   (684302) от 25.06.2016
-
-Doro - Strong and Proud (2016) Live [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Run (4:10)
-02. Save My Soul (3:37)
-03. Raise Your Fist (3:11)
-04. Fear of the Dark (feat. Blaze Bayley) (6:33)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51F44E0A0432FC2E4B70423D74FCBFF226AB9AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289732   (684232) от 17.03.2019
-
-Limbonic Art - Spectre Abysm (2017) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demonic Resurrection (10:21)
- 02. Ethereal Traveler (7:06)
- 03. Omega Doom (7:46)
- 04. Requiem Sempiternam (2:44)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3343B6100181E07A9D617C6EEBB22F588AC57297
 ```
 
 https://mybot314.ru/tekegram_catalog/

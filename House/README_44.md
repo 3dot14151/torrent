@@ -1,3 +1,142 @@
+###  Публикация: 1311244   (543686) от 28.06.2019
+
+VA - Time Traveler-Chapter 4 (2019) [MP3|320 Kbps] <Downtempo, Minimal, Deep Tech>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zazou & Landhouse – La PazЖанр: Downtempo, Minimal, Deep TechПродолжительность: 01:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254AEB81A8F9673E0AA73E422DF01F3AD44FC044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311247   (543619) от 28.06.2019
+
+VA - Fresh Out Of The Box, Vol.4 (2019) [MP3|320 Kbps] <House, Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camille & CEV's – Done Again
+02. Bonetti & Housego – From Chicago
+03. DJ Dashcam – Late Night Groove
+04. Arminoise – Germany(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 01:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC555993509E5221E0E140A207118A6AE233A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311261   (543601) от 28.06.2019
+
+VA - French Cafe Lounge - Downtempo & Deephouse Favourites (2019) [MP3|320 Kbps] <Electronica, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dual Sessions & Natalie Renoir – Too Much HeavenЖанр: Electronica, DowntempoПродолжительность: 02:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46D89F86B1697B97FF22769DA4A94A3CDE5D287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153897   (542962) от 29.07.2017
+
+VA - Raw Ibiza Tunes, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antonio Casertano - Downtown
+02. PhonkworX - Night Fever
+03. Jamie Antonelli - Civilian (feat JazzyFunk - Thomas Atzmann remix)
+04. Detroit Project - Diamonds(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8713EE083AC4CEBE85A1F8DB4AB9CCEA961843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154027   (542890) от 29.07.2017
+
+VA - Todd Terry, Mark Brown & Cr2 Allstars - Ibiza 2017 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toyboy & Robin - Tristis 06:15
+02. Flume feat. Little Dragon - Take A Chance (Kolsch Remix) 09:36
+03. DJ Wady - Hulk (Camelphat 2017 Re-Fix) 06:13
+04. Skapes - Hold It 05:42(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 09:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AD14426071599E4B9E8616BF96DFEC10E20708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239080   (542523) от 03.08.2018
 
 VA - Ultimate Workout & Fitness Selections Vol 02 (2018) [MP3|320 Kbps] <Progressive House>
@@ -590,151 +729,6 @@ VA - Armada Trice - Ibiza (2017) [MP3|320 Kbps] <House,Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E295B7DA4FC01306310708B7E1F8667A1C3E628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240103   (531395) от 09.08.2018
-
-VA - Sunrise Shore: Volume 02 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Furkan Senol - Sunshine (Original Mix)
-02. Mark Digital - Vintage (Original Mix)
-03. Michael Rehulka - I'm A Liar (Original Mix)
-04. Hamza Messaoudi - This Is Not Goodbye (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2F2254AB404CF3374B3F08A8A7CB4E0CE12030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155839   (529892) от 05.08.2017
-
-VA - Clubbing On Sunshine (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsedriver, Chris Deelay - Geiles Gefuhl (Short mix) 03:06
-02. Sal De Sol - Happy Ending (Vocal Club Mix) 03:45
-03. Franky Tunes - Free (Summer Breeze Remix) 03:26
-04. Topmodelz - Summer of 69 03:46(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C68AF987EA3B8DB0C9DCE5513DFD6866A9A1317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155768   (529790) от 05.08.2017
-
-VA - Freudentanz - Ibiza Party (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melbourne Freaks - Deep Deep Down (Extended Mix) 05:42
-02. Prince Ringo - Don Trumpet (Clubmix) 06:43
-03. Dj Absinth - Revolution (Club Edit) 04:36
-04. The Fakies - Real Love 04:55(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0969D49203511500565EFB932AD668F40D3A0ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155854   (529787) от 05.08.2017
-
-VA - Deep House Seduction, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando Olaya - Saint germain 07:56
-02. Hanney Mackoll - Digital Energy 05:32
-03. Caprivian - Shades 08:08
-04. Kemp&Thompson - WTMH 08:30(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FBA99EA7316A447F6A70CC508815DE31F28DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240243   (529769) от 10.08.2018
-
-VA - Top 50 Drops Summer '18 (2018) [MP3|320 Kbps] <House, Future House, Groove, Jackin, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momentums - Love By You (Original Mix) 3:45
-02. Kid Williams - Shimmy Yam, Shimmy Yay (Dub Mix) 4:13
-03. Patrick Richmond - I'm Losing Control (Original Mix) 4:32
-04. Justin Berger - Ohh My (Original Mix) 3:44(   Читать дальше...   )Жанр: House, Future House, Groove, Jackin, Tech HouseПродолжительность: 03:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303DDC3C85CA1D4A385B22C12305B77F48B6002B
 ```
 
 https://mybot314.ru/tekegram_catalog/

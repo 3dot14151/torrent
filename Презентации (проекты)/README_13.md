@@ -1,3 +1,55 @@
+###  Публикация: 1380896   (830960) от 04.05.2020
+
+Проекты - NNM-Club - Stop Corona Virus by Nataly11 - 1380896 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stop Corona Virus - шаблон After Effects, разработанный по мотивам Corona Virus (Five Simple Rules) и адаптированный для русского глаза.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C505DDBFD2039F5C2F70F9F4D892463B774AD1C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380597   (830959) от 04.05.2020
+
+Проекты - VideoHive - Corona Virus (Five Simple Rules) - 26203876 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Virus - проект на злободневную тему коронавируса.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE9049E04B91ED1A34CD197B083F22F28614C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005716   (830733) от 10.04.2016
 
 Проекты - Urban Life [AEP]
@@ -627,58 +679,6 @@ Political News Crisis Opener - это многоцелевой проект с �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D15E460EF4EE570022334B07DE403E772453F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006968   (824986) от 13.04.2016
-
-Проекты - VideoHive - Veil Nebula - 119479 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вступление (превью) к Вашему фильму.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE59E5C5666CB454F5AC04238B98787E26D33F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006906   (824917) от 13.04.2016
-
-Проекты - VideoHive - Sound Form & Strokes Trailer [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект предназначен, чтобы быть гладким, броским глазу, и привлекательным. Прекрасная последовательность, чтобы ввести области Вашей компании изящным способом. Или для визуализации аудио.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CB8246AC2F4076E4F3E048EF2B76079600F901
 ```
 
 https://mybot314.ru/tekegram_catalog/

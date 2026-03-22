@@ -1,3 +1,73 @@
+###  Публикация: 554730   (436310) от 01.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.Clauderman - Belle
+02. The Romantic Sax - Pourquoi Tu Maimes Encore
+03. Horst Wende - Schneewalzer
+04. R.King - Deliah
+05. G.Marradi - Clouds
+06. А.Артемьев - Песчаная буря (edit)
+07. Armik - For Your Eyes
+08. Karunesh - Atlantis
+09. Mario Battaini - El Picador
+10. F.Papetti - Melodia(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF810C555BF7F2EBB516F077A4C587CA4A9AC05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555213   (433656) от 02.10.2012
+
+VA - Инструментальная музыка (2012) vol. № 93 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Battaini - Storielle Del Bosco
+02. McCartney - Ebony And Ivory
+03. Анс. Арсенал - Танго
+04. Armik - Santa Barbara
+05. G.Marradi - Angelitos Negros
+06. А.Шишков -  Серебрянный лотос
+07. Arabian Night - Cinema
+08. Fitoussi - Words
+09. Jo Courtin - Le Plus Beau Tango Du Monde
+10. Е.Дога - Мелодии из кинофильмов(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09ADEB0B54F5FE048BA1E52B7DAA5140AB2826E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165581   (432327) от 13.09.2017
 
 VA - The World of Enigmatic Melody (2017) [MP3|256-320 Kbps] <Enigmatic, New Age, Electronic>
@@ -746,64 +816,6 @@ VA - Acoustic Covers for Weddings (2016) [MP3|320 Kbps] <Downtempo, Chillout, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AEAFF69FA6D08E380695803878B37D02C9E8FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949078   (379146) от 22.10.2015
-
-VA - Волшебные Инструментальные Мелодии (2015) [MP3|320 кб/с]<Instrumental, Pop>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379146.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fausto Papetti - Strangers In The Night
-002. Gipsy Kings - Michael
-003. Acoustic Alchemy - Jamaica Heart Beat
-004. Francis Goya - Exodus(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 09:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141692780049CEA21AF928BC720E0E5D8C482514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576049   (370693) от 12.09.2022
-
-Paul Mauriat - L'ete Indien (2003) Compilation, Unofficial Release, Not On Label [OGG Vorbis|485 Kbps] <Jazz, Pop, Easy Listening>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brasilia Carnaval
-02. L'ete Indien 'Africa'
-03. Melisa
-04. C'est Mieux Comme ca(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95388519ED652B99FD38778E553F7E96203DEF6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

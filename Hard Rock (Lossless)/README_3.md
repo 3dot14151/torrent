@@ -1,3 +1,90 @@
+###  Публикация: 1614830   (1038378) от 23.02.2023
+
+Royal Autumn - Life Is Strangely Accidental (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watcha Got? (03:36)
+02. Thin & Blond (04:36)
+03. Take It To The Grave (02:40)
+04. Life Is Strangely Accidental (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDE4F09A83F9B58833FD9EF2FDE5FFEF5078A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440880   (1038285) от 19.01.2021
+
+Tony Mitchell - Church Of A Restless Soul (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Church Of A Restless Soul
+02. Living On The Run
+03. In & Out Of Love
+04. The Mighty Fall(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698F10D6E1ECCC505DE1C50CC71AEBE5CCB1C8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615094   (1038125) от 24.02.2023
+
+El Supremo - Acid Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom, Space>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crowley Magick [00:03:11]
+02. The Ghost of… [00:10:35]
+03. 261 to Lisbon [00:07:25]
+04. White Hot Fever Dream [00:07:35](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Doom, SpaceПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB21A8CDF2EA2B561B2B81FE968D7025B03E0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615012   (1038110) от 24.02.2023
 
 Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
@@ -658,93 +745,6 @@ Ram Jam — рок-группа, родом из Нью-Йорка, Соедин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB483F761F3C0327F3065A5FE9EBCA088208B083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443792   (1034892) от 31.01.2021
-
-April Wine - 21 Albums, 1 Box-set, 35 CD (1971-2016) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034892.jpg" />
-</div>
-
-
-###  Подробнее
-
-April Wine — канадская рок-группа, образованная в 1969 году. По словам музыкантов, название April Wine было выбрано просто потому, что эти два слова хорошо звучали. April Wine, вместе с Rush и Heart, была одной из немногих хард-рок-групп, появившихся в 1970-х в Канаде и получивших коммерческий успех в США. Группа выпустила более 20 альбомов и продолжает вести активную (   Читать дальше...   )--------------------------
-
-01. Get Ready For Love (4:26)
-02. Hot On The Weels Of Love (3:14)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 25:00:13 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BEE41252278E0D4D10F2FB16B84B4ED604B8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617586   (1034834) от 08.03.2023
-
-Steel Panther - 7 Albums (2009-2023) [FLAC|Lossless|image + .cue] <Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steel Panther — глэм-роковая группа из Лос Анджелеса, основанная в 2000 году, специализируется на имитации и преувеличении аспектов hair-metalа 1980-х годов. Известна своими пошлыми юмористическими мотивами и текстами песен, а излюбленной лирической темой является откровенно сексуальный контент. Название группы было придумано не сразу, одни из первых названий были (   Читать дальше...   )--------------------------
-
-01. Never Too Late (To Get Some Pussy Tonight) (4:00)
-02. Friends With Benefits (3:54)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock |Продолжительность: 05:19:00 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E582A3955DF70BFE38D678766A94A8824FD9C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618458   (1034172) от 11.03.2023
-
-Seventh Crystal - Wonderland (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderland (04:22)
-02. Higher Ground (03:46)
-03. Hollow (04:10)
-04. Million Times (03:46)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard Rock, AORПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666109D663B1F688022A32E188550E2A359576AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

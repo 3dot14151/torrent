@@ -1,3 +1,148 @@
+###  Публикация: 1251777   (415248) от 02.10.2018
+
+Александр Зацепин - Музыка и песни из кинофильмов Леонида Гайдая (2003) [APE|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кавказская пленница
+01. Увертюра (01:18.42)
+02. Марш троицы (02:09.39)
+03. Медленный танец (03:03.56)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C15BF47E78B73975060C5B8F4FD62E150DDAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167558   (415180) от 21.09.2017
+
+Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dawn
+02 - Stars and Butterflies
+03 - The Living Sculptures of Pemberly
+04 - Meryton Townhall(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7C1FFECC3918145C38EF003F02284A27343A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167424   (415092) от 21.09.2017
+
+James Newton Howard - Waterworld (1995) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Titles
+02 - Escaping the Smokers
+03 - The Atoll
+04 - Prodigal Child(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A2D539B9E79481B8AD6096A509F207D916CB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167484   (415032) от 21.09.2017
+
+Trevor Jones - Around the World in 80 Days (2004) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Everybody All Over the World (Join the Celebration)
+02 - River of Dreams
+03 - It's a Small World
+04 - Around the World Overture(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486716AA2464556FC41A5AA670A1BB7658305F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167552   (414881) от 21.09.2017
+
+LeAnn Rimes - You Light Up My Life (1997) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You Light Up My Life (3:38)
+02 - The Rose (3:34)
+03 - Bridge Over Troubled Waters (4:40)
+04 - I Believe (2:22)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17CAB852F5A63994D7253D627939CB5ECA9FF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167717   (414874) от 21.09.2017
 
 The Romantic Strings Orchestra - Ebb Tide: Romantic Piano & Orchestra (1996) Compilation [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -605,152 +750,6 @@ Magna Canta - Deep Spirits (2000) [MP3|320 Kbps] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EB0F1D3BBA1DA0905B492C4D34854B33B0CC660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066586   (409747) от 27.10.2016
-
-Louis Landon - Healing Hearts 3 - Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing in the Light [00:04:47]
-02. Heart Song [00:04:47]
-03. Life Is Beautiful [00:04:52]
-04. Triumph of the Soul [00:04:44](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3FDD1AC017E485D8810F4F280B81AE84B514BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066560   (409527) от 27.10.2016
-
-Mike Higham & Matthew Margeson - Miss Peregrine’s Home For Peculiar Children / Дом странных детей Мисс Перегрин (2016) [MP3|320 Kbps] <Soundtracks, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Peregrine's Home For Peculiar Children
-02. Bedtime Stories
-03. Arrival At The Island
-04. A Place Like This(   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56737134A736E7D36C3DE9BE8738D13F4466C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252330   (409313) от 05.10.2018
-
-Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Current
-02 Memories
-03 The Revolutions
-04 Optimistic Waves(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1EA071513857301A07846CE4E47F0645E91B6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168343   (408794) от 24.09.2017
-
-Бахубали - Заключение / Baahubali - The Conclusion (2017) Язык песен - Хинди [MP3|320 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jiyo Re Bahubali | Jiyo Re Bahubali
-02 - Veeron Ke Veer Aa
-03 - Soja Zara
-04 - Jay-Jaykara(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0EA1D9AC58DCB102C4E2BE05B06BDF89FF6B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413524   (408202) от 04.10.2020
-
-Motoi Sakuraba, Yuka Kitamura - Dark Souls II SotFS (Original Soundtrack) (2015) [MP3|320 Kbps] <Soundtrack, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Souls II (рус. Тёмные души II) — видеоигра в жанре action/RPG, разработанная компанией From Software. Она является непрямым продолжением игры Dark Souls.
-В центре новой истории находится проклятый персонаж, который отправляется в далёкие земли королевства Дранглик, чтобы найти исцеление от поразившего его Проклятия нежити. Но оказавшись в этом мире, герой понимает, (   Читать дальше...   )CD1:
-01. Departure [4:11]
-02. Fire Keepers [2:44]
-03. Majula [3:17](   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 02:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F68FFF4E55E3CBDBF1B086EA2CCB815E218365
 ```
 
 https://mybot314.ru/tekegram_catalog/

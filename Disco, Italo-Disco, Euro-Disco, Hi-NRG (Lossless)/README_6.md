@@ -1,3 +1,32 @@
+###  Публикация: 1376315   (858677) от 18.04.2020
+
+Spatial Vox - Cause Of Shining In Your Eyes (The 1'st Album) (2019) [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cause Of Shining In Your Eyes (4:09)
+02. Right To My Self (3:17)
+03. Call My Name (3:38)
+04. Love Will Never Die (4:06)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F0BF952A9A079225B95E38DE43CF2960DDC4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109310   (858660) от 27.02.2017
 
 VA - The Best Disco '80 (Syndicate) (1980) Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
@@ -716,35 +745,6 @@ Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastere
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:708E02F3D82C4E1254C0B0159ABEA8B5159A8B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273507   (800625) от 01.01.2019
-
-Mode-One - Melodies Of Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Love You (feat. Lian Ross) (3:48)
-02. The Train Is Coming (3:53)
-03. City Of Angels (4:02)
-04. Come Back To Me (3:18)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7121013BAFE12E1158FD8BDD65E9E49CC15C5191
 ```
 
 https://mybot314.ru/tekegram_catalog/

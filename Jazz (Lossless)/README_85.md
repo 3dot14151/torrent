@@ -1,3 +1,32 @@
+###  Публикация: 1213745   (767414) от 18.03.2018
+
+Howard McGhee - Maggie: The Savoy Sessions (1948-1952) 1995, Savoy [APE|Lossless|image + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Lee [02:07]
+02. Short Life [01:58]
+03. The Talk of the Town [02:52]
+04. Bass C Jam [02:58](   Читать дальше...   )Жанр: BopПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4C5C61EFEB6BE87C7177635CEFC481926EC2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125908   (767203) от 16.04.2017
 
 Esther Marrow - Sister Woman (1972) Remaster 2010 [FLAC|Lossless|tracks + .cue] <Gospel, Soul, Funk>
@@ -716,35 +745,6 @@ Frank Minion - The Soft Land Of Make Believe (1960) 2013, Solid Records [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB76AA27A3B5774EA3022EB8ED1B9BE28A0AA702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394039   (765474) от 03.07.2020
-
-Ben Webster - Ben Webster's First Concert In Denmark 1965 (2019) Storyville Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In A Mellotone rehearsal [2:22]
-02. Pennies from Heaven [4:37]
-03. Blues in B-Flat [6:29]
-04. My Romance [8:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A520EF1D1B156DD8F5EFE84FE6DDF374ED0E687
 ```
 
 https://mybot314.ru/tekegram_catalog/

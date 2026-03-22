@@ -1,3 +1,32 @@
+###  Публикация: 1089722   (950640) от 04.01.2017
+
+VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950640.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vikki - Помолчим 3:16
+002. Mc Bad - Растопим Снег 3:12
+003. Таня Герман - Эмоции Мысли 3:20
+004. Gwen Stefani - Used To Love You 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D63681432646226650C5B53A6E5C7AC1819A0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088782   (950556) от 04.01.2017
 
 VA - Хитовый бум на Europa Plus. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
@@ -722,35 +751,6 @@ VA - Singles Chart Hot 100 Billboard (17 December) (2016) [MP3|128-320 Kbps] <Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35068AD9A2B8C9AC133B9FD80C75C9CFEB5BDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091090   (943142) от 09.01.2017
-
-VA - Singles Chart Hot 100 Billboard (31 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943142.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002. The Weeknd feat. Daft Punk - Starboy 3:51
-003. The Chainsmokers feat. Halsey - Closer 4:06
-004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D5504CD4F7FF0091EE5990DEAEB9B18F63A3BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

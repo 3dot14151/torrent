@@ -1,3 +1,32 @@
+###  Публикация: 1249073   (437337) от 22.09.2018
+
+Annelie - After Midnight (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Night
+02. Full
+03. Of
+04. A World(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F088464272F6247DA36C71EF490A6E8B9564AB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944476   (435846) от 09.10.2015
 
 Schubert - Piano transcriptions (Antti Siirala ) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Recitals, Modern, Suite, Song, Post-Romantic, Variations, Overture, Waltz, Fugue, Transcrip ...
@@ -702,35 +731,6 @@ Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:088E8EC80CE2EB183AF7D04ED7E6F439DD7CCEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960222   (309924) от 27.11.2015
-
-Schubert - Piano Sonatas - Christian Zacharias (Vol.2) (2CDs) (1998) [FLAC|image +.cue]<Classical, Recital, Romantic Period, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonate en la majeur D.959
-01. Allegro (15:40)
-02. Andantino (07:37)
-03. Scherzo (allegro vivace) (05:37)(   Читать дальше...   )Жанр: Classical, Recital, Romantic Period, SonataПродолжительность: 02:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D50827E1D73576996D89347F3ECD19B5BBD8F6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

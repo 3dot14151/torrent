@@ -1,3 +1,32 @@
+###  Публикация: 1730364   (53193) от 15.06.2024
+
+VA - Mozart: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice - I. Allegro (3:08)
+02. Katya Kramer-Lapin - 2 Transcriptions on Themes from Mozart's Requiem, S. 550 - No. 2, Lacrymosa (3:36)
+03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331╱300i - I. Andante grazioso (2:15)
+04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7239D9197A716CA7CDE730CEC9CCFC2995485A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732073   (52203) от 24.06.2024
 
 Mozart - Complete Piano Sonatas (2014) (Михаил Воскресенский) [FLAC|Lossless|tracks] <Classical, Piano, Sonata>

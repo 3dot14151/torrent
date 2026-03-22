@@ -1,3 +1,32 @@
+###  Публикация: 1379916   (835975) от 01.05.2020
+
+VA - Home Sweet Rock (2020) [MP3|320 Kbps] <Rock , Indie Rock, Rock Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Talking Heads - This Must Be the Place (Naive Melody) (2005 Remaster) (4:56)
+2.David Bowie - Sound and Vision (2017 Remaster) (3:04)
+3.Fleetwood Mac - Dreams (2004 Remaster) (4:17)
+4.The Rolling Stones - Gimme Shelter (4:30)(   Читать дальше...   )Жанр: Rock , Indie Rock, Rock PopПродолжительность: 04:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279B97DD3C002A484B46DE957D1F14ECA20EA77F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379970   (835897) от 01.05.2020
 
 VA - Classic Pop-Rock Hits (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
@@ -717,35 +746,6 @@ Styx - Best of the Best (1972-2017) 2 CD (De-Noised) (2020) Remaster SMRP [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3227417950E8FC4CF495170E1CFD4F99C745F99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502827   (823044) от 17.10.2021
-
-VA - Oblivion: Metal & Hard Rock Compilation (2021) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Primal Age - Intro & Wise Old Man
-002. Concilium - From The Chalice
-003. Zero Trust - Birch
-004. Natural Born Machine - Moonchild(   Читать дальше...   )Жанр: Metal, Hardcore, Hard RockПродолжительность: 08:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14755B760254B1E320BA7AAA346FB74DB62C4D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

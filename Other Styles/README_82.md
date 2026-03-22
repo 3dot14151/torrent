@@ -1,3 +1,148 @@
+###  Публикация: 1295503   (618797) от 13.04.2019
+
+Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lincoln (3:09)
+02. Newspaper Gown (2:55)
+03. Oh Weather (1:07)
+04. South (3:07)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295528   (618606) от 13.04.2019
+
+Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoo Town Zydeco (4:32)
+02. En haut de la montagne (4:30)
+03. Chère Aline (5:02)
+04. Bureaucrates (4:29)(   Читать дальше...   )Жанр: Zydeco, Cajun, FolkПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEDB9AB40C6ED42276642AF727443233CC649AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144577   (618093) от 27.06.2017
+
+Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abundant Harvest 06:58
+02. Bubble of Peace 06:35
+03. Frequency of Clouds 06:53
+04. Cave Painting 05:38(   Читать дальше...   )Жанр: Psychedelic, Meditative, AmbientПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ACF4AA24FBF0C9B7EF0149399531867FE2D9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911115   (618037) от 22.06.2015
+
+Bill Justis - More Instrumental Hits By Bill Justis (1965) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Roses For A Blue Lady
+02. Lazy River
+03. Three O'Clock In The Morning
+04. Tequila(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F543AE8B3CAF6FB17A2ADC0339CA6C339FA1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145791   (617747) от 27.06.2017
+
+Steve Jablonsky - Transformers: The Last Knight / Трансформеры: Последний рыцарь (Music from the Motion Picture) (2017) [FLAC|Lossless|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrifice (06:47)
+02. The Coming of Cybertron (04:59)
+03. Merlin's Staff (05:49)
+04. No-Go Zone (03:29)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1CDB51E3DEDFA29E6B16E0C7285E3A0FD535FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911374   (617680) от 22.06.2015
 
 VA - The 50 Best Instrumental Rock Songs Ever (2014) 2CD [MP3|192 кб/с]<Instrumental Rock, Oldies>
@@ -624,160 +769,6 @@ C'est La Vie ...Lily (1970)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046BAD7CFC2A5363B271D244422A3479E9131622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545676   (613276) от 20.04.2022
-
-Father John Misty - Chloë and the Next 20th Century (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Indie Folk, Singer-Songwriter>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloë (3:28)
-02. Goodbye Mr. Blue (5:00)
-03. Kiss Me (I Loved You) (3:57)
-04. (Everything But) Her Love (4:16)(   Читать дальше...   )Жанр: Indie Folk, Singer-SongwriterПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5ACA3C07824C72DDF10E50093F1894FB318473A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545678   (613030) от 20.04.2022
-
-Giovanni Marradi - Piano Poetry (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Chilly Wind From The North (3:37)
-02. Concerto De Aranjuez - Mon Amor (4:05)
-03. Roggy's Theme (3:17)
-04. Requiem (3:14)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99AD882ADDB632504FFBCF3AE2B7B6C3B025DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221675   (612882) от 25.07.2010
-
-VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612882.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:52) 01. Jonas Assarsson - Calm Breeze
-(4:42) 02. Bindu - The Natural Flow
-(6:33) 03. Skovbye/Brander - Friendship part 2
-(4:47) 04. Egil Fylling - So many to make time for
-(4:13) 05. Steen Hansen - The Beach
-(4:40) 06. Jan Skogvaard Petersen - The first Wave
-(3:53) 07. Pushkar - Manamalei
-(6:09) 08. Gabrielle - Blind Mary
-(4:59) 09. Carsten Rosenlund - She Moved Through the Fair
-(4:46) 10. Peter Bastian & Stig Moller - Just Be(   Читать дальше...   )Жанр: Relax, ChilloutПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522638   (612832) от 18.07.2012
-
-VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood Bowl Orchestra - John Dunbar Theme {Жанр: Classical, Pop, Rock, Stage & ScreenФормат: BoxSet 2CDПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524322   (612603) от 18.07.2012
-
-Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up All Night (2:43)
-02. Treading Water (3:38)
-03. Relax My Beloved (3:31)
-04. Too Close (4:16)
-05. When Doves Cry (4:08)
-06. Hummingbird (3:50)
-07. Hands Are Clever (3:16)
-08. Tightrope (3:37)
-09. Whispering (4:30)
-10. Love You (4:39)(   Читать дальше...   )Жанр: Soul/Pop/DubstepПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

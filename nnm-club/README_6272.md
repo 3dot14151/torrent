@@ -1,25 +1,341 @@
-###  Публикация: 1385611   (797193) от 25.05.2020
+###  Публикация: 1507103   (798791) от 03.11.2021
 
-VA - Top 40 Beatspot Summer '20 (2020) [MP3|320 Kbps] <House, Future House, Bass House, Tech-House>
+VA - New Orleans Orange: Urban Chillout Music (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris le Blanc, Leo Zabarella - Melville Sings the Blues (Album Mix) (3:35)
+02. Schwarz & Funk - Take Me Home (Original Mix) (5:54)
+03. Soul Trend - Sunday Morning (4:27)
+04. Sandro Gibellini Trio, Sandro Gibellini - Walk on By (2:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A60ED0AA6E551562225EE56DF39C8FFB0306FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507109   (798790) от 03.11.2021
+
+VA - Eivissa Orange: Urban Chillout Music (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol, Florito, Martine - Love Finds You (Ibiza Lounge Mix) (4:21)
+02. STJ, Liba - She Believes (Radio Version) (3:42)
+03. Chillson, Marc Hartman - Free as a Bird (Original Mix) (4:38)
+04. Marga Sol - Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1380386169A6B796433C7044A89CEA6BE25BC527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507122   (798789) от 03.11.2021
+
+Aldo Romano - Threesome (2004) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abruzzi [6:02]
+02. Ghost Spell [4:58]
+03. Fleeting [8:47]
+04. Blues for Nougaro [6:33](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91069904F52CB29CFCB40A62DA8D1174AE67CC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507202   (798788) от 03.11.2021
+
+Nightivity - Deathsurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:29)
+02. The Curse (05:48)
+03. Annabelle (04:37)
+04. Ouija (04:03)(   Читать дальше...   )Жанр: Heavy Metal, Male Female VocalПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FBB2DB1D25A82BF18035F945641C376689167E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507185   (798787) от 03.11.2021
+
+Draconicon - Dark Side of Magic (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Principium Tenebris
+02. Fiery Rage
+03. Dark Side of Magic
+04. Blackfire(   Читать дальше...   )Жанр: Power Metal, Symphonic Folk MetalПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B6DAAD5C460DC760F7183A2948703E107471D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507286   (798786) от 03.11.2021
+
+ColoFolXS 2.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компактное приложение для раскрашивания папок.
+Основные шаги очень просты:
+1. Запустите ColoFolXS.
+2. Перетащите папку в цветную ячейку.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: TrollinПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47458E0DA6572BBF5E4B8C5385480000B8AAD24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507238   (798785) от 03.11.2021
+
+4K Video Downloader 4.18.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14F34AFD50C815B5D991B7C663EDE8122EBBB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507111   (798784) от 03.11.2021
+
+VA - Strasbourg Orange: Urban Chillout Music (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airily - That's What I Want (Seaside Remix) (4:19)
+02. Ibiza Chilled - Sunset Salinas (Original Mix) (7:06)
+03. Living Room - Slow Motion Sunset (Original Mix) (5:22)
+04. Deeparture - Dream On (Original Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D258BC3B75E92A7BDEA8D5D1C2B19E55CBD43C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507097   (798783) от 03.11.2021
+
+VA - Florence Orange: Urban Chillout Music (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giacomo Bondi - Beleza Pura (Instrumental) (5:52)
+02. Marga Sol - Temple of Love (Original Mix) (6:43)
+03. Francesca Gramegna - What Is Love (3:38)
+04. Brass - Wind of Summer (3:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1F2606A49A7682D662009DC39A6D993C35DB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507142   (798782) от 03.11.2021
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Бавария (Германия) - Бенфика (Португалия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Бавария (Германия) - Бенфика (Португалия)(03.11.2021)
+СУДЬЯ Марциняк Шимон (Плоцк, Польша)
+Судья на линии 1: Сокольницкий Павел (Польша)
+Судья на линии 2: Листкевич Томаш (Польша)(   Читать дальше...   )Телекомпания: Матч! Футбол 3Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C654F72DC58E24080576E79CF0874BD527D192D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507141   (798781) от 03.11.2021
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''F'. Тур 4. Аталанта (Италия) - Манчестер Юнайтед (Англия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''F''. Тур 4. Аталанта (Италия) -  Манчестер Юнайтед (Англия)(03.11.2021)
+СУДЬЯ Винчич Славко (Словения)
+Судья на линии 1: Кланчник Томаш (Словения)
+Судья на линии 2: Ковачич Андраж (Словения)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF90CBB5B9226528FFF98D94D2740DF37775704E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273865   (798780) от 04.01.2019
+
+VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797193.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Daniele Francesco - Rock To The Rhythm (Jay Lutwen Remix) 4:25
-02. Junior XL - Bring Back To Life (Dub Mix) 4:23
-03. Fishbird - Desire (Original Mix) 4:56
-04. Dave Sparks - Shake Like That (Dub Mix) 4:59(   Читать дальше...   )Жанр: House, Future House, Bass House, Tech-HouseПродолжительность: 03:06:12
+01. Nathan Adams, Sabrina Joy-Yourself (Sean McCabe Main Vocal Mix)
+02. Zepherin Saint, Miranda Nicole-Butterflies (Live Mix)
+03. Vanco, Zano-Ms Jailer (feat. Zano)
+04. Gino Brown, Nonny D - Time No Dey (feat. Nonny D)(   Читать дальше...   )Жанр: Soulful HouseПродолжительность: 01:30:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:584211216961A944C8768101E08DAF25A617485B
+magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385572   (797192) от 25.05.2020
+###  Публикация: 1273892   (798779) от 04.01.2019
 
-Наиль Абдуллазаде | Саваран (2020) [MP3]
+Johnny Frigo - Summer Me!: Live at Battle Ground (1986 - 1997) 2008, Log Cabin Records [FLAC|Lossless|image + .cue] <Swing, Violin Jazz>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797192.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оставшись сиротой, он заключает сделку с дьяволом, берёт себе новое имя и поступает на службу в персидскую конницу – саваран. Он хочет найти своего отца, о котором знает, что тот один из лучших военачальников персидской армии. Все его тело испещрено шрамами, и теперь он сам похож на демона. Сможет ли он вернуть себе человеческий облик и разорвать сделку с дьяволом (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 03:29:40
+01. Quando, Quando, Quando [4:26]
+02. The Song Is You [5:15]
+03. Polka Dots and Moonbeams [4:25]
+04. Czardas [4:19](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:17:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5576489FE01F6D3A1EA7AB307ABFBBE2DA3CD528
+magnet:?xt=urn:btih:72681D539205A13B685345986C8EDAFCA4DA5FE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385710   (797191) от 25.05.2020
+###  Публикация: 1273827   (798778) от 04.01.2019
 
-VA - Summer Pop 100 (2020) Explicit [MP3|320 Kbps] <Pop>
+It Hugs Back - Inside Your Guitar (2009) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock>
 
->>Pop
->>Зарубежная поп-музыка
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797191.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. The Veronicas - Untouched 4:15
-002. Duran Duran - Rio (U.S. Remix) 5:25
-003. Urban Bossa Club - Goosebumps 3:04
-004. LCD Soundsystem - Daft Punk Is Playing At My House 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:50
+1. Q 4:32
+2. Work Day 2:59
+3. Don't Know 3:42
+4. Forgotten Song 4:01(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:590D57E01F495A2CB7D7DC7C4F5DA3D30CE68792
+magnet:?xt=urn:btih:654024265AC7B8B69B59E902E007288F14D84731
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +401,143 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385599   (797190) от 25.05.2020
+###  Публикация: 1273977   (798777) от 04.01.2019
 
-Ocenaudio 3.7.16 Repack (& Portable) by elchupacabra [Multi/Ru]
+Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Electro, Broken Beat, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krupp (04:17)
+ 02. Spring Break (05:18)
+ 03. Krupp (Minilogue Remix) (09:45)Жанр: Breakbeat, Electro, Broken Beat, Tech HouseПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274FD0335A5CF9986690552CBA074D3A910608D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273970   (798776) от 04.01.2019
+
+310 - SMoKE DoGS (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Ambient, Future Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SMoKE DoGS Theme (04:33)
+02. Put Down That Phone (03:27)
+03. Amaroq (05:00)
+04. Chin Music (04:27)(   Читать дальше...   )Жанр: Downtempo, Experimental, Ambient, Future JazzПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159738922D44D124668A8BC4D13FE402B156FC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273912   (798775) от 04.01.2019
+
+They Might Be Giants - The Escape Team (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jackie the Clipper
+02. Chip the CHiP
+03. Burnice
+04. Dr. Sy Fly(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156B1E65B9D325CF9BB185526C76172BE5A1DDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273986   (798774) от 04.01.2019
+
+Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bugsmasher (04:50)
+ 02. Katacomb (05:43)
+ 03. Oceans 1300 (05:59)
+ 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273919   (798773) от 04.01.2019
+
+Kryder - Kryteria Radio 167 (Best Of 2018) 2019-01-02 [MP3|192 Kbps] <House, Tech House, Tribal House>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797190.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ocenaudio — аудио-редактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. FISHER - Losing It (Dave Winnel For The Win Remix)
+02. Safri Duo - Played A Live (The Bongo Song) (Massivedrum 2K18 Remix)
+03. Agent Greg & Dim Chord - RYDM
+04. Sunnery James & Ryan Marciano x Nicola Fasano & Adam Clay - Born Again (Babylonia) (Festival Mix)(   Читать дальше...   )Жанр: House, Tech House, Tribal HouseПродолжительность: 01:37:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CCD97D3B1EFC8D9831EAECBDF02642D86B9ABA9
+magnet:?xt=urn:btih:D6C1CF086F91EF876445226F8EF1C8C4BA5E41BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +545,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508356   (797189) от 08.11.2021
+###  Публикация: 1273856   (798772) от 04.01.2019
 
-Car Tuning Simulator (2021) [En] (1.0) License PLAZA
+Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] <Glitch, Ambient, Minimal, Acoustic>
 
->>Win Игры
->>Racing
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797189.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Car Tuning Simulator разработан, чтобы вы могли создать, модифицировать и покрасить свой собственный, роскошный автомобиль, а потом отправиться на трассу, чтобы проверить его в деле! Выберите один из предложенных автомобилей, замените капот, фары, колеса, и другие комплектующие. Эта игра предлагает вам гибкий редактор кастомизации автомобиля, широкий выбор запчастей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Flex EntertainmentЖанр: Симулятор, Гонка, АркадаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+01. Corkscrew (09:43)
+ 02. Girl With The Silver Eyes (09:40)
+ 03. Remedios The Beauty (15:37)
+ 04. Stars Aligned, Webs Spun (20:41)Жанр: Glitch, Ambient, Minimal, AcousticПродолжительность: 00:55:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B554B8158BB1420A1E279258543BF8ADAA4CEE12
+magnet:?xt=urn:btih:E53F14BC86A1B4A71DD6B9486BC2096B36833686
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +574,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507985   (797188) от 08.11.2021
+###  Публикация: 1273837   (798771) от 04.01.2019
 
-Уроки испанского / Language Lessons (2021) WEB-DL [H.264/1080p-LQ] [DVO]
+Saba - Care For Me (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797188.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Адам живёт в калифорнийском Окленде и состоит в счастливом браке. Однажды он получает необычный подарок — 100 уроков испанского языка онлайн. Его улыбчивую преподавательницу зовут Кариньо, она находится в Коста-Рике. У Адама в камеру видно идеально обставленный дом с бассейном, у Кариньо — мини-доску с приветственной надписью и что-то вроде комода с ковриком. После (   Читать дальше...   )Производство: США / Duplass Brothers ProductionsЖанр: Драма, комедияРежиссер: Натали МоралесАктеры: Марк Дюпласс, Натали Моралес, ДеШон Терри, Кристин КесадаПеревод: Двуголосый любительский (AlphaProject)Субтитры: Английские (хардсаб на испанскую речь)Продолжительность: 01:31:06
+01. Busy / Sirens (feat. theMIND) (5:29)
+02. Broken Girls (4:37)
+03. Life (3:48)
+04. Calligraphy (3:04)(   Читать дальше...   )Производство: Saba Pivot LLC - 843357130095Жанр: Hip-Hop, Jazz HopПродолжительность: 00:42:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:271214F9099E1976F1A118C62B5DCF000C2A3FB4
+magnet:?xt=urn:btih:BA250E295F4DC3D1742FDFBBB1D62B6E44AF53BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,527 +603,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507447   (797187) от 08.11.2021
+###  Публикация: 1273840   (798770) от 04.01.2019
 
-ABBA - Voyage (2021) [MP3|320 Kbps] <Pop>
+Azrael - Moonchild (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Birth Of The Universe (Instrumental) [01:40]
+2. Moonchild [04:50]
+3. Surveillance Society [04:39]
+4. Fly Till The End Of Time [04:48](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E41790FFB9BBEDABBB290F4B3556B6E8FD6FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273794   (798769) от 04.01.2019
+
+Lizard - Half-Live (2018) [FLAC|Lossless|tracks + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half-Live I (19:49)
+02. Half-Live II (24:03)Жанр: Prog RockПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321FEA39A00BEA155013DC14E70163EA88FEFB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273833   (798768) от 04.01.2019
+
+Berlin Blondes - The Complete Recordings (1980-1981) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Synthpop,New Wave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Framework
+02.	Astro
+03.	Science
+04.	Romance(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F001235C255C719EE87F8C0CC0ED080D193EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273785   (798767) от 04.01.2019
+
+Boston ‎– Walk On (1994) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Your Love (5:33)
+02. Surrender To Me (5:33)
+03. Livin' For You (4:57)
+Walk On Medley:(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A7B11CEEE2555BE6A75954039CCD3B70505986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273843   (798766) от 04.01.2019
+
+Colorado - California Dreaming (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797187.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. I Still Have Faith In You
-2. When You Danced With Me
-3. Little Things
-4. Don't Shut Me Down(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
+01. California Dreaming (7:07)
+02. Bus Stop (5:11)
+03. Should I (4:15)
+04. Colorado Stones (5:40)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32568ECA64349CFEF3127232DF41A7EA7865F569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508369   (797186) от 08.11.2021
-
-The Legend of Tianding (2021) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте за Ляо Тяньдина, также известного как Ляо Теньтин (Liao Tianding, Liāu Thiam-Ting), - разбойника из Тайбэя, разыскиваемого колониальными японскими властями. Возьмите на себя роль легендарного тайваньского преступника: грабьте богатых, кормите бедных и сражайтесь за справедливость на улицах Тайбэя начала 20 века. Игра The Legend of Tianding сделана в (   Читать дальше...   )Тип издания: LicenseРазработчик: Creative Games Computer Graphics CorporationЖанр: RPG, Action, Adventure, PlatformerЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6281D68CFC8440EF1BFF934DBAA04EE0474D7F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508265   (797185) от 08.11.2021
-
-Метод: Добыча мертвеца / Bangbeom: jaechaui (The Cursed Deads Mans Prey) (2021) WEB-DLRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Происходит серия загадочных убийств, как-то связанная с восставшими из мёртвых, которые могут ходить и говорить. Ожившими трупами явно кто-то манипулирует.Производство: Корея Южная / Climax StudioЖанр: Боевик, фэнтези, детективРежиссер: Ким Ён-ванАктеры: Ом Джи-вон, Чон Джи-со, Чон Мун-сон, Ким Ин-гвон, Ко Гю-пхиль, О Юн-а, Ли Соль, Квон Хэ-хё ...Перевод: Многоголосый любительский (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6746D6CFA41BBE18DD524CC20A3810F1E1914C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955125   (797183) от 08.11.2021
-
-Mujaki no Rakuen / Paradise of Innocence / Невинный Рай [2014-2016, OAD, 3 эп.] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если бы вам выпал шанс вернуться снова в детство и переписать свою жизнь заново, упустили бы вы такую возможность? 25-летний неудачник, который на встрече одноклассников вдруг понимает, что угробил свои лучшие годы и ничего не добился. Все его друзья нашли для себя лучшие профессии. Кто-то был актрисой, кто-то лучшим доктором в стране. Задумавшись, он неожиданно (   Читать дальше...   )Производство: SevenЖанр: комедия, школа, романтика, эттиРежиссер: Араки ХидэкиЯзык субтитров: Русский (отключаемый)Продолжительность: 3 серии по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B91F5D263B3C747D87A495002E7AE3E2F704136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412757   (797182) от 08.11.2021
-
-Свой среди чужих, чужой среди своих (1974) HDTV [H.264/1080i]
-
->>След.
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797182.jpg" />
-</div>
-
-
-###  Подробнее
-
-1920-е годы, маленький город на юге России. Гражданская война закончилась, но до полной победы большевиков ещё далеко. Группа бандитов из бывших белых офицеров грабит поезд с золотом, на которое нужно было купить хлеб для голодающих, и пятеро друзей - бывших красных бойцов - вступают с ними в смертельную схватку. Подозрение в предательстве падает на одного из них, (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Боевик, драмаРежиссер: Никита МихалковАктеры: Юрий Богатырёв, Анатолий Солоницын, Сергей Шакуров, Александр Пороховщиков, Николай Пастухов, Александр Кайдановский, Никита Михалков, Николай Засухин, Александр Калягин, Константин Райкин, Александр ЯковлевСубтитры: РусскиеПродолжительность: 01:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED230E56448AFD4251986B07EF70BCBABABBA15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508412   (797181) от 08.11.2021
-
-Проекты - VideoHive - Cinematic Elegant Particles Titles - 21624233 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частицы движутся органично, чтобы придать футуристический и элегантный вид любому сообщению или заголовку.
-Через Control Panel можно настроить цвета: заголовков, переходов, частиц.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D566AFFEA88AB5E964EB25DCC4CF68FE5A7A43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508404   (797180) от 08.11.2021
-
-Нарко: Мексика / Барыги: Мексика / Narcos: Mexico (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) VSI Moscow
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797180.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1980-х годах Феликс Гальярдо решил объединить разрозненных и независимых производителей и дилеров наркотиков Мексики и построить собственную криминальную империю. В это же время агент Управления по борьбе с наркотиками Кики Камарена, получив повышение, переезжает с женой и маленьким сыном из Калифорнии в Гвадалахару. На новом месте он сталкивается с сильнейшим (   Читать дальше...   )Производство: Мексика, США / Gaumont International TelevisionЖанр: Драма, криминалРежиссер: Андрес Байс, Амат Эскаланте, Алонсо Руис ПалашиосАктеры: Диего Луна, Майкл Пенья, Теноч Уэрта, Алисса Диас, Хоакин Косио, Хосе Мария Яспик, Мэтт Летчер, Эрнесто Альтерио, Алехандро Эдда, Фернанда УррехолаПеревод: Дублированный (VSI Moscow)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), украинские, АнглийскиеПродолжительность: ~00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D983532965658907536E42191E50121EE9A8C314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508358   (797179) от 08.11.2021
-
-Macrium Reflect 8.0.6353 Free Edition [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrium Reflect Free обладает интуитивно понятным пользовательским интерфейсом, состоит из набора полезных утилит для резервного копирования и восстановления данных.
-Бесплатная утилита получила высокие оценки за выполнение задач резервного копирования. Она способна защитить ваши личные документы, фотографии, музыку, сообщения электронной почты от утери, просто нужно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04E52136C125F3FB7A5FC8BE2CEED6ADD168E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 244535   (797178) от 08.11.2021
-
-Потопить Бисмарк / Sink the Bismarck / Schlachtschiff Bismarck (1996) DVDRip
-
->>Документалистика и Телепередачи
->>Флот
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797178.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 мая 1941 года в истории Второй мировой войны произошло знаковое событие: английский флот уничтожил самый мощный боевой корабль того времени — германский линкор “Бисмарк”. Уничтожил после долгой, полной приключений погони, потеряв при этом “гордость и символ Британской империи” — линейный крейсер “Худ”.Производство: ВеликобританияЖанр: ДокументальныйПеревод: Одноголосый профессиональный.Продолжительность: 01:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3603B3C602E5AFFFABF975FE7B096F3B43F830B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508507   (797177) от 08.11.2021
-
-Воспоминания / Reminiscence (2021) UHD BDRip [H.265/1080p-LQ] [HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалёкое будущее, Майами почти полностью ушёл под воду из-за глобального потепления. Частный детектив Ник Баннистер с помощью специальной технологии выискивает в человеческой памяти нужные моменты, чтобы заказчик мог заново пережить прошлое и вспомнить что-то важное. Однажды на пороге его офиса появляется клиентка с простой просьбой: она забыла, где оставила ключи. (   Читать дальше...   )Производство: США / FilmNation Entertainment, Kilter Films, Michael De Luca ProductionsЖанр: Фантастика, триллер, мелодрама, детективРежиссер: Лиза ДжойАктеры: Хью Джекман, Ребекка Фергюсон, Тандиве Ньютон, Клифф Кёртис, Дэниэл Ву, Моджиан Ариа, Марина Де Тавира, Бретт Каллен, Натали Мартинес, Анджела СарафянПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4071114E90791B33A5001291A83B0C3A9E8DB926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508432   (797175) от 08.11.2021
-
-USB Drive Factory Reset Tool 3.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797175.jpg" />
-</div>
-
-
-###  Подробнее
-
-USB Drive Factory Reset Tool – помогает восстановить или вернуть USB-накопитель обратно в исходное состояние с одним разделом диска, загруженным с любой файловой системой FAT, FAT32, exFAT или NTFS, очень просто. Это позволяет легко обнаружить USB-накопитель и снова использовать его на всех компьютерах, маршрутизаторах и смарт-телевизорах.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE491FA6B9E0AB5753990AE86BF0EBAB10093EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508424   (797174) от 08.11.2021
-
-WinSetupFromUSB 1.10 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797174.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinSetupFromUSB – это портативная программа для создания мультизагрузочных USB-флешек с установочными версиями Windows, Linux, а также различными загрузочными образами и утилитами.
-WinSetupFromUSB позволяет создать загрузочную USB-флешку, предназначенную для установки Windows, Linux, а также загрузочных антивирусных и системных утилит. Программа поддерживает запись (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8EA1D37FBB96DB5FD253FF9EB6DAA3986CFFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508440   (797172) от 08.11.2021
-
-Финч / Finch (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постапокалипсис. Инженер-робототехник Финч переживает, что никто не сможет позаботиться о его собаке после смерти. Он строит робота и отправляется в путешествие, обучая своего нового компаньона жизни, любви, дружбе и дает ему понять, что значит быть человеком.
-
-История трогательного путешествия, в которое отправляется главный герой, вместе со своей собакой и с роботом, (   Читать дальше...   )Производство: Великобритания, США / Amblin Partners, Dutch Angle, ImageMovers, Misher Films, Walden MediaЖанр: Фантастика, драмаРежиссер: Мигель СапочникАктеры: Том Хэнкс, Калеб Лэндри Джонс, Лора Каннингэм, Мари Уэйдженман, Оскар АвилаПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (вшитые стилизованные неотключаемые, на надписи и прочее, как в кинотеатре)Продолжительность: 01:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5983855B50D137694552D4CEA0E58E42BFCCE40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301798   (797171) от 08.11.2021
-
-TouchRetouch v4.4.16 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797171.jpg" />
-</div>
-
-
-###  Подробнее
-
-TouchRetouch это приложение для качественного и быстрого удаления нежелательных объектов с фотографий.Тип издания: Пиратка (Full)Релиз состоялся: 21.05.2021Разработчик: ADVA SoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80603D8607DE77758C129F4929499C2827CEFF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508341   (797169) от 08.11.2021
-
-MInstAll v.07.11.2021 By Andreyonohov (ISO) [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами обновленный 07 Ноября 2021 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CA3F2AD735CEEFC881A7F35C9336947FFF5F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508342   (797168) от 08.11.2021
-
-MInstAll v.07.11.2021 By Andreyonohov (Unpacked) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами обновленный 07 Ноября 2021 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE8D6093DC37B76F308EED61F67F2B2F040926F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390902   (797167) от 08.11.2021
-
-Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 1-26 из 26] BDRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая принцесса эльфов Абрикотин должна до полного солнечного затмения вернуться в свою родную страну Фонтанию, захваченную силами чудовища-Скорпиона. Если она успеет сесть на трон до затмения, она выпустит на волю мощную силу воды, которая уничтожит захватчиков. Чтобы предотвратить это, принцессу похищают наёмники Скорпиона — таинственный Фурбан, и его помощники (   Читать дальше...   )Производство: Япония, Nippon AnimationЖанр: Приключения, фентези, романтикаРежиссер: Таку СугиямаПеревод: OmskBirdЯзык озвучки: Русский (OmskBird)Субтитры: АнглийскиеПродолжительность: ~25 мин. серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A850B0C4D26B82C79E002CD8BC9141DE2BF5B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390908   (797166) от 08.11.2021
-
-Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 1-26 из 26] BDRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая принцесса эльфов Абрикотин должна до полного солнечного затмения вернуться в свою родную страну Фонтанию, захваченную силами чудовища-Скорпиона. Если она успеет сесть на трон до затмения, она выпустит на волю мощную силу воды, которая уничтожит захватчиков. Чтобы предотвратить это, принцессу похищают наёмники Скорпиона — таинственный Фурбан, и его помощники (   Читать дальше...   )Производство: Япония, Nippon AnimationЖанр: Приключения, фентези, романтикаРежиссер: Таку СугиямаПеревод: OmskBirdЯзык озвучки: Русский (OmskBird)Субтитры: АнглийскиеПродолжительность: ~25 мин. серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E79DD637E822EC043D8E0477175F8ADFCB757E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507890   (797165) от 08.11.2021
-
-Age of Empires IV (2021) [Ru/En] (5.0.7274.0/dlc) License CODEX [Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Age of Empires IV – очередная часть серии стратегий в реальном времени Age of Empires, которая отправит вас в эпицентр знаковых исторических сражений, навсегда изменивших судьбу мира. Используйте как знакомые, так и совершенно новые методы ведения войны для создания самой мощной империи. Вас ожидает 8 детально воссозданных средневековых цивилизаций со всего света, (   Читать дальше...   )Тип издания: LicenseРазработчик: Relic EntertainmentЖанр: Strategy, RTS, Historical, 3D, Military, WarЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160C08B0DEC9BCB62BD9462C8CF4693E4BA27C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385590   (797164) от 25.05.2020
-
-Дэвид Пирс | Гедонистический Императив (2015) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797164.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гедонистический императив" британского философа-утилитариста Дэвида Пирса, сооснователя организации «Humanity+», стал одним из главных футурологических трудов современности, а также послужил идейной основой для так называемого гедонистического трансгуманизма - одной из ветвей трансгуманистического движения. Помимо предписательной и футурологической оставляющей, (   Читать дальше...   )Жанр: ФутурологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA18E65C7EED1FC303EA8F53F9ABB8D14BFBF9D
+magnet:?xt=urn:btih:2CC0C30741FF9EEC3D40E93FA56C3D2001265055
 ```
 
 https://mybot314.ru/tekegram_catalog/

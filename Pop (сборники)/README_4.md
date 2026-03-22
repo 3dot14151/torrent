@@ -1,3 +1,32 @@
+###  Публикация: 1474890   (1012133) от 08.06.2021
+
+VA - 230 DJ Loaded - Musiced Dedications (2021) [MP3|192-320 Kbps] <Afrobeat, Hip-Hop, Dancehall, Future House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WhoHeem vs Waka Flocka Flame ft Wale & Roscoe Dash - Let's Link vs No Hands (Even Steve Wordplay Trans 60-66) Short Clean
+02. YZY - Punisher (Original Mix) Clean
+03. Problem Child 5 ft Young Thug - Da Tooly (Dirty)
+04. Skemaddox - Edamame (Original Mix) Clean(   Читать дальше...   )Жанр: Afrobeat, Hip-Hop, Dancehall, Future HouseПродолжительность: 13:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD21EC5C611DD5C68F07A56FA332C5CDA6DC6C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474908   (1012092) от 08.06.2021
 
 VA - Summer BBQ (2021) [MP3|320 Kbps] <Rhythm & Blues, Folk, Rock & Roll, Disco>
@@ -731,41 +760,6 @@ VA - Gangnam Style Hits (2013) [MP3|320 кб/с]<Dance, Club, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C3A075F5F152DE43A9F760C6484A27A64D173C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600897   (998401) от 10.01.2013
-
-VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Без ума
-02. Бурановские Бабушки - Party
-03. Indira - Я буду верить
-04. Тамерлан И Алена Омаргалиева - Лондон
-05. DAS feat. Лера Туманова - Чувствовать Пульс
-06. Ирина Дубцова - Что тебе я сделала
-07. Евгения Поликарпова - Неважно
-08. Нюша - Queen Of The Night
-09. Глюкоза И Макс Барских - Адреналин
-10. D.Lemma - Лирика(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405C5277A5B946DFA2A558FC7738A8B49DA16F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

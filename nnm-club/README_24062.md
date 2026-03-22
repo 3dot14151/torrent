@@ -1,26 +1,25 @@
-###  Публикация: 485500   (100069) от 20.04.2012
+###  Публикация: 1754130   (103740) от 08.10.2024
 
-[Wallpapers] Desktop Wallpapers №23
+Abraham - Swing Low, Rock Hard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100069.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №23
-Название: Desktop Wallpapers №23
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Go Tell It on the Mountain (3:40)
+02. Oh Happy Day (3:05)
+03. Come Down Angels (3:29)
+04. Wade in the Water (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AE6CED25FC37C5F3A0D31142E85EF236886343D
+magnet:?xt=urn:btih:3158B08EA50E6935E6E4E6E4F2A4AA5622F5AFA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485542   (100068) от 20.04.2012
+###  Публикация: 1754144   (103739) от 08.10.2024
 
-Mozilla SeaMonkey 2.9 Beta 4 [Русский]
+Ten eleven XII bluesband - Something Different (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100068.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
+01. Tonight (6:12)
+02. Always on My Mind (8:05)
+03. Every Time You Come Home (5:59)
+04. 20 - Wien - 20 (6:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:18
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F062EB87B37BBACA4D190C0FCC560350924D2C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,29 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485479   (100065) от 20.04.2012
+###  Публикация: 1754133   (103738) от 08.10.2024
 
-[Wallpapers] HD Pictures №22
+Andrew Moore and Hooch - Artists of the Moon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100065.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №22
-Название: HD Pictures №22
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050/1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Another Ride With You (5:11)
+02. First Love (2:47)
+03. Tyrant (5:20)
+04. Freedom (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:466B67990642EEAD3CFF580DE5A84F31B03D81AA
+magnet:?xt=urn:btih:F9316E40D74545AD8255E9AAEB00F23948AC76C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,34 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485699   (100064) от 20.04.2012
+###  Публикация: 1754042   (103737) от 08.10.2024
 
-Lions Breed - Damn The Night (1985) [MP3|320 кб/с]<Heavy Metal>
+Wind Rose - Trollslayer (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power metal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100064.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103737.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Mental Domination
-2. Heavy Current
-3. Searover
-4. All Night Be Damned
-5. Live and Let Die
-6. Neon City
-7. Lady of the Night
-8. Mystery Game
-9. Valve of Hell
-10. Turn It Up (Demo)(   Читать дальше...   )1985Жанр: Heavy MetalПродолжительность: 00:49:54
+01. Of Ice and Blood (2:25)
+02. Dance of the Axes (4:48)
+03. The Great Feast Underground (4:44)
+04. Rock and Stone (5:05)(   Читать дальше...   )Жанр: Power metalПродолжительность: 00:42:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC1A2C39E942C163CC77703A0375B2A592C95143
+magnet:?xt=urn:btih:67A53E4A38B5264C0FF042B79037ECBA893DFB45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -119,27 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485392   (100063) от 20.04.2012
+###  Публикация: 1754047   (103736) от 08.10.2024
 
-Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive Doom Occult Rock>
+Oceanator - Everything is Love and Death (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100063.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103736.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sea Of Snakes And Souls 06:00
- 02. The One Who Sleeps 05:44
- 03. Shroud Of Sorrows 06:35Жанр: Psychedelic Progressive Doom Occult RockПродолжительность: 00:37:57
+01. First Time (2:57)
+02. Lullaby (4:06)
+03. Cut String (2:50)
+04. Happy New Year (4:07)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:35:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86BEC2AA9DD0C3D75216F8F2462367C6BF11A9B8
+magnet:?xt=urn:btih:A92CA47951D61E912E9143A1EDD5E2DAE2DE69CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -147,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484993   (100062) от 20.04.2012
+###  Публикация: 1754041   (103735) от 08.10.2024
 
-Величайшие автомобили: Rolls-Royce / Great Cars: Rolls-Royce (2004) SATRip
+k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country, Western Swing>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100062.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С момента появления первого ROLLS ROYCE эту марку выбирали те кто хотел приобрести лучшую машину в мире. Первые ROLLS ROYCE покупали люди, находившиеся на пике своей карьеры. Они были согласны с девизом основателя марки - "Качество остается, а цена забывается!". Сегодня компания пытается восстановить магический статус легендарного бренда - ROLLS ROYCE.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+00:42:28
+
+Side A:
+A1 Save Me(   Читать дальше...   )Жанр: Country, Western SwingПродолжительность: 02:01:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B66C42EFA8EF56B95EDEAD15D56553229FA8F4C
+magnet:?xt=urn:btih:9A53376C0D615700A1EF6434179825DD83BA0CFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -173,29 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485485   (100059) от 20.04.2012
+###  Публикация: 1754138   (103734) от 08.10.2024
 
-[Wallpapers] HD Pictures №25
+Marc Broussard - Time Is A Thief (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100059.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №25
-Название: HD Pictures №25
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Fire (3:58)
+02. Mood (3:30)
+03. Cold Blooded (3:10)
+04. You Deserve More (3:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9DDD5770FBF356E11803097FA8B5639F45C9C1D
+magnet:?xt=urn:btih:1F1377C3AD417CEEAC2E5F52095954797069B141
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -203,26 +201,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485253   (100057) от 20.04.2012
+###  Публикация: 1754132   (103733) от 08.10.2024
 
-Пиратские партии Европы координируют политическую деятельность
+Сильнейший / Den staerkeste (1912) WEBRip [H.264/720p]
 
->>Поговорим
->>Новости
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100057.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-
-14 апреля в Праге состоялось знаковое событие: 26 стран прислали более 200 делегатов от Пиратских партий и организаций для определения стратегии совместных действий и образования единой европейской Партии пиратства.Основным объединительным моментом для 26 пиратских партий Европы является протест против принятия Европарламентом соглашения Anti-Counterfeiting Trade Agreement (АСТА), согласно которому должно быть ужесточено наказание за любые нарушения, связанные с авторскими правами.Главной целью конференции, которая проходила два дня, была выработка предварительной стратегии сотрудничества и совместных действий для создания Единой пиратской партии Европы и участия в выборах в Европарламент.Как сказал Йенс Зайпенбуш, один из основателей Пиратской партии Германии, важнейшей целью встречи «является основание европейской "пиратской" партии для участия в выборах в Европарламент в 2014 году». Правда, уже в этом пункте намечаются непреодолимые разногласия, так как значительная часть «пиратов» из целого ряда (   Читать дальше...   )
+Это не совсем кoмедия, в те стародавние времена этот новый киножанр называли "любовная игра". Хотя на мой взгляд подобная стилистика намного старше самого кинематографа. Достаточно вспомнить "Укрощение строптивой". И еще до Шекспира - многие новеллы "Декамерона"... Но не ждите от фильма каких-нибудь пошлостей. Все очень прилично.
+Красивая, (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Axel Boesen, Роберт Динесен, Эльза Фрёлих, Anton Gambetta Salmson, Alma Hinding, Карл Лауритцен, Ааге Лоренцен, Эксел Маттсон, Альф Нилсен, Вальдемар ПсиландерПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:31:20
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:45EE6D710912AC3A2A9ABB23F6DE80D96DABC323
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,27 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485399   (100056) от 20.04.2012
+###  Публикация: 1754104   (103732) от 08.10.2024
 
-Mendozza - Mendozza (2012) [MP3|192 кб/с]<Sludge Stoner Doom>
+April Art - Rodeo (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Electronic, Female Vocal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100056.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ligature 05:48
- 02. Ayahuasca 03:48
- 03. Spirit Horse 08:43Жанр: Sludge Stoner DoomПродолжительность: 00:41:46
+01. Rodeo [00:03:22]
+02. Burn [00:02:54]
+03. Who I Never Meant to be [00:03:27]
+04. Not Sorry [00:03:14](   Читать дальше...   )Жанр: Alt.Metal, Electronic, Female VocalПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DD6F0F9E46987ECF1C14A6836FD946DF5040562
+magnet:?xt=urn:btih:858C93B02B5B8CBABA2C026B27800DC4A0A590FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484946   (100055) от 20.04.2012
+###  Публикация: 1754137   (103731) от 08.10.2024
 
-[Wallpapers] Gilrs Wallpaper Collection (19.04.12)
+Little Steve and The Big Beat - Circles (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100055.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2667
+01. 99 LBS (2:35)
+02. The Shame Is On You (4:08)
+03. Anna Lee (4:37)
+04. Walking At Night (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E19AD3895ADF3E9A9A36A64CEF62F71069CC262B
+magnet:?xt=urn:btih:37C72FE1A5A9A21A642501E5CB2153ABF8E28682
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +286,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485428   (100052) от 20.04.2012
+###  Публикация: 1754125   (103730) от 08.10.2024
 
-Mozilla Thunderbird 12.0 Beta 5 [Русский]
+The New Roses - Attracted To Danger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100052.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird - простая и удобная бесплатная программа для работы с электронной почтой от Mozilla. Программа поддерживает протоколы SMTP, POP3, IMAP и RSS. Имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет дополнительных модулей и фильтрует рекламу, а так же нежелательную корреспонденцию. Интерфейс программы основан на технологии XUL, разработанной Mozilla Foundation, в результате чего интерфейс на всех платформах выглядит так же, как у приложений, разработанных для этой конкретной платформы. Интерфейс программы прост и удобен в использовании, поддерживает смену скинов. Во второй версии программы включено множество новых возможностей, помогающих вам лучше управляться с бурным потоком информации, устремляющимся в ваш почтовый ящик и быть в курсе последних событий.Язык интерфейса: Русский
+01. When You Fall In Love (3:57)
+02. Natural Born Vagabonds (4:01)
+03. Attracted To Danger (3:23)
+04. Four Wheels (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:30
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:328CC23F6113B7A5578C4DAC58F609426E8CA1F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +315,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485352   (100050) от 20.04.2012
+###  Публикация: 1754143   (103729) от 08.10.2024
 
-Wallpaper Sexy Girls 0.9
+Rehab Black - I'm Fighting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100050.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+01. Struggles in the Shadows (2:11)
+02. I'm Fighting, (2:11)
+03. Chains of Despair (2:11)
+04. Echoes of Reflection (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCFDD5759A5E90C9F486EC625AFA07E82A1B523F
+magnet:?xt=urn:btih:ED4F216DC5F47D575AE77B5E9096342DFE42989F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,112 +344,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485122   (100048) от 19.04.2012
+###  Публикация: 1754097   (103728) от 09.10.2024
 
-Wise Registry Cleaner v7.15 build 453 Final + Portable [Multi(Rus)]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484768   (100043) от 19.04.2012
-
-Kenny Garrett Quartet feat. Kenny Kirkland Live At Jazz Baltica (1997) DVD5
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, ДжазПродолжительность: 1:08:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484997   (100039) от 19.04.2012
-
-Величайшие автомобили: Спортивные машины / Great Cars: Sports cars (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортивные машины заставляют оборачиваться и привлекают внимание автолюбителей по всему миру. Эти машины дарят радость вождения. Они для тех людей кто любит азартную езду, кто любит испытывать на что способна машина и хочет чтобы это видели другие. Спорткары - это красота, мощность и скорость. Разве перед ними можно устоять?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487985A4B87DA398A3F370175E55271BC8EC07C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484951   (100036) от 19.04.2012
-
-Серия "Giants of Jazz - Immortal Concerts" / Kid Ory and The Creole Jazz Band - Echoes From New Orleans (1956/1996) [APE|Lossless]<Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, T ...
+Charles Mingus - Something Like A Bird (1978) 2013, Atlantic [FLAC|Lossless|tracks + .cue] <Post Bop, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100036.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jazz Me Blues (T.Delaney) (3:51)
-02. Careless Love (traditional) (5:33)
-03. High Society (P.Sleeve) (4:07)
-04. Oh, Didn't He Ramble (W.C.Handy) (4:57)
-05. Eh, La Bas (K.Ory) (6:01)
-06. Toot, Toot, Tootsie! (T.Fiorito - E.Erdman - G.Kahn) (6:37)
-07. Maryland, My Maryland (tradirional) (2:44)
-08. Bugle Call Rag (W.C.Sweatman) (3:18)
-09. 1919 Rag (traditional) (5:32)
-10. Down Home Rag (W.C.Sweatman) (3:23)(   Читать дальше...   )1956 / 1996Жанр: Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, Trombone JazzПродолжительность: 01:13:55
+01. Something Like A Bird [31:13]
+02. Farewell, Farwell [6:57]Жанр: Post Bop, Big BandПродолжительность: 00:38:09
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4EDE3AC108E0B838006C8150CEC6A1EDA1E40ACC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,30 +371,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484652   (100033) от 19.04.2012
+###  Публикация: 1754246   (103727) от 09.10.2024
 
-VA - Pandora (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
+Our Graves - System Overload (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Industrial, Dark Electro>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100033.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dirty Diagnostik - Fear & Loathing [08:02]
- 02. Sci Lab - Pandoras Box [07:22]
- 03. EMP - Renegade [07:19]
- 04. Night Wolf - Scientology [06:18]
- 05. Algorhythm - Reborn [07:54]
- 06. Iron Lotus - Inferno [07:04]2012Жанр: Psychedelic / Night Full OnПродолжительность: 00:43:59
+01. System Overload (4:39)
+02. Precious Lies (3:57)
+03. We Want It All (4:37)
+04. Faceless (4:54)(   Читать дальше...   )Жанр: EBM, Industrial, Dark ElectroПродолжительность: 00:41:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
+magnet:?xt=urn:btih:580F4DDB1657A65AD4DBB61EAA3169580CE74E4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,34 +400,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485113   (100031) от 19.04.2012
+###  Публикация: 1754238   (103726) от 09.10.2024
 
-VA - NRJ: Мы Эксперты По Молодому Поколению 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+Ted Heath & His Music - Swing Is King! (1992) Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100031.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Каникулы В Мексике - Мексикана-Мама (Radio Version)
-002 Christopher S Feat. Flava & Stevenson - Poison (Re-Work 2012)
-003 Елена Терлеева - Я За Тобой (Radio Rip)
-004 Alex Kenji And Starkillers Feat. Nadia Ali - Pressure (Alesso Remix)
-005 Вероника Агапова - Baby By By!
-006 Alexis - Keep On Falling (Gordon & Doyle Remix)
-007 А.р.м.и.я - Львица
-008 Wisin & Yandel feat. Jennifer Lopez - Follow The Leader
-009 Шима - Океан
-010 Inna Feat. Flo Rida - Club Rocker (Radio Version)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:19:39
+01. Flying Home [2:26]
+02. Cherokee [3:19]
+03. Begin the Beguine [2:42]
+04. One O'Clock Jump [3:33](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42CFBD313B95FB35269F3E11B6C39359B0901203
+magnet:?xt=urn:btih:E76A96B85810D332780C6C4FB65678CE3534A339
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,112 +429,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485098   (100029) от 19.04.2012
+###  Публикация: 1754308   (103725) от 09.10.2024
 
-[Wallpapers]Великолепная природа
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100029.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]Великолепная природа 
-Название: Великолепная природа
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080/2560х1600
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8843BFB0F6B9EAFB0CDC301A26B1F0E1F7FBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484911   (100027) от 19.04.2012
-
-Weapons Wallpapers
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100027.jpg" />
-</div>
-
-
-###  Подробнее
-
-обои на рабочий стол.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229E857A9F8954966B2CE1AEC0E377DD1CC53B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485101   (100025) от 19.04.2012
-
-[Wallpapers]HQ Color HD Amazing Wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100025.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]HQ Color HD Amazing Wallpapers
-Название: HQ Color HD Amazing Wallpapers
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080/2560х1600
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B38CB723E9DA8DAB9A8CC81844C12738E59E4F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483944   (100024) от 19.04.2012
-
-Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
+Reverber - The Satan Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100024.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Give It
- 02. WhitewashЖанр: Stoner Noise RockПродолжительность: 0:42:39
+01. Prelude Of Chaos
+02. The Satan Creation
+03. Kill The Clown
+04. Culpa Gravis(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDDC9B3E59E0EF1DF5E3F537D1D7E8C224A39387
+magnet:?xt=urn:btih:2562917A8B263287E5A554EBD1D836B41D8F6477
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,25 +458,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484984   (100022) от 19.04.2012
+###  Публикация: 1754241   (103724) от 09.10.2024
 
-Величайшие автомобили: Land Rover / Great Cars: Land Rover (2004) SATRip
+Roberto Sass - Transit (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, IDM>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100022.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тяга к приключениям, не угасающая жажда исследовать неизвестное, побывать там где еще не ступала нога человека, первым достичь вершины или пересечь континент - именно это стремление стало причиной сухопутных экспедиций, которые прославили Land Rover. Именно оно спровоцировало появление целого семейства автомобилей этой марки.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+01. Roberto Sass, Wildsilences - Empty (3:30)
+02. Roberto Sass - Rattle the Cage (3:46)
+03. Roberto Sass - Wake Up (6:50)
+04. Roberto Sass - Slow (4:25)(   Читать дальше...   )Жанр: Downtempo, IDMПродолжительность: 00:45:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:041862CC662F6048FE1F51675F106E26C0121A11
+magnet:?xt=urn:btih:5E3BDE41B96566B9644D667BDF9C6E7175D1E86C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,34 +487,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483291   (100018) от 19.04.2012
+###  Публикация: 1754236   (103723) от 09.10.2024
 
-VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
+Jihee Heo - Flow (2024) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100018.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aquatica — Angels 08:20
-02. Bizzare Contact Phanatic And Electro Sun — Out Of Your Love (Sesto Sento remix) 07:47
-03. Sesto Sento And Space Cat — Getting High Power (Cosmic Tone remix) 08:15
-04. U_Recken — The Other Side (Visual Paradox edit) 06:52
-05. System Nipel — Psytronic 07:05
-06. Psynina — Sound Of Reality 07:04
-07. Aquatica And Ultravoice — Diamond Sky (Indra remix) 07:22
-08. Sesto Sento — Getting Fused (Silicon Sound remix) 07:32
-09. Visual Paradox And Cosmic Tone — Stop The Beat (Twina remix) 06:35
-10. Ultravoice — Dark Side (Psynina remix) 09:292012Жанр: Trance, Psy Trance, Full OnПродолжительность: 01:16:04
+01. New Yorker Step [4:26]
+02. I Can See Only One Step Ahead [5:24]
+03. Opening the New Door [4:54]
+04. Extreme Noise Blocker [4:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE361BCCD6915C3C03290024DDDEBF137FADDC9D
+magnet:?xt=urn:btih:F4DE3A36E658E05415AB422B83D4615AE385B663
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +516,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484985   (100016) от 19.04.2012
+###  Публикация: 1754268   (103722) от 09.10.2024
 
-Величайшие автомобили: Mercedes / Great Cars: Mercedes (2004) SATRip
+The Vaughan Brothers - Family Style  (1990) [FLAC|Lossless|tracks + .cue] <Blues Rock, Pop Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100016.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MERCEDES положил начало автомобильной эпохи. С 1886 года изменилось многое, но говорят что дух Готлиба Даймлера и Карла Бенца живет в каждом автомобиле MERCEDES BENZ. Будь-то на гоночной трассе или на обычной дороге они все так же привлекают водителей своею страстью к стилю и скорости.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+01. Hard To Be
+02. White Boots
+03. D / FW
+04. Good Texan(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:40:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF033FA400A44FA5BBB8B2C393448C69429D8921
+magnet:?xt=urn:btih:3CC4ACE55262C55EA1B1DF559D6F627FACABA5ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,29 +545,200 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485175   (100015) от 19.04.2012
+###  Публикация: 1754501   (103721) от 11.10.2024
 
-[Wallpapers]Обои с прекрасными уголками природы
+Radioactive - Reset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100015.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers]Обои с прекрасными уголками природы
-Название: Обои с прекрасными уголками природы
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
+01. Sentimental (4:33)
+02. Shame On You, Shame On Me (5:02)
+03. Gaia (5:03)
+04. When The Lights Go Down (4:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C4CD3B5507D3798A7CA14350F109793ED0EE90B
+magnet:?xt=urn:btih:8EA0E35123BF120DDEB714B7C0F73F40BB7FDFFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754619   (103720) от 11.10.2024
+
+Kalandra - A Frame of Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Prog Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am (5:33)
+02. Untie The Knot (3:55)
+03. Are You Ready? (4:31)
+04. The State of the World (4:19)(   Читать дальше...   )Жанр: Progressive Rock, Prog FolkПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561F9E3F57FCA562F428D4C454214AED62E88243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754502   (103719) от 11.10.2024
+
+House Of Lords - Full Tilt Overdrive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crowded Room (4:47)
+02. Bad Karma (4:12)
+03. Cry Of The Wicked (5:09)
+04. Full Tilt Overdrive (4:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27018C4B11414826CF135E23D8C556EA0711E6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754669   (103718) от 11.10.2024
+
+Лицедейство перед лицом смерти / Dodsangstens maskespil (1912) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103718.jpg" />
+</div>
+
+
+###  Подробнее
+
+На судне вспыхивает пожар, и капитан призывает популярного артиста, находящегося на корабле, попытаться отвлечь пассажиров, чтобы не началась паника, пока команда пытается взять ситуацию под контроль.
+В главной роли Вальдемар Псиландер - записной красавчик и первейший герой-любовник кинематографа тех времен.Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Ellen Aggerholm, Аньес Андерсен, Axel Boesen, Alma Hinding, Astrid Krygell, Отто Лагони, Agnes Lorentzen, Эксел Маттсон, Вальдемар Псиландер, Кристиан ШрёдерПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395673FE1C073D0D144C3E23B9B6C3B3AC75F53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754591   (103717) от 11.10.2024
+
+Winter - Keeping The Flame Alive (2024) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keeping The Flame Alive (04:22)
+ 02. Wheel Of Fortune (featuring Ralf Scheepers) (04:04)
+ 03. Guardians Of Life (04:45)
+ 04. Into The Fire (05:19)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07182600AD4080940BB5AA4664B8C2EB761EEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754644   (103716) от 11.10.2024
+
+Johan Steensland - Crossfade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog, Rock Opera>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:04)
+02. Joseph's Dream (4:49)
+03. Doorbell (5:14)
+04. I'm All to Blame (3:19)(   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Rock OperaПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8CA3A4D75871ECCCBA4C5F91DC844CDAEEA58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754505   (103715) от 11.10.2024
+
+Ad Infinitum - Abyss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Halo (3:45)
+02. Follow me Down (3:08)
+03. Outer Space (4:28)
+04. Aftermath (3:31)(   Читать дальше...   )Жанр: Symphonic metalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89E29E1747C84E344DB381CCFFD0D6D44F4FFA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

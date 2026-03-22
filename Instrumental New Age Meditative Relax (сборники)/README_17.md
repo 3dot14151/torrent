@@ -1,3 +1,61 @@
+###  Публикация: 1575591   (208285) от 12.09.2022
+
+ДиДюЛя - Compilation (2022) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Путь домой
+02. Дорога в Багдад
+03. Танец с дождем (Причудливые круги)
+04. Таял звук(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 04:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFC6E7DDD9D4B915EF578AA8A16BBE0424C67CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653519   (205972) от 19.08.2023
+
+Karunesh - Heart To Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dazzled by the Light [05:40]
+02. Humming [15:21]
+03. Japanese Spring [05:51]
+04. Moon Temple [05:50](   Читать дальше...   )Жанр: Electronic, Lounge, Relax, MeditationПродолжительность: 05:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC1858D59BF87E66AA2333433733ED0C992CD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653520   (205963) от 19.08.2023
 
 Oliver Shanti - Beating Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
@@ -687,64 +745,6 @@ VA - Acoustic 90's (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B589A9A6C3AE16C4CB99A635886959B3A734EBB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970399   (141517) от 30.12.2015
-
-VA - Christmas piano collection (2015) [MP3|320 кб/с] <Piano, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Moonlight - Bee Free
-02 Serenity Piano - Emmanuele Landini
-03 The Last Emotion - Emmanuele Landini
-04 Natural World - Will Lewis(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7620B287C67DD70F04AF7F538760E8345CCB3940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088257   (140385) от 30.12.2016
-
-VA - Plaisir D'Amour (Sexy Sax) (2016) [MP3|320 Kbps] <Instrumental, Pop, Easy Listening>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Exotic Sounds - Nightingale (Intro) (00:50)
-02. Fausto Papetti - Sorry Seems To Be The Hardest Word (03:20)
-03. Kenny G - Songbird (04:49)
-04. Morris Albert - Feelings (03:40)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8701CB2DDCD98ED5FE53361262722C227CB535
 ```
 
 https://mybot314.ru/tekegram_catalog/

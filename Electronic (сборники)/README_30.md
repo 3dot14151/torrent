@@ -1,3 +1,61 @@
+###  Публикация: 1098390   (910503) от 29.01.2017
+
+VA - Best Chillout Vol.25 (2017) [MP3|96-320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Absoluteterror - Toyota (Original mix) 2:22
+002. Adventure Club - Wonder (ANDRU Remix) 4:05
+003. agrx & Kringe - Let The Music (feat. Kringe) (Original Mix) 2:45
+004. Alivvve - Dreams (Original Mix) 2:24(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9103AF4B2FABB36CBECEB364E05C23027F975D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098220   (910279) от 29.01.2017
+
+VA - The January Club and Dance Music (2017) [MP3|320 Kbps] <House, Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910279.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 20 Fingers vs. Vincent & Diaz - SHORT Dick Man (Markiza Mash-Up)
+002. Abraham Ruiz - 212 vs. Boogie Vice - What A Day (DЭ GAME SOUND REMIX 2017)
+003. Alexander Holsten - Rock is Alive (Mikhail Rado Sax Extended Radio Version 2017)
+004. Alisha Pillay vs. Kolya Funk & Eddie G - Mayday (VINCENT & DIAZ MASH-UP 2O17)(   Читать дальше...   )Жанр: House, Electro House, Dance, ClubПродолжительность: 06:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCAC4DBB9401D6D59050850AF666A71AD98D95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990769   (909937) от 26.02.2016
 
 VA - Winter Fragment: Relax Party (2016) [MP3|320 кб/с] <Chillout, Lounge, Downtempo, Ambient>
@@ -687,64 +745,6 @@ VA - Empire Garage And U.S.House (2011 - 2013) [MP3|191-320 кб/с] <House, Fun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C8E2C5886C9F5B36C7999A59687C988070F2D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368699   (906350) от 21.03.2020
-
-VA - Ремиксы от MGDC FM Vol 4 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.A-Mase & Sharliz - Адреналин (Total Cover) (Radio Mix) (3:46)
-2.AMCHI - Не сходи с ума (Eugene Star & Wayne Radio Edit) (2:40)
-3.ANIVAR - Новый рассвет (ARROY & Sergey Raf Remix) (3:15)
-4.Artik & Asti - Девочка танцуй (SAlANDIR radio remix) (4:01)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5859CD2AFF104A34A51435918BD13D9AA380FF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991476   (906325) от 28.02.2016
-
-VA - Auto Dance Party Vol.2 (2016) [MP3|320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906325.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kapote - Fuck Music.mp3
-002. Daviddance - Time (Feat. J. Cockburn) (Original Mix).mp3
-003. Alfrenk - Big Up (Original Mix).mp3
-004. Dj Le-Roy - She's On Fire (Original Mix).mp3(   Читать дальше...   )Жанр: DanceПродолжительность: 08:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E3DE3A830E851BEF16541DC6F995B53509FE60
 ```
 
 https://mybot314.ru/tekegram_catalog/

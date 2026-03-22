@@ -1,3 +1,32 @@
+###  Публикация: 935558   (498275) от 09.09.2015
+
+DAY6 - The day (2015) [MP3|320 кб/с]<k-pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freely
+02. Out of my Mind
+03. Congratulations
+04. Habits(   Читать дальше...   )Жанр: k-popПродолжительность: 00:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99643170C04CE6701812668919221400CBBC5647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542428   (498085) от 03.09.2012
 
 VA - LIVIN'G Presents: Lovely Guitar & Natural Spa (Vol. 1-3) (2010) [MP3|320 кб/с]<Instrumental, Guitar, Natural sounds>
@@ -717,34 +746,6 @@ little white snow - 7 альбомов (2009-2012) Touhou Vocal /Doujin/ [FLAC|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76626DAFB6A94792D7786791E242560BD01C4F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936523   (494276) от 12.09.2015
-
-logical emotion - 2 альбома (2011-2012) Touhou Instrumental /Doujin/ [FLAC|tracks] <Piano Arrange, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.08.13 (YPME-1002) Touhou Project pops arranged instruments (C80)
-2012.05.27 (YPME-1003) Touhou Project pops arranged instruments2 (Reitaisai 9)Тип издания: DoujinЖанр: Piano Arrange, J-RockФормат: Touhou InstrumentalПродолжительность: 00:00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6663710EAE7A887C77F19A290010B0A55A4991
 ```
 
 https://mybot314.ru/tekegram_catalog/

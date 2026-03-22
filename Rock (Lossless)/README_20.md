@@ -1,3 +1,117 @@
+###  Публикация: 973239   (979052) от 09.01.2016
+
+Avril Lavigne - The Best Damn Thing (2007) [FLAC|Lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Girlfriend (03:38)
+02 I Can Do Better (03:18)
+03 Runaway (03:49)
+04 The Best Damn Thing (03:11)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C920904509A8CB38128333464FA59565B0E07F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972767   (978183) от 10.01.2016
+
+Rob Balducci - Balance (1995) [FLAC|Lossless|image + .cue]<Instrumental, Guitar Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seduction 04:09
+02. The Evil 04:34
+03. Waiting For The Son 05:07
+04. Baby Brother 03:11(   Читать дальше...   )Жанр: Instrumental, Guitar RockПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651631FBF3AF04FCFB4602BAA1E2BE8CBF365C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356670   (977951) от 31.01.2020
+
+No-Man - Love You To Bits (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе смесь Pink Floyd и Tears For Fears, спродюсированую Джорджио Мородером, и это будет правильная оценка.01. Love You To Bits (Bits 1-5) 17:06
+02. Love You To Pieces (Pieces 1-5) 18:56Жанр: Psychedelic Rock, Ambient, ExperimentalПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2E6916C29BB57F3476911FB8AE6EB4D0C1A0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356506   (977946) от 31.01.2020
+
+Green Miles - Free’N’Alive (2004) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overload 3:55
+02. Cryinformer 3:28
+03. Top Of The World 3:36
+04. Don'tchawanna 5:13(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE03121B2226EC1BBB35ACBF864D0B9686976F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615523   (977506) от 08.02.2013
 
 David Knopfler - Songs for the Sire (2006) [FLAC|Lossless]<Rock>
@@ -632,119 +746,6 @@ Stone Temple Pilots - Perdida (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0AC5A77D1C52D979CB9528D3AFB29B892661DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618577   (969175) от 14.02.2013
-
-SLADE - 14 Albums Collection (1969 - 2007) / 2006-2007 [WavPack|Lossless]<Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Glam RockПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976506   (968826) от 18.01.2016
-
-VA - Pop Villa Pamphili (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk Rock, Prog Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Volo - Il Calore Umano (4:43)
-02. Biglietto Per L'Inferno - Confessione (6:32)
-03. Reale Accademia Di Musica - Il Mattino (9:21)
-04. Fholks - Mi Scorri Nelle Vene (Soldier In Our Town) (3:42)(   Читать дальше...   )Жанр: Folk Rock, Prog Rock, Blues Rock, Art Rock, Psychedelic Rock, Experimental, Jazz-Rock, PsychedelicПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D21FA0CAF3A315213BBB8F7B6A6CE8D824CD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358562   (968799) от 08.02.2020
-
-Giobia - Plasmatic Idol (2020) Giöbia [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parhelion (07:03)
-02. In the Dawnlight (04:13)
-03. Plasmatic Idol (02:02)
-04. Haridwar (08:29)(   Читать дальше...   )Жанр: Psychedelic, Space RockПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC974B7AAFC615C8B7E3CB8C814E4E3D9D23213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358554   (968798) от 08.02.2020
-
-M-Opus - Origins (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergency Exit (02:25)
-02. Troubled Minds (06:03)
-03. Hide And Seek (05:29)
-04. Holy War (03:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43A4EDAE7AF2B23703F31D8BF84F8393E94309B
 ```
 
 https://mybot314.ru/tekegram_catalog/

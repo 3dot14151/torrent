@@ -1,3 +1,61 @@
+###  Публикация: 1212944   (773348) от 15.03.2018
+
+VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camelphat & Elderbrook - Cola (3:49)
+02. MK - 17 (In The Air dub) (5:22)
+03. Marshmello & Khalid - Silence (Blonde remix) (3:45)
+04. Disciples - On My Mind (Deepend remix) (3:10)(   Читать дальше...   )Жанр: Club House |Продолжительность: 02:40:01 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E889E9A09A15BF4B336849DDC716831C80E59DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278156   (773293) от 24.01.2019
+
+VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, ElectroHouse, BigRoom>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Maximus - We Rave (Original Mix) 3:47
+02. Raffee - Society (Original Mix) 3:45
+03. Angelo Adinolfi - Wet (Original Mix) 4:59
+04. Axel & Jeizer - You Ready (Original Mix) 4:38(   Читать дальше...   )Жанр: House, ElectroHouse, BigRoomПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3270826F581064A62430447A2CACE41FDB1676A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 659967   (773111) от 24.05.2013
 
 KlubbHeads - 5 Albums , 12 Compilations (1996 - 2004) [FLAC|Lossless]<House, Pumping House, Dutch Klubb House>
@@ -682,64 +740,6 @@ VA - Back To Love 03.02 (2002) [FLAC|Lossless|tracks] <House, Breakbeat, Hip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78AC96E44990E50BD9052FD578245F4B175882B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280525   (760628) от 03.02.2019
-
-Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, Bedrock Records [FLAC|Lossless|tracks+.cue, tracks] <Progressive House, Breaks, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (Radio Edit) (03:49)
- 02. Imagine (Imagination 1) (06:42)
- 03. Imagine (Chris Fortier Dub) (08:29)
- 04. Imagine (Chris Fortier Remix) (10:42)(   Читать дальше...   )Тип издания: CD, WebЖанр: Progressive House/Breaks/Deep HouseПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BC443775FFBD0ECB1A0B570127AA91425895F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215572   (758228) от 26.03.2018
-
-S.A.M. - Retrospect One (2018) Delaphine [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, House, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perucica (7:29)
-02. Sunday Morning (10:34)
-03. Don't Confuse A Smile With Weakness (3:01)
-04. How Far From The Sun Are We Talking (1:42)(   Читать дальше...   )Жанр: Dub Techno, Ambient, House, ExperimentalПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E33282E0BA474694A2833DBD6836E267E010BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

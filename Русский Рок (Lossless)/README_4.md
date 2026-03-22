@@ -1,3 +1,32 @@
+###  Публикация: 1619281   (1033000) от 16.03.2023
+
+Корпорация абсурда - Корпорация абсурда (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Корпорация абсурда [00:01:49]
+02. Ультраомегашлюха [00:02:11]
+03. Мы не лохи [00:02:00]
+04. Драка на ножах за гаражами [00:02:51](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1FF0BD90DB32EBAF4A86155864585E97342956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620271   (1032324) от 19.03.2023
 
 Ляпис Трубецкой - Юность (2001) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CE4776BA78D86B059FF5D56E24AD6E4E540F52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451618   (1028049) от 04.03.2021
-
-Дубы-колдуны - Не повторяется такое никогда? (1995) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог (00:37)
-02. Дикие гитары (02:40)
-03. Песенка велосипедистов (02:24)
-04. Клён (03:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F2DF8D860AA73ED4BE20F18324CC35F8E17D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

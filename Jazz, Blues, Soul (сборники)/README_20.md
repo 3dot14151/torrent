@@ -1,3 +1,32 @@
+###  Публикация: 1833481   (246090) от 01.11.2025
+
+Chicago Blues Radio - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_246090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Midnight City Blues
+ 02 - Midnight crying
+ 03 - Midnight Blues on Ashland Avenue
+ 04 - Midnight on State Street(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD629A376500A328E4C8C5DAC7D8B1B950321F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833024   (246088) от 31.10.2025
 
 Chicago Blues Radio - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
@@ -716,35 +745,6 @@ VA - Blues For Your Evening (2023) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7737BA6BADB44CA8FB995B0CF5D922410F2A09E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603685   (209761) от 17.01.2023
-
-VA - The Charming Blues (2022) [MP3|320 Kbps] <Blues, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jimmy Hall - Jumpin’ For Joy [03:47]
-002. Ben Harper - Bad Habits [03:45]
-003. Blind Blake - Southern Rag [02:53]
-004. Blind Boy Fuller - Homesick Blues [03:12](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 08:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6135E8C2577934EEEE2949467CCDC3012458FBDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

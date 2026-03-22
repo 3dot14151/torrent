@@ -1,3 +1,177 @@
+###  Публикация: 1581983   (325586) от 07.10.2022
+
+The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mirror [03:48]
+02 A Cut Inside [03:59]
+03 Vendetta X [03:24]
+04 Give Me Mercy [03:37](   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D535C60B39929FD6A8A0EC8FE7A3DE847AC492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582162   (324688) от 08.10.2022
+
+Attraction - Get Up 'N' Shake (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up 'N' Shake (3:27)
+02. Save Me Now (3:30)
+03. More Than You Know (4:16)
+04. Story Book (3:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE77C36A60821F12B4E8A9CE68157ACE8915F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582152   (324590) от 08.10.2022
+
+Taboo - Taboo (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames (4:19)
+02. Bleeding (3:35)
+03. Learning To Breathe (4:35)
+04. Demons (3:41)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8F68A5EDE63DE062D4A76A0D9A63E05A153495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582192   (323594) от 09.10.2022
+
+The Killerhertz - Starburst (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wait for Closure
+02. The Deceiver
+03. Dying Beliefs
+04. Chasing Ghosts(   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE438BF480D96ACFE229368FE62DE232B9D60FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582434   (323573) от 09.10.2022
+
+Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vacation in the Underworld [00:04:23]
+02. Like a Bullet [00:04:37]
+03. Sharpen the Sword [00:04:14]
+04. The Reason [00:04:28](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79847B3F37CA1840E1C2AC3F9B8E801AF861A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582429   (323487) от 09.10.2022
+
+Octane - Back in the Game (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me High [00:04:10]
+02. Midnight Riders [00:02:57]
+03. Evil [00:03:14]
+04. Back in the Game [00:04:25](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD02ADF92474DD64AD5CE28162F5C5FEFB9C7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582180   (323477) от 09.10.2022
 
 Purpendicular, Ian Paice - Human Mechanic (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
@@ -577,180 +751,6 @@ Sixx: A.M. - Prayers For The Blessed Vol.2 (2016) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8285B7C889FCD61828896F68C4C9B4D181BEB5D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332297   (311804) от 21.10.2019
-
-Tony Mills - Beyond The Law (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Westside  (4:12)
-02. Beyond The Law (4:05)
-03. Running Guns  (4:39)
-04. F.B.I.  (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:472A2F018AAD591FA2CD8A34CD2E5FD381ACAAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175844   (311145) от 21.10.2019
-
-Tito & Tarantula - 8 albums, 10CD (1997-2019) [FLAC|Lossless|image + .cue, tracks + .cue] <Latin Rock, Stoner Rock, Chicano Blues Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311145.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Tito & Tarantula» — группа, играющая в стиле латинский рок. Она была основана в Голливуде, Калифорния, в 1992. Группа наиболее известна, как исполнитель песен «After Dark», «Back to the House That Love Built», «Strange Face of Love», и «Angry Cockroaches», а также благодаря появлению в фильме Роберта Родригеса От заката до рассвета в роли группы, выступающей (   Читать дальше...   )--------------------------
-
-01. As Worlds Collide (3:13)
-02. It's Alright Now (3:46)(   Читать дальше...   )Жанр: Latin Rock, Stoner Rock, Chicano Blues Rock |Продолжительность: 08:43:58 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DE3BF7470896FBD6A4C5D4A7DBBADAE755FD69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422324   (310901) от 08.11.2020
-
-Taskaha - Taskaha (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Date (0:08:47)
-02. Distressed (0:05:24)
-03. Reframe! (0:06:14)
-04. Daylight's Fading (0:08:35)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DC7E96C7A69EFA24308B480268C5C1FD64E8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422256   (310807) от 08.11.2020
-
-Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone To Love
-02. Mystified
-03. Love's Blind
-04. Without You(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ECCE3EE42387FDB8ED26A2E68538CA772BA743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422275   (310708) от 08.11.2020
-
-Whitesnake - Love Songs (2020 Remix) (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Set You Free (4:07)
-02. The Deeper The Love (4:01)
-03. All I Want, All I Need (5:41)
-04. Too Many Tears (6:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE2D288EE45BD66474879FEF9BEEDCEC4F2496D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422371   (310435) от 08.11.2020
-
-AC/DC - Power Up (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Realize
-02. Rejection
-03. Shot in the Dark
-04. Through The Mists Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116355C390BBACDCBEEA4349FCB1932226AA401D
 ```
 
 https://mybot314.ru/tekegram_catalog/

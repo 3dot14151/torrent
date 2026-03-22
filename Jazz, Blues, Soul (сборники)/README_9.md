@@ -201,6 +201,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215739   (756340) от 27.03.2018
+
+VA - Jazz Classic: Wonderful Collection (2018) [MP3|192-320 Kbps] <Jazz, Classic Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_756340.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chad Strentz - Paper Moon
+002. Solomon Burke - Be Bop Grandma
+003. Dean Martin - Sway
+004. Ralph Towner - I'll Sing to You(   Читать дальше...   )Жанр: Jazz, Classic JazzПродолжительность: 08:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF507D7DD5F354BB6B20F6E79279B5DA0493C43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019227   (752186) от 22.05.2016
 
 VA - Colors Of Jazz Vol.1: Sexy Smooth Jazz Grooves For Perfect Relaxation (2016) [MP3|320 кб/с] <Jazz>
@@ -716,35 +745,6 @@ VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B59C57A0052F3E16BFBA957F72F3B91A29379901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022107   (729766) от 01.06.2016
-
-VA - Dinner Party Jazz: A Delicious Collection of Instrumental Jazz for Entertaining (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beegie Adair - Days of Wine and Roses
-02. The Jeff Steinberg Jazz Ensemble - How About You
-03. Beegie Adair - Three Coins in the Fountain (feat. The Jeff Steinberg Orchestra)
-04. Jack Jezzro - It Could Happen to You (feat. The Mason Embry Trio)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BAC002052DC1B3432F194243FCDC38873865C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

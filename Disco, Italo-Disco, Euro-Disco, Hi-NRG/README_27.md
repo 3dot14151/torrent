@@ -1,3 +1,32 @@
+###  Публикация: 1245929   (467878) от 08.09.2018
+
+Coffee - Slippin' And Dippin' (1980) Reissue CD, Big Break Records, 2016 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip And Dip (5:39)
+02. Mom And Dad 1980 (5:13)
+03. I Wanna Be With You (7:41)
+04. Casanova (6:12)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5973BE2279CF150B30E28DE632B0EA0A43E23635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161405   (467458) от 28.08.2017
 
 Hot Shot - 2 Albums (1981, 1983) [MP3|320 Kbps] <Electronic, Disco>
@@ -728,35 +757,6 @@ Liquid Gold - Liquid Gold (1981) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49EFDA8CEFAD38424A53D81230B12A440AF47AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569327   (453504) от 12.08.2022
-
-Bad Boys Blue - Totally (1992) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Ever Had A Love Like This	3:35
-02. I Totally Miss You	3:57
-03. What A Feeling	3:52
-04. Who's That Man?	3:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB05C79010259496884F0C50D82D2A173B4BADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1341533   (262285) от 28.11.2019
+
+White String Orchestra - Aktuelle Hits im modernen Streichersound (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Song (4:24)
+02. Gangsta's Paradise (4:21)
+03. Jesus to a child (4:28)
+04. Children (4:07)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, CoverПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664BC8A912E5CF8200D96E030F56688C2C5CBD05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341223   (262283) от 28.11.2019
+
+Valefim Planet - Contradiction (2019) [MP3|320 Kbps] <Electronic, New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Spirit (05:32)
+02. Do Not Forget Me (05:31)
+03. I'm Flying Away (05:00)
+04. Loneliness Forest (07:07)(   Читать дальше...   )Жанр: Electronic, New age, EnigmaticПродолжительность: 01:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB42A057FBBCCB8EF4BD17D6EBCB563FFD11E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193266   (262220) от 20.12.2017
+
+VA - Nrj Latino Hits Only ! 2CD (2017) [MP3|320 Kbps] <Reggaeton, Cumbia, Other>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrique Iglesias Feat. Descemer Bueno, Zion & Lennox - Subeme La Radio 03:28
+02. J Balvin & Willy William - Mi Gente 03:09
+03. Maluma - Felices Los 4 03:49
+04. Shakira - Me Enamore 03:46(   Читать дальше...   )Жанр: Reggaeton, Cumbia, OtherПродолжительность: 02:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDF2ECB60F4E31C94002F14CB0FBAEB17B3773B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193505   (262117) от 21.12.2017
+
+VA - Mosaic - the Very Best New Age Music VA - Mosaic - the Very Best New Age Music   2017,  2CD  [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Kelly — Sacred Mountain (Beyond the Horizon 2)
+02. Jon Richards — The Triple Goddess (The Sacred Tree)
+03. Paul Sills — Childhood (Awake and Dreaming)
+04. Karl Maddison — Sacred Mountain (On the Road to Tibet)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76B7C44E9F56EA5BCB77ED0A265985383858483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194045   (261786) от 23.12.2017
+
+Jon Richards - The Sacred Tree (2012) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Seasons
+02. The Triple Goddess
+03. Lady of the Forest
+04. The Sacred Tree(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0279908A35900E11DEAFA800A62447A75E7065BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504972   (260875) от 03.06.2012
 
 I.E.M. (The Incredible Expanding Mindfuck) - Untitled (Complete IEM) - 2010 [FLAC|Lossless] <Krautrock, Abstract, Psychedelic Rock, Experimental>
@@ -670,179 +815,6 @@ Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Me
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499853   (256923) от 22.05.2012
-
-Кубанцы - Авторский сборник  (1995) [MP3|160 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За Кубанью огни горят (1:20)
-02. Атаман (6:27)
-03. Каким ты был (3:01)
-04. Сказал казак через долину (1:42)
-05. Ой, у вышнэвому саду (3:33)
-06. Ой, ты, Галя (2:51)
-07. Любо, братцы, любо (3:22)
-08. Ой, мий мылый варэнычкив хоче (2:06)
-09. Батько Атаман (2:06)
-10. Мисяць на нэби (3:04)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499540   (256407) от 21.05.2012
-
-Novalis Deux (ex-Novalis) - 4 albums (2001-2008) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put on Your Shoes (03:36)
-02. Homecoming (03:34)
-03. Ghosts of Europe (05:51)
-04. Sleeping Violin (05:00)
-05. The Clown (03:03)
-06. Passing By (03:29)
-07. Rome (04:08)
-08. One Step (05:23)
-09. World in Flames (04:32)
-10. Your Hell (03:31)2001-2008Жанр: Neofolk, Apocalyptic FolkПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE76AAEE505DC273D71E703FC986A7446229A0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499462   (256373) от 21.05.2012
-
-Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neofolk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dante O' Doré (03:50)
-02. Wadi el 'arish (08:31)
-03. Etheros (02:27)
-04. Zjw (05:04)
-05. Capriccio di cenere (05:27)
-06. Les cloches de Clisson (02:25)
-07. Sacrum II (03:25)
-08. Over the Border (03:42)
-09. Physeos (03:31)
-10. Escalder's Spellbinding (02:53)(   Читать дальше...   )2002Жанр: Acoustic, Ethereal, NeofolkФормат: CD, AlbumПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499451   (256363) от 21.05.2012
-
-Этнографические коллективы Краснодарского края - А у нас на Кубани... (2008) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256363.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За Лабою огонь горит (3:26)
- 2. В 1791 году (3:09)
- 3. Зажурились черноморцы (5:21)
- 4. По над лугом шлях (2:42)
- 5. Ой мало мало мне ночку спалось (2:38)
- 6. Вы казачки казачки (2:23)
- 7. Прощай ты Уманска станица (5:04)
- 8. Не полынно ты мое полюшко (3:10)
- 9. И не пьют не едят кони вороные (3:34)
- 10. То не пыль то курит (4:35)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40821ECB6899EE0062B2AA2B1D669E3BF006AE3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499496   (256292) от 21.05.2012
-
-Peter Buffett - 500 Nations. A Musical Journey (1994) [MP3|320 кб/с]<New age, Native american>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256292.jpg" />
-</div>
-
-
-###  Подробнее
-
-(1:20) 01. Foreword
-(4:10) 02. 500 Nations
-(2:51) 03. Maya
-(3:00) 04. Columbus
-(6:55) 05. No Turning Back
-(2:52) 06. Another Enemy
-(2:41) 07. We Became Orphans
-(3:23) 08. De Soto's MarchЖанр: New age, Native americanПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68273179F3FEA4000B3D3ADA6068803730A781F
 ```
 
 https://mybot314.ru/tekegram_catalog/

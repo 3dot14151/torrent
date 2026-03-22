@@ -1,3 +1,178 @@
+###  Публикация: 796268   (685956) от 14.06.2014
+
+GILLAN - Gillan At The BBC (1997) 2 CD Live /1997, Nippon Crown Co. Japan/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain Your Brain (LIVE) (4:09)
+02. Are You Sure ? (LIVE) (4:42)
+03. Mr. Universe (LIVE) (6:44)
+04. No Easy Way (LIVE) (9:06)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D637A0D9FD3DB0F7E328D73262B0458B210F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897437   (685646) от 13.05.2015
+
+Ted Nugent - Shutup & Jam! (2014) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shutup & Jam! (2:53)
+02. Fear Itself (4:40)
+03. Everything Matters (3:19)
+04. She's Gone (2:58 )
+05. Never Stop Believe (6:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE641550CD4908CDC513FF33849E49152DA4D884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029245   (684419) от 25.06.2016
+
+Laos - We Want It (1990) [FLAC|Lossless|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Want It    02:46
+02.  Why Is A Good Love    03:42
+03.  Now That It's Over    04:15
+04.  Straight To The Top    03:18(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F56C90EDD672A0152A44A80F497D437A424183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535617   (684320) от 07.03.2022
+
+Done Messed Up - Me, Myself And A Few Other People (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fate 06:23
+02. Empty 05:36
+03. Better You Than Me 03:51
+04. No More Mistakes 04:53(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BEC3EE2BEBC39D2118F6348D17E761FF6DE0A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535448   (684319) от 07.03.2022
+
+Crazy Lixx - Street Lethal (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Dojo
+02. Rise Above
+03. Anthem For America
+04. The Power(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2066F423A675094AD9E234C202B24DD865DA59E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403928   (684272) от 23.08.2020
+
+Lionheart - 3 Studio Albums (1984-2020) 3xCD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа LIONHEART - Была основана в конце 1980 года гитаристом Деннисом Стреттоном (экс-IRON MAIDEN), Стивом Мэнном (MICHAEL SCHENKER FEST) и Рокки Ньютоном (ex-MSG), а Клайв Эдвардс (ex-UFO) завершил состав немного позже. Группа начала играть постоянные живые концерты, включая регулярные аншлаговые концерты в лондонском клубе Marquee. В период с 1981 по 1984 год (   Читать дальше...   )Альбомы :
+1984 - Hot Tonight
+2017 - Second Nature
+2020 - The Reality Of MiraclesЖанр: Hard RockПродолжительность: 02:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E68D2748B6CF9B2DA95D32716B6A3C28DE67C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029241   (684048) от 25.06.2016
 
 Deep Purple - Deep Purple III (1969) K2HD HiQuality CD, 2011, Victor [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
@@ -571,180 +746,6 @@ D'or - Veni Vidi Ignis (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B27F54332CB823E3AD073490AB23E4A889F92F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536876   (670972) от 14.03.2022
-
-Tim - Tim (1983) Reissue, 2021, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something's Coming (3:25)
-02. Never Let You Get Away (3:52)
-03. Maybe It's Better (3:37)
-04. Astral Games (3:27)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C20311E812419ABC722FC539CA9D009F3E07401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291382   (670698) от 24.03.2019
-
-The End Machine - The End Machine (2019) [FLAC|lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leap Of Faith (05:06)
-02. Hold Me Down (05:16)
-03. No Game (04:39)
-04. Bulletproof (04:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13C9FBF67DC2928F596AE7FF0C1F85BC6E19A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290764   (668803) от 25.03.2019
-
-Tora Tora - Bastards of Beale (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sons Of Zebedee (00:04:21)
-02. Giants Fall (00:04:13)
-03. Everbright (00:03:44)
-04. Silence Of Sirens (00:04:56)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD12A151AEB55A2C6B73EECA5E9B2091FE3A961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031289   (668769) от 03.07.2016
-
-La Chinga - Freewheelin’ (2016) [FLAC|Lossless|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gone Gypsy    03:52
-02.  Mother Of All Snakeheads    04:15
-03.  White Witchy Black Magic    03:07
-04.  Stoned Grease White Lightnin'    03:33(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FC7F4F79C57263DDF08F5CA21B97092D98E2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537307   (667892) от 16.03.2022
-
-Chains over Razors - Chains over Razors (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut the Noose (04:26)
-02. Broken Home (04:07)
-03. The Narc (05:08)
-04. Letters to the Sun (03:57)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DFF3992088706FB60E13C2C2EF55A610F5037B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900729   (666737) от 23.05.2015
-
-Bonfire - Glorious (2015) [FLAC|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 21 Guns Salute (Goes Boom)
-02. Nothin' At All
-03. Can't Break Away
-04. Remember(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304ECDB97F7B04B022BC82B0A39227DE7745C1B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

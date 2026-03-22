@@ -1,3 +1,177 @@
+###  Публикация: 1792493   (67599) от 20.04.2025
+
+Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomnia [00:04:05]
+02. Come Hell Or High Water [00:03:59]
+03. Give It All You've Got [00:03:54]
+04. Burn In Hell [00:03:51](   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE7E25BB36F2F6991BDCA0C879DA4A507B4A9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797506   (66813) от 16.05.2025
+
+Soul Seller - Fight Against Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Wasted Paradise (05:08)
+ 02. The Sound Of The Last Survivor (04:18)
+ 03. Fight Against Time (04:44)
+ 04. Autumn Call (04:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A94FA2C40EFD03A08100AD9A65A62A53A859C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798608   (66634) от 22.05.2025
+
+Sum Of All - Time to leave (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sitting Ducks (04:33)
+ 02 - Lost And Found (04:11)
+ 03 - My fears (04:17)
+ 04 - Do Talk To Me (03:53)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2975DC4C2BBDFFA3619105C9D085F6D3339C81A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799343   (66456) от 27.05.2025
+
+Barmy Rote - Injustice For All (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien (05:25)
+ 02. The Highwayman (05:27)
+ 03. Remember Me (05:29)
+ 04. Broken Faces (World War I) (06:25)(   Читать дальше...   )Жанр: Hard Rock, ProgressiveПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3246C130FBC5F5910D4F0AEE89BA1B7FE92D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799930   (66364) от 30.05.2025
+
+Brother Firetribe - Number One (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Number One (3:54)
+02.  How Long Until Tomorrow (4:24)
+03.  Just Another Night (4:32)
+04.  Are You Ready? (3:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7CB5D2FCE4B8593EC974AD4FD7A9D3B9433FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800279   (66310) от 01.06.2025
+
+The Dead Daisies - Lookin' For Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Ready (3:12)
+02.  Going Down (3:23)
+03.  Boom Boom (4:02)
+04.  Black Betty (3:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AE5B98CCE04C6F3E0CFFD890F38B7DAE8FB72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800274   (66295) от 01.06.2025
 
 Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -574,180 +748,6 @@ XYZ - Take What You Can... Live (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05080B626D7F1729949CA418BC7A3FC193EA9B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722535   (56869) от 11.05.2024
-
-Babylon A.D. - Rome Wasn't Built In A Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrecking Machine (4:15)
-02. Pain (4:03)
-03. Sometimes Love Is Hell (5:24)
-04. Rome Wasn't Built In A Day (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1742733BD0B04913DC25DE6F6F51F484683968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321899   (56222) от 18.05.2024
-
-Def Leppard - 25 albums, 11 Singles, 8 Box sets, 124 CD (1980-2024) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Hard 'n' Heavy, Glam Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Def Leppard — британская рок-группа из Шеффилда, Йоркшир, Англия; образована в 1977 году. В мировой истории музыки Def Leppard останутся как группа, которая за сутки сыграла три концерта на трех континентах. Как коллектив, в котором играет самоотверженный и талантливый самый знаменитый в мире однорукий барабанщик. Но это только, пожалуй, самые запоминающиеся факты (   Читать дальше...   )--------------------------
-
-01. Goodbye (3:39)
-02. Under My Wheels (3:22)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' Heavy, Glam Rock, NWOBHM |Продолжительность: 4d 7:10:54 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A3E6C05BD35FAF7A8CA43B77BFF2687D59E61D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280810   (55972) от 20.05.2024
-
-Praying Mantis - 18 albums, 23CD (1981-2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Praying Mantis ("Богомол") — британская рок-группа. Praying Mantis считается одной из самых старейших и мелодичных групп NWOBHM («Новой волны британского хэви-метала»), этот коллектив имеет культовый статус. В разное время в рядах этого состава работали музыканты таких составов, как Iron Maiden, Samson, Ten Years After, Uriah Heep, Rainbow, Michael Schenker (   Читать дальше...   )--------------------------
-
-01. Back Street Lovers (3:47)
-02. Gimme Something (4:06)(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, AOR |Продолжительность: 20:12:52 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445A9066985A89F5FA794D081A10655877AB24E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724308   (55935) от 20.05.2024
-
-Audio Reign - The Perfect Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relentless (Explicit Version) [00:05:00]
-02. The Perfect Sea [00:04:39]
-03. Crown [00:03:35]
-04. Angel [00:05:17](   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6164DE4D5331866E5E6410DD45D31C0EF6E5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265677   (55039) от 29.05.2024
-
-Slash - 11 albums, 14 CD (1995-2024) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Hard'n'Heavy, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сол Хадсон (более известный по сценическому псевдониму Slash) - американский рок-музыкант британского происхождения. Наиболее известен как гитарист американской хард-рок-группы Guns N’ Roses, с которой он добился всемирного успеха в конце 1980-х и начале 1990-х годов. В поздние годы своего участия в Guns N' Roses сформировал сайд-проект Slash's Snakepit. Позднее (   Читать дальше...   )--------------------------
-
-01. The River Is Rising (feat. Myles Kennedy & The Conspirators) (3:43)
-02. Whatever Gets You By (feat. Myles Kennedy & The Conspirators) (3:40)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Hard'n'Heavy, Alternative Rock |Продолжительность: 14:08:16 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DAEC3F1AAA60F57819A55F9025F39B4DD73780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349916   (54594) от 02.06.2024
-
-Laura Cox Band - 3 albums (2017-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лора Кокс начала размещать свои гитарные соло на YouTube c 2008-го и с тех пор стала одной из самых известных гитаристок Интернета. Лора - редкая смесь юного таланта двадцать первого века и традиционных музыкальных ценностей, что подтвердилось более чем 47 миллионами просмотров и 200 000 подписчиков на YouTube и более чем 140 000 лайков на ее странице Facebook, созданной (   Читать дальше...   )--------------------------
-
-01. Head Above Water (4:10)
-02. So Long (3:02)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock |Продолжительность: 02:08:33 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D7C5E97B671C9919B0686749B2692B37321AF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

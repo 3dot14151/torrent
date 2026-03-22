@@ -1,3 +1,32 @@
+###  Публикация: 1708985   (62128) от 22.03.2024
+
+Gazebo - Maxi & Singles Collection Part 2 (2023) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunatic (Extended Version) 6:20
+02. Masterpiece (Vocal) 9:40
+03. Ladies (Andy Romano Flashback Rmx)
+6:13(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAECC2A21E3F82F2A5016E134E64420E207EE597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708960   (62118) от 22.03.2024
 
 Gazebo - Maxi & Singles Collection Part 1 (2023) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
@@ -710,35 +739,6 @@ VA - Italo Disco Dance Party Collection Part 1 (2023) [FLAC|Lossless|tracks] <It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:747F2262A7D69B805D276DC0F394101F5B28E590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740309   (48063) от 02.08.2024
-
-Systems In Blue - Anthology 2003-2023 (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Mystery (Extended Mix) (5:11)
-02. Sexy Ann (3:44)
-03. Winner (3:42)
-04. Point Of No Return (Maxi Version) (5:59)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601B2CEA90CA1E0F4AEFB5B49C5B2DA2F561E74A
 ```
 
 https://mybot314.ru/tekegram_catalog/

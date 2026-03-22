@@ -1,3 +1,182 @@
+###  Публикация: 1346361   (163849) от 19.12.2019
+
+John Elefante - 4 альбома (1995-2013) Collection [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1995 - Windows Of Heaven
+1997 - Corridors
+1999 - Defying GravityЖанр: Melodic Hard Rock/Progressive RockПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9FB9BD06701DB942D1915F37F627353D4DAF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517162   (163662) от 14.12.2021
+
+Jim Peterik And World Stage - Tigress - Women Who Rock The World (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock,|AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект JIM PETERIK & WORLD STAGE, лидером которого является экс-гитарист SURVIVOR Джим Петерик, выпустит альбом “Tigress: Women Who Rock The World” 5 ноября на лейбле Frontiers Music Srl. (Издание на двойном виниле увидит свет 10 декабря из-за нехватки сырья в виниловой индустрии всего мира).
+
+Первым синглом с альбома стала композиция "Prom Night In Pontiac", (   Читать дальше...   )01. Tigress - Kate French (4:25)
+02. Prom Night In Pontiac - Chloe Lowery (3:30)
+03. A Cappella (4:52)
+04. Living For The Moment (4:14)(   Читать дальше...   )Жанр: Melodic Hard Rock,|AORПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A0EFD5113C8F567C33531B1EA950B1E7DAD6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517103   (163644) от 14.12.2021
+
+Life Of A Hero - Letting Go (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3D (3:34)
+02. Letting Go (3:32)
+03. Caught In A Lie (3:36)
+04. In My Dreams (4:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB49091BEC912C6253747E091E749A756499A1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175554   (163632) от 17.12.2020
+
+Phenomena - 7 albums, 14 CD (1985-2020) [FLAC|Lossless|image + .cue | tracks+.cue] <Hard Rock, Classic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phenomena — cупер мелодик-рок-проект, продюсируемый Томом Гэлли и Вильфридом Рименсбегом. Phenomena имеет корни в классике хард-рока, в этом проекте играли участники таких групп, как Deep Purple, Queen, Trapeze. Альбом "Phenomena II Dream Runner" является классикой рок-музыки. Изначально Phenomena работала с BMG RCA International и выпускала альбомы в Европе, (   Читать дальше...   )--------------------------
+
+01. 01 Still the Night (3:28)
+02. 02 How Do You Feel? (5:25)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, AOR |Продолжительность: 11:04:03 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B6E7DE7206FC61C0485AE9F4D041D57132C66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269432   (163534) от 17.12.2020
+
+The Yardbirds - 15 albums, 1 Box set, 27 CD (1963-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Classic Rock, Rhythm & Blues, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163534.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Yardbirds («Новобранцы») — группа образовалась в июне 1963 года в Лондоне. Эта британская рок-группа известна тем, что в ней началась карьера троих из самых известных рок-гитаристов: Эрика Клэптона, Джеффа Бека и Джимми Пейджа, которые входят в список 100 величайших гитаристов всех времён по версии журнала Rolling Stone (Клэптон — на 2 месте, Пейдж — на 3, и (   Читать дальше...   )--------------------------
+
+01. Smokestack Lightning (6:49)
+02. Let It Rock (2:20)(   Читать дальше...   )Жанр: Classic Rock, Rhythm & Blues, Psychedelic Rock |Продолжительность: 26:26:58 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B86A87D8077AC17B3EBE079A646DDB7FE09D7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193056   (163522) от 17.12.2020
+
+Tony Iommi - 9 albums, 13 CD (1996-2012) [FLAC|Lossless|image + .cue | tracks + .cue] <Heavy Metal, Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тони Айомми (Tony Iommi) родился 19 февраля 1948 года в Бирмингеме, Англия. Он был единственным ребёнком отца-итальянца и матери англичанки. Именно родители оказали влияние на формирование музыкального вкуса мальчика: у отца Томми было множество родственников, которые почти все играли на аккордеонах и барабанах, мать будущего гитариста играла на гармонике. Основатель (   Читать дальше...   )--------------------------
+
+01. Holy Water (Tony Iommi & Ian Gillan) (7:01)
+02. Anno Mundi (Black Sabbath) (6:14)(   Читать дальше...   )--------------------------
+
+01. Mob Rules  (3:47)
+02. Children Of The Sea  (6:31)(   Читать дальше...   )Жанр: Heavy Metal, Hard'n'Heavy |Продолжительность: 11:18:50 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75307EFBBDFB67EA1F5A4CF7615C2B3C1B7B07BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517255   (163513) от 14.12.2021
 
 Lordi - Lordiversity (2021) Box Set, Limited Edition, 7xCD [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -571,180 +750,6 @@ Sonum X - Metamorpher (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24D7816CDF46F7BC0BD2EB9123F5D75D0BCEEF5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598713   (161936) от 20.12.2022
-
-Lesbian Bed Death - The Witching Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Scorpion (04:05)
-02. Breakfast at Tisiphone's (03:42)
-03. Sabrina (04:11)
-04. The Witching Hour (04:43)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F60BBB8CB33E28DF9F63E4124A6682C51BE56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598904   (161445) от 21.12.2022
-
-Bacchus Baracus - All Art Is Theft (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. COC [00:04:47]
-02. Big Bend [00:06:13]
-03. Fast Hing [00:02:12]
-04. Queen Bjork [00:03:47](   Читать дальше...   )Жанр: Heavy Psych, StonerПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327790A8953BAAFC3774A893DBDFF5917BB1D7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518198   (161001) от 18.12.2021
-
-Pussies On The Dancefloor - Rumors (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rumors
-02. Never Ever
-03. Abbie
-04. Broke But Rich(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6BAA407599C230ECD51B55F161F09984A9DD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518003   (160989) от 18.12.2021
-
-Bon Jovi - These Days (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey God [6:11]
- 02. Something for the Pain [4:48]
- 03. This Ain’t a Love Song [5:07]
- 04. These Days [6:28](   Читать дальше...   )Жанр: Hard Rock, Soft RockПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDE09BB63D08D6CCC9B31BB069FB02953651416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675470   (160295) от 09.11.2023
-
-Beyond the Flames - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:55)
-02. Rise Again (3:25)
-03. Bury the Phoenix (6:01)
-04. The Great Divide (4:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E57954DC2F97E5CE19E9DCC25B9B11392B7CBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366252   (159679) от 23.12.2022
-
-Skid Row - 6 Albums, 3 EP, 1 Compilation (1989 - 2022) 15 CD [Lossless|FLAC|image + .cue|tracks + .cue] <Hard Rock, Glam>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skid Row - американская рок-группа, играющая в стиле глэм-хард-метал. Основана в 1986 году, распалась в 1996, воссоединилась в 2001. Идея создания проекта принадлежала басисту Rachel Bolan и гитаристу Dave "The Snake" Sabo. Dave являлся приятелем Jon Bon Jovi и в начале 80-х успел поиграть с ним в паре команд, перед тем, как Jon организовал "Bon Jovi". (   Читать дальше...   )Список альбомов:
-1989 - Skid Row
-1991 - Slave To The Grind
-1995 - Subhuman RaceЖанр: Hard Rock, GlamПродолжительность: 12:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC8C705B97B848CE962AAFDC32FF9A5C247BD02
 ```
 
 https://mybot314.ru/tekegram_catalog/

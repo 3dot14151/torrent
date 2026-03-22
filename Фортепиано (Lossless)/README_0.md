@@ -546,6 +546,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529255   (733160) от 05.02.2022
+
+Maxence Cyrin - Melancholy Island (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faro Bay (2:49)
+ 02. Soft Skin (2:11)
+ 03. Seasons (3:37)
+ 04. Rivages (2:57)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716822768B26C0FEA6A0F4DB965951F8FD9AD56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530793   (727815) от 12.02.2022
 
 Sofiane Pamart - LETTER (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
@@ -713,35 +742,6 @@ Maria Grinberg - Beethoven: Piano Sonatas (vol 1,2) 1968 (2 Альбома) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73ED975BA8B5FF55094FEC6AABD5A77290EC8C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036370   (620850) от 20.07.2016
-
-Steven Osborne - Beethoven: Bagatelles (2012) [FLAC|Lossless|image + .cue] <Classical, Keyboard>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seven Bagatelles, Op. 33
-01.  Op. 33 - #1 in E flat major: Andante grazioso, quasi allegretto    03:46
-02.  Op. 33 - #2 in C major: Scherzo - Trio    03:11
-03.  Op. 33 - #3 in F major: Allegretto    01:48(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC0A2B5F33C09957FC3CFDE453CD5BFE5B8F601
 ```
 
 https://mybot314.ru/tekegram_catalog/

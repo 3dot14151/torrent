@@ -1,3 +1,119 @@
+###  Публикация: 1339643   (265342) от 20.11.2019
+
+VA - 100 Greatest Party Starters (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Be The One 3:23
+02. Daft Punk - One More Time 5:20
+03. Bruno Mars - 24k Magic 3:46
+04. Lizzo - Good As Hell 2:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE80FA51C696C7B1E51600EDE59438A144412F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339451   (265331) от 20.11.2019
+
+Dido - Still on My Mind (2019) Deluxe Edition [MP3|320 Kbps] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265331.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Hurricanes [5:17]
+ 2 - Give You Up [3:22]
+ 3 - Hell After This [3:28]
+ 4 - You Don't Need A God [3:32](   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3380E2EBDB9FD0C7015CB6B3B679679589B2F7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339444   (265315) от 20.11.2019
+
+VA - Take On Me: 80s Anthems - The Ultimate Collection (2019) 5CD [MP3|320 Kbps] <Pop, Disco, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265315.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01.A-Ha - Take On Me
+02.Nena -  99 Red Balloons(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 06:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A65875B2588A5913C13DCEC7200C50D6A2AA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191517   (264482) от 13.12.2017
+
+Walk the Moon - What If Nothing (2017) [MP3|320 Kbps] <Indie Pop, Indie Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Press Restart
+02. Headphones
+03. One Foot
+04. Surrender(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, ElectronicПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A81DDE99C911469706B74536E32053CC9A84D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340149   (264238) от 22.11.2019
 
 Robbie Williams - The Christmas Present (2019) Deluxe Edition [MP3|320 Kbps] <Pop>
@@ -641,140 +757,6 @@ VA - Wow! 91 International (1991) 2 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D442CFEF35B0FECED0DCEA6648385ADD6AEB0386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500310   (257187) от 23.05.2012
-
-Regina Spektor - What We Saw From The Cheap Seats (2012) [MP3|320 кб/с]<Indie, Piano, Pop, Folk, Singer-Songwriter, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Small Town Moon
-2. Oh Marchello
-3. Don't Leave Me (Ne Me Quitte Pas)
-4. Firewood
-5. Patron Saint
-6. How
-7. All The Rowboats
-8. Ballad Of A Politician
-9. Open
-10. The Party(   Читать дальше...   )Жанр: Indie, Piano, Pop, Folk, Singer-Songwriter, Female VocalПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE5979D6D5A9820496F2F036005EFAAEA2F32EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499452   (257002) от 22.05.2012
-
-Скрябін (Скрябин) - Радіо любов (2012) [MP3|320 кб/с]<Alternative Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Говорили і курили (03:33)
-02. Не думай про завтра (04:36)
-03. Місця щасливих людей (05:31)
-04. Сліди (02:52)
-05. Мам (04:50)
-06. Ніби в раю (03:53)
-07. Радіо Любов (04:34)
-08. Тримай її за руку (04:53)
-09. А під Новий Рік (03:46)
-10. Історії двох (03:26)2012Жанр: Alternative PopПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E5AA0D4E07B62E8E47B7FC3469305CB3FCB8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837218   (256588) от 15.11.2025
-
-VA - The 80’s Greatest Hits (2008) 3 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bangles - Walk Like An Egyptian     03:25
- 02. Big Audio Dynamite - E=Mc2     04:30
- 03. Nena - 99 Red Balloons     03:51
- 04. Bomb The Bass - Beat Dis     03:22(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 03:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB73509E5999B35A5D2BD024ED73FDB9B922EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499437   (256451) от 21.05.2012
-
-VA - Ils Chantent Dalida (2012) [MP3|320 кб/с]<French Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pour ne pas vivre seul (Christophe Willem)
-02. Paroles, paroles (Zap Mama-Vincent Cassel)
-03. Fini la comedie (Helene Segara)
-04. Parle plus bas (Patrick Fiori)
-05. Il venait d'avoir 18 ans (Lara Fabian)
-06. Dernier baiser (besame mucho) (Christophe)
-07. A ma maniere (Amel Bent)
-08. Histoire d'un amour (Dany Brillant)
-09. Que sont devenues les fleurs (Max Guazzini)
-10. Bambino (Amanda Lear)(   Читать дальше...   )Жанр: French PopПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1EB39EC8537BDD61BDD0CDFF32DCE43B9E2F70
 ```
 
 https://mybot314.ru/tekegram_catalog/

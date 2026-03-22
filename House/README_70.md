@@ -1,3 +1,148 @@
+###  Публикация: 1596729   (169222) от 11.12.2022
+
+VA - Deep Christmas Vibes (2022) [MP3|320 Kbps] <Deep-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supernova - Lovely Summer Dreams (Extended Mix) (6:58)
+02. Private One - Mio Plus Mia (Extended Mix) (8:07)
+03. Audiowhores & Stee Downes - Facts (Deep Vibe) (7:00)
+04. Supernova feat. Ann Saunderson - R.L.H. (Shur-i-kan Vocal) (6:19)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 02:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF9326A3BCAE8384A57B35530B86AC4DC35B414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596728   (169113) от 11.12.2022
+
+VA - House 2023 (2022) [MP3|320 Kbps] <Deep-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conwell Minolta - Big Hero (8:05)
+02. Dim Day - Mafia Funk (7:01)
+03. Colosamson - Panic (3:39)
+04. Psychoz - In Da House (2:58)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35523F8C98036C9A94C8632DF6A5260572BE55CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344845   (168266) от 13.12.2019
+
+VA - House 2020 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chart10 - The House (Original Mix) 7:31
+02. Klasher - Me And My Personal Stereo (Original Mix) 6:35
+03. Sixsense & Rammix - Summer Vibe (Original Mix) 4:36
+04. Camblom Subaria - Lonely (Original Mix) 6:14(   Читать дальше...   )Жанр: HouseПродолжительность: 03:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C3A5F9BD3D751EB8EBE4837634DF4D59627D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431385   (167729) от 13.12.2020
+
+VA - Milk & Sugar Winter Sessions 2021 (2020) [MP3|320 Kbps] <House, Funky House, Afro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - Freedom (Sebb Junior Extended Remix) [6:09]
+02. Ucha - Yellow Jello Slugs (Superlover Extended Remix) [4:59]
+03. The Goodfellas - Soul Heaven (David Penn Remix) [6:12]
+04. DirtyDisco - No Sunshine (Original Mix) [6:27](   Читать дальше...   )Жанр: House, Funky House, Afro House, ElectronicПродолжительность: 03:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCBEA12640F52053173F9779D3ABC8C19912701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431676   (166905) от 14.12.2020
+
+Leama & Moor - Distance Between Us (2006) Single [MP3|320 Kbps] <Progressive House, Trance, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166905.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Distance Between Us (Jody Wisternoff Mix) [07:02]
+2. Distance Between Us (Streetlife DJs Mix) [07:13]
+3. Distance Between Us (Original Mix) [09:45]
+4. Distance Between Us (Gill Norris Mix) [11:48](   Читать дальше...   )Жанр: Progressive House, Trance, Progressive TranceПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610DF7148388FEB36BCD69C05A690F0AC61620C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673142   (166355) от 31.10.2023
 
 VA - Which Bottle?: AUTUMN CLUB BOX 2023 [MP3|320 Kbps] <House, Funky House, Dance>
@@ -595,151 +740,6 @@ VA - World Club Charts (2018) [MP3|320 Kbps] <House, Tropical, Funky, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26BA3932D924148C2B61E07A6D34823B8B45AA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270881   (154518) от 21.12.2018
-
-VA - Disco Electronica Vol.36 (2018) [MP3|320 Kbps] <Deep House, Funky, Nu Disco, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sven Tasnadi - It's Your Love (Edit) 6:38
-02. The Deepshakerz - Diggin' Down 5:12
-03. Diego Lima - Bubblegum 6:39
-04. Huxley, Ron Carroll - Work 5:46(   Читать дальше...   )Жанр: Deep House, Funky, Nu Disco, Indie DanceПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349F7A2C3187C8B2959E263096BD7C46D708D4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270882   (154499) от 21.12.2018
-
-VA - Mega Dance Party 2019 (2018) [MP3|320 Kbps] <Deep House, Dance, Bigroom, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LocoDJ - Ciao Bella (Radio Edit)
-02. Spikaa feat. Deja - Home (Radio Mix)
-03. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
-04. Klissmoon - Not Today (Radio Edit)(   Читать дальше...   )Жанр: Deep House, Dance, Bigroom, Progressive HouseПродолжительность: 02:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4394FD431CE83DE02FA02A06CFDA220CC9BD3838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194757   (154337) от 26.12.2017
-
-VA - Sport Club Hits Vol.1 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154337.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Avancada vs. Darius & Finlay  -  Xplode (Avancada Mix)  3:16
-02.  Armin van Buuren, Sunnery James & Ryan Marciano  -  You Are  2:57
-03.  Picco  -  Like I Love The Mash (Edit)  3:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A2C5BEA337A8E887EF337D715D91E36B463FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825422   (152074) от 17.10.2025
-
-FaraoN - Deep House Music Collection 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How It Feels 03:40
-02. Soul Funk 05:10
-03. Morning Sun 04:03
-04. Aura 05:05(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1329EB77C6D0E23CE683AC351658FA43175380F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677544   (150547) от 18.11.2023
-
-VA - Black Hole House Music 11-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Rivera - Get Me Out Of Here (Sivz Extended Remix) [5:31]
-02. ZOYA & Factore - Sun Is Dark (Extended Mix) [5:28]
-03. Dsnt Matter - Lost My Heart (Extended Mix) [5:56]
-04. Kiholm & Kris O'Neil - Victorious (Extended Mix) [5:41](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAFCA8133188C905A4D3BCE17F4AFAE750C293A
 ```
 
 https://mybot314.ru/tekegram_catalog/

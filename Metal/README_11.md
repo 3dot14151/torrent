@@ -1,3 +1,32 @@
+###  Публикация: 974825   (975668) от 12.01.2016
+
+Abbath - Abbath (2016) [MP3|320 кб/с] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975668.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To War
+2. Winter Bane
+3. Ashes Of The Damned
+4. Ocean Of Wounds(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F037C27A15A4C2B3A25C5A91FE3CB2A3A8E0280D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 166892   (974911) от 16.01.2010
 
 Pelican - Australasia (2003) [MP3|320 kbps]<Instrumental Artcore / Sludge Doom Metal>
@@ -734,35 +763,6 @@ Evil Drive - The Land Of The Dead (2016) [MP3|320 кб/с] <MDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28F5F3ED507DBFC182EE99CC04462D3134DCB4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978152   (964708) от 22.01.2016
-
-Skeletoon - The Curse Of The Avenger (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timelord
-02. What I Want (Feat. Roland Grapow)
-03. Heroes Don't Complain (Feat. Roland Grapow)
-04. Hymn To The Moon(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719486D620522CB7C3DBC97781953EBEB8FD690E
 ```
 
 https://mybot314.ru/tekegram_catalog/

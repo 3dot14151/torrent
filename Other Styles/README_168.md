@@ -1,3 +1,158 @@
+###  Публикация: 1768969   (100580) от 30.12.2024
+
+VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2024) [MP3|320 Kbps] <Rock, Pop, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Shinoda & Emily Armstrong — Heavy is the Crown (01:42)
+02. Freya Ridings — I Can't Hear It Now (02:41)
+03. Marcus King — Sucker (03:44)
+04. Raja Kumari & Stefflon Don — Renegade (We Never Run) (feat. Jarina De Marco) (02:41)(   Читать дальше...   )Жанр: Rock, Pop, OSTПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487060   (100321) от 23.04.2012
+
+AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kentaya (03:45)
+02. Grott (04:32)
+03. Noiman (04:11)
+04. Ya-Fu (04:41)
+05. Lost Highway (04:34)
+06. Istoria (05:00)
+07. In the Fiesta of Lie (03:06)
+08. Snow in the Dream (04:18)
+09. Ti Qua? (04:24)Жанр: Chillout/LoungeПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EC147031054990E34BE8EA09FD5F5451D8FFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474130   (97805) от 27.03.2012
+
+Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97805.jpg" />
+</div>
+
+
+###  Подробнее
+
+(20:33) 1.1995Жанр: New age, MeditativeПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E1813CAD7A929762DBE91B7A8053C15037F2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473998   (97783) от 27.03.2012
+
+Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97783.jpg" />
+</div>
+
+
+###  Подробнее
+
+(04:42) 01. Etheric Body
+(05:10) 02. Emotional Body
+(04:56) 03. Mental Body
+(05:57) 04. Spiritual Body
+(03:16) 05. Green Sea
+(05:57) 06. Orange Sunset
+(05:11) 07. Indigo Sky
+(04:05) 08. Yellow Light
+(03:38) 09. Red Moon
+(10:13) 10. Violet Clouds(   Читать дальше...   )2006Жанр: New ageПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525540B6EC57A5FCFDA9F6EBD60C0E7030EFB8C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472907   (97675) от 25.03.2012
+
+VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]<New age, Chillout, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97675.jpg" />
+</div>
+
+
+###  Подробнее
+
+(04:42) 01. Sangre De La Tierra - Aguas Blancas 7 A.m. (Original Mix)
+(12:02) 02. Klaus Schonning - Nightfall At Ganges (Original Mix)
+(07:08) 03. Lazy Hammock - Buddha State (Original Mix)
+(06:11) 04. Florito - Feel So Good (Original Mix)
+(02:16) 05. Krystian Shek - Slightly Breeze (Original Mix)
+(04:20) 06. Chris Le Blanc - Debussy en Es Vedra (feat. Miss Luna)2012Жанр: New age, Chillout, Relax, MeditativeПродолжительность: 01:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBD7E4CF0B395B09C342B22A0142552DEEF41F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465328   (96567) от 13.03.2012
 
 Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic, Indian Classical Music>
@@ -682,181 +837,6 @@ Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468910   (83309) от 20.03.2012
-
-John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83309.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.20th Century Fox Fanfare (0:19)
-2.Star Wars Main Title / The Imperial Probe (3:43)
-3.Saying Goodbye (1:31)
-4.Escaping the Wampa's Lair (1:41)
-5.Vision Of Obi-Wan / Luke's Rescue (2:14)
-6.Snowspeeder Rescue (1:03)
-7.The Bacta Tank (0:16)
-8.The Executor (1:47)
-9.Battle Preparations (4:02)
-10.Battle Of Hoth (3:18)(   Читать дальше...   )Жанр: ScoreПродолжительность: 2:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C4C59EC3F1661C6513268FAD7663EC120E5A523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469248   (82728) от 17.03.2012
-
-Звуки Природы - Песни Птиц (1999) [MP3|320 кб/с]<Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Восход (03:20)
-02. Птицы на реке (03:51)
-03. Пересмешник (01:09)
-04. Древесный дрозд, Рыжик, Лисий воробей (02:57)
-05. Воробей с белым горлом, Краснохвостый сокол (01:55)
-06. Красноголовый дятел, Красногрудый дятел (02:37)
-07. Пурпурный зяблик, Балтиморская иволга, Болотная иволга (02:47)
-08. Каролинский крапивник, Каньонный крапивник, Мухолов (03:06)
-09. Ворона обыкновенная, Большой баклан, Зеленая цапля (02:57)
-10. Обыкновенный воробей, Обыкновенный дятел, Овсянка (03:35)(   Читать дальше...   )1999Жанр: RelaxПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EBFCA2C3CE09FDC7483F6CA43E64BE7CE5545B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468129   (82515) от 16.03.2012
-
-Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82515.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Titles
- 2. The Game Is On
- 3. War
- 4. Pink
- 5. Security Cameras
- 6. Pursuit
- 7. Which Bottle?
- 8. Targets
- 9. Library Books
- 10. Number Systems(   Читать дальше...   )2012Жанр: Series OSTПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A131D93CE5D659FA276B973E9D5F66BC9377ABA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468579   (82403) от 16.03.2012
-
-Сердца в Атлантиде - Hearts In Atlantis (2001) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chubby Checker - The Twist (2:38)
-02. Chuck Berry - Carol (2:48)
-03. Santo & Johnny - Sleep Walk (2:23)
-04. The Platters - Never Really Went Away (2:49)
-05. The Platters - Only You (2:40)
-06. Mychael Danna - Summer Vacation (5:32)
-07. The Crew Cuts - Sh-Boom (2:48)
-08. Percy Faith & His Orchestra - Theme from 'A Summer Place' (2:23)
-09. The Platters - Twilight Time (2:47)
-10. Mychael Danna - The Hill (4:14)(   Читать дальше...   )2001Жанр: SoundtrackПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8515322FE95110655123B803E63D9485A959E32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467154   (81860) от 13.03.2012
-
-VA - Любимые мелодии Советского кино (2012) [MP3|320 кб/с]<Soundtrack, Pop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тема детей (из к-ф 'Сказка о звездном мальчике', 1983)
-02. Сны Татьяны (из к-ф 'Шла собака по роялю', 1978)
-03. Вертолет (из к-ф 'Шла собака по роялю', 1978)
-04. Утро (из к-ф 'Служебный роман', 1977)
-05. Увертюра (из к-ф 'Служебный роман', 1977)
-06. Подводный мир и румба (из к-ф 'Человек-амфибия', 1961)
-07. Осень (из к-ф 'Служебный роман', 1977)
-08. Мелодия (из к-ф 'Осенний марафон', 1979)
-09. Вальс (из к-ф 'О бедном гусаре замолвите слово', 1980)
-10. Тема разлуки (из т-с 'Гардемарины, вперед!', 1987)(   Читать дальше...   )2012Жанр: Soundtrack, PopПродолжительность: 04:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1629151A5A7EEA837BCE8505B08F312D27D0E2EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

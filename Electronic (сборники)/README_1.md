@@ -1,3 +1,61 @@
+###  Публикация: 1610017   (1042866) от 05.02.2023
+
+VA - Deep House & Groove Mixed (2023) [MP3|320 Kbps] <Deep-House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042866.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Aedidias - L'aquitaine
+002. Bobby Smile - Get Up
+003. Jordan Brando - Marz
+004. Groove Republic - Garden Grooves(   Читать дальше...   )Жанр: Deep-House, ElectroПродолжительность: 11:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914AE0F0F18C1B44301E28CAA3FA6777B0F8BC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610054   (1042851) от 05.02.2023
+
+VA - Record Super Chart 04.02.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady GaGa - Bloody Mary (Clinton Sparks Remix) (4:02)
+02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
+03. Alok feat. Sigala & Ellie Goulding - All By Myself (2:51)
+04. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC4D01B8F7CF19056CBD52C8FA052A1FB0ABAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436848   (1042761) от 02.01.2021
 
 VA - Ремиксы 2К21 (2021) [MP3|320 Kbps] <Pop, Club, Dance>
@@ -687,64 +745,6 @@ VA - Hard Dance Motion (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E36328CFD426552D01F07BF70B1276FC23BABB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440905   (1038275) от 19.01.2021
-
-VA - EDM Free Style (2021) [MP3|320 Kbps] <Electro, Dance, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, вошедшая в микс "EDM Free Style" обладает своей атмосферой, превосходной динамикой и немалой долей оригинальности. Если вам нравятся не ординарные и свежие стилистические решения, то треки лонгплея смогут показать вам свои по-настоящему свежие мысли в привычном стиле танцевальной музыки.001. Van Storck - I Bet You Do
-002. Corona - Baby, I Don't Care
-003. Minupren - Regenbogen
-004. Midnight Cvlt - One Shot(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 11:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D868F09080D52CDDD756028B4315D784A6CEACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440888   (1038259) от 19.01.2021
-
-VA - Vocal Chillout: Move With The Beat Vol.02 (2021) [MP3|320 Kbps] <Vocal Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лонгплей "Vocal Chillout: Move With The Beat" с уверенностью можно назвать чрезвычайно "пластичной" работой. Все треки на пластинке крайне медленны и обтекаемы, тем самым на лонгплее главенствует релаксовое настроение, сравнимое с самой настоящей нирваной.001. Dee C'rell - Whodoo
-002. Frozenax3 - Forever
-003. Gareth Emery - Gunshots
-004. Tuneberg - Amazing Grace(   Читать дальше...   )Жанр: Vocal ChilloutПродолжительность: 08:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B666DF3F4B865AA597736B3CD182A00F7B23F988
 ```
 
 https://mybot314.ru/tekegram_catalog/

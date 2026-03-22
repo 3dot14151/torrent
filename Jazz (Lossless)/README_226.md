@@ -1,3 +1,177 @@
+###  Публикация: 1186797   (284793) от 26.11.2017
+
+Alex Riel & Stefan Pasborg - Drumfaces (2013) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [07:51]
+02. Byen Vagner [06:08]
+03. Big Noise from Winnetka [06:07]
+04. Lux [05:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CD7B3FD97825B63F5888D24032A00B598E27EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263925   (284685) от 21.11.2018
+
+Stephane Wrembel - The Django Experiment: Live In Rochester (2016) 2CD, Water Is Life Records [FLAC|Lossless|tracks + .cue] <Guitar Jazz, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284685.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Viper's Dream [4:47]
+02. Nuages [5:34]
+03. Topsy [4:51](   Читать дальше...   )Жанр: Guitar Jazz, Gypsy JazzПродолжительность: 01:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095447294656102932CE81A3CC4551EB30480ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263901   (284670) от 21.11.2018
+
+Lonnie Liston Smith - Love Is The Answer (1980) 2017, Sony Music [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Park [4:19]
+02. Love Is the Answer [4:47]
+03. Speak About It [5:57]
+04. Bridge Through Time [4:02](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32961795971958AFAB67B95D77C6898DB6396FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335889   (284594) от 04.11.2019
+
+The Ramsey Lewis Trio - More Sounds of Christmas (1964) 2019, Argo/Verve [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Soul-Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowbound (Faith-Kehner) - 3:40
+02. The Twelve Days of Christmas (Trad.) - 2:25
+03. Egg Nog (Lewis) - 3:30
+04. Rudolph, The Red Nosed Reindeer (Marks) - 2:31(   Читать дальше...   )Жанр: Crossover Jazz, Soul-Jazz, ChristmasПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612492FFE3C7E748112E17D5E2B4C97D2992D2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335827   (284577) от 04.11.2019
+
+Ray Charles - Cocktail Hour 1940-e - 1950-e (2000) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284577.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ain't That Fine [2:18]
+02. Hey Now [2:20]
+03. What Have I Done? [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7F9B1A321BBAF10BE29BC1A241A78042F1A943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335955   (284576) от 04.11.2019
+
+VA - Take Five: Great Jazz Instrumentals (2017) [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Brubeck Quartet - Take Five (5:27)
+02. Art Blakey & The Jazz Messengers - Blues March (6:12)
+03. Miles Davis Quartet - My Funny Valentine (6:01)
+04. Ben Webster & Oscar Peterson - Bye Bye Blackbird (6:46)(   Читать дальше...   )Жанр: Bop, Hard Bop, CoolПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DC653724FF4674B969F1EAF0C0D2A9B4A87E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964229   (284146) от 10.12.2015
 
 Lou Donaldson - Birdseed (1992) Milestone[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
@@ -571,180 +745,6 @@ Art Blakey - Drums Around The Corner (1959) 2014, Universal[FLAC|tracks+.cue]<Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD49171CC79251F1EDBF20945F4AA3C47A3A3DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964544   (282423) от 11.12.2015
-
-VA - Blue Note Live At The Roxy Vol. 1 (Alphonse Mouzon, Ronnie Laws, Donald Byrd) (1976) 2012, EMI Music[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alphonse Mouzon - New York City [05:34]
- 02.Alphonse Mouzon - Just Like The Sun [04:19]
- 03.Alphonse Mouzon - Without A Reason [08:02]
- 04.Ronnie Laws - Captain Midnight [04:49](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311A1096E32A4B7DBBD8F1923EDD2069F2F08486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964482   (282234) от 11.12.2015
-
-Paul Hardcastle - The Collection (2009) [FLAC|Tracks+cue]<Nu Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Circle
-02. Dancing Lights
-03. Northern Lights
-04. You May Be Gone(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChilloutПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EAF27A6176E3C9B2287A164931E8A32D684F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264382   (281247) от 23.11.2018
-
-Connee Boswell - Connee Boswell And The Original Memphis Five in Hi-Fi (1956) 2007, BMG [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When My Sugar Walks Down the Street [2:44]
-02. Say It Isn't So [3:24]
-03. At the Jazz Band Ball [2:43]
-04. Japanese Sandman [2:28](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E38E9F28386B6580AB8DF18F4BD302FA2D6B981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082030   (281124) от 11.12.2016
-
-George Cables - Cables Vision (1979) 1992, Original Jazz Classics[FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Morning Song [06:51]
- 02.I Told You So [08:58]
- 03.Byrdlike [08:51]
- 04.Voodoo Lady [06:05](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC43A988885532F920F1C68206AC1D519E5B0374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264380   (281093) от 23.11.2018
-
-Acoustic Alchemy - Thirty Three and a Third (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East of Babylon
-02. Carmen's Man
-03. The Swallow's Tale
-04. Thirty Three and a Third(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0438AA1BD56033A5888EE15EEDC68B5D0CABEBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964890   (281065) от 12.12.2015
-
-Jerome Cooper - In Concert. From There To Hear (2001) Mutable Music[APE|tracks+.cue]<Modern Creative, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bantul [06:27]
- 02.Monk Funk [15:10]
- 03.My Funny Valentine [15:00]
- 04.My Life [16:20](   Читать дальше...   )Жанр: Modern Creative, World FusionПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C90DDCFE461A7FA2352A4C26A2A6FE7E3BE0AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

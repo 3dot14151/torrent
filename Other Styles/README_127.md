@@ -1,3 +1,148 @@
+###  Публикация: 953890   (340094) от 08.11.2015
+
+VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Кармелита'-Н.Басков-03:15
+02. Заставка -02:24
+03. Колыбельная из сериала 'Кармелита' -Ляля Жемчужная-02:27
+04. Полынь-трава в исполнении Юлии Зиминой-03:27(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41DF59B52031D697D802F79399D2C08ACAD3925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074031   (340083) от 18.11.2016
+
+Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
+02. Marcy Harriell - More (Outtake) (03:17)
+03. Marcy Harriell - More (Reprise - Outtake) (02:39)
+04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C359D66CB3BFB4AE16D9E7FF1D9C8C1DE203E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074032   (340075) от 18.11.2016
+
+Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
+02. Marcy Harriell - More (Outtake) (03:17)
+03. Marcy Harriell - More (Reprise - Outtake) (02:39)
+04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA3A33C3492B6EF3546F8E5251BFE01CFEE4EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954328   (339972) от 08.11.2015
+
+Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's the Door (04:08)
+02. Gonna Give You a Try (03:13)
+03. Ain't Looking Back (02:41)
+04. Forget to Remember (03:36)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3B492148AD46443FE328F04850A16F482A2210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953917   (339724) от 08.11.2015
+
+Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|image+.cue]<New Age, Downtempo,Electronic, Folk, World, & Country>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339724.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Monk's Introduction    (05:05)
+02. Hazimari / Sozo    (09:52)
+03. Caravansary    (05:57)(   Читать дальше...   )Жанр: New Age, Downtempo,Electronic, Folk, World, & CountryПродолжительность: 01:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBAF5ED0498E48FE4AE9E5058A9909394670B46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953761   (339602) от 08.11.2015
 
 VA - Sentimental Journey (2007) 5 CD Box Set [MP3|320 кб/с]<Pop,Oldies>
@@ -600,151 +745,6 @@ Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3EFFC702A4E87437EBEDB8153821334D7C90DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181324   (335072) от 06.11.2017
-
-VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Byers - INTRO - Will Singing the Clash (00:27)
-02. The Police - Every Breath You Take (04:12)
-03. The Clash - Should I Stay or Should I Go (Remastered) (03:06)
-04. Jim Hopper - 'Coffee and contemplation' (00:09)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C026A8852CE0BFD1AE20CB03036996162C0CE864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181081   (335067) от 06.11.2017
-
-Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Spirits 03:30
-02. Dusk 04:19
-03. Wolf's Heart 03:25
-04. Indian Fire 03:28(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E319F6CAFD913AA2189951FF43B43A7B43025C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331076   (334984) от 13.10.2019
-
-Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dawn (2:35)
-2.Pianissimo (3:26)
-3.Alpine Meadow (3:20)
-4.Peaceful Stream (2:52)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331088   (334664) от 13.10.2019
-
-VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334664.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Franz Lambert - Time Is Tight (3:13)
-2.Karl Ratzer - Moonlight Shadow (3:41)
-3.Fred Adams - One Way Wind (3:44)
-4.Marius - I Am Sailing (4:20)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB87A785EAFE0A1F02E77CFF0B07F61F2991FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 160792   (334385) от 18.11.2011
-
-Various Artists - The Pianist OST (2002) [MP3|320 kbps]<Classical>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chopin - Nocturne In C-Sharp Minor (1830) (4:04)
-2. Chopin - Nocturne In E Minor, Op. 72, No. 1 (4:22)
-3. Chopin - Nocturne In C Minor, Op. 48 No. 1 (5:49)
-4. Chopin - Ballade No. 2 In F Major, Op. 38 (7:32)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

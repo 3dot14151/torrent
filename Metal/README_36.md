@@ -1,3 +1,117 @@
+###  Публикация: 1282952   (741160) от 15.02.2019
+
+Kaunis Kuolematon - Elama Ei Tarvitse Minua (2019) EP [MP3|320 Kbps] <Doom Metal, Gothic Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Elämä Ei Tarvitse Minua
+2. Porteilla
+3. Yön Tunteina
+4. Aseista RiisuttuЖанр: Doom Metal, Gothic Metal, Melodic Death MetalПродолжительность: 00:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920071372DCC6AC5F07696CD72C75E7BC7523DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282636   (741055) от 15.02.2019
+
+Rotting Christ - The Heretics (2019) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 In the Name of God
+02 Vetry ZlyeЖанр: Black MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6F932561D9D8B685FF2520C2DCAD947177FE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217884   (740941) от 06.04.2018
+
+Kalmah - Palo (2018) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740941.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blood Ran Cold
+2. The Evil Kin
+3. The World Of Rage
+4. Into The Black Marsh(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F379EA6140F30AA9D5F79C3E276E918DE12397A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217910   (740246) от 07.04.2018
+
+Kroda - Selbstwelt (2018) [MP3|320 Kbps] <Black Metal, Folk Metal, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740246.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Selbstwelt I - Credo
+2. Selbstwelt II - Ритуал На Порозі Вічності
+3. Selbstwelt III - Довгий-Довгий Самотній Шлях
+4. Selbstwelt IV - За Гранню Буття І Небуття(   Читать дальше...   )Жанр: Black Metal, Folk Metal, Pagan MetalПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826191C3EC6CBF4BDAD8AABE27075E5FBAE032A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397342   (739886) от 21.07.2020
 
 Datum X - Burn The Soul (2020) [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal, Symphonic Metal>
@@ -629,122 +743,6 @@ Overkill - The Wings Of War (2019) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E943EEDC268574F94F4F0928BA0F53A536AEC428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284509   (728774) от 21.02.2019
-
-Delain - Hunter's Moon (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masters Of Destiny
-02. Hunter's Moon
-03. This Silence Is Mine
-04. Art Kills(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8F2510CAF96355B3716EA694B0F79AC2AB9FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284507   (728767) от 21.02.2019
-
-Rhapsody Of Fire - The Eighth Mountain (2019) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss of Pain
-02. Seven Heroic Deeds
-03. Master of Peace
-04. Rain of Fury(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA20FBD85574A73D2F02F4F39E8A8D4DFF3BD06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284511   (728650) от 21.02.2019
-
-Dream Theater - Distance Over Time (2019) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728650.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Untethered Angel
-2. Paralyzed
-3. Fall Into The Light
-4. Barstool Warrior(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B8D1592BC070680031595051CBFC70A5292F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022662   (728472) от 02.06.2016
-
-Tarja - The Brightest Void (2016) [MP3|320 кб/с] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Bitter End (Video version)
-02. Your Heaven And Your Hell (with Michael Monroe)
-03. Eagle Eye (with Chad Smith on drums)
-04. An Empty Dream(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2966C4C6131E861D7EFE9D0C6ED709D79377B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

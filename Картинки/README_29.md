@@ -1,3 +1,55 @@
+###  Публикация: 1805964   (12069) от 09.07.2025
+
+Промты - SevenUnited LLC - 726 Ai Art Prompts for Style References: Vol 3 - 5318427 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12069.jpg" />
+</div>
+
+
+###  Подробнее
+
+726 промтов по стилю для AI-арта: том 3. Каждый промт содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E511B9F7576A80F7218C4B854F2656097CDCB8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806037   (11958) от 10.07.2025
+
+Промты - SevenUnited LLC - 412 Midjourney Prompts for Portrait Photography - 4832212 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 412 настраиваемых промтов Midjourney для портретной фотосъемки.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABC5AEFFA011A0F87847E998402C680CB0439A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806407   (11740) от 12.07.2025
 
 Промты - SevenUnited LLC - 392 Midjourney Prompts for Invitations - 3763201 [TXT, JPG]
@@ -617,60 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9AB0A8AA8FF144F1E84BBA1FF582AB90875F9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815378   (5226) от 30.08.2025
-
-Картинки - Wallpapers Mix №1959 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококачественные обои в новом сборнике на ваш рабочий стол.
-Количество 510.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A400385A9A8CA8FE78495B96948959B1FC474AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815481   (5026) от 31.08.2025
-
-Картинки - Wallpapers Mix №1961 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококачественные обои в новом сборнике на ваш рабочий стол.
-Количество 666.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E01AD4BFDEE9A361C1472B47733C7FA2CF613F
 ```
 
 https://mybot314.ru/tekegram_catalog/

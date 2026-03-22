@@ -1,3 +1,32 @@
+###  Публикация: 1046567   (551787) от 27.08.2016
+
+VA - I-Robots - Italo Electro Disco Underground Classics (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie -  Spacer Woman (7:30)
+02. Capricorn -  I Need Love (6:14)
+03. Sun la shan -  Catch (Dub Version) (5:26)
+04. Peter Richard -  Walking In The Neon (Club Version) (8:20)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4869DBEA6EB9A7770E460EC9F68BAE9DC7FBFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237557   (551476) от 24.07.2018
 
 VA - New Italo Disco: Reloaded Hits & New Songs (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -714,35 +743,6 @@ VA - The Sound Of Indie Dance Vol.12 (2018) [MP3|320 Kbps] <Indie Dance, NuDisco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04061488EAC22BF3EEBE5A405D5D762F15F6D2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240010   (533245) от 08.08.2018
-
-B.B. And Band - Wee Thee People (1982) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wee The People (6:06)
-02. Whistle Fantasy (5:41)
-03. Say That Again (7:32)
-04. All Night Long (Remix) (5:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CACB7307AE65DED4000FB56594B93D250FE6112
 ```
 
 https://mybot314.ru/tekegram_catalog/

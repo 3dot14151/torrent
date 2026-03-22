@@ -1,3 +1,90 @@
+###  Публикация: 1479709   (1009297) от 26.06.2021
+
+Fargo - Strangers D'Amour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Of Champagne
+02. Gimme That Bone
+03. Closer To The Sun
+04. Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B28E1D8DA3DD482F35B095F9B96DE4E3B1C8FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480090   (1009164) от 27.06.2021
+
+Paul Gilbert - Werewolves Of Portland (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello North Dakota! 6:24
+02. My Goodness 3:32
+03. Werewolves of Portland 5:50
+04. Professorship at The Leningrad Conservatory 4:33(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9536E7BE1BE83E8387B92C5460D93AC77067E1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480679   (1008688) от 30.06.2021
+
+Steel Rangers - Scarred for Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaves of Addictions (05:04)
+02. Shattered Dream (04:03)
+03. Amanda (03:34)
+04. Silver Cross (05:33)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F283ECD96C039AFE7BDA012B9AD0D593B300AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481388   (1008332) от 03.07.2021
 
 Kenny Mcgee - Heartless Daze Two (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
@@ -658,93 +745,6 @@ Hardline - Heart, Mind And Soul (2021) [FLAC|Lossless|image + .cue] <Melodic Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC502AC33BB322C80AAB9A580E00631874D3B8A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484977   (1005734) от 23.07.2021
-
-Heavy Water - Red Brick City (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solution
-02. Turn to Black
-03. Red Brick City
-04. Tree in the Wind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F5BA84B53803D0777377AA98697F7703540833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485126   (1005609) от 24.07.2021
-
-Platens - Of Poetry And Silent Mastery (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conspiracy
-02. Wait For Me
-03. Easily
-04. The Path(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075D2D57A4C0DCC5488236CA716D9F920D06888B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485574   (1005326) от 26.07.2021
-
-Guild Of Ages - Rise (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Deep In Heaven
-03. Around The Sun
-04. Addicted(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35991A0A33668F33EABDC243A301D2275DF8DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

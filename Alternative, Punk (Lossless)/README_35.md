@@ -1,3 +1,127 @@
+###  Публикация: 541967   (493157) от 06.09.2012
+
+Archive - With Us Until You're Dead (2012) Special Edition [FLAC|Lossless]<Alternative Rock, Downtempo, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая пластинка одной из самых необычных групп в Европе
+ Archive – одна из немногих групп, творчество которых сложно отнести к определенному жанру. В их музыке слышны отголоски прогрессив-рока, трип-хопа, электроники и даже соула, и “With Us Until Your Dead” – кульминация экспериментального звучания группы. Альбом - уже 8-й в дискографии группы - по признанию самих музыкантов, является новым этапом в творческом развитии Archive.
+ Первым синглом с “With Us Until Your Dead” стал трек “Violently”, видео на который уже набрало более 85 тысяч просмотров на YouTube.01. Wiped Out :: 06:20
+02. Interlace :: 04:42
+03. Stick Me in My Heart :: 03:57
+04. Conflict :: 05:01
+05. Violently :: 06:24
+06. Calm Now :: 03:53
+07. Silent :: 05:39
+08. Twisting :: 04:01
+09. Things Going Down :: 01:51
+10. Hatchet :: 04:15(   Читать дальше...   )Жанр: Alternative Rock, Downtempo, Indie RockФормат: CD, Album, DigipackПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A60A4DEDCD9273A65AABA214042D86E5B3882BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318691   (492841) от 07.08.2019
+
+Gene Loves Jezebel - Voodoo Dollies: The Best Of Gene Loves Jezebel (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave, 80s>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upstairs (3:17)
+ 02. Bruises (3:40)
+ 03. Influenza (Release) (3:46)
+ 04. Always a Flame (4:33)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, New Wave, 80sПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552165209756096B791D6F2ABA7DF708565CE268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318570   (492836) от 07.08.2019
+
+Elliott Smith - Figure 8 (2000) 50th Birthday Deluxe Edition, 2019, UMG Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Son of Sam (03:04)
+02. Somebody That I Used to Know (02:09)
+03. Junk Bond Trader (03:49)
+04. Everything Reminds Me of Her (02:37)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D169D0C31DF3D3277DC42967FA52915C92F0D8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054154   (492237) от 20.09.2016
+
+The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] <Industrial Rock, Synth-Gothic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over (04:03)
+02. Remember Me (04:59)
+03. Under the Stairs (03:59)
+04. The Birthday Massacre (03:36)(   Читать дальше...   )Жанр: Industrial Rock, Synth-GothicПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D55B6095EE505F09560EA9053B315E742E1C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243285   (492114) от 27.08.2018
 
 The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
@@ -635,122 +759,6 @@ Milky Chance - Blossom (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6755230D4FF190997E0C3B19F957060C88233D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939592   (475587) от 21.09.2015
-
-Shinedown - Threat To Survival (2015) [FLAC|tracks+.cue]<Alternative Metal, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asking For It
-02. Cut The Cord
-03. State Of My Head
-04. Outcast(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Post-GrungeПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3DD8453D270BBC61886C8945C798BE573926D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567367   (474433) от 02.08.2022
-
-The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life's a Bitch (but I like it so much) (2:51)
-02. Hung Up (3:25)
-03. Reeling (3:09)
-04. Old Friends Die Hard (2:18)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FE884451D2A91758C1584C3AFB06D21AA2C642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567363   (474250) от 02.08.2022
-
-Sex Pistols - The Original Recordings (2022) [FLAC|Lossless|tracks + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Vacant (3:18)
-02. God Save The Queen (3:19)
-03. Bodies (3:03)
-04. No Feelings (2:51)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7F892AB9CFFC43E63B359A1071E9EC2A91D274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320078   (473267) от 17.08.2019
-
-King Gizzard And The Lizard Wizard - Infest the Rats' Nest (2019) [WEB] [FLAC|Lossless|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet B (03:56)
-02. Mars for the Rich (04:11)
-03. Organ Farmer (02:39)
-04. Superbug (06:43)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520DEABA08B016B74E628DCD1CE4121731C1E18B
 ```
 
 https://mybot314.ru/tekegram_catalog/

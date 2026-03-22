@@ -1,3 +1,119 @@
+###  Публикация: 1270365   (214427) от 18.12.2018
+
+VA - Christmas Party 2018-2019 (Best of Dance, EDM, House and Electro) (2018) [MP3|320 Kbps] <Progressive, Groove, Bass House, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locodj - Limpa Boom (Original Mix) 3:07
+02. Geo Da Silva - Balkano Latino (Radio Edit) 2:54
+03. Turbotronic - Animal (Radio Edit) 3:12
+04. Flgtt - Por Que No 2k19 (Radio Edit) 3:26(   Читать дальше...   )Жанр: Progressive, Groove, Bass House, ElectroПродолжительность: 02:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D0A146C48CE3A0777FFACC61A80B2D6C0B9FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270216   (214308) от 18.12.2018
+
+VA - M6 Hits 2019 (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214308.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Dadju - Jaloux [03:52]
+2. Kendji Girac - Tiago [02:57]
+3. Vegedream - Ramenez la coupe a la maison [03:54](   Читать дальше...   )Жанр: PopПродолжительность: 05:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE35FB7419F41DD63B460904B627E82F3BA3EC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630651   (211738) от 22.10.2022
+
+Zоряна - Play (2012) [FLAC|lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Включаю iPlay (03:54)
+02. Кіно (03:17)
+03. Мохіто (03:12)
+04. Квітка (03:00)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C545CB92F319A9C66F50370EABDBDFCC45737FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639809   (211483) от 15.06.2023
+
+VA - 80s & 90s Party Hits (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backstreet Boys - I Want It That Way (3:33)
+02. Destiny's Child - Say My Name (4:27)
+03. Spin Doctors - Two Princes (4:15)
+04. Alice In Chains - Man in the Box (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 03:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40B077CA6E8D04E3B985DF5566CE0170208109F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640463   (211256) от 17.06.2023
 
 Expose - 2 Albums (1987, 1989) LP [MP3|320 Kbps] <Electronic, Freestyle, Electro, Synth-pop, Dance-pop>
@@ -629,122 +745,6 @@ VA - Romantic Collection Vol.7 (2001) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813F98FC3D19365D7DAA6005F304D419F216EB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616623   (205967) от 03.03.2023
-
-VA - Romantic Collection. Golden Woman Voices (2000) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Myers - Should I Call You Jesus
-02. Aretha Franklin - Respect
-03. The Staple Singers - I'll Take You There
-04. Gladys Knight  The Pips - If I Were Your Woman(   Читать дальше...   )Жанр: Rock, Funk / Soul, BluesПродолжительность: 01:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E08F8D2784AC5C507B5762671ACDEB15176E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653447   (205475) от 16.08.2023
-
-VA - Zumbadance Workout (2023) [MP3|320 Kbps] <Pop, Latin, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Omar - Zumba (4:24)
-02. Feid - Niña Bonita (3:07)
-03. Daddy Yankee - Con Calma (3:13)
-04. J Balvin - In Da Getto (2:10)(   Читать дальше...   )Жанр: Pop, Latin, DanceПродолжительность: 02:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE5B615F5A259695930AF37D26CF6792CDE2E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610211   (203007) от 07.02.2023
-
-VA - Romantic Collection. More Gold (1998) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moody Blues–	Night In White Satin
-02. Chris De Burg–	Moonlight And Vodka
-03. Tanita Tikaram–	Twist In My Sobriety
-04. Styx–	Boat On The River(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFF844C7817BCC5A6B025EA163D2C4A55E4E2BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612687   (202656) от 16.02.2023
-
-Demis Roussos - Complete 28 Original Albums (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September (I'm On My Way)
-02. On My Pillow
-03. Love Is
-04. What They Say(   Читать дальше...   )Жанр: PopПродолжительность: 27:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F06B69EA9A59EE855AF6589D81E9B094F3C56F
 ```
 
 https://mybot314.ru/tekegram_catalog/

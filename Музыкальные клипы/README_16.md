@@ -1,3 +1,140 @@
+###  Публикация: 1138176   (661920) от 31.05.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 1) (2017) WEB-DLRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Первая часть посвящена музыке в стиле Rock Ballads, Reggae и R&B. Композиции именно этих стилей составляют данный сборник. Садитесь поудобней, расслабьтесь и наслаждайтесь спокойной и приятной музыкой 90-х!
+- Разбивка по трекам отсутствует.Celine Dion – Because You Loved Me
+Destiny’s Child – No, No, No Part 1
+Sinead O’Connor – Nothing Compares 2 U
+R. Kelly – I Believe I Can Fly(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6374237F159D68D63705EA5820FA8B297E8A6C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513918   (660496) от 22.06.2012
+
+Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF034B147119700524983F5A60E1DFA0BF9E78AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513929   (660453) от 22.06.2012
+
+Ажур. Summer love / Ажур. Summer love (2012) [H.264/720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B2C78171566C88B30B4665868F56EFB287F597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903185   (657478) от 31.05.2015
+
+VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Длительное время публиковал соответветствующие Топы в разделе музыка. Теперь появилась возможность делать сборники официальных видеоклипов. Если найдет поддержку у членов NNM-Club, то постараюсь сделать их регулярными. Итак, поехали...01. Marlon Roudette - When The Beat Drops Out  (3:43)
+02. Jessie J - Flashlight (from Pitch Perfect 2)  (3:52)
+03. Sia - Elastic Heart feat. Shia LaBeouf & Maddie Ziegler (Official Video)  (5:07)
+04. Alesso - Cool ft. Roy English  (3:57)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E8A7762DD51C1C282D6509DDCAD60A907D475E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514948   (656622) от 25.06.2012
+
+DVJ Bazuka - Summer Love (2012) [720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772F12186BDC6DE9660A8EFD3640ED33C77BFB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 677239   (651227) от 12.07.2013
 
 Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
@@ -559,136 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48D91D6C26AC779C7E69FE52A5D62A9D9B3EE37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682205   (626553) от 25.07.2013
-
-TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626553.jpg" />
-</div>
-
-
-###  Подробнее
-
-TV Rock ft Rudy - 'In The Air' (Axwell Remix Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAD421C610E6F4DD6353911FCB38464DBA4E377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682204   (626153) от 25.07.2013
-
-Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (HD)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AAFAF352FB7AC80F5C204F0BD52AAE305377F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682206   (626007) от 25.07.2013
-
-William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626007.jpg" />
-</div>
-
-
-###  Подробнее
-
-William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (HD)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B198AF6FBEBE876527FFD9E4A2F3BCE48E29E324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521994   (624673) от 12.07.2012
-
-Сборник Советской Эстрады №3 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE4C67E60310F3F38423B7E80ABC788D0DE5CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682098   (624633) от 26.07.2013
-
-Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steve Angello & Laidback Luke Ft Robin S - Show me LoveЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C656AB3549EAA1867C46FF0D2772F176F9684F
 ```
 
 https://mybot314.ru/tekegram_catalog/

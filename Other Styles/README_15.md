@@ -1,3 +1,32 @@
+###  Публикация: 1360045   (961806) от 14.02.2020
+
+Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961806.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:54| 01. Flying High (Birds of Prey)
+|01:32| 02. The Fantabulous Emancipation Explosion
+|03:06| 03. Harley Quinn (Danger Danger)
+|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360243   (961792) от 14.02.2020
 
 Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Motion Picture) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -719,35 +748,6 @@ Carl Davis & Philharmonia Orchestra - Abba for Orchestra (2014) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A0AC9AF06FE61081FB89A938814C5EC3DDFCA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980852   (954559) от 30.01.2016
-
-Stephen Bennett - Beatles Acoustic Guitar Solos (2005) [MP3|264~268 кб/с (V1)] <New Age, Folk>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight Days A Week 02:14
-02. A Hard Day's Night 02:28
-03. Hello Goodbye 03:04
-04. In My Life 03:02(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524D3F72F0A4F4E40F7E9B3F4CCD98707A71E89B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1123630   (786077) от 09.04.2017
+
+ДахаБраха - Ягудки (2007) [MP3|320 Kbps] <NeoFolk, Country, Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шо З-под Дуба (03:48)
+02. Русалочки (01:49)
+03. Пані (03:28)
+04. За Дуби (02:20)(   Читать дальше...   )Жанр: NeoFolk, Country, EthnicПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336EB932A445EEF224C5E8661BEB28FB32ED0F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124005   (785931) от 10.04.2017
+
+Clookai - Massage Gold (2008) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternity [00:06:32]
+02. Touch of the Dove [00:06:08]
+03. The Secret Place [00:08:12]
+04. Stolen Moments [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C34666CA5EAA4961F10544F7686F5D35676E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124071   (785927) от 10.04.2017
 
 Mixed Choir под управлением М. Попсавова - Страстная пятница - Bulgarian Orthodo (1993) [FLAC|Lossless|tracks + .cue] <Orthodox Liturgy>
@@ -685,61 +743,6 @@ Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E9EB6F2EFD482C6F41DE3A3375EF6C8B4560D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390368   (782990) от 15.06.2020
-
-Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alba Mundi: The Sound of the Planets (432 Hz version) (3:07)
- 02. Life (432 Hz version) (2:46)
- 03. Stardust - (432 Hz version) (3:18)
- 04. Perdutamente (432 Hz version) (3:48)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EE87121340583ACD1DC4F37FD22243E75789CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205803   (782852) от 12.02.2018
-
-Armik - Discography (32CD) (1994/2018) [MP3|320 Kbps] <Nuevo Flamenco, Spanish Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Nuevo Flamenco, Spanish GuitarПродолжительность: 03:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6714181B2F524AD5DA0CE9B42B1E5A11728630
 ```
 
 https://mybot314.ru/tekegram_catalog/

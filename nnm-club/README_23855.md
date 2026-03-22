@@ -1,22 +1,25 @@
-###  Публикация: 1738407   (106344) от 22.07.2024
+###  Публикация: 1724727   (109158) от 21.05.2024
 
-Огонь, вода и ... медные трубы (1967) BDRip
+Howard Alden & George Van Eps - Seven And Seven (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106344.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вася отправляется в лес, чтобы жечь уголь. На полянке он встречает Аленушку, которая пасет козленка. Но слуги Кащея Бессмертного похищают девушку прямо на глазах у Васи, и он вынужден отправиться на ее поиски.Производство: СССР / Киностудия имени М. ГорькогоЖанр: сказка, приключения, семейный, мелодрамаРежиссер: Александр РоуАктеры: Наталья Седых, Алексей Катышев, Георгий Милляр, Леонид Харитонов, Муза Крепкогорская, Алексей Смирнов, Михаил Пуговкин, Вера Алтайская, Лев Потемкин, Александр ХвыляСубтитры: Русские (Full (R5)) отдельноПродолжительность: 01:19:45
+01. Night and Day [5:31]
+02. Ja-Da [5:17]
+03. Just Friends [6:01]
+04. My Romance [5:36](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:56:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EE4A33700E1951CEEB1326E6EFD1B5E96A5AAB0
+magnet:?xt=urn:btih:1E51DBF4F434A2354F783BA355A5BBBA906E4E33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,352 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738459   (106343) от 22.07.2024
+###  Публикация: 1724558   (109157) от 21.05.2024
 
-SnapEdit - AI photo editor v6.6.3 Mod by Oflarm, maxi123444 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106343.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / Mod + CloneРелиз состоялся: 22.07.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F142F1173D45CC6F37A51E81F4A69E0CCD3A49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738421   (106342) от 22.07.2024
-
-Gorgon City - 6 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Gorgon City - 2014 - Sirens (Deluxe)
-Gorgon City - 2018 - Escape
-Gorgon City - 2021 - Olympia (Remixes)(   Читать дальше...   )Жанр: House, Tech House, Melodic House & TechnoПродолжительность: 6 CD, 05:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2734CA99A742A2DCEDEA6054327DBEBB6203BD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738484   (106341) от 22.07.2024
-
-XYplorer 26.30.0000 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106341.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C05C4A73BED81A3E83E68496A99B7DC056B7993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738356   (106340) от 22.07.2024
-
-Lee Aaron - Tattoo Me (2024) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tattoo
-02. Are You Gonna Be My Girl
-03. Even It Up
-04. What Is And What Should Never Be(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33ABA25CED7881C5AA9573ED9B45BAABC8454D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738353   (106339) от 22.07.2024
-
-PageEdit 2.2.0 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106339.jpg" />
-</div>
-
-
-###  Подробнее
-
-PageEdit изначально разрабатывался как замена функции «Просмотр книги», которая была в старых версиях Sigil. Однако его также можно использовать как визуальный XHTML-редактор общего назначения.
-
-Это полностью бесплатное программное обеспечение с открытым исходным кодом написано и поддерживается исключительно добровольцами. В команду разработчиков PageEdit входят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB6AC53C7D2D86F427D4B68A268C21F509D673B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738365   (106338) от 22.07.2024
-
-4K Video Downloader + 1.8.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9478BA81F9B1C1E4CDB6893F8E04A82B2F5412DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737910   (106337) от 22.07.2024
-
-Дело против Бруклина / The Case Against Brooklyn (1958) BDRip [H.265/1080p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанная на фактах история о полицейском-новичке, который вступает в борьбу с преступным синдикатом, занимающимся подкупом правительственных чиновников в Бруклине, штат Нью-Йорк.Производство: США / Morningside ProductionsЖанр: фильм-нуар, драма, криминалРежиссер: Пол УэндкосАктеры: Дэррен МакГэвин, Маргарет Хэйес, Уоррен Стивенс, Пегги МакКэй, Тол Эйвери, Эмиль Мейер, Нестор Пайва, Брайан Дж. Хаттон, Роберт Остерлох, Джо ТёркелПеревод: Авторский (Андрей Дольский)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEB6D3D9F4CACEC56D22F80715A974897313EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738478   (106336) от 22.07.2024
-
-Микки: И снова под Рождество / Mickey's Twice Upon a Christmas (2004) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходите в гости к Санта Клаусу, Микки Маусу и другим диснеевским героям на праздник и узнайте, как они встречают Рождество. Старина Дональд всеми силами пытается противостоять празднику, в то время как Микки и Плуто веселятся от души.Производство: США, Австралия / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Тереза Петтенджилл, Кэрол Холлидэй, Пегги ХолмсАктеры: Уэйн Оллвэйн, Тони Ансельмо, Джефф Беннетт, Джим Каммингс, Билл Фармер, Тресс МакНилл, Джейсон Мэрсден, Чак МакКанн, Клайв Ревилл, Расси ТейлорПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8890D3D613FE50A284C8A47F8B080DD85823A4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738486   (106335) от 22.07.2024
-
-Joplin 3.0.13 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Joplin - это бесплатное приложение для создания заметок и дел с открытым исходным кодом, которое может обрабатывать большое количество заметок, организованных в блокноты. Заметки доступны для поиска, их можно копировать, помечать и изменять либо непосредственно из приложений, либо из вашего собственного текстового редактора. Заметки в формате Markdown.
-Заметки, экспортированные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A6F539B01097B2931550C535EA33E2306CBEAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738409   (106334) от 22.07.2024
-
-Объединённая зона безопасности / Gongdong gyeongbi guyeok JSA (2000) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по роману «DMZ» Пак Сан Ёна (1997)... 1953-й год стал для Кореи переломным моментом - южная и северная части после трёхлетней войны подписывают соглашение о перемирии. С тех пор за его исполнением следит комиссия нейтральных стран, а территория в районе линии, разделяющей "коммунистов" и "марионеток", получает название "Объединённой (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, Intz.com, KTB NetworkЖанр: драма, детектив, триллерРежиссер: Чхан Ук ПакАктеры: Ён Э Ли, Бён Хон Ли, Кан Хо Сон, Тхэ У Ким, Ха Гюн Син, Чжу Бон Ки, Кристоф Хофрихтер, Мён Су Ким (II), Хан Ви Ли, Херберт Ульрих, Дэ Ён ЛиПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E980865122E51203C9CAFF870E3835D258F566C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738450   (106333) от 22.07.2024
-
-Юбка-брюки / Bukseskortet (1911) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем коротенькая, но забавная киношутка, заставляет улыбнуться. И тема вечная - мода, мода, мода... Женщины так стараются, чтобы одеться помоднее, посовременней. Чтобы оригинально и стильно. И обязательно, чтобы элегантно и по парижской моде. И так обидно, когда окружающие этого не ценят. Потому что окружающие эти в модных тенденциях ничего не понимают!Производство: Дания / BioramaЖанр: короткометражный, комедия, немое киноРежиссер: Карл АльструпАктеры: Карл Альструп, Амели Кьеркегор, Анна МюллерПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE96DF9F8DD8710B24D3523A91605D8A9F30B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738402   (106332) от 22.07.2024
-
-Plague Pits - Bukolik (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Coldwave, Minimal Wave, Synthpop, New Wave, EBM, Industrial, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Binary Stars [00:05:09]
-02. Future Pastoral [00:03:38]
-03. Echoes [00:03:39]
-04. Blok [00:04:28](   Читать дальше...   )Жанр: Coldwave, Minimal Wave, Synthpop, New Wave, EBM, Industrial, Post-PunkПродолжительность: 00:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37D41DD3CB8F1D4E86FE032216EE68C7AD3299E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738359   (106331) от 22.07.2024
-
-Krypticy - The Non-Return (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Cistvaen - At Light's Demise (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106331.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Infected Pharaoh
-02. Hypatia's Heresy
-03. Texas Chainsaw Massacre
-04. The Void(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:14
+01 - At Light's Demise (00:09:09)
+02 - Cessation Of Hope (00:09:18)
+03 - The Epitaph (00:09:51)
+04 - Time The Mournful (00:07:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:57:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BC181851BFE534D47E17293120C0222711D4049
+magnet:?xt=urn:btih:4E388DE05462DD843CF9C032CAAA0AAE06474EC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,26 +56,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738483   (106330) от 22.07.2024
+###  Публикация: 1724732   (109156) от 21.05.2024
 
-Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Xavier Cugat - The Original Latin Dance King (1940 - 1957) 2002, Columbia [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babalu [2:50]
+02. Jamay [2:41]
+03. Anana Boroco Tinde [2:49]
+04. The Brand New Cha Cha [2:45](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A1A308A3B498063B4AD85FA8D623E867454F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724637   (109155) от 21.05.2024
+
+VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash, Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106330.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ontborg - мелодик-дэт-метал группа из Мерано, Южный Тироль, Италия.2019 - Within the Depths of Oblivion
-2023 - Following the Steps of DamnationЖанр: Melodic Death MetalПродолжительность: 01:45:38
+A1 - Possessed - Swing Of The Axe
+A2 - Nasty Savage - XXX
+A3 - Steel Assassin - The Executioner
+A4 - Mayhem - Tear Down The Walls(   Читать дальше...   )Жанр: Heavy Metal, Thrash, Speed MetalПродолжительность: 00:49:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C58410043C9F42253DDA1B1E9CFCB3DBC512B22E
+magnet:?xt=urn:btih:5BDD69A33E6F4F80DD3B0E7FAE0D064A7818CE9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738404   (106329) от 22.07.2024
+###  Публикация: 1724729   (109154) от 21.05.2024
 
-Maduro - End In Noise (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM, Darkwave, Darkpop>
+Joe Pass - Better Days (1970 - 1972) 2022, P-Vine Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Mainstream Jazz, Guitar Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106329.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lips Like Venom [00:03:30]
-02. End In Noise [00:03:52]
-03. With Your Ghost (Vanished) [00:04:58]
-04. Taste Of You (Edit) [00:03:55](   Читать дальше...   )Жанр: EBM, Darkwave, DarkpopПродолжительность: 00:43:22
+01. Better Days [2:47]
+02. Free Sample [3:17]
+03. After School [3:10]
+04. Balloons [2:58](   Читать дальше...   )Жанр: Jazz-Pop, Mainstream Jazz, Guitar JazzПродолжительность: 00:50:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52A34A6D2B2C82F8DCCAA8DC8943654EBA5599AD
+magnet:?xt=urn:btih:8ED88EE8EFBF7363315C6C72FBD0031CBC15AA5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +143,242 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738252   (106328) от 22.07.2024
+###  Публикация: 1724736   (109153) от 21.05.2024
 
-King Curious - Common Sense For The Animal (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Xavier Cugat And His Orchestra - Latin Best (1988) Nippon Phonogram [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shawl [3:19]
+02. Tequila [2:54]
+03. The Breeze and I (La Brisa y Yo) [2:50]
+04. Perfidia [2:55](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E7A5F0CDD795624F669882D4A0C91FC0E69BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724743   (109152) от 21.05.2024
+
+Народ | Морозко и другие русские сказки (2005) [MP3, Сергей Юрский и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Для самых маленьких.
+По-житейски мудрые и поучительные, добрые и смешные, простые и занятные сказочные истории с этого диска порадуют вашего ребёнка и перенесут его в незабываемый мир волшебных сказок.Жанр: Русская литература для детей, сказкаИздательство: Продюсерский центр «Вимбо»Продолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40EF31374C2FF87A529E2D6BBF832ADD90ED856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724809   (109151) от 21.05.2024
+
+PhotoRoom 4.9.6 (b1403) Mod by Maximoff [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109151.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 17.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166C7323AB3B71A06EEAFBF3AD9986901E3B5EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724655   (109150) от 21.05.2024
+
+PhotoRoom 4.9.6 (b1398) Mod by Maximoff [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109150.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B667DDB057A3CB89DEB10DF2AA9DB0520B92825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724802   (109149) от 21.05.2024
+
+Друзья по колледжу / College Chums (1907) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109149.jpg" />
+</div>
+
+
+###  Подробнее
+
+В парке молодая женщина видит, что ее жених прогуливается с другой женщиной. Она тут же звонит ему по телефону и требует объяснений, и этот чудик не придумывает ничего умнее, чем сказать, что это его сестра (никакой сестры конечно же нет). Она недовольна и настаивает на том, чтобы приехать на встречу с его «сестрой». Пока молодой человек размышляет, как выбраться (   Читать дальше...   )Производство: США / Edison Manufacturing CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Эдвин С. ПортерАктеры: Мисс Эктон, Мисс Антониетта, Эдвард Болден, Кэтерин Гриффит, Мистер Кеннеди, Мистер КертисПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0A70A019EAB4CD5E7520B347A7368BFE46F273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724681   (109148) от 21.05.2024
+
+Чингиз Абдуллаев | Дронго (Книга 49). Осенний мадригал (2024) [MP3, Маркиза]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известного тележурналиста убивают на роскошной даче, стоящей на берегу Каспийского моря. И по закону жанра подозреваются все, кто был в этот момент на даче. Ни у одной из многочисленных версий нет убедительных доказательств. Эксперт-аналитик Дронго понимает: дело зашло в тупик. И… он выдвигает собственную – как всегда парадоксальную и непредсказуемую – версию. Может (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57AA74281C9B5BEA1C202360D39612C6749F4F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724501   (109147) от 21.05.2024
+
+Volodia Rizak - DMS / 220V (2019) [FLAC|Lossless|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volodia Rizak – DMS (Original Mix) (6:03)
+02. Volodia Rizak – 220V (Original Mix) (6:56)Жанр: TechnoПродолжительность: 00:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF44F213D478E4F12829D926AD2D4DFCF3D626F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724713   (109146) от 21.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 7-й матч) Эдмонтон Ойлерз - Ванкувер Кэнакс (20.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109146.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 мая 2024, вторник. 04:00 МСК. 1/2 финала - Запад. 7-й матч. Стадион: Роджерс-Арена (Ванкувер, Канада), 19 016 зрителей (101% при вместимости 18 910)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Девин Берг (Китченер, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05659D221BE0747F1131C61BAADA666B113E13DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724697   (109145) от 21.05.2024
+
+Andy Samford - The Eternal Illusion (2024) [MP3|320 Kbps] <Classic Rock, Psychedelic, Stoner>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106328.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Asleep With Books (6:04)
-02. Fears Of London (4:36)
-03. Are You There (4:25)
-04. The Hollowman Come (3:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:24
+01. Spiraling Dimensions 04:48
+02. Escalation 03:26
+03. Strawberry Dream 02:32
+04. Cyclopean Vision 04:53(   Читать дальше...   )Жанр: Classic Rock, Psychedelic, StonerПродолжительность: 00:40:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F8ECFFF72A225F1E89023520BEDFEEA6810004A
+magnet:?xt=urn:btih:1F5362EC1BB4401B4D8CCE2652BFCD597C9215E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +386,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738420   (106327) от 22.07.2024
+###  Публикация: 1724933   (109144) от 22.05.2024
 
-Hard Power - Hard Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+М.М. Колтун | Мир физики (1987) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106327.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crawling in the Dust (4:37)
-02. Live Once (5:23)
-03. City (5:05)
-04. All These Years (5:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:10
+Автор книги, доктор технических наук, профессор рассказывает о многообразии и единстве физических явлений, происходящих в окружающем нас мире, о трудностях и успехах на пути познания основных физических законов ПриродыЖанр: Научно-популярная литература; Детская познавательная литератураЯзык: РусскийИздательство: Детская литератураФормат: DJVUКачество: Хороший скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEF6ABF659E4F040858DC7699D1B967DDF9377BB
+magnet:?xt=urn:btih:1AF7147A039DBA29E4747EADF161900C3C9F4FE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +412,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738443   (106326) от 22.07.2024
+###  Публикация: 1724982   (109143) от 22.05.2024
 
-New Years Day - Half Black Heart (2024) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+С.И. Баскаков | Радиотехнические цепи и сигналы (1988) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106326.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vampyre
-02. Half Black Heart
-03. Hurts Like Hell
-04. Secrets(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:26
+Учебник предназначен для активного самостоятельного приобретения знаний в области теоретической радиотехники, содержит обширный методический аппарат, включающий перечень результатов, контрольные вопросы, задачи среднего и повышенного уровней сложности. Рассматриваются вопросы классического синтеза и задачи анализа переходных процессов в цепях, теория и техника цифровой (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17BC80694C03C310D563536CCC69691317A25CFF
+magnet:?xt=urn:btih:83417B2E781CF87AAE941F6CFCE8886C74827C5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +438,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738283   (106325) от 22.07.2024
+###  Публикация: 1724960   (109142) от 22.05.2024
 
-Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listening, Italiano Pop>
+VA - The Classic Dance Remixes (Arthur Baker Presents Dance Masters John Luongo) (2023) 4CD, Limited Edition [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Europop>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106325.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fausto Leali – Bagno d'amore
- 02. Ann Chigi – La regina delle api
- 03. Flavia Fortuneto – Rincontrarsi
- 04. Enzo Belmonte – Piccola canzone(   Читать дальше...   )Жанр: Easy Listening, Italiano PopПродолжительность: 01:00:54
+01. Tina Turner - The Best (Extended Mighty Mix) (6:35)
+02. John Waite - Missing You (Extended Mix) (7:02)
+03. Billy Idol - Eyes Without A Face (Full-Length Version) (4:59)
+04. Rick Springfield - Human Touch (Extended Mix) (7:20)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, EuropopПродолжительность: 05:12:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0E045A04241D6282C08F29F04DFCFBD6F744850
+magnet:?xt=urn:btih:414EE83EFBCF5D8DA2492FFDAF6CDBA918C2652C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,25 +467,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738469   (106324) от 22.07.2024
+###  Публикация: 1723979   (109141) от 22.05.2024
 
-Священник Алексий Мороз и др. | Путь жизни – православный (2017) [PDF, FB2, EPUB, MOBI, TXT]
+Frank Walker - Progressive House Never Died, The Brooklyn Mirage New York, United States (2024-05-10) [MP3|320 Kbps] <Progressive House>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106324.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебное пособие написано в соответствии с примерным содержанием предмета «Основы православной культуры». Оно ориентировано на две содержательные линии: православный образ жизни и нравственная культура Православия. Является завершающим в серии учебных пособий данных авторов: первое учебное пособие «Добрые уроки-наставления» для учащихся 4–5 классов, второе – «Уроки (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. DubVision - P.R.O.G.2 (Intro Edit) w/Frank Walker ft. Ella Henderson - I Go Dancing (Acappella)
+02. Showtek & Giuseppe Ottaviani - Heart Is Beating w/Dua Lipa - Houdini (Acappella)
+03. Becky Hill & Chase & Status - Disconnect (Tiësto Remix) w/Fred again.. & Baby Keem - leavemealone (Acappella) w/Sentinel - Get That Love
+04. Swedish House (   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:46:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A86516AA5758E4F5D42BCB9459274BA404F0BC4C
+magnet:?xt=urn:btih:46C0A8D5C75C5B089978CEBF72C12E7629BFE350
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,25 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738471   (106323) от 22.07.2024
+###  Публикация: 1724768   (109140) от 22.05.2024
 
-Сатисъ | Разъяснение воскресных и праздничных Евангельских чтений (2008) [PDF, FB2, EPUB, MOBI, TXT]
+Moore Martin | Oxford Grammar for Schools 1. Audio 2 (2014) [MP3] [EN]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Обучающие аудиоматериалы
+>>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106323.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге простым и понятным языком объясняется смысл содержание и смысл фрагментов Святого Евангелия, читаемого в храме по воскресным и праздничным дням.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+A 5-level series with clear explanations and communicative activities to help young learners and teenagers understand and practise grammar. Oxford Grammar for Schools gives students the opportunity to explore grammar for themselves and encourages them to be aware of their progress through regular self-evaluation and review. As students activate their grammar through (   Читать дальше...   )Жанр: Учебное пособиеЯзык озвучки: английскийИздательство: Oxford University PressПродолжительность: 00:56:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BAA335D600E5E58FD178111E50F126E11111F23
+magnet:?xt=urn:btih:6973D7AFDC21CECDDB2B0D196F02933BEC6E4A79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,28 +522,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738375   (106322) от 22.07.2024
+###  Публикация: 1725001   (109139) от 22.05.2024
 
-Angel Sword - World Fighter (2024) [MP3|320 Kbps] <Heavy Metal>
+Робин и Мэриан / Robin and Marian (1976) BDRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106322.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Vigilantes (03:21)
- 02 - Weekend Warrior (04:40)
- 03 - Dangerous Games (03:38)
- 04 - Church of Rock (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:25
+После смерти короля Ричарда Львиное Сердце Робин Гуд и его неразлучный друг Маленький Джон возвращаются из крестовых походов в Англию, в Шервуд, где Робин встречает свою старую любовь Мэриан. Но старый шериф всё ещё на месте, и старая вражда разгорается вновь. Робин хочет только одного - он ведь уже совсем не молод - спокойно жить со своей любимой в родном лесу, (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Rastar PicturesЖанр: драма, мелодрама, приключенияРежиссер: Ричард ЛестерАктеры: Шон Коннери, Одри Хепбёрн, Роберт Шоу, Ричард Харрис, Никол Уильямсон, Денхолм Эллиотт, Кеннет Хэйг, Иэн Холм, Ронни Баркер, Билл Мэйнард, Эсмонд Найт, Вероника Куиллиган, Питер Баттерворф, Джон БэрретПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:46:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:987C2D2C414964A60E63AB955D79A83862BF0323
+magnet:?xt=urn:btih:B296D460084204EC179961F23C707E4D73907120
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,26 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738348   (106321) от 22.07.2024
+###  Публикация: 1724976   (109138) от 22.05.2024
 
-Perfectly Clear WorkBench 4.6.1.2678 RePack (& Portable) by elchupacabra [Multi/Ru]
+Google Chrome 125.0.6422.77 Portable by Cento8 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106321.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAE5B9395F8C35B549736F7196268C8DC1079CAD
+magnet:?xt=urn:btih:5732B2D859E392358B6495B49EA08F2281F245F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,27 +574,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738481   (106320) от 22.07.2024
+###  Публикация: 1724979   (109137) от 22.05.2024
 
-Сатисъ | Всенощное бдение. Литургия (2012) [PDF, FB2, EPUB, MOBI, TXT]
+Журнал | Maximum PC №6 (июнь 2024) [PDF][EN]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106320.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга содержит полный текст наиболее значимых церковных служб – Божественной литургии и всенощного бдения, в том числе и те священнические молитвы, которые обыкновенно читаются неслышно для мирян.
-
-Православное богослужение является крайне сложным и эстетически совершенным произведением, исполненным глубокого смысла, который нередко ускользает от простых молящихся. (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+Maximum PC - это журнал, который каждый компьютерщик, геймер или создатель контента должен читать каждый месяц. Каждый номер содержит множество обзоров продуктов, подробные инструкции и интересные технические новости и информацию, которой жаждут пользователи ПК. Maximum PC охватывает каждую тему, которая требует молниеносного ПК, от редактирования видео и создания (   Читать дальше...   )Жанр: Компьютерные журналыЯзык: АнглийскийИздательство: Future US, Inc.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAA7D5BD50624BE1D487788BB21F0611BB0D926B
+magnet:?xt=urn:btih:C598AC8EBA51448CC102946D9818BBEEB16071CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +600,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738394   (106319) от 22.07.2024
+###  Публикация: 1724998   (109136) от 22.05.2024
 
-Fun Fun - Have Fun! & More... (2006) Remastered [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Hi NRG>
+Taskito: To-Do и напоминания 1.1.0 Mod by Alex.Strannik [Ru/Multi]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106319.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Give Me Your Love
-02. Sing Another Song
-03. Tell Me
-04. Living In Japan(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRGПродолжительность: 01:17:27
+Taskito - это приложение для управления задачами с хронологией, которое поможет организовать ваш день и достичь больших целей в жизни. Это приложение со списком дел делает упор на то, чтобы ваши повседневные задачи были небольшими и достижимыми.Тип издания: PremiumРелиз состоялся: 12.05.2024Разработчик: TaskitoПоддерживаемая ОС: Android 7.1+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72C99E05273DAD3E9811C3E30B64329841601E92
+magnet:?xt=urn:btih:087EC8DFC3C2700934070720BAEDC08E9991CAA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725065   (109135) от 22.05.2024
+
+FlipaClip: Create 2D Animation 3.9.1 (ARM64) Mod by AppModz [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109135.jpg" />
+</div>
+
+
+###  Подробнее
+
+FlipaClip - Cartoon animation - простое приложение для покадровой 2D анимации. Оно предлагает пользователям уникальную и очень удобную платформу для рисования и последующего создания анимированных рисунков или же по-простому - мультфильмов. Принцип работы классический - покадровая прорисовка и дальнейшего запуска по порядку получившихся рисунков. Так же можно подкладывать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 09.05.2024Разработчик: Visual Blasters LLCПоддерживаемая ОС: Android 6.0+ (Только для ARM64)Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1695BF2B2D61CA3897BB53ACC34A660AE98408D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725031   (109134) от 22.05.2024
+
+Робин и Мэриан / Robin and Marian (1976) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109134.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти короля Ричарда Львиное Сердце Робин Гуд и его неразлучный друг Маленький Джон возвращаются из крестовых походов в Англию, в Шервуд, где Робин встречает свою старую любовь Мэриан. Но старый шериф всё ещё на месте, и старая вражда разгорается вновь. Робин хочет только одного - он ведь уже совсем не молод - спокойно жить со своей любимой в родном лесу, (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Rastar PicturesЖанр: драма, мелодрама, приключенияРежиссер: Ричард ЛестерАктеры: Шон Коннери, Одри Хепбёрн, Роберт Шоу, Ричард Харрис, Никол Уильямсон, Денхолм Эллиотт, Кеннет Хэйг, Иэн Холм, Ронни Баркер, Билл Мэйнард, Эсмонд Найт, Вероника Куиллиган, Питер Баттерворф, Джон БэрретПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685259F8ACFFACE97005D1CF5F80D2B951787410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724974   (109133) от 22.05.2024
+
+Валерий Ободзинский - Поёт Валерий Ободзинский (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Советская эстрада, Поп>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Спасибо тебе, море (02:36)
+02.  Я возвращаюсь домой (02:59)
+03.  Ты мне встретишься (04:50)
+04.  Восточная песня (03:32)(   Читать дальше...   )Жанр: Советская эстрада, ПопПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604ECDE18DE88BFC1E8B91887F5A72355588F377
 ```
 
 https://mybot314.ru/tekegram_catalog/

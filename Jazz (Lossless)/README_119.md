@@ -1,3 +1,194 @@
+###  Публикация: 1226574   (654868) от 21.05.2018
+
+Isao Suzuki & Sunao Wada - Now's The Time (1974) 2014, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polka Dots And Moonbeams [09:30]
+02. Midnight Sugar [16:05]
+03. Now's The Time [26:32]Жанр: Post-BopПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C387FAEC87D38E7466975F9116FA1D8BBD4B14C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226573   (654778) от 21.05.2018
+
+Diana Krall - Wallflower: The Complete Sessions (2014) Universal [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreamin' [03:18]
+02. Desperado [03:33]
+03. Superstar [04:18]
+04. Alone Again ( Naturally)(duet with Michael Buble) [03:51](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE316FF6FFC964360D00EC9A1D07A1727691D55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140775   (654762) от 07.06.2017
+
+David Gilmore - Transitions (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of Daze [06:29]
+02. Beyond All Limits [05:32]
+03. Blues Mind Matter [07:07]
+04. Bluesette [05:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E108FA1CFEF2018CB6E2F58FDAFCDF97AA9EE28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516225   (654672) от 27.06.2012
+
+VA - Jazz Women (1999) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassandra Wilson - Hellhound On My Trail  [04:37]
+02. Cassandra Wilson - Strange Fruit  [05:30]
+03. Dianne Reeves - Never Said (Chan's Song)  [05:35]
+04. Dianne Reeves - How High The Moon  [04:07]
+05. Denise Jannah - Bye Bye Blackbird  [04:55]
+06. Bobbi Humphrey - Harlem River Drive  [07:50]
+07. Renee Rosnes - Upa Neguinho  [06:16]
+08. Caecilie Norby - Summertime  [04:56]
+09. Caecilie Norby - Just One Of Those Things  [03:56]
+10. Holly Cole Trio - Honeysuckle Rose  [02:22](   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516238   (654654) от 27.06.2012
+
+VA - Women of Jazz (2008) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody Gardot - Goodnite [03:06]
+02. Madeleine Peyroux - Dance me to the end of love [03:57]
+03. Cassandra Wilson - Lover come back to me [04:16]
+04. Sophie Milman - Lonely in New York [03:15]
+05. Hope Waits - I'll be satisfied [02:55]
+06. Kate Paradise - Mean to me [04:28]
+07. Jennifer Hartswick - Lover man [03:10]
+08. Stacey Kent - Shall we dance [03:41]
+09. Della Griffin - It could happen to you [004:12]
+10. Etta Jones - Since I fell for you [06:02]Жанр: JazzПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516087   (654574) от 27.06.2012
+
+Bill Evans Trio Featuring Scott La Faro - Sunday At The Village Vanguard (1997) [FLAC|Lossless]<Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria's Step (take 2) [06:13]
+02. My Man's Gone Now [06:27]
+03. Solar [08:57]
+04. Alice in Wonderland (take 2) [08:38]
+05. All of You (take 2) [08:22]
+06. Jade Visions (take2) [03:47]
+07. Gloria's Step (take 3) [06:57]
+08. Alice in Wonderland (take 1) [07:06]
+09. All of You (take 3) [08:07]
+10. Jade Visions (take 1) [05:13]Жанр: Jazz, BopФормат: CD XRCD 20bit K2 SuperCodingПродолжительность: 01:09:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516033   (654507) от 27.06.2012
 
 Art Blakey And The Jazz Messengers - Moanin' (1999) [FLAC|Lossless]<Jazz, Bop>
@@ -583,180 +774,6 @@ Kansas City Jazz Orchestra - Take One (2005) KCJO Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA5E1A261E84AB3939BC422B5D083AF37D49781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140942   (652648) от 09.06.2017
-
-Albert Vila - The Unquiet Sky (2016) Fresh Sound New Talent [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therefore [04:29]
-02. Epilogue [01:17]
-03. New Deal [05:14]
-04. Air [06:04](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F31827ECF078B310DFCABC914FC23ACDB90415C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540476   (652637) от 30.03.2022
-
-VA - Jazz Vibes: Milestones Of Legends (1949 - 1962) 10CD, 2017, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652637.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - Lionel Hampton - Quartet:
-01. The Nearness Of You [10:43]
-02. Stompin' At The Savoy [10:52]
-03. 'S Wonderful [7:27](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, SwingПродолжительность: 11:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1468922E5BA077B7D297DDB47535A7D6FA5C061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141215   (652566) от 09.06.2017
-
-Dave McKenna - Blues Up: Piano Solo (1955, 1963) 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Was I Born? [02:17]
-02. Smoke Gets In Your Eyes [03:18]
-03. Blues Up [02:28]
-04. Walking By The River [03:05](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B62D6B5B14593A3101A780E7F2D9C625E24F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140946   (652565) от 09.06.2017
-
-Marco Mezquida Trio + Bill McHenry - Cantabile (2015) Fresh Sound New Talent [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gira [03:14]
-02. Joni Style [05:39]
-03. Armando Rampas [05:03]
-04. Radiohead Montsant Elevation [13:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A271EBD874F367D9D4323A913ACAA9279B71A1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141204   (652564) от 09.06.2017
-
-Maynard Ferguson - Birdland Dream Band, vol.1  (1956) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wailing Boat [03:10]
-02. Somebody Wants Me Down There  [04:06]
-03. Maynard the Fox [02:50]
-04. Blue Birdland  [04:13](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0CFB293A818A6A142B327D4005D42F382A84C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141294   (652563) от 09.06.2017
-
-Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturday And Sunday [10:31]
-02. Saturday And Sunday (alternate take) [09:26]
-03. Frankenstein [07:32]
-04. Blue Rondo [04:53](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D54CF8F2DF6A9F411140F3C92BA4D0014943F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

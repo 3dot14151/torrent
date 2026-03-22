@@ -1,3 +1,143 @@
+###  Публикация: 481319   (87791) от 11.04.2012
+
+Chilly - We Are The Popkings ... And Other Hits Of (2011) [MP3|320 кб/с]<Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Energy 2:00
+02. We Are The Popkings 4:06
+03. For Your Love (12" Version) 9:00
+04. Get Up And Move 4:00
+05. Johnny Loves Jenny 3:20
+06. Brainstorming 3:50
+07. Better Stop 3:40
+08. Come To L.A. 3:29
+09. Secret Lies 3:16
+10. Rosi Rice 2:50(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:17:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480849   (87723) от 11.04.2012
+
+The Overtones - Gambling Man (2012) [MP3|~245 кб/с (V0)]<Pop, Doo-Wop, Vocal Harmony, British>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Last Chance
+02. Sh-Boom
+03. Gambling Man
+04. Come Back My Love
+05. Say What I Feel
+06. Carolyn
+07. The Longest Time
+08. Good Ol Fashioned
+09. Blue Moon
+10. Have I Told You Lately that I Love You(   Читать дальше...   )Жанр: Pop, Doo-Wop, Vocal Harmony, BritishПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E100DAE951A84554D4AD74CFBF14F6373BB00AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480877   (87529) от 10.04.2012
+
+Annalisa - Mentre Tutto Cambia (2012) [MP3|320 кб/с]<Italian Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senza Riserva
+02. Non Cambiare Mai
+03. Lucciole
+04. Per Una Notte O Per Sempre
+05. Tutto Sommato
+06. Bolle
+07. Ottovolante
+08. Ancora Un'altra Volta
+09. Tra Due Minuti E' Primavera
+10. Per Te(   Читать дальше...   )Жанр: Italian PopПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476782   (85879) от 02.04.2012
+
+Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money (Maxi Version) 5:52
+02. Jasmin China Girl (Maxi Version) 6:30
+03. Devil's Rendezvous 7:03
+04. Malice & Vice 5:23
+05. Money (Ian's Radio Remix) 3:36
+06. In China (Instrumental) 6:09
+07. Pay The Highest Price 5:12
+08. Jasmin China Girl (Radio Version) 2:53
+09. Money (Radio Version) 3:40
+10. Megamix 9:26(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7324F465B5D9345752CDDB6CF5052726E12ECB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476334   (85505) от 31.03.2012
 
 Samantha Fox - Greatest Hits (2009) [MP3|320 кб/с]<Pop>
@@ -760,123 +900,6 @@ Stevie Wonder - World Ballads Collection (1999) [MP3|320 кб/с]<Pop, Soul, Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1795F1C457E6C6908D6BD807F342B96C400FD3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457440   (78124) от 24.02.2012
-
-Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du Temps (Single) (03:38)
-02. Du Temps (Tomer G Reloaded Club Mix) (06:34)
-03. Du Temps (Mico C Club Remix) (05:14)
-04. Du Temps (Mico C Radio Edit) (03:36)
-05. Du Temps (Instrumental) (03:35)2012Жанр: Pop, DanceПродолжительность: 00:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA41F798A24F881D22853FE8FC69015AAFEAF1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772473   (71781) от 11.01.2025
-
-VA - Nipper's Greatest Hits - The 60's Volume 2 (1988) [OGG Vorbis|480 Kbps] <Rock, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Browns - The Old Lamplighter
-02. Hank Locklin - Please Help Me, I'm Falling
-03. Floyd Cramer - On The Rebound
-04. Jimmy Elledge - Funny How Time Slips Away(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED17BC25639FED3355637B9F79FB83A20B506CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775214   (71502) от 25.01.2025
-
-VA - Dance Classics Gold 3 (1992) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - Last Dance
-02. The Jacksons - Can You Feel It
-03. Kool & The Gang - Get Down On It
-04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2D756BE1B6395912DAE29C2948A3ED5B63AA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775104   (71493) от 25.01.2025
-
-VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool & The Gang - Celebration
-02. Gloria Gaynor - Never Can Say Goodbye
-03. The Four Tops - Don't Walk Away
-04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DE7B8D4BA03ADD2A77248D5530F706F5EE93E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1103812   (883016) от 13.02.2017
+
+Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastic Heart (02:50)
+02. Shark Chevelle (01:18)
+03. Man Of Focus (03:25)
+04. Sumo Showdown (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40DEB7E9F979658AED9065FF3F0EAB3020B3ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103813   (882918) от 13.02.2017
 
 Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -718,35 +747,6 @@ Enigma - Alchemist (2008) [FLAC|Lossless|image + .cue] <New Age, Abstract>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:658F07003EED42B27A0A43329F1DF3D33865055C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997435   (875584) от 16.03.2016
-
-Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Folk, Dark Folk, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Lose Yourself Forever Is Eternal Happiness
-2. You Can't Remain Here
-3. Detachment
-4. The Purified Eye of the Soul Is Placed In the Circle of Eternal Sun(   Читать дальше...   )Жанр: Folk, Dark Folk, ExperimentalПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70361A1C7F88CBA512AE8BB25645106AD0C858A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

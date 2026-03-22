@@ -1,3 +1,119 @@
+###  Публикация: 1033406   (638232) от 11.07.2016
+
+Cellars - Phases (2016) [MP3|320 Kbps] <80's Retro Pop, Synth Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stircrazy
+02. Do You Miss Me?
+03. Real Good Day
+04. Still in Love(   Читать дальше...   )Жанр: 80's Retro Pop, Synth Pop, Female VocalПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECD544BAE06B47D9BA9C06D2C55C53C4529B0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033535   (638231) от 11.07.2016
+
+Susan Wong - Woman In Love (2014) [MP3|320 Kbps] <Pop, Easy Listening, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Woman In Love    03:41
+02.  I Honestly Love You    03:26
+03.  Chain Reaction    03:39
+04.  Can't You See (I'm Falling In Love)    03:39(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5CB0E51F87A91F13F880E6CB72026A58ADFD1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907603   (638193) от 12.06.2015
+
+Sally Dige - Hard To Please (2015) [MP3|320 кб/с]<Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638193.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hard To Please
+2. Immaculate Deception
+3. So Far Away
+4. Doppelganger(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB2E882A4983D6AC5DDE3CC055E164290CB57DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907623   (638191) от 12.06.2015
+
+Nate Ruess - Grand Romantic (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grand Romantic (Intro) (0:42)
+2. AhHa (4:23)
+3. Nothing Without Love (3:56)
+4. Take It Back (4:23)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DD3CD62BC93AEA8CD476307BAC26C013BE5BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033448   (638138) от 11.07.2016
 
 VA - The Best Ever: Summer (2016) [MP3|320 Kbps] <Disco, Pop, RnB>
@@ -660,122 +776,6 @@ Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294373   (629976) от 07.04.2019
-
-VA - Let's Dance - Das Tanzalbum (2019) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629976.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Queen - I Want To Break Free (Foxtrott - Cha Cha)
-02. Rick James - Super Freak (Cha Cha)
-03. Santana Feat. Rob Thomas - Smooth (Radio Edit) (Cha Cha)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD340D008E915E0BE93E1D409DEC05AF91D6ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229209   (629968) от 04.06.2018
-
-The Hornettes - 2 Albums (1982, 1994) [MP3|320 Kbps] <Electronic, Europop, Disco, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629968.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Hornettes - девичья группа из Германии - была основана в 1979 году, тогда с Gitta Walther, Dagmar Hellberg, Lucy Neale и Christina Harrison. "We Are On The Way-O" - редкий альбом, выпущенный на знаменитом "чингизхановском" лейбле Jupiter Records. К нескольким песням приложил руку сам владыка Ralph Siegel. Альбом "Welthits" в основном (   Читать дальше...   )01.  Waikiki Tamoure (4:00)
-02.  Motorbike Ride (2:45)
-03.  We Are On The Way-O (3:39)
-04.  Carry Me Home (3:45)(   Читать дальше...   )Жанр: Electronic, Europop, Disco, SchlagerПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21556033E9FC862E85979A7738503506664D132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294173   (629911) от 07.04.2019
-
-VA - NRJ Urban Hits 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629911.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Aya Nakamura - La dot
-02. Bigflo & Oli - Sur la lune
-03. Angèle - Tout oublier(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDB85D50D1FBC062590E8DC65ACFE6E0116F711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294116   (629887) от 07.04.2019
-
-VA - Magic 90s (2018) 4CD [MP3|320 Kbps] <Pop, Rock, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629887.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01.George Michael - Freedom
-02.Take That - Back For Good
-03.Natalie Imbruglia - Torn(   Читать дальше...   )Жанр: Pop, Rock, HouseПродолжительность: 05:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999AF2F5DF08471375D4B067116D46261D62B36C
 ```
 
 https://mybot314.ru/tekegram_catalog/

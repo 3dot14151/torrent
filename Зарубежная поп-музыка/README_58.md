@@ -1,3 +1,119 @@
+###  Публикация: 1419533   (339991) от 28.10.2020
+
+Bogart - ...Again (1981) LP [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back On The Road  (3:46)
+02. Looking For A Good Thing  (3:46)
+03. Without You  (3:39)
+04. Susan And Me  (3:46)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B17473320719F0DB9A8F1A3A9628518C227B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954580   (339869) от 08.11.2015
+
+Anouk - Greatest Hits (2015) 2CD [MP3|320 кб/с]<Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern World
+02. If I Go
+03. Three Days In A Row
+04. Woman(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5877B2E1BA49B2A5A164C3C25CF7FB5D8CEED397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419427   (339695) от 28.10.2020
+
+VA - 90s Megamix Vol.1: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - 90s Megamix Vol. 1, Pt.1 [1:18:26]
+02. VA - 90s Megamix Vol. 1, Pt.2 [1:19:46]
+03. Robin S. - Luv 4 Luv (Stone's Radio Edit) [4:13]
+04. East Side Beat - Ride Like The Wind (Radio Editing) [3:49](   Читать дальше...   )Жанр: Eurodance, Euro-House, Electronic, DanceПродолжительность: 08:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E790B79C17EA9CC625081AEF2BF52B033DC3886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419431   (339580) от 28.10.2020
+
+VA - 90s Megamix Vol.2: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - 90S Megamix Vol. 2, Pt. 1 [1:17:08]
+02. VA - 90S Megamix Vol. 2, Pt. 2 [1:19:43]
+03. MaxX - Get A Way (Airplay Mix) [3:45]
+04. Sash! - Encore Une Fois (Future Breeze Edit) [3:38](   Читать дальше...   )Жанр: Eurodance, Euro-House, Electronic, DanceПродолжительность: 08:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95210DC675E08B7E82FA02108998E0AEE1A01AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954613   (339478) от 08.11.2015
 
 Lara Fabian - Ma vie dans la tienne (2015) [MP3|320 кб/с]<Pop, Classical>
@@ -633,119 +749,6 @@ Army of Lovers - Massive Luxury Overdose (1992) U.S. Edition [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49A6209D4C0CF0BA42D3E60402A6C698447ED130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580166   (332141) от 30.09.2022
-
-Bjork (Björk) - Fossora (2022) [MP3|320 Kbps] <Electronic, indie, Experimental, trip-Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atopos (feat. Kasimyn)
-02. Ovule
-03. Mycelia
-04. Sorrowful Soil(   Читать дальше...   )Жанр: Electronic, indie, Experimental, trip-HopПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F204AC3C2658273AF352557D45BD76652D962D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956025   (331140) от 13.11.2015
-
-The Dark Tenor - Symphony Of Light (2014) Deluxe Version [OGG|469-528 кб/с]<Neo-Classical Crossover Pop, Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (01:21)
-02. Heart Of Gold (03:04)
-03. River Flows On The Edge (featuring Yiruma) (03:44)
-04. Love Is Light (02:59)(   Читать дальше...   )Жанр: Neo-Classical Crossover Pop, Ballad, VocalПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEACF71E5AD62014B0191AA249BB92ABB585C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259604   (330517) от 20.11.2010
-
-Tom Jones - Дискография [1964-2010] [MP3|192-320] <Pop/Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/RockФормат: MP3Продолжительность: 32:40:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955967   (330099) от 14.11.2015
-
-Justin Bieber - Purpose (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark My Words
-02. I'll Show You
-03. What Do You Mean?
-04. Sorry(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59509478D5794A8C2D584581328267F6EBF10666
 ```
 
 https://mybot314.ru/tekegram_catalog/

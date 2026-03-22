@@ -1,3 +1,235 @@
+###  Публикация: 1812152   (8061) от 13.08.2025
+
+VA - Trance Essentials 2025, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jnsl - Blueshift 05:47
+02. Sam Vance - Purple Monkey Dishwasher 04:59
+03. Pure Oxide - No More Lies 04:02
+04. Xidosmusic - The Darkside 05:33(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2621961FCE1BBBB9C1DF04133C0E23871A6643E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812511   (7702) от 15.08.2025
+
+VA - Black Hole Trance Music 08-25 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maratone & Anita Tatlow - Northern Lights (Extended Mix) [6:01]
+02. Somna & Yang & MIDI Kittyy - No Need To Hide (Extended Mix) [5:50]
+03. Rinaly - Unleash (Extended Mix) [6:39]
+04. MOTVS & Frankyeffe - We Stand We Fall (Extended Mix) [4:39](   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04486ABA40E74224823B13F554A31E8D4E3D4D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813595   (6788) от 20.08.2025
+
+VA - Summer Trance 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master Beat Projekt & Rollerbabe - Voice In The Sky (Original Mix) [5:42]
+02. Invisible Signs & Higher Instincts - Eternal Travellers (Original Mix) [8:11]
+03. FOYT - Nebula Nomad (Original Mix) [6:28]
+04. Juan Almiana Obando - Wonderland (Original Mix) [6:18](   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590885A8345A182F7742E116A2D9A47C835754C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813925   (6445) от 22.08.2025
+
+VA - A State Of Trance, Ibiza 2025 (Mixed by Armin van Buuren) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. JAI RYU - Let It Be For Love (Mixed) [4:38]
+02. Armin van Buuren feat. Malou - Everything I Wanted (Mixed) [3:57]
+03. Laura van Dam - Deep Shadow (Mixed) [1:46]
+04. DIM3NSION & Kadett - Turning (Mixed) [2:30](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F73904D4DA7B8982996FA6C058AA17E0A1D8A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813941   (6419) от 22.08.2025
+
+VA - Ori Uplift - Uplifting Only Episode 654 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocoro – Jikimi (Intro Mix)
+02. DreamLife & Aleksey Gunichev – Autumn Meeting (Orchestral Uplifting Classic)
+03. Ciaran McAuley & Sean Tyas & Clara Yates – Runaway (Fan Favorite (653))
+04. New World & Geert Huinink – Empyrean (Breakdown Of The Week)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6E1D5E89F7567EB1A0B08020ED3F6A62696947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814409   (6089) от 24.08.2025
+
+VA - Progressive Trance Awakening, Vol. 07 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kanallia & Lilygarden - Lily Of The Valley (Original Mix) [5:40]
+02. Tom Sommerson - Ecliptica (Original Mix) [3:53]
+03. Macid - Saros (Extended Mix) [6:19]
+04. Victor Special & Double Motion - Beyond The Void (A.L.Y.S. Remix) [3:26](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7938BC5CBAECD653B920BF214D578246D14D7FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814804   (5805) от 26.08.2025
+
+VA - Uplifting Only Top 15: August 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamira & Tsuki Shizumutoki - Jinse (Kaokao Intro Remix) [4:37]
+02. Simon O'Shine & Adam Navel - Marathon (Simon O'Shine Mix) [8:51]
+03. Darren Bax & Alaera - In My Memory (Extended Mix) [6:02]
+04. Cedric Paul & Rowan Van Beckhoven - Elysium (Extended Mix) [8:34](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEBBF33930A32E4BF0C19CEBD893C6445E4396D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814877   (5669) от 27.08.2025
+
+VA - In Search Of Sunrise 21 Mix 2: Nirvana (Mixed by Markus Schulz) (2025) [MP3|320 Kbps] <Trance, Progressive, Melodic House & Techno>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noctello - Velvet Cabaret (Mixed) [2:31]
+02. Hellmuth - Stockholm Syndrome (Mixed) [4:01]
+03. Eelke Kleijn - Regenerator (Mixed) [5:16]
+04. Rцyksopp & Susanne Sundfør - Stay Awhile (Fideles Remix) (Mixed) [4:12](   Читать дальше...   )Жанр: Trance, Progressive, Melodic House & TechnoПродолжительность: 02:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0ED6A79C65ACE7148664AFEC73C89F43600A52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815073   (5501) от 28.08.2025
 
 VA - 25 Years Of Anjuna Mixed by SØNIN (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>

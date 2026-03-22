@@ -1,3 +1,32 @@
+###  Публикация: 1111994   (844960) от 07.03.2017
+
+VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calming Water Consort - Sleep Better: Relaxing Beach Ocean Waves
+02. Trouble Sleeping Music Universe - Music for Deep Sleep
+03. Sea Tranquility Academy - Relaxing Background Music
+04. Yoga Meditation Music Set - Hypnotic Sounds: Breaking Waves(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 03:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD807B06B231082BA7824FB8DB8D5A408AB2BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002714   (844917) от 02.04.2016
 
 Sam "The Man" Taylor & His Orchestra - Sam "The Man" Taylor In Japan (1961) LP, Stereo [FLAC|Lossless|tracks] <Jazz, Sax, Instrumental>
@@ -717,35 +746,6 @@ Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1878B8ABDB884145E00CC2324CB0EE02D3AF2071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004600   (836540) от 07.04.2016
-
-Ennio Morricone - Spiel Mir Das Lied Vom Tod - The Very Best Of (1992) 2 CD, Compilation [FLAC|Lossless|tracks] <Classical, Stage & Screen, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836540.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Der Profi: Chi mai    05:06
-02. The Untouchables: Ness Family Theme    03:22
-03. Der Maulwurf: Marche En La    03:02(   Читать дальше...   )Жанр: Classical, Stage & Screen, InstrumentalПродолжительность: 01:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB1D543CADF6D5AEB14F7B2477951276D2C592C
 ```
 
 https://mybot314.ru/tekegram_catalog/

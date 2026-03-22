@@ -1,3 +1,195 @@
+###  Публикация: 495616   (251413) от 12.05.2012
+
+VA - Blue Notes - The Finest Voices In Jazz (2005) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_251413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astrud Gilberto with Antonio Carlos Jobim - Agua de Beber
+02. Melissa Walker - A Time For Love
+03. Mel Torme - I've Got You Under My Skin
+04. Tower Of Power - Soothe You
+05. Christopher Cross - Sailing
+06. Everything But The Girl - Tender Blue
+07. Kyle Eastwood - In The Wee Small Hour
+08. Ambrosia - You're The Only Woman
+09. Aretha Franklin - Walk On By
+10. Basia - Astrud(   Читать дальше...   )2005Жанр: JazzПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495238   (251166) от 11.05.2012
+
+Fausto Papetti - Grand Collection (1988) [FLAC|Lossless]<Pop, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Called To Say I Love You
+02. Bossa For My Lady
+03. Mask The Knife
+04. Love Me From "Goodfather"
+05. Adagio Di Albioni
+06. The Windmiles Of You Mind
+07. Love Story
+08. Strangers In The Night
+09. This Is Not America
+10. Reality(   Читать дальше...   )1988Жанр: Pop, JazzПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495307   (251128) от 11.05.2012
+
+Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swing, Classic Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saratoga Shout (3:32)
+02. Song Of The Swanee (3:24)
+03. Give Me Your Telephone Number (3:11)
+04. Higginbotham Blues (3:29)
+05. Louisiana Swing (3:10)
+06. Poor Li'l Me (3:06)
+07. On Revival Day (3:09)
+08. Muggin' Lightly (2:57)
+09. Panama (3:15)
+10. High Tension (2:54)(   Читать дальше...   )Жанр: Swing, Classic Jazz, Big BandПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619107   (249821) от 14.03.2023
+
+Fats Waller - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georgia on My Mind [3:04]
+02. Rockin' Chair [3:09]
+03. Carolina Shout [2:22]
+04. Honeysuckle Rose [3:26](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76C58AC0E9CF12E4F67F0CD5CCCFE6C682A50A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619206   (249767) от 15.03.2023
+
+Michael Feinstein - Michael & George: Feinstein Sings Gershwin (1998) Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embraceable You [4:40]
+02. Nobody But You [3:56]
+03. Love Is Here to Stay [4:14]
+04. Do It Again [4:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EE96B5DEAF311E488EECF16B29CE000294D6F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564700   (249632) от 20.07.2022
+
+Clifford Brown & Max Roach All Stars - Best Coast Jazz (1954) 2015, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coronado [19:49]
+02. You Go to My Head [17:15]
+03. Caravan [15:12]
+04. Autumn in New York [21:38](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23AB0E6A57B5FC13BDE16286DFA052060F17301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493988   (249133) от 09.05.2012
 
 Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
@@ -609,180 +801,6 @@ David Newman - Bigger & Better (1968) Remaster, 2012, Warner[FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD5B3DFFEA6AF288B1B7D7BBD90AD77A65CD5F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608406   (245677) от 30.01.2023
-
-The Dave Stryker Trio - Prime (2022) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Along with Jared Gold on organ and McClenty Hunter on drums, Stryker offers eight new compositions and the beautiful standard “I Should Care.” From the burning title track “Prime” to songs penned for his first boss Jack McDuff (“Captain Jack” and “Dude’s Lounge”) as well as “Mac” for his drummer and the original trio versions of “Hope” and “As We Were” from Stryker’s (   Читать дальше...   )01. Prime (Stryker) - 6:25
-02. Lockdown (Stryker) - 6:37
-03. Captain Jack (Stryker) - 8:14
-04. Hope (Stryker) - 5:20(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98BFCB1C49A084CE76E119CCFE6BB4249C221135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058371   (245636) от 01.10.2016
-
-John Lewis & Mirjana Lewis - The Chess Game Part I (1987) 2000,  Philips[APE|Lossless|image + .cue] <Third Stream, Classical, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Queen's Pawn Opening - Aria On Harpsichord [02:15]
- 02.Aria On Piano  [02:44]
- 03.King's Gambit - Variation 1 On Harpsichord [01:10]
- 04.Variation 1 On Piano  [01:10](   Читать дальше...   )Жанр: Third Stream, Classical, CoolПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68945E549E0D160CF128E9FA5946372BE5975143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512214   (245621) от 24.11.2021
-
-John Di Martino's Romantic Jazz Trio - Moliendo Cafe (2011) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Cervantes [4:43]
-02. Angelitos Negros [4:22]
-03. Amapola [5:55]
-04. Obsesion [5:12](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8936811FB640050BE61BF423C84BD40F90E3F555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630534   (245560) от 02.05.2023
-
-Emily Remler - Retrospective, Vol. 2: Compositions (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mocha Spice [4:30]
-02. Nunca Mais [5:02]
-03. Waltz for My Grandfather [6:40]
-04. Catwalk [7:25](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7139B12F6A36000E7C5F5CBFF2942B33978661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624196   (245500) от 04.04.2023
-
-Karl Seglem - Nye nord (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Nordic Folk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tro din fot (Seglem) - 5:01
-02. Nye nord (Seglem) - 4:55
-03. Alcalar (Seglem) - 5:58
-04. Manefar (Seglem) - 6:54(   Читать дальше...   )Жанр: Contemporary Jazz, Nordic FolkПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80ADD94EFA9E45F1642255992AA84D5DAB4B89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250784   (245471) от 29.09.2018
-
-Jimmy Raney - Wisteria (1985) 1991, Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hassan's Dream [7:19]
-02. Wisteria [5:32]
-03. Ovals [6:25]
-04. Out of the Past [7:04](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596809C5B3AF02BFB98A5AD5A783AB50FAB67059
 ```
 
 https://mybot314.ru/tekegram_catalog/

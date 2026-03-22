@@ -1,3 +1,55 @@
+###  Публикация: 496421   (253425) от 16.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 39 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7E8C8ABDC809CD1714E49AD76FB7B379181BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495865   (252658) от 13.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 37 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D103350E124F2C2B51B7F14663A4C98D4074E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495157   (251184) от 11.05.2012
 
 VA - Инструментальная музыка (2012) vol. № 35 [MP3|320 кб/с]<Instrumental>
@@ -669,64 +721,6 @@ George Kopaliani - This Is George Kopaliani (2023) [MP3|320 Kbps] <Easy Listenin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1CEAA3492465D38B74F5643E621B91C477D9D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575591   (208285) от 12.09.2022
-
-ДиДюЛя - Compilation (2022) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Путь домой
-02. Дорога в Багдад
-03. Танец с дождем (Причудливые круги)
-04. Таял звук(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 04:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFC6E7DDD9D4B915EF578AA8A16BBE0424C67CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653519   (205972) от 19.08.2023
-
-Karunesh - Heart To Heart (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dazzled by the Light [05:40]
-02. Humming [15:21]
-03. Japanese Spring [05:51]
-04. Moon Temple [05:50](   Читать дальше...   )Жанр: Electronic, Lounge, Relax, MeditationПродолжительность: 05:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC1858D59BF87E66AA2333433733ED0C992CD62
 ```
 
 https://mybot314.ru/tekegram_catalog/

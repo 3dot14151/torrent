@@ -1,3 +1,148 @@
+###  Публикация: 1330828   (336732) от 12.10.2019
+
+Tinlicker - This Is Not Our Universe (2019) [FLAC|Lossless|WEB|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker - Bird Feeder (4:51)
+02. alt-J - Breezeblocks (Tinlicker Remix) (4:32)
+03. Tinlicker - The Whale (5:22)
+04. Tinlicker - Vanishing (feat. Run Rivers) (5:16)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A048C6E78562A207D7EDCE01986B0CD4675FDC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074737   (335932) от 20.11.2016
+
+Orphx - Pitch Black Mirror (2016) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknowing (05:48)
+02. Sever The Signal (06:37)
+03. Blood In The Streets (05:55)
+04. Molten Heart (06:50)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D82FF04C66952D8A731D7F1CFA8D14D8A65B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420098   (335814) от 30.10.2020
+
+DJ Sven & Marc Hartman - The Revival (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Is the Music (5:23)
+02. Rhythm in My Immy Bo Home (6:08)
+03. Back in the Days (4:59)
+04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0567CFAF913A027FD9147A2C9FDA0E6733197D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420026   (335487) от 30.10.2020
+
+CamelPhat - Dark Matter (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackbirds (feat. Leo Stannard) (3:25)
+ 02. Be Someone (3:25)
+ 03. For a Feeling (feat. RHODES) (Dark Matter Edit) (5:31)
+ 04. Inbetween the Lines (3:25)(   Читать дальше...   )Жанр: EDM, Progressive House, Tech House, DowntempoПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3347871E16EB0A8BCEBCF722DB7AA48FA64896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258626   (334689) от 31.10.2018
+
+VA - NDATL 10 Year Special Edition 2018 (2018) NDATL Muzik [FLAC|Lossless|tracks|Vinyl] <Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythim Is Rhythim - Move It (Unreleased Live Mix) (04:19)
+ 02. Chez Damier - Never Knew Love (Kai Alcé Unreleased Mix) (06:09)
+ 03. Mike Huckaby - Sunset With The Jazz Republic (06:00)
+ 04. Norm Talley - Rollin Thru (04:19)(   Читать дальше...   )Жанр: Deep House, TechnoПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EE88FF2389FD034854678B608DC56AACB20750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331506   (332339) от 15.10.2019
 
 VA - Amsterdam 2019 - Presents By Parquet Recordings (Mixed by Solee) (2019) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Deep House>
@@ -595,144 +740,6 @@ VA - Ministry Of Sound: XX Twenty Years (4CD Boxset) (2011)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584468   (310033) от 03.12.2012
-
-VA - John Digweed Live In London (2012) [FLAC|Lossless]<Tech House, Deep House, Techno, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_310033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, Techno, ProgressiveПродолжительность: 11:35:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077230   (309081) от 27.11.2016
-
-VA - Berlin Underground Selection, Vol.6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin Underground Selection Mix (By Metope) (2:00:50)
- 02. Late Night Early Mornings (Bedouin remix) (8:55)
- 03. Nebula (7:48)
- 04. Malahim (6:40)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7013F70D96B10E0A0DDCB6004C4792F5D18BD9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260906   (307789) от 09.11.2018
-
-VA - Spring Tube 9th Anniversary Compilation, Part 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claes Rosen - Over and Over (Sebastian Davidson remix) (6:08)
-02. George Ellinas - Galexia (original mix) (6:00)
-03. Subalpine - Paradise (original mix) (5:30)
-04. Rishi K. - Through the Night (Domestic Technology remix) (5:30)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2EC303B4314FF2BBBB5D443EA3EF4B16951270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 419268   (306880) от 05.12.2011
-
-DJ Dado - Greatest Hits & Future Bits (1998) [FLAC|Lossless]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261383   (305641) от 10.11.2018
-
-Havantepe - Robo Owl EP (2018) Luck Of Access [FLAC|Lossless|tracks|Vinyl] <Deep House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hooting Owl (08:37)
- 02. Robosoul (06:26)
- 03. Robochirp (06:55)Жанр: Deep House, ElectroПродолжительность: 00:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974CF0D45B42AFA2FF011C1E20006197AD660C6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

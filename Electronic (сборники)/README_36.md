@@ -1,3 +1,61 @@
+###  Публикация: 995909   (883092) от 12.03.2016
+
+VA - Club Dance Ambience vol 58 (2016) [MP3|320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 50 Cent vs. DJ KUBA & NEITAN - Disco Inferno Party On! (Aquila Mash-Up).mp3
+002. Aceaxe feat. Jonny Rose & Sicklead - Heartfire (Original Mix).mp3
+003. Acim - All My Life (Original Mix).mp3
+004. Adam Lambert vs Adam Aesalon & Murat Salman - Ghost Town (Max Maikon Mash-Up).mp3(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15723D1D084E8B4498D5E5972A0FF75B43C6B6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995927   (882965) от 12.03.2016
+
+VA - Trance Desire Volume 63 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proyal feat. Ai Takekawa - The Orbit (Hazem Beltagui Remix) (05:45)
+02. A. Shine - Tango (Spark7 Remix) (04:31)
+03. Morvan - Spartacus (06:17)
+04. Sneijder feat. Jess Morgan - Sky Is On Fire (Radio Edit) (04:12)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7920B254C32B9F6C5399BE947994E161F0E812F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995859   (882699) от 12.03.2016
 
 VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
@@ -687,64 +745,6 @@ VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996859   (877676) от 15.03.2016
-
-VA - Velvet and Night: The Deephouse Selection (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep London Project - Say What Tell Me - Deep Phonic's House Mix
-02. Florence Cono - Deep Song of Gaia - Deep City Mix
-03. Frank Rain - Reserved for the Best People - Modell & Mercier's Night Voyage Mix
-04. Manuel Antinas - Alterego in Fashion - Downtown Elements Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7690BA8DA9099020491129846C6F2AB92AC09B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997101   (877669) от 15.03.2016
-
-VA - House Nation Volume 7 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicky Romero Vs. Sunnery James & Ryan Marciano - Underground (04:55)
-02. Friend Within - The Renegade (06:59)
-03. Benny Benassi Presents The Biz - Satisfaction (RL Grime Remix) (04:20)
-04. Underworld - Rez (Bassnectar Remix) (05:13)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B5E214DB6A1E6D806495D8E673755470B53E69
 ```
 
 https://mybot314.ru/tekegram_catalog/

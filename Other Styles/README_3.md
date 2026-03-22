@@ -1,3 +1,32 @@
+###  Публикация: 286660   (1030343) от 19.02.2021
+
+Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 When The Rain Begins To Fall       (03:53)
+02 I Just Called To Say I Love You    (03:48)
+03 Self Control			      (03:52)
+04 No More Lonely Nights	      (04:02)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF2489CAE6808876F5910DBCD114B4EADA0C2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255905   (1030342) от 19.02.2021
 
 Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
@@ -713,35 +742,6 @@ Wardruna - Kvitravn (2021) [FLAC|Lossless|tracks + .cue] <Dark Folk, Ambient, No
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CB676E7919376F6373E0F53F6FB8EA3FF017919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452789   (1027363) от 08.03.2021
-
-Romantic Piano Music Masters - Спокойное фортепиано: Инструментальные баллады, Женский день (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спокойное фортепиано (2:35)
-02. Как ты (2:41)
-03. Жажда (2:51)
-04. Вальс ветра (2:38)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC142A5A72D415E89DC576727346FE65C417003
 ```
 
 https://mybot314.ru/tekegram_catalog/

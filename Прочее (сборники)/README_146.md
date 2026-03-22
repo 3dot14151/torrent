@@ -1,3 +1,520 @@
+###  Публикация: 1562938   (250246) от 11.07.2022
+
+VA - Наш Тик Ток 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250246.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luxor - 10 выходных (2:24)
+002. Batrai - Зачем ты в сердце (2:39)
+003. WEGAS, LIANTO, ARCHI - И пусть (2:26)
+004. DIP Project - So Goodbye (3:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 18:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D2894BB2E4892BD79A86CB21DBFC28B9585408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562552   (250196) от 12.07.2022
+
+VA - Retro remix Апрель (2022) [MP3|320 Kbps] <Club House, Russian Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Brothers On The 4th Floor - Dreams (Hypelezz Mashup) 02:17
+002. 5sta Family - Вместе Мы (Lesnichiy & Delaud Extended Remix) 03:59
+003. 20 Fingers feat Gillette - Short Dick Man (Barthez Remix) 03:52
+004. 50 Cent - Disco Inferno (Mamoru & Lesha Dias Remix) 04:25(   Читать дальше...   )Жанр: Club House, Russian PopПродолжительность: 01:04:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECD2658856EA3F58683E4B818BDDAFF2D65AC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563300   (250128) от 13.07.2022
+
+VA - Music News vol.202 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250128.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Doda - Melodia Ta (02:30)
+ 002. 7even - Nopti Albe (03:06)
+ 003. Улицы - Ночное Такси (Andrey Bo Remix) (02:29)
+ 004. Alexa - Wonderland (Nevada Remix) (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0649D2271C3A452B5E006FCEDF93D1796A7A424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618207   (250096) от 10.03.2023
+
+VA - Music News vol.250 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250096.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lolita Jolie feat. Rob & Chris & Rocco - Ella Elle L’a (02:24)
+ 002. 2xA feat. VORTEX - So Good (02:33)
+ 003. 6LACK - Talkback (03:04)
+ 004. a.Ja - Помни (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71A458FC5E86F6CBA30D19210B73158CA69BFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563448   (250034) от 14.07.2022
+
+VA - Motivation Mix 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noro - Deep End (10:15)
+02. Twin - Leave the Lights On (5:27)
+03. Ed Marquis - Pon De Replay (4:17)
+04. Mika - Yo Yo (Retriv Remix) (3:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EBCD2444BFB5BF76549D6716648D03303E6ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537433   (250023) от 17.03.2022
+
+VA - Русские Хиты 3 2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250023.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexey Vorobyov - Не полюбит как я (5:00)
+002. Поэмы Дарвина - Не Злись (5:00)
+003. LOBODA - Родной (4:56)
+004. NЮ - Никто (4:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4C1B61B1EC0C94FDF52B476E1FCA99C0D13E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618034   (249986) от 11.03.2023
+
+VA - Billboard Hot 100 Singles Chart. 11 March 2023 (2023) [MP3|320 Kbps] <Pop, Rock, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd, Ariana Grande - Die For You (Remix)
+02. Miley Cyrus - Flowers
+03. SZA - Kill Bill
+04. PinkPantheress, Ice Spice - Boy's a liar Pt. 2(   Читать дальше...   )Жанр: Pop, Rock, Hip-Hop, RnBПродолжительность: 05:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804E8853D4CC0078B6FCAE2A4575FDC2EC143DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619357   (249709) от 15.03.2023
+
+VA - Music News vol.251 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249709.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Layla feat. Sianna - Love Me Baby (02:52)
+ 002. Alex Andreev - Делай, Брат (02:25)
+ 003. Allya - Оставь В Покое (02:59)
+ 004. Alseyda - Когда Ты (03:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE43A6D5CFD82715A57E85F2CDAEE97C18E9643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564737   (249655) от 20.07.2022
+
+VA - Dance Covers 2022 - The Best Party Hits Only! (2022) [MP3|320 Kbps] <Club, Dance, House, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ka!Ro - Hymn for the Weekend
+02. Alex M. - Whoomp (There It Is) (Alex M. Original Edit)
+03. Cuebrick - Cry for You
+04. Marc Korn - I Want It That Way (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, House, ElectronicПродолжительность: 02:04:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668DDA1F2553B03E795FD69932C4A09C25F32101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619145   (249580) от 17.03.2023
+
+VA - В машине с музыкой Vol.328 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T1one  - Неизбежно (03:20)
+02. Amay  - Часики (02:47)
+03. Vescan Feat. & Ева Тимуш - Colegi De Apartament (03:58)
+04. Onerockstar  - Там Где-То, Лето (03:55)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD559D8F215CA5A48AF2943D256645BE96FC334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620023   (249531) от 18.03.2023
+
+VA - Music News vol.252 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249531.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Polnalyubvi - Дыши (02:48)
+ 002. 6LACK - Fatal Attraction (03:17)
+ 003. 89ers - We Own The Night (02:57)
+ 004. A.V.G - Ты Мой Сон (02:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB98D2CAEA1C4086FF5351FDCEA057C387F6683D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564953   (249528) от 22.07.2022
+
+VA - Зарубежная Дискотека ХХ Века (Студия «Spedis-Raritet») (251-300 CD) от Ovvod7 (2021-2022) [MP3|192-320 Kbps] <Electronic, Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249528.jpg" />
+</div>
+
+
+###  Подробнее
+
+2021 - Зарубежная Дискотека ХХ Века - Диск 251
+
+01. John The Whistler - I'm In Love ( Single Edit 2000 )
+02. Flexx - You'll Never Change No More ( 1983 )(   Читать дальше...   )Жанр: Electronic, Pop, RockПродолжительность: 64:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BA169A823DCA56443CEBDD6DADA51406DCCAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565038   (249517) от 22.07.2022
+
+VA - 10 000... Italo-Euro-Space-Synth-Pop-Hi-NRG-Disco From Ovvod7 & tiv44 (201-310 CD) (2021-2022) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249517.jpg" />
+</div>
+
+
+###  Подробнее
+
+2021 - 10 000... Italo-Euro-Space-Synth-Pop-Hi-NRG-Disco From Ovvod7 - 0201
+
+01. Solid Strangers - My Delight
+02. Boys Next Door - I Will Follow You ( 12'' Version )(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 105:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3D4564B3CA1F7BCD154D2FC74EE9C2C35E4939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493979   (249178) от 09.05.2012
+
+VA - Лучшая clubная музыка сезона (2012) [MP3|256 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249178.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Selena Gomez & The Scene - Hit The Lights (Azzido Da Bass Radio Edit)
+002 DJ LEX - New Life 2012 (Radio Edit)
+003 DJ HaLF & Tom Stem - Ready 2 Go (Original Mix)
+004 Klaas feat. Carlprit - Do What You Do (Original Mix)
+005 Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia (Club Mix
+006 Lady Gaga - Electric Chapel (N-Vision Radio Edit)
+007 Paul Oakenfold feat. Robert Vadney - Pop Star (Original Mix)
+008 Pitbull feat. Chris Brown - International Love (UK Pop Extended Mix)
+009 R.I.O. feat. U-Jean - Animal (PH Electro Radio Edit)
+010 DJ LEX - Amore (Radio Edit)2012Жанр: Pop,Dance, ClubПродолжительность: 08:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4606A6E03125EF06A874BF335079CB2B7724B299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494287   (249103) от 09.05.2012
+
+VA - Жажда танца. Будет жарко! (2012) [MP3|256 кб/с]<Pop,Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. НеАнгелы - Твоя (DJ Jedy Club Remix) (4:33)
+2. Dj Next Feat. Dj Solar Explosion - Жажда Танца (Dance Club 2012) (3:30)
+3. Denis Drozdov Feat. Slava Inside - Мы Потанцуем С Тобой (Mike Energy Remix) (5:16)
+4. DJ Сателлит & Marlena ft. PolCox - Почему (Tonada Radio Mix) (3:14)
+5. Dj Fenix & Kathy Soul - Скажи Мне Да (3:36)
+6. Глюкоза - Кошка (Remix) (3:10)
+7. Дима Билан - Задыхаюсь (Dj Gold Sky & Dj Shirshnev Radio Remix) (3:01)
+8. Dj Иван Scratchin' - З.Г. (Radio Mix) (3:03)
+9. Дарья Данилова & Tadj - Лети (3:27)
+10. Dj Aristocrat - Необычная Любовь (3:39)2012Жанр: Pop,ClubПродолжительность: 06:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1DA2C088C5129000138ACD368422F8B438839A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493806   (248820) от 08.05.2012
+
+VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_248820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leyla - Fallen Angels
+02. Nicki Minaj feat. Nas, Drake & Young Jeezy - Champion
+03. Paul Van Dyk feat. Sarah Howells - Heart Stops Beating
+04. Lucian Colareza - Last Night In Puerto Rico
+05. Timbaland feat. Dev - Break Ya Back (Album Version)
+06. Don Omar - Zumba
+07. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California (DJ Favorite Radio Edit)
+08. Стас Михайлов - Где То Там
+09. Бьянка - Весна-Лето
+10. Syko & Don Omar and Pina Carmirelli - Asi Es Que Es(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:02:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493187   (248716) от 08.05.2012
+
+VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Gurov - Стань Для Меня (Aplex Remix)
+02. Dazzle Dreams - Що За Сила Мене Тягне
+03. Anton Pavlovsky feat. Basilio Baio - Крылатые Качели
+04. Земфира - Дождь
+05. НеАнгелы - Твоя (DJ Jedy Club Remix)
+06. Денис Майданов - Колька
+07. Юлия Морозова - Миллионы
+08. Dino MC 47 - Среда Обитания
+09. Алсу - Доченьки Мои
+10. Дрей Сонгз - Nothing2012Жанр: PopПродолжительность: 03:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493539   (248711) от 08.05.2012
 
 VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
@@ -300,534 +817,6 @@ VA - Seashore Desire #26 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C06AFEE905140CD8E92B68B22762222DA1E88DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492104   (247866) от 05.05.2012
-
-VA - Клубный Танцпол Лето Vol.1 (2012) [MP3|320 кб/с]<Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2345 & 5Ivesta Family - Я Буду (DJ Fisun remix one) (2:38)
-2. Adele - Rolling In The Deep (Maison & Dragen Bootleg) (7:06)
-3. Andrea Tarsia - Im The One (DJ Brizi & Delexy Remix)2012Жанр: Club, PopПродолжительность: 04:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AC36B3F9C54D8B31B0D296D4C259570EA9CD4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491923   (247843) от 05.05.2012
-
-VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel & Dresden feat. Molly - Tracking Treasure Down (original mix)
-02. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
-03. Veerus, Maxie Devine - Funky Beats (Original Mix)
-04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
-05. Dave Nadz & Leblanc - Haamiah (Original Mix)
-06. Sheef Lentzki - Lucifer (Teho Remix)
-07. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
-08. Dj Soundlife - Cloudburst (Extended Mix)
-09. HouseEssence - That Before (Original Mix)
-10. South Ground - Let's Rock (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC0250107A961789D95C12D0054CA5E21F343E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492252   (247839) от 05.05.2012
-
-VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisko Electrofantik - No Thanx (Original Fanatik Mix)
-02. Orbion - Aurora (Sensetive5 Remix)
-03. Stan Kolev, Juan Mejia - To The Clouds (Beat Factory Remix)
-04. Eitan Carmi - New West (Cristian Poow Remix)
-05. S.K.A.M. - Outside The Box (Original Mix)
-06. Lauhaus, Kabale Und Liebe - Hiphouse (Original Mix)
-07. Sidney Samson - Get Low (Original Mix)
-08. Freza - La Luna (Original Mix)
-09. Mode B - Phantom (Original Mix)
-10. Steven Quarre & Morris Mavado ft. Orlando Vaughan - Starlight (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4EE967BDE4DC9874F5464A1F0715B9DB691E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491611   (246409) от 03.05.2012
-
-VA - Убойная Авто Дискотека DFM 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene De La Mone & Slin Project - 2012 (Get Your Hands Up) (Christopher S Remix Edit)
-02. DJ Vengerov feat. Инфинити - Ты Мой Герой (Radio Remix)
-03. Bob Sinclar feat. Sophie Ellis Bextor - Fuck With You (Original Mix)
-04. Пальчики Оближешь - Интрига
-05. Cascada - Night Nurse (DJs From Mars Radio Edit)
-06. Митя Фомин & Кристина Орса - Не Манекен (DJ Zhukovsky & DJ Lykov Vocal Mix)
-07. Alyssa Reid feat. Jump Smokers - Alone Again (Voodoo And Serano Radio Edit)
-08. Мохито & NT Lex - Слезы Солнца
-09. Rokko Tronic And DelaForce - Super Jam (Radio Cut)
-10. DJ Sergey Fisun - History 2012(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5241F3C0809E71CFCCA75C76313B7E8921687354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491360   (246386) от 03.05.2012
-
-VA - Песня мамочке любимой (2012) [MP3|320 кб/с]<Pop,Шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246386.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Александр Малинин - Письмо к матери (4:47)
-2. Л.Николаева - Говорила мама мне (3:42)
-3. Жасмин - Мамино сердце (4:24)
-4. Жасмин - Помолись, мама, Господу (5:02)
-5. Игорь Саруханов - Мама (4:18)
-6. Михаил Шуфутинский - Руки матери (3:51)
-7. Ассоль - Моя мама (5:11)
-8. Демидыч - Мамина сирень (4:02)
-9. Александр Кальянов - Может что-то мама я забыл (4:15)
-10. Марина Капуро и группа 'Яблоко - Маменька (4:45)2012Жанр: Pop,ШансонПродолжительность: 09:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706A35209D78E42C31BA94AA99C873762D31D61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491373   (246345) от 03.05.2012
-
-VA - Top Club Hits Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Nab - Move your body
-02. Manel Diaz - Minimal Boys Like Big Boobs (Original Mix)
-03. Alex D'elia, Nihil Young – Sudden Evil (AnGy KoRe Remix)
-04. Remady & Manu-L feat. Stress - Est-Ce Que Vous Etes Chaud
-05. Jeter Avio ft. Vera fisher - I Will Stay (Vadim Koks Remix)
-06. Chris Van Dutch feat. Inverno - Hangover 2k12 (Radio Edit)
-07. Speed Limits - Bris (Original Mix)
-08. Format B - Socks And Sandals (Incognet Remix)
-09. Delyno feat. Brock London & Nitro Da Kid - Busy Loving You (Extended Mix)
-10. Mescis - Lately (Proper Heat Remix)2012Жанр: Dance, ClubПродолжительность: 05:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A768008898ECF1843FE223EFBBCB8A9F48DC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491339   (246317) от 03.05.2012
-
-VA - Зарубежные Новинки Интернета (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabry Ponte feat. Pitbull, Sophia Del Carmen - Beat On My Drum (Eu Radio Edit)
-02. Ne-Yo - Burning Up
-03. Deepcentral - So Divine (Radio Edit)
-04. Riz feat. Drake - Waiting Up
-05. Jai Alexander & Sarah & Deonta' G - Summer Temptation (Radio Edit)
-06. Kelis - Kids
-07. Keri Hilson - Freedom Ride
-08. Stilettos - I Nat Er Der Kun Musik (Radio Edit)
-09. Jerome Price - Letting Go (Radio Edit)
-10. Julia - To The Stars2012Жанр: PopПродолжительность: 06:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DE2C3D2B63D0FAB82217D3BBFCA2FB6438F276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833059   (246156) от 31.10.2025
-
-VA - Music News For Forum vol.143 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246156.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Madonna - Human Nature (Howie Tee New Edit) (03:20)
- 002. 3ntry & DXNKXR - My Heart (02:04)
- 003. 5 Seconds of Summer - Telephone Busy (03:16)
- 004. ADA - Butterfly (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC68DB90D0EFD7B20E72B304396180E3F7D56999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620171   (245945) от 19.03.2023
-
-VA - Like The Old Day (2023) [MP3|320 Kbps] <Disco, Electronic, Synthwave>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pino Presti - I Call Your Name
-002. Frank Hatchett - Dance Crazy
-003. Neon Vectors - Hold You
-004. Ira Atari & Rapide - Sorry Man(   Читать дальше...   )Жанр: Disco, Electronic, SynthwaveПродолжительность: 11:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37FB4076AB71C19831057637FB92EF846820593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620028   (245851) от 19.03.2023
-
-VA - В машине с музыкой Vol.329 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ляля Размахова  - Доброе Утро, Малыш! (03:54)
-02. Zippo - В Огонь За Тобой (03:34)
-03. Pnau Feat. & Khalid - The Hard Way (03:04)
-04. Aleks Ataman & Finik.Finya  - Ойойой (Ты Говорила) (02:12)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A409C3F55111519CAED4F9ACECC0947B1E4C01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619869   (245684) от 20.03.2023
-
-VA - Bubblegum Dance (2023) [MP3|320 Kbps] <Europop, Trance, Euro House, Vocal, Synth-pop, Euro-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua - Barbie Girl 3:15
-02. Atomic Kitten - The Tide Is High (Radio Mix) 3:28
-03. S Club 7 - Bring It All Back 3:34
-04. Aqua - Doctor Jones 3:22(   Читать дальше...   )Жанр: Europop, Trance, Euro House, Vocal, Synth-pop, Euro-DiscoПродолжительность: 04:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDDC30AE6E7E3A836198AD7D5395C895901DC46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621357   (245306) от 24.03.2023
-
-VA - Music News vol.253 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Grishina - Двигайся Парень (Rdsagitario Deep Mix) (03:48)
- 002. Absofacto feat. Niteshift - Unquit You (03:15)
- 003. ADA - Слёзы От Версаче (02:30)
- 004. Aize feat. Danna Max - Just One Last Dance (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B0B0F41D1A52CCE5FC2283357007BFF685B12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450984   (244872) от 28.02.2021
-
-VA - Esperandote: New Latin Music (2021) [MP3|320 Kbps] <Latin, Pop, Reggaeton>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искромётная и зажигательная танцевальная латино музыка в треках сборника "Esperandote". Такая музыка будет отличным музыкальным сопровождением для воскресной вечеринки с друзьями.001. J. Balvin - Morado
-002. Paul Mice - Caipirinha
-003. J Alvarez - Tricks
-004. 3ballmty - Desesperada(   Читать дальше...   )Жанр: Latin, Pop, ReggaetonПродолжительность: 07:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342A7D8773FCE64233EC7470CE0BC9B6858745A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631522   (244481) от 08.05.2023
-
-VA - Музыка для машины Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bukatara  - Скучаю (03:26)
-02. Gariko Feat. & Sharai  - Чудный (03:07)
-03. Dashi Feat. & Бьянка  - Люли (Dj. Prezzplay & Dj. Ser Radio Edit) (03:10)
-04. Tamuki  - Кайфовать (02:59)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537270C1CC12DEC17DB0D4BCEEEEDF8A89F443F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567337   (244183) от 02.08.2022
-
-VA - Кайфуем Лето (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЕГОР ШИП - Наше имя знают все (3:01)
-02. IVAN VALEEV - Bye Bye (2:28)
-03. VAVAN, Galibri & Mavik - Сказочный десант (2:13)
-04. DZHARO - Привет маме (2:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9ADE1BF172B024E9CC87D716C64212B1EE5BF10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072600   (244146) от 13.11.2016
-
-VA - Top Baile Make It Work (2016) [MP3|270-320 Kbps] <R&B, Trap, Hip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244146.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Nick Jonas ft Tove Lo - Close (Max Sanna & Steve Pitron Remix) 5:48
-002.Jonn Hart ft Dozay - Hurt Yo Body (Dirty) 3:29
-003.Mightyfools & Justin Prime - Zero Three Five 3:23
-004.Mightyfools - Ass Clap (Twerk / Dirty) 3:10(   Читать дальше...   )Жанр: R&B, Trap, Hip HopПродолжительность: 04:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749ABECD1BADFD75F8E0792CC59F5ECDE3D8CD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072440   (244127) от 13.11.2016
-
-VA - Dance Project Club Hits (2016) [MP3|169~320 Kbps] <Eurodance, Nu Disco, Commercial, Hands Up, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244127.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Dean Meets Bastian Basic - Music 4 Freedom (Extended Mix) 8:22
-002. Pulsedriver - Able to Love 3:16
-003. Teknova - Mistik (Iulian Florea Remix) 4:08
-004. DJ Kryst-OFF & Breaker - Go Insane (Original Edit) 4:08(   Читать дальше...   )Жанр: Eurodance, Nu Disco, Commercial, Hands Up, Club, DanceПродолжительность: 08:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1919578AEBBC2175AFB81C548493F04E8FB82D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

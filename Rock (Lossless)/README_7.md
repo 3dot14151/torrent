@@ -1,3 +1,119 @@
+###  Публикация: 1620169   (1032327) от 19.03.2023
+
+Steve Augeri - Seven Ways 'Til Sunday (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (5:09)
+02. Never Far From Home (5:26)
+03. Bated Breath (3:23)
+04. Drive (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F55AEFBD76C788D2F8C456C5C666E986701AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620172   (1032317) от 19.03.2023
+
+Gabrielle de Val - Kiss In A Dragon Night (2023) [FLAC|Lossless|image + .cue] <Melodic Rock / AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take on the World (3:38)
+02. When Midnight Comes (with Mark Boals) (4:15)
+03. Moonlight Shadow (3:46)
+04. Kiss in a Dragon Night (with Robin McAuley) (4:12)(   Читать дальше...   )Жанр: Melodic Rock / AORПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7147F94619028F1420A132494B7DBFC610E088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620330   (1032142) от 20.03.2023
+
+The Waking Sleeper Band - Planetarium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planetarium [00:04:55]
+02. Astral Mathematics [00:03:42]
+03. The Earth Is the Center [00:03:43]
+04. Perception [00:04:14](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01518CCBD68350E1A9A4FBA5A39814E434C709B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620346   (1032135) от 20.03.2023
+
+Inner Prospekt - Canvas Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scratches [00:08:03]
+02. The Island of Despair [00:11:47]
+03. A Wordless Fable [00:11:20]
+04. The Showdown [00:20:16](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6893A9F2DC238EA0039AA242C0A8B47650A097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447200   (1032133) от 12.02.2021
 
 3.2 - Third Impression (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -629,122 +745,6 @@ Ramayan - Volume 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF2E5700F66F1893030EEAE0C2E893F6596745A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622172   (1030291) от 28.03.2023
-
-Don & The Dreamers - It's Never Too Late To Be A Rock Star (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let Me Be Misunderstood [00:02:35]
-02. Bony Moronie [00:03:24]
-03. Far Far Away [00:03:36]
-04. Backwater Blues [00:04:09](   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B25F953C62B3039FCE2C0B6E10A1FB32F898FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622619   (1030023) от 29.03.2023
-
-Ville Valo - Neon Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Echolocate Your Love [00:03:24]
-02 - Run Away From the Sun [00:04:12]
-03 - Neon Noir [00:04:56]
-04 - Loveletting [00:04:49](   Читать дальше...   )Жанр: Gothic-RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E85EE798BE841B325818E7625C23F0E149E9C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415633   (1029974) от 21.02.2021
-
-John Lennon - Rock 'N' Roll (1975) Reissue, Remastered, 2014, Universal Music [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Be-Bop-A-Lula (02:37)
-02. Stand By Me (03:31)
-03. Medley: Rip It Up/Ready Teddy (01:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22211E2E389D3A8D6142AB22B40BB901ADD3CAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449560   (1029737) от 22.02.2021
-
-Transatlantic - The Absolute Universe: Forevermore (2021) 2xCD, Extended Version [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029737.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Overture (8:11)
-02. Heart Like A Whirlwind (5:11)
-03. Higher Than The Morning (5:30)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F67B3C972CE8864412AA83BC5CD606A5C1118A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1028764   (682134) от 26.06.2016
+
+VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bliss - Sleep Will Come 05:39
+02.Afterlife- Speck Of Gold 05:31
+03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
+04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290452   (678249) от 20.03.2019
+
+Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightful (4:48)
+ 02. Roses (4:37)
+ 03. Blue Skies in Your Eyes (4:03)
+ 04. Moonshine (4:38)(   Читать дальше...   )Жанр: Electronic, Breaks, Downtempo, ChilloutПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3730C5CF840A2D5152ED706B6D1F8072D4A63F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030058   (675643) от 29.06.2016
 
 Schiller - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Ambient>
@@ -678,64 +736,6 @@ VA - Paris Lounge Night (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34BC9D0E1F247CBD9A3A8AED38540387B05A2FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544936   (618391) от 17.04.2022
-
-VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Move (03:34)
-02. Martin Hiska - Shangla (03:40)
-03. Michael E - Lost In Thought (05:18)
-04. Beamy - Elmwood (04:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC737B4501B86FB899C881FA2560FC4A603702A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911034   (618169) от 22.06.2015
-
-VA - Vargo Lounge - Summer Celebration 3 (2015) [FLAC|Lossless|WEB-DL]<Lounge, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jayeson Andel - A Little Spaced (4:50)
-02. Kirsty Hawkshaw - Beautiful Danger (5:00)
-03. Klangstein feat. Nosie Katzmann - Within You (3:59)
-04. Vargo - Silver Lining (4:39)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4822076F28008E0D6144AF594394EFE707B756
 ```
 
 https://mybot314.ru/tekegram_catalog/

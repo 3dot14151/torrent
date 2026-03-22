@@ -1,3 +1,90 @@
+###  Публикация: 1001647   (852185) от 29.03.2016
+
+Eclipse - The Truth And A Little More (2001) [FLAC|Lossless|tracks] <Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Train    03:15
+02. The Truth    03:53
+03. The Only One    03:50
+04. Message Of Love    05:40(   Читать дальше...   )Жанр: Rock, Melodic Hard RockПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DE54AE5F7A77771F346241039611F866258392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110371   (852088) от 03.03.2017
+
+Gary Moore - Live At The Marquee (1983) Japanese Edition, 1990, Victor [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back On The Streets (5:30)
+02. Run To Your Mama (5:19)
+03. Dancin' (5:38)
+04. She's Got You (7:08)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8797E9F3421EA13E37682D2CA86F5F24CBD0B185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110614   (851900) от 03.03.2017
+
+Danko Jones - Wild Cat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Gotta Rock (3:39)
+02. My Little Rnr (3:44)
+03. Going Out Tonight (3:31)
+04. You Are My Woman (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CC94FD425D55EDB029B0AC5E1FD61F1F6D3A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377667   (851897) от 22.04.2020
 
 Wildside - Formerly Known As Young Gunns (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
@@ -658,95 +745,6 @@ Nelson - Peace Out (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D11E87517331C63C4E4422F64CBF9C1489FCB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114087   (835289) от 13.03.2017
-
-Road To Ruin - Road To Ruin (2007) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда гитарист Ларс Крисс (Lion`s Share) и басист-клавишник Сампо Аксельссон (Glenn Hughes) встретились в 2005-м году, то решили основать команду, играющую классическиий хард-рок в духе Rainbow, Thin Lizzy, Whitesnake, Deep Purple, Led Zeppelin, Black Sabbath и так далее. Когда в 2006-м к ним присоединились барабанщик Томас Броман (Electric Boys, Glenn Hughes, Audiovision, (   Читать дальше...   )01. The Only One (3:53)
-02. Pale Rider (5:12)
-03. Face Of An Angel (4:28)
-04. Pleasure And Pain (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF4887FFC919578D7E19135DE6D9F753EBBF303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501457   (835194) от 10.10.2021
-
-Grinder Blues - El Dos (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа GRINDER BLUES, в состав которой входит легенда Doug Pinnick (KINGS'X), Jabo Bihlman на гитаре и вокале и Scot "Little" Bihlman на ударных, перкуссии и вокале, выпустили вторую работу, получившую название "El Dos", 24 сентября 2021 года на Metalville Records.
-
-«Grinder Blues» - это выброс адреналина в самое сердце. Их оригинальные высоковольтные (   Читать дальше...   )01. Another Way Round (04:54)
-02. Everybody (02:47)
-03. Gotta Get Me Some of That (04:21)
-04. Who Wants a Spankin (03:26)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C78908291214BDC022681BFFC31E6E5B3B08C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113603   (834976) от 13.03.2017
-
-Deep Purple - Limitless (2017) Compilation [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For Bedlam (4:34)
- 02. All I Got Is You (4:41)
- 03. All The Time In The World (Radio Mix Version) (3:49)
- 04. First Sign Of Madness (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5326E3A3062B906487F5B00B9C826243EAB8078
 ```
 
 https://mybot314.ru/tekegram_catalog/

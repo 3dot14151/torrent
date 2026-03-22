@@ -1,3 +1,32 @@
+###  Публикация: 1382669   (817374) от 12.05.2020
+
+Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817374.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yoga Trance 02:51
+2. Sun Salutation 03:06
+3. Awaken Your Energy 03:17
+4. Total Relaxation 03:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196572   (817293) от 06.01.2018
 
 Shinnobu - Libertus (2017) [MP3|320 Kbps] <Neo-Classical, Ambient, New Age>
@@ -708,35 +737,6 @@ Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197875   (811881) от 09.01.2018
-
-Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildwood
-02. Wildwood Priestess
-03. Old Gods & Ancient Stones
-04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

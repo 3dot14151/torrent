@@ -1,3 +1,32 @@
+###  Публикация: 1447543   (1031654) от 14.02.2021
+
+VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Brunetti - Clear Nights (01:56)
+02. Adriano Pupillo - Arpeggio in B Major (02:12)
+03. Alessandro Martire - L'ultimo desiderio (03:05)
+04. Adriano Pupillo - Sostenuto in C Major (01:55)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FC095A18B9D74CDB8ABEA5203A10421FE7D0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447855   (1031331) от 15.02.2021
 
 Go_A - Шум (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
@@ -713,35 +742,6 @@ VA - Romantic Guitar (1995) Compilation, Unofficial Release [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:994238C1081A2478B61B2A605BF55418CB804AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286660   (1030343) от 19.02.2021
-
-Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 When The Rain Begins To Fall       (03:53)
-02 I Just Called To Say I Love You    (03:48)
-03 Self Control			      (03:52)
-04 No More Lonely Nights	      (04:02)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF2489CAE6808876F5910DBCD114B4EADA0C2CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

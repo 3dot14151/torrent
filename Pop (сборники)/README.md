@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1859836   (1061363) от 
+
+VA - The 90s Pop Box (2026) [MP3|320 Kbps] <Pop/Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Lucidity - Queensryche - (05:48)
+ 02. Thunder Kiss '65 - White Zombie - (03:55)
+ 03. Under the Bridge - Red Hot Chili Pepers - (04:26)
+ 04. Wonderwall - Oasis - (04:19)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 06:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020B9CE8FEA59BB83B32460B8E934AD14A581487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858061   (1060202) от 08.03.2026
 
 VA - Russian Hits 2024 (2024) [MP3|320 Kbps] <Pop, hip-hop, electronic>
@@ -717,35 +746,6 @@ Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3B4316D071419B0598D377D3010BAFCDF2B514F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841986   (1048701) от 15.12.2025
-
-VA - Hit music (2025. Зима) (2025) [MP3|320 Kbps] <POP>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048701.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fantomel x A - Traxx, K.Linn, K.Funk - Dame Un Grrr (Dj Baur VIP Edit)
-002. Basic Element - Leave It Behind (Oneon Remix)
-003. Инкогнито - До тебя
-004. Taylor Swift - The Fate of Ophelia (Dj Dark Remix)(   Читать дальше...   )Жанр: POPПродолжительность: 09:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFEB98ADF2A3AB2273706B5ACCE955487146815
 ```
 
 https://mybot314.ru/tekegram_catalog/

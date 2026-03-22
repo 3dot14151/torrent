@@ -1,3 +1,317 @@
+###  Публикация: 1755928   (39963) от 18.10.2024
+
+The Blessed Madonna - Godspeed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Has Left The Room (Intro) [00:00:13]
+02. Somebody's Daughter [00:05:32]
+03. Nowhere Fast [00:04:15]
+04. Henny, Hold Up (feat. Mother Marygold and Ric Wilson) [00:04:17](   Читать дальше...   )Жанр: House, Dance-pop, Disco, TechnoПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B690272983418E003D3DB915E7A4E622CBB78FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755911   (39864) от 19.10.2024
+
+Сергей Скачков - Избранное (2024) Compilation, Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Меня нет дома
+02. Маска гетто
+03. Не буди её(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CFFF06C59F653359D559A2D186875AAF4077F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756468   (39675) от 21.10.2024
+
+Frozen Crown - Studio Albums (5 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frozen Crown — итальянская пауэр-метал-группа, образованная в 2017 году в Милане, Ломбардия.2018 - The Fallen King
+2019 - Crowned In Frost
+2021 - Winterbane
+2023 - Call of the NorthЖанр: Power MetalПродолжительность: 04:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF40EA7C93198F3AC17161FCFE5F5A8DEE0CC5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756454   (39654) от 21.10.2024
+
+Divinefire - Studio Albums (5 releases) (2004-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Divinefire — пауэр-метал-группа, основанная весной 2004 года финским гитаристом Яни Стефановичем и шведским певцом Кристианом Лильегреном.2004 - Glory Thy Name
+2005 - Hero
+2006 - Into a New Dimension
+2008 - FarewellЖанр: Power MetalПродолжительность: 03:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF969602EA3C361FF63C4E0A6CEA48B7B6147AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756680   (39565) от 22.10.2024
+
+Beth Hart - You Still Got Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savior With A Razor (feat. Slash) (4:48)
+02. Suga N My Bowl (feat. Eric Gales) (3:33)
+03. Never Underestimate A Gal (3:07)
+04. Drunk On Valentine (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A9D6F914DA32352BBBE6A4826706E413B43990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756594   (39561) от 22.10.2024
+
+Sunburst - Studio Albums (2 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunburst - пауэр/прогрессив-метал группа из Лариссы, Греция, образованная в 2010 году.2016 - Fragments of Creation
+2024 - ManifestoЖанр: Power/Progressive MetalПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5654B825A67E656CA34616BA72AAFDE318491B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756591   (39551) от 22.10.2024
+
+New Horizon - Studio Albums (2 releases) (2022-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39551.jpg" />
+</div>
+
+
+###  Подробнее
+
+New Horizon - шведская метал-группа, образованная в 2021 году Эриком Грёнваллем и Йоной Ти.2022 - Gate Of The Gods
+2024 - ConquerorsЖанр: Power/Heavy MetalПродолжительность: 01:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C915C75D0FC779CD03F0099B02BC444C228336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756732   (39515) от 23.10.2024
+
+David Gilmour - Fifth Night Of Residency (2024) [FLAC 24/44.1|Lossless|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 5 A.M. (03:13)
+ 02 - Black Cat (02:09)
+ 03 - Luck And Stange (06:37)
+ 04 - Speak To Me ? Breathe (03:36)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C00D3B81A6BC6C47CBA4B50299A974088F67B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756742   (39457) от 23.10.2024
+
+Steelgar - Collection (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steelgar - трэш-метал группа из Испании.2008 - Beware (demo)
+2010 - Xenocide (Full-length)
+Singles 2019-2024Жанр: Thrash MetalПродолжительность: 01:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30109ED85B73AE47526EE157021C49442C30BD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756832   (39454) от 23.10.2024
+
+Philhelmon - Into the Mist of Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Mist of Time (6:27)
+02. Carousel (4:54)
+03. A Piece of the Machine (3:33)
+04. Diamond Eyes (6:19)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51588E695EEAA44C4EABE46AC321ED670113AC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756977   (39430) от 24.10.2024
+
+ABBA - The Singles (The First Fifty Years) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Need Love (2:45)
+02. He Is Your Brother (3:19)
+03. Ring Ring (English Version) (3:06)
+04. Love Isn't Easy (But It Sure Is Hard Enough) (2:56)(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5173D72CC1ACE898B00E5234DC19D19E6C02DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756983   (39411) от 24.10.2024
 
 The Holitter - The Start (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
@@ -427,326 +741,6 @@ Piet Verbist - Flamenco Jazz Summit: El Mar Empieza Aquí (2024) [FLAC 24/48|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C0BB8979B6A9F8E93098293DFF46E80EF95C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757625   (38987) от 28.10.2024
-
-Rossera Brothers Band - Out Of The Blue (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Far Away (4:03)
-02. Carry On (2:50)
-03. Cecilia (3:54)
-04. Down, Down, Down (3:54)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC14B129ED8C38CF668EAA37AD00E0B5E13FE26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757624   (38982) от 28.10.2024
-
-Pornotek - Murmures à l'Oreille (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lust Rebirth (4:54)
-02. Moeagaru Honoo (2:58)
-03. Connessione Intima (2:27)
-04. Gipfel der Liebe (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0787F823FA38BEEE44CFCD93D7099709A1703F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757599   (38974) от 28.10.2024
-
-Omer Leshem - Play Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight Hymn (5:52)
-02. Take an Advil (3:36)
-03. David's Devastating Journey (10:44)
-04. Cape Town Swag (4:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B237948C80647CD90B8A932277E918CD7EBB302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757601   (38972) от 28.10.2024
-
-Orrin Evans - Walk a Mile in My Shoe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dislocation Blues (7:25)
-02. Sunday in New York (4:18)
-03. All That I Am (4:50)
-04. Blues in the Night (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3001BBEEE7F0A4488BF2DDF93DADF7F2A64E45BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757552   (38970) от 28.10.2024
-
-Witchgrinder - Studio Albums (3 releases) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Witchgrinder - метал-группа из Мельбурна, Австралия, основана в 2009 году.2013 - The Demon Calling
-2015 - Haunted
-2024 - Nothing Stays BuriedЖанр: Industrial Thrash/Groove MetalПродолжительность: 02:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C7D58782549F7E12560B20F8A0771D54FDAC89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757604   (38969) от 28.10.2024
-
-Otto Kintet - Wildernis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train of Dots (5:37)
-02. Wan.de.len (7:15)
-03. Fontanel (6:09)
-04. Glinstergloed (4:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562919B31099845022825360B950BE94617C293C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588810   (38960) от 29.10.2024
-
-VA - Metallica Tributes Collection (20 releases) (1994-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove/Death/Doom Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный сборник представляет из себя коллекцию изданий под общим смысловым названием "Tribute to Metallica".
-Песни группы "Metallica" исполнены коллективами различной степени известности из разных стран мира.
-Объединяющий фактор - жанр: Metal разной степени тяжести.1994 - Metal Militia - Tribute To Metallica
-1996 - Metal Militia - Tribute To Metallica II
-1999 - Phantom Lords
-2002 - A Tribute To The Four HorsemenЖанр: Thrash/Groove/Death/Doom Metal, MetalcoreПродолжительность: 22:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806683B9DE4FBA3C7A4B8A2AC9119D2370903A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757912   (38806) от 30.10.2024
-
-Ricardo Andre Souza - Amoroso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caminha Cruzados (2:52)
-02. Amoroso (4:35)
-03. Desafinado (3:56)
-04. Minha Saudade (3:26)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD1B86985063897A22140E3865F4CD6EDD7C03F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757911   (38800) от 30.10.2024
-
-Ragatudi Ensemble - Fanny Vibes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheek To Cheek (3:07)
-02. Over The Rainbow (4:05)
-03. The Man I Love (3:26)
-04. La Dolce Vita (3:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1909456FDAE493C80452A8B1798DDF193BF13ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757914   (38799) от 30.10.2024
-
-The Clarksdale Rats - Shadow Of The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Of The Blues (4:05)
-02. Silver Train (3:47)
-03. Spaghetti Junction (3:27)
-04. Tangerine (3:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D8A73AF48CF86F5E29CC08DC774D62BBAF03C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757913   (38797) от 30.10.2024
-
-The Vision Bleak - Studio Albums (7 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38797.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Vision Bleak — немецкая готик-метал-группа, сформированная в 2000 году участником группы Empyrium Маркусом Штоком (псевдоним — Ulf Theodor Schwadorf) и экс-участником Nox Mortis и Ewigheim Тобиасом Шёнеманном (псевдоним — Allen B. Konstanz).2004 - The Deathship Has A New Captain
-2005 - Carpathia_ A Dramatic Poem
-2007 - The Wolves Go Hunt Their Prey
-2010 - Set Sail To Mystery(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 06:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECC95B18EEA06BB98A3D29DB14020C9E5E45C30
 ```
 
 https://mybot314.ru/tekegram_catalog/

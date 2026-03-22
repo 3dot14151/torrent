@@ -1,3 +1,119 @@
+###  Публикация: 386454   (472706) от 11.09.2011
+
+Holy Force - Holy Force (2011) [MP3|320 kbps]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Force 04:54
+02. Flying 03:45
+03. Breathe 01:24
+04. Seasons 05:05(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E7E147D16B33DD3BFB0CFFBD4E38435A9D341B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939853   (471546) от 23.09.2015
+
+Tyranny - Aeons In Tectonic Interment (2015) [MP3|320 кб/с]<Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sunless Deluge
+2. A Voice Given Unto Ruin
+3. Preparation Of A Vessel
+4. The Stygian Enclave(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568B2ADFF53AC3D12C808A0EFE5B3CB6DCEF9285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406867   (470679) от 05.09.2020
+
+Zakk Sabbath - Vertigo (2020) [MP3|320 Kbps] <Heavy, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath (6:17)
+02. The Wizard (4:22)
+03. Wasp / Behind The Wall Of Sleep / Bassically / N.I.B. (10:35)
+04. Wicked World (5:11)(   Читать дальше...   )Жанр: Heavy, Doom MetalПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997BF00C9A69E5215F6E3BCAEDE2D0AF5361B87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058016   (470613) от 30.09.2016
+
+Epica - The Holographic Principle (2016) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eidola
+02. Edge of the Blade
+03. A Phantasmic Parade
+04. Universal Death Squad(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14459ADEC7B5F1C791A88EEEF66232EC3BAEA31B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940448   (469145) от 24.09.2015
 
 Exilia - Purity (2015) [MP3|320 кб/с]<Nu Metal, Female Vocal>
@@ -629,122 +745,6 @@ The Devil Wears Prada - Transit Blues (2016) [MP3|320 Kbps] <Christian Metalcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CD253495F97E1EDE387E21A2A3C4C62616A7696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060084   (457253) от 06.10.2016
-
-Meshuggah - The Violent Sleep of Reason (2016) [MP3|320 Kbps] <Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clockworks
-02. Born In Dissonance
-03. Monstrocity
-04. By The Ton(   Читать дальше...   )Жанр: Math MetalПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D56EC580D4045D3EC2935FB8C83F257F63B931A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246666   (456939) от 13.09.2018
-
-Rammstein - Verbrannte Erde (Der Arena, Berlin-Treptow - 27.09.1996) Live Bootleg [MP3|320 кб/с]<Industrial Metal, NDH>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456939.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:39] 01. Intro + Rammstein
-[04:22] 02. Herzeleid
-[03:42] 03. Bestrafe Mich
-[04:37] 04. Der Meister(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E193D92CFBB18181FC5509645D17CB4F99640F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408389   (456132) от 12.09.2020
-
-Skyborne Reveries - Utterly Away (2020) [MP3|320 Kbps] <Atmospheric Black Metal, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ikameshiki (06:08)
-02. The Moon Viewers (04:28)
-03. In Windy Moors of Memory (07:19)
-04. Snowy Mor﻿row (07:45)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post-Black MetalПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A837267E4C64E508E7A33A4FA7D3FDD3B49BA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408506   (456125) от 12.09.2020
-
-Dephosphorus - Sublimation (2020) [MP3|320 Kbps] <Dea﻿th Metal, Black M﻿etal, Grin﻿d>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Βορά Των Αιώνων (Devoured By Aeons) (03:!9)
-0﻿2. Ψυχοϊστορία (Psychohistory)(02:15)
-03. Εξύψωση (Sublimation) (03:45)
-04. Προς Το Απόκοσμο (   Читать дальше...   )Жанр: Dea﻿th Metal, Black M﻿etal, Grin﻿dПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC45414CC39CA708E3DBD28EFBE4F2193CE6A61
 ```
 
 https://mybot314.ru/tekegram_catalog/

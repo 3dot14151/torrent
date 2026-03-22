@@ -1,22 +1,22 @@
-###  Публикация: 1509029   (795283) от 11.11.2021
+###  Публикация: 1011433   (796939) от 27.04.2016
 
-Paragon Hard Disk Manager Advanced 17.20.9 RePack by elchupacabra [En]
+Однажды в России (2016.04.24) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 2)
 
->>След.
->>Диагностика и обслуживание hardware
+>>Архив торрентов
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795283.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Paragon Hard Disk Manager - многофункциональное и удобное решение, осуществляющее полный цикл обслуживания жесткого диска. С помощью этой программы вы сможете управлять процессом загрузки, производить разбиение диска на разделы, проделывать операции копирования и восстановления, обеспечивать безопасность системы и данных, выводить диск из эксплуатации. Программа (   Читать дальше...   )Язык интерфейса: Английский
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:48:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D05B6D038731451B965657842BBCE1176233E367
+magnet:?xt=urn:btih:5701D8A8C888400753AB47BE8AE0464BD5CCE8D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386266   (795282) от 28.05.2020
+###  Публикация: 1011505   (796938) от 27.04.2016
 
-Tony Bennett - Steppin' Out (1993) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Avast Clear 11.2.2738.0 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795282.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steppin' Out with My Baby [2:53]
-02. Who Cares? [3:17]
-03. Top Hat, White Tie and Tails [2:39]
-04. They Can't Take That Away from Me [3:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:57
+Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:414754A87F86A4C1727B7F201D14FF0AE0A0F09F
+magnet:?xt=urn:btih:C460B052DA66DE297B4611377501F9AF512DA7CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,54 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386194   (795281) от 28.05.2020
+###  Публикация: 1011403   (796937) от 27.04.2016
 
-Funkstörung (Funkstorung) - Viceversa (2001) Studio !K7 [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plaid - Eyen (Fünkstörung Remiks) (03:48)
- 02. Jay-Jay Johanson - I Want Some Fun (Fünkstörung Remiks) (04:47)
- 03. Nils Petter Molvær - Solid Ether (Fünkstörung Miks) (04:59)
- 04. A Guy Called Gerald - Humanity (Fünkstörung Remiks) (03:53)(   Читать дальше...   )Жанр: Abstract, IDM, ExperimentalПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459932FAF14956B9F00B7584D3376B670BD3418C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386275   (795280) от 28.05.2020
-
-Adguard 2.4.8 (795) Nightly [Multi/Ru]
+SmartAlbums 2.0.12 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795280.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.05.2020Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+Альбомы: теперь легко
+SmartAlbums является революционным программным обеспечением, которое позволит создавать фотоальбомы быстро и весело! Простота установки, экономя время и творчество!
+
+Экспериментируйте с дизайном, перемешайте и размещайте фотографии ... Используйте готовые шаблоны или используйте возможность создать свой собственный. SmartAlbum, создан фотографами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 апреля 2016Разработчик: PIXELLUПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF2E8D1216746A0F5CC5B5826113AEFE5C87E6CE
+magnet:?xt=urn:btih:13CB5C4E1849B6FB7CFB14CB56D0EA1A211DEBC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386270   (795279) от 28.05.2020
+###  Публикация: 1010750   (796936) от 27.04.2016
 
-Split Heaven - The Devil's Bandit (2013) [WavPack|Lossless|image + .cue] <Heavy Metal>
+А.С. Дмитриев и др. | Генерация хаоса (2012) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795279.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Arrival Of The Gunslinger (Intro) (01:35)
-02. Danger Zone (04:11)
-03. False Martyr (04:04)
-04. March Of The Dead (04:44)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:24
+Явление динамического хаоса, открытое в последней трети двадцатого века, широко распространено в природе и искусственных системах. Его необычные свойства буквально перевернули обычные представления о том, что малые возмущения или события могут приводить лишь к незначительным изменениям в будущем. Оказалось, что все может быть с точностью до наоборот ("эффект (   Читать дальше...   )Жанр: ФизикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F684F2217874371BC0A6791E068FE06D137FC5E1
+magnet:?xt=urn:btih:090A5789942A624C970A05F96C68D6EEB59835A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385925   (795277) от 28.05.2020
+###  Публикация: 1011302   (796935) от 27.04.2016
 
-Lapsley / Låpsley / - Through Water (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Классика
+>>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795277.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Through Water (03:01)
-02. My Love Was Like the Rain (04:12)
-03. First (03:20)
-04. Ligne 3 (04:01)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:17
+01. Giordano: Andrea Chenier: La Mamma Morta, Atto III 04:56
+02. Spontini: La Vestale: O Nume Tutelar, Atto II 02:32
+03. Massenet: Manon: Je Ne Suis Que Faiblesse...Adieu, Notre Petite Table, Acte II 03:23
+04. Puccini: Manon Lescaut: Oh, saro la piu bella....Tu, tu amore?, Atto II 08:26(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:13:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D93BCD38BBEC445164D7064131A4B45092790D96
+magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386254   (795276) от 28.05.2020
+###  Публикация: 1508666   (796934) от 09.11.2021
 
-Tony Bennett - Tony Bennett's Greatest Hits of the '60s (2006) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+VA - Airport Lounge, vol. 5 (2014) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795276.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Put on a Happy Face (2:41)
-02. The Best Is Yet to Come (2:37)
-03. Once Upon a Time (2:59)
-04. (I Left My Heart In) San Francisco (2:54)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:08
+01. B & W - Spirits (4:43)
+02. Daniele Soriani, Adriana Salvadori - Silk (D-Soriani Chilly Mix) (6:54)
+03. Ambiworx - Bamboo and Ebony (7:00)
+04. Alpha Centaury - Natale 2012 (1:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7117DB3D0E402B06CC65B31FE448D6AAF3F94F37
+magnet:?xt=urn:btih:C7564482CAD932CDCA23324BC7F7FD021262F550
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,25 +163,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386322   (795275) от 28.05.2020
+###  Публикация: 1508663   (796933) от 09.11.2021
 
-Adguard 2.4.8 (795) Release [Multi/Ru]
+VA - Airport Lounge, vol. 4 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Lemmer - Rainy Day (Percussion Chill Mix) (3:00)
+02. Taron-Trekka - Lo-Fi Autumn (5:34)
+03. The Diventa Project - Say Goodbye (Surya Vox Mix) (3:34)
+04. Axel B. - Tomorrow (2:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A083349EBC3497E97D15798C24905B062721A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508687   (796932) от 09.11.2021
+
+VA - Airport Lounge, vol. 11 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tapelapse - Skyline Coffee (2:20)
+02. Velvet Dreamer, Tim Gelo - Strange Passenger (Original Mix) (5:03)
+03. Jo Paciello - Central Park Lounge (Original Mix) (4:43)
+04. Tapelapse - Benztown Lo-Fi (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED30A144D8DFF4F234B93CF41CDF99B8FD95BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508658   (796931) от 09.11.2021
+
+VA - Airport Lounge, vol. 2 (2014) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axel B. - Piano Theme (3:47)
+02. Twentyeight - Hope (8:44)
+03. Thomas Lemmer, Lena Belgart - Is It Too Late (Classic Piano Mix) (3:41)
+04. Ambiworx - Gushanzhen (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870D6B9987DF7DBC1E2047AB783A3E4E20D371DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508674   (796930) от 09.11.2021
+
+VA - Airport Lounge, vol. 8 (2016) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Fading Into Oblivion (5:59)
+02. Weathertunes - The Snake (4:13)
+03. Mindel - Butterfly (2:22)
+04. Omaya - Whisper (3:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0FB0509D9180F916F965BD49BCEEB9140661B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508648   (796929) от 09.11.2021
+
+Cookie 6.6.2 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795275.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.05.2020Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2021Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC453ABC7046AE4C650A68AAE825AF43EE406933
+magnet:?xt=urn:btih:27AFDF92A52BB3C84A3890FAC6C2D2B6E1FCDD19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,141 +306,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386299   (795274) от 28.05.2020
+###  Публикация: 1508636   (796928) от 09.11.2021
 
-Детский хор Yip's Canada (The Shanghai Restoration Project) - Little Dragon Tales (Chinese Children's Song) (2011) [MP3|192 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Making Friends (找朋友 - Zhǎo péngyǒu)
-02. Where is Spring? (春天在哪里 - Chūntiān zài nǎlǐ?)
-03. Clay Doll (泥娃娃 - Ní wáwá)
-04. Two Tigers (两只老虎 - Liǎng zhī lǎohǔ)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1993282A95E1E251D33E17EFA38AAA0618B2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385817   (795273) от 28.05.2020
-
-VA - Dance Club 2020.02 (2020) Explicit [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ily (i love you baby) (feat. Emilee) - Surf Mesa
-02. Stupid Love - Lady Gaga
-03. Physical - Dua Lipa
-04. In Your Eyes (feat. Alida) - Robin Schulz(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C462ACF8CF1B7DAA8EEA51BEA519E2D6986A82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386233   (795272) от 28.05.2020
-
-Elite - Premiere (1980) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys On Hollywood Blvd (8:00)
-02. Poppers (7:54)
-03. Reach For Me (Can't You See Lovin' Me) (8:42)
-04. Papa Was A Rolling Stone (10:22)Жанр: Electronic, DiscoПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5163A4D3AD417BF3EE9219EE1BA19995949315BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386239   (795271) от 28.05.2020
-
-VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hardcore>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Iyf - Yade
-002. Francesco Zeta - Different Side
-003. Radical Redemption - Born Killers
-004. Vandal!Sm - Drums Of War(   Читать дальше...   )Жанр: Hard Dance, HardcoreПродолжительность: 08:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386304   (795270) от 28.05.2020
-
-EJ Technologies JProfiler 11.1.3 [En]
+Caato Time Tracker Pro 1.1.9 [En]
 
 >>Программы для macOS
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795270.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-JProfiler - это мощный инструмент, который можно использовать для динамического профилирования приложений на основе Java и позволяет анализировать их. Интуитивно понятный пользовательский интерфейс JProfiler поможет вам устранить уязвимости в производительности, выявить утечки памяти и понять проблемы с многопоточностью.Тип издания: macOS SoftwareРелиз состоялся: 26.05.2020Разработчик: EJ TechnologiesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+Caato Time Tracker использует трехуровневую иерархию проектов, задач и подробных записей времени. Вы можете добавлять, удалять или редактировать записи на каждом уровне для максимальной гибкости. CSV-Export позволяет легко создавать отчеты с помощью вашего любимого приложения для работы с электронными таблицами.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 CS Software Consultancy LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47965CBD45E0DE0D4EFF55FF5462FB5DAA68104
+magnet:?xt=urn:btih:0CD3685A223F3C7EAA5EB61F7F0B14098C8E9D80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,27 +332,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386169   (795268) от 28.05.2020
+###  Публикация: 1508627   (796927) от 09.11.2021
 
-Giorgio Farina - Discocross (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+Wraith - Riot (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Metal>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795268.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Farina's Suite (14:55)
-02. Tawawa's (5:49)
-03. Suite Slide Return (10:02)Жанр: Electronic, DiscoПродолжительность: 00:30:46
+01. Russian Roulette
+02. Riot
+03. Cursed
+04. You've Got It Comin'(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:53:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED776CC019D42D09B7DE7224AFA7F9B979BACF36
+magnet:?xt=urn:btih:C770E8B177E0A79FE002319F003E5DCFC5A981FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,25 +361,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386253   (795266) от 28.05.2020
+###  Публикация: 1508693   (796926) от 09.11.2021
 
-Numi 3.28 [Multi/Ru]
+Tap Forms Organizer 5 v5.3.21 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795266.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Numi - необычный калькулятор, который "общается" с вами на обычном языке - понимает единицы измерения, слова и имеет очень простой интерфейс. Numi может работать с валютами и различными единицами измерения. Чтобы конвертировать одну валюту в другую, нужно ввести сумму строку перевода в нужную валюту, например, $9 в евро — ответ показывается справа автоматически. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.05.2020Разработчик: Dmitry NikolaevПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+Tap Forms Organizer простое в использовании, абсолютно настраиваемое и очень мощное приложение. Tap Forms Organizer поможет вам отслеживать всю наиболее важную информацию вашей жизни. Tap Forms Organizer - настраиваемое приложение базы данных, оно разработано, чтобы удовлетворить Ваши уникальные потребности на работе, дома или в движении.
+Используйте Tap Forms Organizer (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2021Разработчик: Tap Zapp Software Inc.Поддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Русский, Английский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4C84B1A0B7CABD93D1DCF93F376F468102A1236
+magnet:?xt=urn:btih:7805C80F29BCFA19D09667B3F86F3967E9AD4FB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,28 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386268   (795265) от 28.05.2020
+###  Публикация: 1508672   (796925) от 09.11.2021
 
-Grave Digger - Fields of Blood (2020) [MP3|320 Kbps] <Heavy Metal>
+VA - Airport Lounge, vol. 7 (2016) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795265.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Clansman's Journey
-02. All for the Kingdom
-03. Lions of the Sea
-04. Freedom(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:47
+01. Openzone Bar - Lifestyle (Original Mix) (5:32)
+02. Lemongrass - Le Coup (Original Mix) (4:39)
+03. Counterweight - Laws Of Attraction (Original Mix) (4:41)
+04. Mara J Boston - Come Into My Life (Original Mix) (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDA0C9E9F34AA6800248F5AAD53E5733C2529F02
+magnet:?xt=urn:btih:A7D2A814D3560553A87CDD7EB7F622C319164CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,28 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386147   (795264) от 28.05.2020
+###  Публикация: 1508679   (796924) от 09.11.2021
 
-VA - Latin Music Summer Party (2020) [MP3|320 Kbps] <Latin, Pop, Dance>
+VA - Airport Lounge, vol. 5 (2019) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Pop
->>Зарубежная поп-музыка
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795264.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luis Fonsi, Daddy Yankee, Justin Bieber - Despacito (Remix) 03:51
-02. Luis Fonsi, Stefflon Don - Calypso 03:22
-03. Sebastian Yatra, Mau y Ricky - Ya No Tiene Novio 03:21
-04. Luis Fonsi, Ozuna - Imposible 02:41(   Читать дальше...   )Жанр: Latin, Pop, DanceПродолжительность: 01:55:22
+01. Rex Kramer - Feeling Great (5:03)
+02. Dub Mars - You Give Me the Honor (4:19)
+03. Jens Buchert - Sleepwalker (5:02)
+04. Relaxea - Sunshine Delight (7:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BFA7B153EA4E343CF6F6E1B2CB1F4DCF6992B62
+magnet:?xt=urn:btih:D56028CC3010F8C253964B5AD8044AAB7F49DAAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,132 +446,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011962   (795262) от 29.04.2016
+###  Публикация: 1508751   (796923) от 09.11.2021
 
-Николай Курдюмов | Мой огород. Максимальный урожай легко и просто (2016) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сделать, чтобы огород давал прекрасный урожай на протяжении многих лет, земля не теряла плодородности, а грядки не только радовали видом спелых овощей, но и стали украшением участка, расскажет в этой книге Николай Курдюмов.Но самое главное – он откроет секрет, как организовать огород так, чтобы вся работа по уходу за ним сводилась к посеву и сбору урожая.
- Главное, (   Читать дальше...   )Жанр: Сад, огородФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93BF02AD41AF2686089362313D7FD12C0F15BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011863   (795261) от 29.04.2016
-
-Николай Курдюмов | Огород на маленьком участке (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство наших дачников имеют не более 6 соток. Но и такие маленькие участки могут стать источником прекрасных урожаев, если все на них организовать с учетом законов природного земледелия. Тут все важно: виды грядок, оптимальное соотношение имеющихся растений и потребностей семьи, безопасные для здоровья методы защиты от вредителей и болезней. Об этом и многом (   Читать дальше...   )Жанр: Сад, огородФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1BBF369F6BA6C79A718F8326022A652C2F1AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011968   (795260) от 29.04.2016
-
-Николай Курдюмов | Виноград и другие ягоды вашего сада (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство из нас не представляют свой сад без ягод. И действительно, как прожить без малины, смороды, крыжовника, клубники, ежевики? Они ведь могут многие годы радовать нас урожаем, почти не требуя особого ухода. Что касается винограда, то на юге, конечно, без него никуда, а вот дачники северных регионов далеко не все решаются выращивать его у себя на участке. (   Читать дальше...   )Жанр: Сад, огородФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F298D46527A7EFD70B3E40239058DD9169BC5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012034   (795259) от 29.04.2016
-
-Михаил Северный | Бета-тестер (2016) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грязная общага. Постоянные прогулы в университете. Никаких перспектив. Но скоро жизнь студента кардинально изменится. Просто он об этом не знает.
-
-«А все так хорошо начиналось. Интересная работа с возможностью роста, новые знакомые с тугими кошелками. В перспективе - отличная зарплата, куча любовниц, жена-модель, куча детей, машина, квартира в центре Киева, отдых (   Читать дальше...   )Жанр: Фэнтези, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B3E7E9CA1C5F252BB0B3C4ED6C819CE4D2B238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011970   (795258) от 29.04.2016
-
-Knots 3D (Узлы 3D) 4.4.1 [Multi]
+MovieSherlock 6.3.3 [En]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795258.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Завязывайте, развязывайте и вращайте пальцем более 101 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь! Лучший справочник по завязыванию узлов в 75 странах.Релиз состоялся: 23 апреля 2016 г.Разработчик: Nynix LLCПоддерживаемая ОС: 2.3.3 или более поздняяЯзык интерфейса: Русский, Английский, и другие
+MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
+MovieSherlock - это лучший способ получить видео на ваш Mac.
+MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: © 2021 Capibara Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4847C4C9226F0FAAE1BF7D2EF569D039CF6AF377
+magnet:?xt=urn:btih:B216AFA32F2DAB7D4CA898B4626D325C5D7B9273
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,25 +474,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011880   (795257) от 29.04.2016
+###  Публикация: 1508632   (796922) от 09.11.2021
 
-М.А. Поляков | Метапредметные результаты. 5 класс. 4 варианта. [2] (2013) [PDF]
+System Toolkit 4.2.0 [Multi]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795257.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Варианты комплексной работы включают разнообразные тексты, относящиеся к четырем содержательным областям (математике, русскому языку, естествознанию, истории/обществознанию). К текстам приведены задания, направленные на оценку умений читать и понимать тексты; работать с информацией, представленной в различной форме; использовать полученную информацию для решения (   Читать дальше...   )Жанр: Учебное изданиеФормат: PDF
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:913388F45D3FC18EF292915E43F9FCB7B60A850C
+magnet:?xt=urn:btih:15F81BB17C74C0C78B9EB51BA3BB0913A28FFEF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +500,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011960   (795256) от 29.04.2016
+###  Публикация: 1508745   (796921) от 09.11.2021
 
-Николай Курдюмов | Моя урожайная теплица (2016) [FB2]
+A Better Finder Attributes 7 v7.17 fix [En]
 
->>Разное (категория книг)
->>Сад, огород, животноводство
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795256.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге автор подробно расскажет, зачем нужна теплица и какие материалы наилучшим образом позволят реализовать все ее достоинства. Теплица дает нам четыре главных условия: оптимальную атмосферу, оптимальную освещенность, оптимум температуры и теплый грунт. Если этого нет – теплица не работает, и строить ее не стоит. Но что значит «оптимальные»? Оказывается, (   Читать дальше...   )Жанр: Сад, огородФормат: FB2
+A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2021Разработчик: © 2021 PublicspaceПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D4D4E520DA77D0713E41293878ABD473F93965B
+magnet:?xt=urn:btih:AD50F3A5CE62C9E8B8F0D2E81DDC7CA93019CFE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +526,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012146   (795255) от 29.04.2016
+###  Публикация: 1508720   (796920) от 09.11.2021
 
-Дарья Донцова | Правдивые сказки про собак [сборник] (2016) [FB2]
+Stats 2.6.18 [Multi/Ru]
 
->>Художественная литература
->>Современная поэзия и проза
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795255.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга, которую вы держите в руках, – идеальна для семейного чтения! Ведь так прекрасно, когда и взрослые и дети могут вместе сопереживать историям порой непростых взаимоотношений людей и собак! На страницах проникновенных и светлых рассказов смешана целая палитра чувств, эмоций и поступков: безграничные верность и преданность, ревность и предательство, а в конце (   Читать дальше...   )Жанр: Современная прозаФормат: FB2
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ADE421FA4E96B8DF5F29043D372EDBFF96B7116
+magnet:?xt=urn:btih:91CA9243DEF5536F092EC37894C83071EF04DEDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,25 +552,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011867   (795254) от 29.04.2016
+###  Публикация: 1508590   (796919) от 09.11.2021
 
-Николай Курдюмов | 300 советов по саду и огороду для продвинутых дачников (2016) [FB2]
+VA - 50 Melodic Tunes of Winter 2021 (2021) [AAC|~309 Kbps] <House, Techno>
 
->>Разное (категория книг)
->>Сад, огород, животноводство
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795254.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге вы найдете советы от Николая Курдюмова по всем актуальным темам, касающимся сада и огорода. Вы узнаете, как сохранять влагу в земле, о новых материалах и о проверенных автором и другими дачниками способах борьбы с вредителями, научитесь ставить дереву диагноз, узнаете, когда лучше сделать обрезку и даже как реанимировать умирающую любимую яблоньку.Жанр: Сад, огородФормат: FB2
+01. Tempodata - Android (4:16)
+02. Taylor Switch - Contain (4:18)
+03. Tarcim Sakman - Besides (4:16)
+04. Talkbacker - Retro (4:14)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 03:31:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:834BA2519530D10338D7074BC6D6C961AB02B621
+magnet:?xt=urn:btih:DEF23527B5AC18D14E913EE8099E176F9BA90401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508626   (796918) от 09.11.2021
+
+Nova 8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
+Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2021Разработчик: © 2021 Panic, IncПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECFDD49965993BBF319FA4E7D68D9F2AE66692E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508574   (796917) от 09.11.2021
+
+Invertigo - Veritas (2012) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darkness (08:29)
+2. Lullaby (6:01)
+3. Waves (7:51)
+4. Dr. Ho (7:34)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1A9F1D7E34DE6F9AB7D8C853B1898F5E5A0A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508650   (796916) от 09.11.2021
+
+VA - Airport Lounge, vol. 1 (2010) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pearldiver - Far Away (4:49)
+02. Jens Buchert - The Arrival (4:58)
+03. Newton - Raindrops & Teardrops (4:53)
+04. Pearldiver - Daydream (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250C2C96276A9B94CC4A4EC847EA6DE47A372450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508625   (796915) от 09.11.2021
+
+ExactScan Pro 21.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796915.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A584BF9998BA8D0599791B4424C9B127111E705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200102   (796914) от 19.01.2018
+
+XnViewMP 0.89 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796914.jpg" />
+</div>
+
+
+###  Подробнее
+
+XnViewMP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnViewMP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - до (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AE9699FC8F237D287B2C18D7705CE3A84D80F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

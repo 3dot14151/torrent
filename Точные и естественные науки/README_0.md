@@ -1,3 +1,188 @@
+###  Публикация: 1850614   (1054484) от 29.01.2026
+
+Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Elements (Mini Encyclopedias) (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054484.jpg" />
+</div>
+
+
+###  Подробнее
+
+The periodic table provides the most convenient way of organising chemical elements by specific icons, and is widely used in chemistry and physics as a quick and easy resource for scientists and students. It provides an easy visual reference of the periodic law, which says that when elements are arranged in order of their atomic numbers, an approximate recurrence (   Читать дальше...   )Жанр: Children's Chemistry Books, General Chemistry, History & Philosophy of ScienceЯзык: АнглийскийИздательство: Amber BooksФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59491A37A3F63C6A9E429221CF9B21BB9C785D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850617   (1054483) от 29.01.2026
+
+Erico Azevedo, Jose Pissolato Filho | Information Fields Theory and Applications: Quantum Communication in Physics and Biology (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054483.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book investigates various aspects of information fields, not only theoretical, but with an additional emphasis on its applications. This book aims to provide a universal framework for understanding tempo-spatial information storage and communication in both quantum physical and biological regimes. This book is divided into two main parts: Part 1: this section (   Читать дальше...   )Жанр: ФизикаЯзык: АнглийскийИздательство: Springer-Verlag GmbHФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3884584BA317B9FC01D8B08BAD57C4DEB6724B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850622   (1054482) от 29.01.2026
+
+Michael Seeds, Dana Backman, Eric Wegryn | Foundations of Astronomy. 15th Edition. 13th Edition [2 книги] (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seeds/Backman/Wegryn’s “Foundations of Astronomy,” 15th Edition, is known for its up-to-date content, clear explanations and student-friendly approach, helping you answer two key questions: "What are we?" and "How do we know?" The first question asks how we fit into the universe's history, tracing atoms in your body back to the Big Bang and stars. (   Читать дальше...   )Жанр: Astronomy & AstrophysicsЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7518781D1BCE97B94C0A1EC6E15326E359BE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850107   (1054292) от 26.01.2026
+
+Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054292.jpg" />
+</div>
+
+
+###  Подробнее
+
+This unique book gives a manageable introduction to functional analysis and a thorough treatment of real analysis. Authored as a graduate textbook in analysis, the book could be used for a course in real analysis based on the Lebesgue theory of integration and/or a course on functional analysis.
+The author uses basic topological ideas to unify the presentation of (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Chapman and Hall/CRCФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC194F9416873602DDA2B9F1720E6F7AB7303F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850265   (1054144) от 27.01.2026
+
+Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850268   (1054143) от 27.01.2026
+
+Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054143.jpg" />
+</div>
+
+
+###  Подробнее
+
+The aim of this book is to provide a comprehensive introduction to solving large systems of equations.
+
+In addition to direct algorithms, it presents a wide range of classical and modern solvers – from splitting methods and multigrid techniques to current Krylov subspace methods (CG, GMRES, BiCGSTAB, etc.). These methods are discussed both mathematically and in terms (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BAE95C5FF96D54AB419C91DC5E104D5ACABDB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849405   (1053771) от 23.01.2026
+
+В.Ф. Чудесенко | Сборник заданий по специальным курсам высшей математики (1983) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие написано в соответствии с действующей программой по курсу высшей математики. Оно содержит типовые расчеты по теории функций комплексного переменного, операционному исчислению, уравнениям математической физики, теории вероятностей и математической статистике. Задачи представлены 31 вариантом. Типовые расчеты содержат также теоретические вопросы, упражнения (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7C44ED310EB4D806EA89D6AD14692AF3BB84E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849303   (1053551) от 22.01.2026
 
 Дж. Ортега | Введение в параллельные и векторные методы решения линейных систем (1991) [DJVU]
@@ -488,194 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90DD686231CD3EA52A02E3BFAE118A2B89A8C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842397   (1048704) от 15.12.2025
-
-Р. Шмид, В.Н. Сапунов | Неформальная кинетика (1985) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга из зарубежной серии "Монографии по современной химии", написанная австрийским ученым Р. Шмидом и советским ученым В. Н. Сапуновым. В ней рассматриваются кинетические методы установления механизмов гомогенных и гомогенно-каталитических реакций. Обсуждается также связь механизма реакции с экспериментальными данными по влиянию температуры, растворителя, (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F5E5038C7B8CDC28D120F3058B3F288E5D2E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842335   (1048609) от 15.12.2025
-
-С.Л. Киперман | Основы химической кинетики в гетерогенном катализе (1979) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048609.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии изложены на современном уровне основные положения химической кинетики применительно к гетерогенному катализу. Кратко рассмотрены роль химической кинетики и исторические этапы ее развития в катализе, проанализированы кинетические стороны некоторых теорий и изложены фундаментальные понятия кинетики. Подробно обсуждены теория абсолютных скоростей реакций, (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858276154D2412B49C71D3714F27BFD618D79510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842324   (1048608) от 15.12.2025
-
-Л.С. Полак | Неравновесная химическая кинетика и ее применение (1979) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048608.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены основные положения неравновесной химической кинетики. Рассмотрены физико-химические принципы и методы математического моделирования химических процессов как в неравновесных системах, так и в системах, в которых неравновесность создается самой химической реакцией. Описаны различные области применения неравновесной химической кинетики.
-
-Книга представляет (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92713E846C06F07EB8BAB6E7484039D5AB0BABB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840738   (1047477) от 06.12.2025
-
-Е.Т. Денисов, О.М. Саркисов, Г.И. Лихтенштейн | Химическая кинетика (2000) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047477.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике изложены основные теоретические концепции и обширный экспериментальный материал по основным разделам современной химической кинетики. Большое внимание уделено механизмам разнообразных химических реакций, элементарным реакциям и реакционной способности реагентов, специфике протекания реакций в газовой и жидкой фазах, гомогенному катализу. Описаны современные (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88C34E353C364B4C69A75F5A9FC6063A9123451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840743   (1047474) от 06.12.2025
-
-В.И. Коробов, В.Ф. Очков | Химическая кинетика: введение с Mathcad, Maple, MCS (2009) [PDF, DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основные вопросы формальной кинетики как одного из разделов учения о скоростях химических реакций. В отличие от традиционного подхода материал рассматривается с позиций реализации расчетов с помощью современных систем компьютерной математики Mathcad, Maple.
-Приведены способы компьютерного решения прямых и обратных кинетических задач. Рассмотрены вопросы (   Читать дальше...   )Жанр: ХимияИздательство: Горячая линия-ТелекомФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5008F6FEF405402043566855FFAA41FDD13913C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840391   (1047266) от 05.12.2025
-
-J.A. Stratton | Electromagnetic Theory (1941) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – классика электромагнетизма. Впервые опубликованная в 1941 году, она с тех пор используется многими поколениями студентов, преподавателей и исследователей. Поскольку это классика электромагнетизма, каждая глава до сих пор цитируется.
-
-J.A. Stratton | Electromagnetic Theory (2007)Жанр: ФизикаЯзык: АнглийскийИздательство: McGraw HillФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835EB4A85A65E7F66761DD9479440ACDF626D5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840392   (1047265) от 05.12.2025
-
-J.A. Stratton | Electromagnetic Theory (2007) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – классика электромагнетизма. Впервые опубликованная в 1941 году, она с тех пор используется многими поколениями студентов, преподавателей и исследователей. Поскольку это классика электромагнетизма, каждая глава до сих пор цитируется.
-Это классическое переиздание содержит полное оригинальное издание, впервые опубликованное в 1941 году. Кроме того, в книгу (   Читать дальше...   )Жанр: ФизикаЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AF52ADFD74D60F08DF57C988472B249E8E85C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

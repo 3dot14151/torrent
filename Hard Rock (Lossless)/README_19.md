@@ -1,3 +1,90 @@
+###  Публикация: 1104069   (881900) от 14.02.2017
+
+Velocity - Impact (1997) [APE|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Don't Amaze Me Anymore (5:14)
+02. Riot Goin' On (3:29)
+03. Supernatural Lover (4:57)
+04. Julia Ann (4:13)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0652F92161B5687A36BA78D79213356C3F7973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104075   (881869) от 14.02.2017
+
+Stephen Pearcy - Smash (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know I'm Crazy (5:12)
+02. Ten Miles Wide (3:33)
+03. Shut Down Baby (3:29)
+04. Dead Rose's (3:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C9FB3028DDDBAF524E55AD5585C5B47290560A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495454   (880818) от 12.09.2021
+
+Blacksmith - Once Upon A Star (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon A Star
+02. Dragons Fire
+03. Hall Of The Mountain King
+04. Come On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2133ABFEDCBF7F950CD14D606CCF17675313BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996296   (879282) от 14.03.2016
 
 Girlschool - The Collection (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -658,93 +745,6 @@ Duckwalk Chuck - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15FC93D596D938B9AF6D27E7535732DA96CE769E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497012   (868260) от 20.09.2021
-
-Takeaway Thieves - 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 13 Feathers 04:13
-02. Snakes And Daggers 04:20
-03. Soothe Me 03:05
-04. Big Mistake 03:26(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C51938D4B6951E1C9E681AE424FFAB2C642BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497110   (866664) от 21.09.2021
-
-Ten Eyed Man - From Beneath A Pallid Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victim 5:01
-02. Rage With Me 4:06
-03. Man In Black 3:37
-04. The New Sun Rises 5:47(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859398E8FA130D2A33C3A4FDD134C132D039B62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497236   (866663) от 21.09.2021
-
-Save The World - One (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleed
-02. Comic Con
-03. In Pieces
-04. Circus Maximus(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9FB10F73C5E9BF7FC2421168FB2F2A5DDFC5A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1650214   (226058) от 02.08.2023
+
+George Wallington Quintet - The New York Scene (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_226058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Salah [5:27]
+02. Up Tohickon Creek [6:14]
+03. Graduation Day [4:56]
+04. Indian Summer [7:12](   Читать дальше...   )Жанр: BopПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23AD0B05047FE95D0803684D6762FC616B7D72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342187   (226029) от 01.12.2019
+
+Earl Hines - Four Classic Albums Plus 1954 - 1961 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226029.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Monday Date [2:12]
+02. Bill Bailey, Won't You Please Come Home [3:25]
+03. Do You Know What It Means To Miss New Orleans [2:01](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 02:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935E55BEE6BFE2DEDAB378B8407F87C01F4ADEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342375   (226020) от 01.12.2019
+
+Kurushimi - What Is Chaos? (2018) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Jazz, Jazzcore, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is Chaos? (9:19)
+02. C8H10N4O2 (1:03)
+03. Yuruyaka na shi no ma no kanbi naru mezame (4:56)
+04. Twelve Vacancies (1:08)(   Читать дальше...   )Производство: Art As CatharsisЖанр: Avantgarde Jazz, Jazzcore, Free Jazz, Progressive Jazz, Noise, Doom JazzПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54D6B7B8B4823095547C3D706B39DF06A6672E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650387   (226017) от 02.08.2023
+
+Hank Mobley - Four Classic Albums (1958 - 1961) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_226017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll Call1 [10:24]
+02. My Groove You Move [5:54]
+03. Take Your Pick [5:11]
+04. A Baptist Beat [8:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96502443CE3A07902A29A50D5FFCC870DBF05A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650097   (225972) от 02.08.2023
+
+Fats Navarro - Nostalgia (1946, 1947) 1991, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_225972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia [2:45]
+02. Barry's Bop [2:41]
+03. Be Bop Romp [2:38]
+04. Fats Blows [2:52](   Читать дальше...   )Жанр: BopПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54833EFAB0EA8DBAB1DE4AF07B9A0993F1D3380D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342273   (225948) от 01.12.2019
+
+Aging - Suitable For Night (2017) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz Noir, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doused In The Moon (10:32)
+02. Suitable For Night (6:09)
+03. The Kiss of Wet Asphalt (7:50)
+04. Ballade pour ma Bête Noire (9:10)Производство: Tombed Visions - TV44Жанр: Doom Jazz, Jazz Noir, Experimental, AmbientПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCFCF1D0C9D91244F5AB198BFEE0466C671EC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649789   (225877) от 02.08.2023
 
 Frank Wess, Kenny Burrell, Joe Newman - Jazz For Playboys (1956, 1957) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -571,180 +745,6 @@ Bunny Berigan - 1938 - 1942 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE79954FF30CB325A7B6E97315F6B3000F416A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268807   (223500) от 13.12.2018
-
-Ted Sirota's Rebel Souls - Breeding Resistance (2004) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saro-Wiwa [9:33]
-02. Chairman Fred (I Wish Fred Hampton Was Here) [7:23]
-03. Knife [7:24]
-04. For Martyrs [3:04](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBF7327D159964003AB2A2AAD76FA5836830C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651109   (223494) от 05.08.2023
-
-Howard Rumsey's Lighthouse All-Stars - Lighthouse At Laguna (1955) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witch Doctor No. 2 [6:11]
-02. 'Round Midnight [5:52]
-03. Mood for Lighthouse [4:06]
-04. Walkin' [7:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1768936D05FE37D993130E52151AB4942F4DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268998   (223489) от 13.12.2018
-
-Rachel Caswell - We're All In The Dance (2018) Turtle Ridge Records [FLAC|Lossless|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragile
-02. A Lovely Way to Spend an Evening
-03. We're All in the Dance
-04. Devil May Care(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0AD16DBAF5A40176FA8FC92E5B8D5A7B6EE4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268823   (223479) от 13.12.2018
-
-Rosemary Clooney - 16 Most Requested Songs (1950-e - 1960-e) 1989, Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On-A My House [2:03]
-02. Botch-A-Me (Ba-Ba-Baciani Piccina) [2:19]
-03. Hey There [3:02]
-04. Be My Life's Companion [2:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44777E041EDFE7854BC181CE763B610DF2E3D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268814   (223446) от 13.12.2018
-
-Ronnie Scott - Six Classic Albums Plus Bonus Singles (1956 - 1961) 4CD, 2015, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223446.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Basie Talks [3:31]
-02. It Might As Well Be Spring [4:22]
-03. Drop Me Off At Harlem [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 04:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626FC2BA5ED3D4ED9A80252DC45ED1BDEE1A4398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651162   (223182) от 05.08.2023
-
-Papik - Bossarama (2023) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlight For Two (feat. Gustavo Baião)
-02. If You Leave Me Now (feat. Dagmar Segbers)
-03. Passos De Esperanza (feat. Giuseppe Milici)
-04. Alone Again (Naturally) (feat. Francesca Gramegna)(   Читать дальше...   )Жанр: Bossa Nova, Easy ListeningПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB7326535AAB7C40AE1FD4E7D0F46C831B3B3DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

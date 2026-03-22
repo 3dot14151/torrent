@@ -1,3 +1,348 @@
+###  Публикация: 1324794   (418846) от 12.09.2019
+
+Wanda Jackson & Karel Zich - Let's Have A Party In Prague (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Let's Have A Party
+02. Long-Legged Guitar Picking Man
+03. Losing Game(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710422   (418629) от 13.10.2013
+
+Б.Г. - Русский альбом (1992) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418629.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Архистратиг (1:12)
+A2. Никита Рязанский (2:38)
+A3. Государыня (3:03)
+A4. Ласточка (3:51)(   Читать дальше...   )Жанр: РокПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA81DF2A22CC0BC1268C2A7116831EC7F6A1E316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772457   (417672) от 17.10.2015
+
+Led Zeppelin - Led Zeppelin II (1969) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Blues Rock, Hard Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Whole Lotta Love	5:36
+2. What Is And What Should Never Be	4:48
+3. The Lemon Song 6:22(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4ADAF8FA9FC66C1424E026D030BD04EE0979ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065660   (416484) от 24.10.2016
+
+Зоопарк - Позавчера... и вчера - уездный город N (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Странные дни  2:54
+2. Если ты хочешь  2:48
+3. Дрянь  4:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B42223412DC3B121F461FD29E0A8AEBF1ACF7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066043   (416172) от 24.10.2016
+
+The Rolling Stones - Emotional Rescue (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416172.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Dance (4:23)
+A2. Summer Romance (3:15)
+A3. Send It To Me (3:43)
+A4. Let Me Go (3:52)(   Читать дальше...   )Производство: Rolling Stones Records - ESS-81285Жанр: RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3750246EDB63CFBE915CF22E4B28727E61A0E093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573094   (414623) от 30.08.2022
+
+Chimaira - Studio Albums (1999 - 2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Groove/Nu-Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chimaira (kaɪˈmɪərə) — американская грув-метал группа из Кливленда, Огайо, существовавшая с 1998 по 2014 год. Являлась представителем Новой волны американского хеви-метала. Музыкальный стиль группы сочетает грув-метал с элементами металкора. Название группа взяла из греческого написания слова «химера» (Χίμαιρα), (   Читать дальше...   )1999 - This Present Darkness (EP)
+2001 - Pass Out Of Existence
+2003 - The Impossibility Of Reason
+2005 - ChimairaЖанр: Groove/Nu-Metal/MetalcoreПродолжительность: 08:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E93F0FDC99144E2A0CFE9E34A0F3F797E6DE39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412901   (413465) от 01.10.2020
+
+T.Rex - Electric Warrior (1971) 2020 [DSD 128|tracks|Vinyl-Rip] <Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mambo Sun (3:39)
+ 02. Cosmic Dancer (4:31)
+ 03. Jeepster (4:11)
+ 04. Monolith (3:50)(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBDC4F8C6D58B0F07C260EC5A5D07E2AC791A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066900   (409401) от 27.10.2016
+
+The Beatles - Вкус мёда (1986) WavPack|192/32|tracks|Vinyl-Rip] <Beat, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. P.S. Я люблю тебя - P.S. I Love You  2:02
+02. Хочешь узнать тайну? - Do You Want To Know A Secret?  1:54
+03. Вкус мёда - A Taste Of Honey  2:00(   Читать дальше...   )Жанр: Beat, Rock & RollПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8016860C410274BB321059A7AAFF06967012F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948576   (408054) от 22.10.2015
+
+Оскар Питерсон и Каунт Бейси - Оскар Питерсон и Каунт Бейси (1982) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Булочки (Buns)  4:28
+2. Эти пустяки напоминают мне о тебе (These Foolish Things)  5:34
+3. RB  5:26(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BB934EC2AF75F7DBC56404EE85A75F7C9BD876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866783   (407914) от 06.10.2018
+
+М. Кабалье, К. Бергонци - Джузеппе Верди - Сцены и арии из опер (моно) (1978) [FLAC 1.0 24/192|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Гарольд
+1. Сцена и ария Мины и сцена Мины и Годвино (2 д.)  12:00
+Альзира(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D2ED7E392126831C16D57FF494B94D8616FEC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120478   (407625) от 06.10.2018
+
+Freddie Mercury & Montserrat Caballe - Barcelona (1988) VinylRip 24 bit/96 kHz [FLAC]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1A1.Жанр: Rock, Classical CrossoverПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0E6F50AD5D2C963D3827305630B4FF73C53D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574145   (407383) от 03.09.2022
+
+Breaking Benjamin - Studio Albums (8 releases) (2002 - 2020)  hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-Grunge, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Breaking Benjamin — американская альтернативная рок-группа из города Уилкс-Барре, основанная в 1998 году.2002 - Saturate
+2004 - We Are Not Alone
+2006 - Phobia (Asian Edition)
+2010 - Dear AgonyЖанр: Hard Rock, Post-Grunge, Nu MetalПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D080D0B3674103960C95AD979E7057B0A61E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326075   (407367) от 18.09.2019
 
 VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Rip] <Pop, Instrumental>
@@ -399,352 +744,6 @@ VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947860   (378990) от 22.10.2015
-
-VA - Шедевры инструментальной музыки части 1 - 3 (1999) [FLAC 2.0 16/44,1|tracks+.cue (MC-Rip)]<Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. История любви - Поль Мориа
- 02. Одинокий пастух - Джеймс Ласт
- 03. К Элизе - Ричард Клайдерман
- 04. Эммануэль - Фаусто Папетти(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 03:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73A71FB3328BCB5F9E052B853B1ECA49C126D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068882   (378154) от 02.11.2016
-
-Колокольные звоны - The Chimes (1980) [WavPack|96/32|tracks|Vinyl-Rip] <Church bells/Russian Falc>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Троице-Сергиева лавра:
-1. Звонница Духовской церкви 05:16
-2. Большая лаврская колокольня 12:04(   Читать дальше...   )Жанр: Church bells/Russian FalcПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B9EE225700663909ADEA543A1933DE4975754B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573034   (375650) от 12.11.2012
-
-Johann Sebastian Bach–Piano concertos: BWV1061,BWV1060,BWV1062 Zoltan Kocsis, Andras Schiff it is digitized from vinyl (1977/1978, Hungaroton /[FLAC|Lossless]<Chamber>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 2
-05 - II.Adagio, attacca
-06 - III.Allegro
-Concerto in C minor BWV1062
-07 - I.Жанр: ChamberПродолжительность: 00:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555FE2D2DDD5ECA2E2A1567AFBA20AFE89DDC569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575340   (375376) от 10.09.2022
-
-Dan Spătaru/Дан Спатару – Песни Из Кинофильма «Песни Моря» (1971) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пой, гитара
-(Т. Попa - Р. Рождественский)
-02. Ты не понимаешь
-(Т. Попa - Р. Рождественский)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD317CEB5BC8B3619D40C2771E4BFFB989D7CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948997   (374956) от 24.10.2015
-
-This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Electronic; Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kangaroo (3:30)Жанр: Electronic; RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AA6D921F9BA64051DF912A12BAD6695F30985B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949866   (374861) от 24.10.2015
-
-The Doors - The Doors (1967) Reissue /1980, Warner Pioneer / [FLAC 2.0 24/96|image (Vinyl-Rip)]<Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374861.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Break On Through (To The Other Side) (2:28)
-A2. Soul Kitchen (3:32)
-A3. The Crystal Ship (2:33)
-A4. Twentieth Century Fox (2:32)(   Читать дальше...   )Производство: Elektra Records / Warner PioneerЖанр: Psychedelic RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176340   (371810) от 21.10.2017
-
-Rockets - Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371810.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Radiate (4:44)
-A2. Imagine E.S.P. (5:05)
-A3. Ziga Ziga 999 (4:03)
-A4. Hypnotic Reality (3:51)(   Читать дальше...   )Производство: Rockland Records - RKL 20279Жанр: Space RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A04B4CBBA2C61FA374EF435B0324396B7E4409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415819   (371435) от 14.10.2020
-
-Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371435.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Мисс Мелодия = Miss Melodia
-A2 Следи За Своими Шагами = Follow Your Steps
-A3 Время Должно Измениться = Time Must Be Changed
-B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254967   (370157) от 15.10.2018
-
-Modern Talking - The 1-st Album (1985) [FLAC 2.0 24/96|Lossless|tracks|Vinyl-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370157.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. You're My Heart, You're My Soul (5.36)
-A2. You Can Win If You Want (3.55)
-A3. There's Too Much Blue In Missing You (5.30)
-A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328062   (368157) от 28.09.2019
-
-Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|tracks +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasbah No Onna
-02. Omoide No Koibito
-03. Koyubi No Omoide
-04. Shiritakunai No(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345B0C02C05BE67D1FDB3FD9EE5CDDBFDF3062D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328046   (368012) от 28.09.2019
-
-Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.0|44,1/16|tracks +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watashi No Kare Wa Hidarikiki
-02. Hitorikko Amaekko
-03. Muneippai No Kanashimi
-04. Ai No Kurashi Dosei Jidai(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950683   (367881) от 27.10.2015
-
-Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Rock'n'Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can Can You Party
-02. Best Of British
-03. Still In Love
-04. Sounds Like Fun(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
 ```
 
 https://mybot314.ru/tekegram_catalog/

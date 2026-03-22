@@ -1,3 +1,90 @@
+###  Публикация: 1329541   (352262) от 05.10.2019
+
+Paul van Dyk - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk pres. Shine - SHINE Ibiza Anthem 2018 (Intro Edit)
+02. UDM - World Of Illusion
+03. Paul van Dyk & Steve Dekay - Aurora
+04. System F - Out Of The Blue (Giuseppe Ottaviani 2010 Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1A29A369EB4F27F68D5A7C3CCAA90E46CDEB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330020   (347864) от 07.10.2019
+
+VA - Live @ Ultra Music Festival Croatia (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jeffrey Sutorius (Dash Berlin) @ Mainstage, Ultra Music Festival Europe, Croatia 2019-07-14:
+01. Martin Garrix - Pizza
+02. Alesso feat. Tove Lo – Heroes (Dash Berlin Rework)
+03. Laidback Luke & Marc Benjamin – We’re Forever (Dash Berlin Remix)(   Читать дальше...   )Жанр: Trance, Techno, HouseПродолжительность: 17:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2AA4E59566ECDFC3717C14E482900282BFB958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257376   (345800) от 26.10.2018
+
+VA - Markus Schulz - Global DJ Broadcast - Afterdark (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz presents Dakota vs. Arkham Knights - Something About You
+02. Carl Cox, Reinier Zonneveld & Christopher Coe - Inferno (Markus Schulz Afterdark Reconstruction)
+03. Sonate - Sequenced (Markus Schulz Afterdark Reconstruction)
+04. Arkham Knights vs. Jam El Mar - Wake Up(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B346E7807E6631A9561E8FEEA6D870948B878B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258013   (341350) от 28.10.2018
 
 VA - Ori Uplift & Alternate High - Uplifting Only 298 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Ori Uplift & Dj T.h. - Uplifting Only 249 (2017) [MP3|320 Kbps] <Trance, Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:727C882C8BDEC81A4D6E4F4ABD80446BE47B4121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262797   (293602) от 16.11.2018
-
-VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Fisherman - The Jaguar (Airwalk Festival 2018 Anthem)
-02. Adip Kiyoi & Susie Ledge - Wild Rose
-03. DARVO vs. Grooveloverz & Miss Jane - It's a Fine Day on Cloud 99 (Markus Schulz Mashup) (Mashup of the Week)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7F1F59312EF933CE13656BF724DC43F29500D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263247   (290035) от 18.11.2018
-
-VA - Ori Uplift & Shimotsukei - Uplifting Only 301 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Mireno - It's Your Day
-02. BREAKDOWN OF THE WEEK: Playme - The Great Bay (EXCLUSIVE PREMIERE)
-03. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
-04. FAN FAVORITE 299: Roger Shah & RAM feat. Natalie Gioia - For The One You Love (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446DFBDECAA9E5DD9193C94766AB5B85624AE4C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185938   (289944) от 23.11.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 523 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jam & Spoon - Odyssey To Anyoona (Jamie Stevens & Uone Remix)
-02. Upercent - Pulsacions (Nick Warren Remix)
-03. Mariano Mellino & Interaxxis - Ecouter (Original Mix)
-04. Nato Medrado - Small Room (Tinlicker Extended Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B378C6A2C9F4B2B94C36E1A5965303F9A813700
 ```
 
 https://mybot314.ru/tekegram_catalog/

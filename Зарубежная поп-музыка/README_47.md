@@ -1,3 +1,116 @@
+###  Публикация: 934034   (504170) от 03.09.2015
+
+VA - 300 Hits - Love Songs (2012) [MP3|320 кб/с]<Pop, R&B, Soul, Rock, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504170.jpg" />
+</div>
+
+
+###  Подробнее
+
+По просьбам одноклубников выкладываю этот сборник в МР3, который несколькими днями раньше выложен мною в lossless (ссылка на первоисточник внизу).Список альбомов:
+CD1 - I Will Survive
+CD2 - Timeless Love Songs
+CD3 - Always & Forever(   Читать дальше...   )Жанр: Pop, R&B and Soul, Rock, CountryФормат: 15CD, box setПродолжительность: 16:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8BF47BA01B443E34F24ECDB142124C7D6C6432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563576   (503513) от 15.07.2022
+
+Eruption - Eruption - The Best Of Eruption (1981) Compilation, Remastered, 2017, Big Break Records [MP3|320 Kbps] <Funk, Soul, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stand The Rain (3:09)
+02. Go Johnny Go (Keep On Walking, John B.) (3:30)
+03. Leave A Light (I'll Keep A Light In My Window) (4:21)
+04. Movin' (4:27)(   Читать дальше...   )Жанр: Funk, Soul, Pop, DiscoПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C12FA8D65282D348365E29516FFDBB5E23B994D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379291   (503111) от 24.08.2011
+
+Jessie J - Who You Are (2011) Deluxe Edition [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FC0EC728BF2F654620961BC3EF12B656EEEF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934126   (503093) от 04.09.2015
+
+A-Ha - Cast In Steel (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>След.
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cast In Steel (03:52)
+02. Under The Makeup (03:24)
+03. The Wake (03:46)
+04. Forest Fire (03:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD773A6DFD4BD5E2665F227C02FF48819A1C367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317606   (500280) от 01.08.2019
 
 ABBA - Singles Collection 1972 - 1982 (1999) Box Set 27CD [MP3|320 Kbps] <Pop, Pop Rock, Disco, Schlager>
@@ -644,119 +757,6 @@ VA - Big Room Sessions, Vol. 3 (2018) [MP3|320 Kbps] <Club, Funky, Progressive, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7702707C06532B91CCC4B7DE99835F8C8F864100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055741   (485887) от 23.09.2016
-
-VA - 60 Top-Hits: Milestones in Music (2014) Box set [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10 Cc - Dreadlock Holiday (5:02)
- 02. Foreigner - Cold As Ice (3:21)
- 03. J.j. Cale - After Midnight (2:26)
- 04. Manfred Mann's Earth Band - Mighty Quinn (2:51)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2107D40B87F63D2C0D3B7D14951E1348B84ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405190   (485308) от 29.08.2020
-
-Dua Lipa & The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (Joe Goddard Remix)Жанр: Pop, Electronic, DanceПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7A3D31D15B7291DAE976F16C38CBEC5BE3E8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937996   (485288) от 16.09.2015
-
-Lana Del Rey - Honeymoon (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeymoon
-02. Music To Watch Boys To
-03. Terrence Loves You
-04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79FE3836C03868CE0294482DAE4E8997F9C9695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244164   (484186) от 31.08.2018
-
-Sertab Erener - Kirik Kalpler Albumu (2016) [MP3|320 Kbps] <Turkish Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acilis
-02. Ask Beni
-03. Olsun
-04. Karbeyaz(   Читать дальше...   )Жанр: Turkish Pop, Pop RockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD391155D1CC4CC4FDBBAEFE838726BBAF64C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

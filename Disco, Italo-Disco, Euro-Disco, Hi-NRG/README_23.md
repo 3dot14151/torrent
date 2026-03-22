@@ -1,3 +1,32 @@
+###  Публикация: 1234635   (567896) от 07.07.2018
+
+Ken Laszlo - Best Of 1990-1998 (Maxi Singles & More) (2018) Compilation, Limited Edition [MP3|320 Kbps] <Disco, Dance-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Hey Guy ‘94 (05:34)
+02. Mary Ann (Thats The Lovely Mix) (05:43)
+03. Baby Call Me (Ken Hit Mix) (07:23)
+04. Happy Song (Happy Mix) (06:10)(   Читать дальше...   )Жанр: Disco, Dance-popПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD2242656AB353B70AC54881B059A5F1EA74D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555708   (567483) от 05.06.2022
 
 J. C. Riffaud - Emotion Life And Happiness (1979) LP [MP3|320 Kbps] <Electronic, Jazz, Easy Listening, Disco>
@@ -719,35 +748,6 @@ Moon Birds - 2 Albums (1977, 1978) [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A0C5FD5E3C4E5E08FAC1DBB3C0BC6CC1D1BDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046567   (551787) от 27.08.2016
-
-VA - I-Robots - Italo Electro Disco Underground Classics (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie -  Spacer Woman (7:30)
-02. Capricorn -  I Need Love (6:14)
-03. Sun la shan -  Catch (Dub Version) (5:26)
-04. Peter Richard -  Walking In The Neon (Club Version) (8:20)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4869DBEA6EB9A7770E460EC9F68BAE9DC7FBFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

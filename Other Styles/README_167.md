@@ -1,3 +1,148 @@
+###  Публикация: 1747207   (104775) от 04.09.2024
+
+VA - Music for Yoga & Meditation (Soft, Soothing Instrumentals) (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike L Scott - For Better Times (2:43)
+02. Jaywalker6 - Your Melody (3:59)
+03. Rushana - Vøringsfossen (2:46)
+04. Guido Zitti - Risvegli (3:22)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391DC54F19F4405835BF310AD7B6A311BFE85D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753599   (103827) от 05.10.2024
+
+The Orient Collective - Gateway to Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.Pantelidis - That Night in Mumbai (4:22)
+02. Juliano Gomez - Osiris (6:48)
+03. Indiano - Vata (8:19)
+04. Fernando - Corazon Seco (5:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794A19C98577E09CB836FF3965CFF78D028CE836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754030   (103754) от 08.10.2024
+
+VA - The Orient Collective: Journey to the Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portobello - Reconstruct (7:12)
+02. Aunnar - Alaitisal (6:25)
+03. F Theme - Hold Your Mouth (6:35)
+04. Nanika Sol - Solar Way (6:24)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7E7D4B6B31FE72D529BB21E789A80462731B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754693   (103708) от 11.10.2024
+
+Pregnant Women Music Company - Pregnancy Routine (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yoga Vibe (3:13)
+02. Channels of Strength (3:13)
+03. Awakening the Weel (3:13)
+04. Ecstatic Contemplation (3:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4575CACA30614DD0AF0C60FC29986AF152619198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755017   (103629) от 13.10.2024
+
+VA - The Orient Collective - Ancient Wisdom (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Medina - Lil Boy (7:09)
+02. The Friend - Vodun (6:42)
+03. Ayuta; Tibetania - Duduk (7:02)
+04. ARALÉZ - U Night (6:01)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAB4806674CC55883C66BB95AB8889D80121C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758630   (103380) от 03.11.2024
 
 Белое злато - БеЗешкино (2024) [MP3|320 Kbps] <Фолк, Эстрада>
@@ -611,161 +756,6 @@ VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E0D25C226198371A95568100572BE0BBB0722ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768969   (100580) от 30.12.2024
-
-VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2024) [MP3|320 Kbps] <Rock, Pop, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Shinoda & Emily Armstrong — Heavy is the Crown (01:42)
-02. Freya Ridings — I Can't Hear It Now (02:41)
-03. Marcus King — Sucker (03:44)
-04. Raja Kumari & Stefflon Don — Renegade (We Never Run) (feat. Jarina De Marco) (02:41)(   Читать дальше...   )Жанр: Rock, Pop, OSTПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487060   (100321) от 23.04.2012
-
-AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kentaya (03:45)
-02. Grott (04:32)
-03. Noiman (04:11)
-04. Ya-Fu (04:41)
-05. Lost Highway (04:34)
-06. Istoria (05:00)
-07. In the Fiesta of Lie (03:06)
-08. Snow in the Dream (04:18)
-09. Ti Qua? (04:24)Жанр: Chillout/LoungeПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EC147031054990E34BE8EA09FD5F5451D8FFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474130   (97805) от 27.03.2012
-
-Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97805.jpg" />
-</div>
-
-
-###  Подробнее
-
-(20:33) 1.1995Жанр: New age, MeditativeПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E1813CAD7A929762DBE91B7A8053C15037F2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473998   (97783) от 27.03.2012
-
-Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97783.jpg" />
-</div>
-
-
-###  Подробнее
-
-(04:42) 01. Etheric Body
-(05:10) 02. Emotional Body
-(04:56) 03. Mental Body
-(05:57) 04. Spiritual Body
-(03:16) 05. Green Sea
-(05:57) 06. Orange Sunset
-(05:11) 07. Indigo Sky
-(04:05) 08. Yellow Light
-(03:38) 09. Red Moon
-(10:13) 10. Violet Clouds(   Читать дальше...   )2006Жанр: New ageПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525540B6EC57A5FCFDA9F6EBD60C0E7030EFB8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472907   (97675) от 25.03.2012
-
-VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]<New age, Chillout, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97675.jpg" />
-</div>
-
-
-###  Подробнее
-
-(04:42) 01. Sangre De La Tierra - Aguas Blancas 7 A.m. (Original Mix)
-(12:02) 02. Klaus Schonning - Nightfall At Ganges (Original Mix)
-(07:08) 03. Lazy Hammock - Buddha State (Original Mix)
-(06:11) 04. Florito - Feel So Good (Original Mix)
-(02:16) 05. Krystian Shek - Slightly Breeze (Original Mix)
-(04:20) 06. Chris Le Blanc - Debussy en Es Vedra (feat. Miss Luna)2012Жанр: New age, Chillout, Relax, MeditativeПродолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBD7E4CF0B395B09C342B22A0142552DEEF41F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

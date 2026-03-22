@@ -1,3 +1,67 @@
+###  Публикация: 607627   (989612) от 30.01.2013
+
+DJ Stinger - Minimix For Time2Bass Radio-Show (Time 2 Bass) (12.05.2010) [MP3|160 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 D-Kay & DJ Lee - Tuning VIP
+02 Xample & Lomax - Rushin Dragon
+03 Spor - Halogen
+04 Drumsound & Bassline Smith - Fire (Burning)
+05 Sub Focus - Triple X
+06 DC Breaks - Halo
+07 J-Majik - Mosquito
+08 Prolix - Watch Ur Step
+09 Noisia - Deception
+10 Heist - Search Party(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D41E0A08191E0D89F70ABB056882F33988EA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354179   (989060) от 21.01.2020
+
+VA - Sublime Electro House: Progressive Mix (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Prodeeboy - Ultimate Destination
+002. Marcus Caballero - Serenity (Original Mix)
+003. Caleb Weiss - London Rhythm (Original Mix)
+004. Daniele Frate - Are You Ready(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 13:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E5BE938CEC7453348B55202F8EB83E535F8738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354178   (989043) от 21.01.2020
 
 VA - Subtle Vibrations: Relax Compilation (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
@@ -705,64 +769,6 @@ VA - Super Bomb Electro 56 (2015) [MP3|320 кб/с] <Electro House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04524E239361E6EA93D32D4E250C76BD48B4EF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972218   (983437) от 05.01.2016
-
-VA - Classical Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claude Debussy - Deux Arabesques : No. 1 Andante con moto [03:59]
-02. Felix Mendelssohn - Songs Without Words, Op. 62: No. 6 in A Major, "Spring Song": Andante grazioso [02:32]
-03. Philip Glass - Glass: The Hours - Arr. Michael Riesman - Morning Passages [06:11]
-04. Frйdйric Chopin - 24 Prйludes, Op. 28 : 15. in D Flat Major "Raindrop" [05:17](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5707FDC97A9773CB5E3769A19798C67123B8BD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972283   (983432) от 05.01.2016
-
-VA - After Workout Chillout Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Chilly Vanilly [05:52]
-02. Psytrotune - Fall in the Darkness - Chillout Mix [05:47]
-03. Eroc - Wolkenreise 2k11 - Part of the Art Remix Edit [04:40]
-04. Blueye - Autumn Leaves - Chillout Mix [05:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD90D06B9EA5C977778E7B2C08F77CA9C3BB6A39
 ```
 
 https://mybot314.ru/tekegram_catalog/

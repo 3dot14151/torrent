@@ -1,3 +1,119 @@
+###  Публикация: 1691898   (122922) от 14.01.2024
+
+VA - Piano Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Sergey Bryukhno - Sonnet in C Major (1:25)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Aria (5:10)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EB4C49AFAF5717D577E42A6B888FE528A7222E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691906   (122619) от 16.01.2024
+
+Ennio Morricone - Ennio Morricone: Winter Walks (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Soundtrack>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The City Of Prague Philharmonic Orchestra - Epilogue - The Falls (From The Mission) (1:39)
+02. The City Of Prague Philharmonic Orchestra - Main Theme (From Once Upon a Time in America) (2:10)
+03. The City Of Prague Philharmonic Orchestra - Main Theme (From Hamlet) (2:38)
+04. Royal Stockholm Philharmonic Orchestra, Alexander Shelley & Daniel Hope - Love Theme (   Читать дальше...   )Жанр: Classical, Instrumental, SoundtrackПродолжительность: 04:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE5C1E2E7A04DC550AE005A85287884C689131E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693434   (121916) от 20.01.2024
+
+Пётр Чайковский; Большой симфонический оркестр Всесоюзного радио и Центрального телевидения - Лебединое озеро (2023) 2 x CD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121916.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 Интродукция 02:51
+Действие I
+02 1. Сцена 02:50(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FEBF5499EEFEB0D591BFB76BBC8B7E5767906B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692997   (121726) от 21.01.2024
+
+VA - Beautiful Piano Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+03. Sergey Bryukhno - Hope (1:29)
+04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59463212A816AF60950F96B533D54019A97A836B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693579   (121176) от 24.01.2024
 
 VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -619,122 +735,6 @@ VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3940EB7C6670C311C731316EFBA54C964103A009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718718   (110856) от 26.04.2024
-
-VA - Classical Piano Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Sergey Bryukhno - Sonnet in C Major (1:25)
-03. Katya Kramer-Lapin - Pavane, Op. 50 (Arr. for Piano by Chris Sennett) (5:35)
-04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4D4C15E33BBE5CF61265C50C2C0B50E8F77B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719163   (110672) от 28.04.2024
-
-VA - Timeless Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Denis Shapovalov - 14 Romances, Op. 34 No. 14, Vocalise (Arr. for Cello and Piano) (5:26)
-03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2A2525B098D07E689729AF09AFB1A35F57640A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720223   (110396) от 02.05.2024
-
-VA - Great Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryukhno) (4:38)
-03. Katya Kramer-Lapin - 24 Préludes, Op. 28 No. 4 in E-Minor (2:53)
-04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7E511031805F8DA7314CC9A2A67AC79CE478C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720615   (109838) от 10.05.2024
-
-Emma Shapplin - 8 Albums (1997-2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Emma Shapplin - 1997 - Carmine Meo
-Emma Shapplin - 2002 - Etterna
-Emma Shapplin - 2009 - Macadam Flower(   Читать дальше...   )Жанр: Modern Classical, NeoclassicalПродолжительность: 8 CD, 06:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C11115D3F116DF4117383CCF78297BBE47CCBE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

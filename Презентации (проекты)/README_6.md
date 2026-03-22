@@ -1,3 +1,57 @@
+###  Публикация: 988377   (922350) от 19.02.2016
+
+Проекты - VideoBlocks - Personal Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо ролика.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCF1F091B518C71C45B33933DD1A892F3FDE91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988176   (922215) от 19.02.2016
+
+Проекты - VideoHive - Timeline Slides [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для корпоративного видео, видео-презентаций, рекламы бизнеса и просто слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A50B6A1C516EC622F9138A6CD7739E0F26A37BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988043   (922064) от 19.02.2016
 
 Проекты - VideoHive - Search Engine Advertisement [AEP]
@@ -630,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3E177DEE8C1E4FF54790BC05913EC21A3E34C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099095   (906176) от 31.01.2017
-
-Проекты - VideoHive - Dynamic Opener - 19311547 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Opener - элегантный проект для начала вашего фильма, или рекламы в динамическом стиле. Обучение включено.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE26D9FAF499E974A611025B66A63B76EAE057C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866844   (905834) от 06.02.2015
-
-Проекты - VideoHive - Awards Bundle - 10152091 [AEP]
-
->>След.
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Awards Bundle - большой проект пак в стиле вручения "Оскар".Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5ECC53238EC532807AEAC8AA2673D9CA8258E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

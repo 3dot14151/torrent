@@ -1,3 +1,177 @@
+###  Публикация: 1683866   (128099) от 13.12.2023
+
+VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Beyond the Horizon (4:58)
+02. Chillaxing Jazz Kollektion - It Dews (5:02)
+03. Chillaxonic - Oasis (4:58)
+04. Kool&Klean - Bound by You (3:57)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBA409E92D44493C8BC40255E5223FEFC25F49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683917   (128086) от 13.12.2023
+
+Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limehouse Blues [8:04]
+02. Sweet and Lovely [10:54]
+03. Lew Blew [5:36]
+04. Petite Chanson [9:48](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643DEF84FE4295813D7D21E1379741EC06C6FF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683916   (128085) от 13.12.2023
+
+Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soon [5:08]
+02. Autumn Nocturne [8:05]
+03. Me and My Shadow [5:28]
+04. Fashion's Flower [7:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0556FED1B25AD8708B456F19DD1C04143469D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683913   (128080) от 13.12.2023
+
+Dave McKenna - Christmas Ivory (1997) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Claus Is Coming to Town [3:16]
+02. Jingle Bells (The One Horse Open Sleigh) [3:18]
+03. Stille Nacht, Heilige Nacht (Silent Night, Holy Night) [4:13]
+04. Let It Snow, Let It Snow, Let It Snow [3:51](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45C06C13DA1B8885456027C3AEFBF927B9F3676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684125   (127958) от 14.12.2023
+
+Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stockholm Sweetnin' [7:18]
+02. The Quintessence [5:03]
+03. Meet Benny Bailey [5:20]
+04. For Lena and Lennie [6:28](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3083B868803031F1A3C8A5F8432FA7B0F31C892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684121   (127956) от 14.12.2023
+
+Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGram Classics & Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Wish You a Merry Christmas [2:26]
+02. God Rest Ye Merry Gentlemen [2:40]
+03. Ding, Dong Merrily on High [3:21]
+04. Have Yourself a Merry Little Christmas/Christmas Song [6:54](   Читать дальше...   )Жанр: Mainstream Jazz, Third Stream, Piano JazzПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D3824FC1B4B292FD74643B52239A3B84E15D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684126   (127939) от 14.12.2023
 
 Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
@@ -571,180 +745,6 @@ Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685322   (127221) от 18.12.2023
-
-VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ltj X-perience - Best Life (7:39)
-02. DOUT.D - Strolling (2:23)
-03. The Last Minister - Tribute To J.B. Family (6:20)
-04. Ice One - Dal Terrazzo (1:42)(   Читать дальше...   )Жанр: Smooth Jazz, Funk, ElectronicПродолжительность: 02:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A87A16FDA41063F44360119D21A41B6A69945F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685287   (127212) от 18.12.2023
-
-Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Night [3:29]
-02. Christmas Waltz [3:22]
-03. Everything's Not Lost [4:09]
-04. Someday at Christmas [2:55](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB83819CE144E6E24E364436DF44AE4235328589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685291   (127210) от 18.12.2023
-
-Chet Baker - Chet Baker Sings: It Could Happen To You (1958) 2006, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Cool, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It the Hard Way [3:03]
-02. I'm Old Fashioned [5:05]
-03. You're Driving Me Crazy [2:56]
-04. It Could Happen to You [2:52](   Читать дальше...   )Жанр: Cool, Vocal JazzПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D29C09F8AE67EA8ADCCB19F00B47B5E28E0E36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685633   (127037) от 19.12.2023
-
-Mal Waldron Quintet - Mal-1 (1956) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stablemates [4:56]
-02. Yesterdays [7:51]
-03. Transfiguration [7:19]
-04. Bud Study [5:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915D3AF5AD585D447481D82D554197D02ABD0B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685626   (127035) от 19.12.2023
-
-Tina Brooks - Back To The Tracks (1960) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the Tracks [8:08]
-02. Street Singer [10:22]
-03. The Blues and I [8:56]
-04. For Heavens Sake [6:05](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059390AABB8314BB1FBB77791FD89A32E1878DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685630   (127034) от 19.12.2023
-
-Toshiko Akiyoshi Jazz Orchestra featuring Lew Tabackin - Last Live In Blue Note Tokyo (2003) 2011, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Liberty [12:26]
-02. The Village [12:21]
-03. Unrequited Love [11:36]
-04. Hiroko's Delight [13:09](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Big BandПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019219B990C503EF7F321B87EF5D9EBBD6880E64
 ```
 
 https://mybot314.ru/tekegram_catalog/

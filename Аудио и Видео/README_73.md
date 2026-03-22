@@ -1,3 +1,32 @@
+###  Публикация: 1511879   (788372) от 22.11.2021
+
+VA - Electro Cocktail, Vol. 2 (2021) [AAC|~326 Kbps] <Lounge, Chill House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Booka Boogie (2:59)
+02. Magmatunes - The Beach (4:36)
+03. Lounge Groove Avenue - Shine (3:12)
+04. Classemotion - Underground (4:26)(   Читать дальше...   )Жанр: Lounge, Chill House, DowntempoПродолжительность: 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9847F6910A68C5E5E773A8A70F4E0294D37D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511878   (788369) от 22.11.2021
 
 VA - Electro Cocktail, Vol. 1 (2018) [AAC|~321 Kbps] <Lounge, Chill House, Downtempo>
@@ -680,35 +709,6 @@ VA - Soundbar Deluxe Chill Lounge, Vol. 3 (2017) [AAC|~329 Kbps] <Lounge, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671367273D50C7EAAD13430E90557080974155C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512164   (787390) от 24.11.2021
-
-VA - Soundbar Deluxe Chill Lounge, Vol. 6 (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - Discover a Nu World (In the Light Mix) (5:11)
-02. Artenovum - Innocence (Mystic Voices World Mix) (4:43)
-03. Book of Dreams - Trancephonia (Psytrance Chillout Mix) (8:02)
-04. Dave Neville - Focus (Deep Electronic Groove Mix) (6:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D385ADA5DE3A477E327502E54060CF8AB3C9279A
 ```
 
 https://mybot314.ru/tekegram_catalog/

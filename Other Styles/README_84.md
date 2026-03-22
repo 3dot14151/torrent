@@ -1,3 +1,148 @@
+###  Публикация: 1231098   (608849) от 16.06.2018
+
+Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cloudforest Trail (6:16)
+2. Pillars in the Mist (9:34)
+3. In the Presence of Beauty (7:05)
+4. Secrets in Stone (10:04)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296841   (608534) от 19.04.2019
+
+Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Reflection (7:17)
+ 02. The Road to Here (6:07)
+ 03. Rising (8:49)
+ 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB769BCDBA2AA1F1B967FF983C28F8F54E77A3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296785   (607895) от 19.04.2019
+
+А.И.Жихарев - Вознесение (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Напутствие (5:23)
+02. Призыв (3:58)
+03. Без названия (5:54)
+04. Исповедь (7:35)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC651860470A4FE4ACFBD145FEF98D0D8C32DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147338   (607606) от 03.07.2017
+
+VA - The Organ Plays Sentimental Favorites (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dick Hyman - A String Of Pearls (3:01)
+02. Dick Hyman - Moonlight Serenade (4:08 )
+03. Eddie Layton - Medley: Tangerine / That Old Black Magic (3:20)
+04. Bill Thomson - Ebb Tide (3:13)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8D5E8DEA9007CC4CDB37294E17AFE8BC686459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147321   (607511) от 03.07.2017
+
+VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gordon Langford (piano) - La Mer (Beyond the Sea) (3:19)
+02. Francis Goya (guitar) - Try a Little Tenderness (3:41)
+03. Terry Harrington (clarinet) - I'll Walk Alone (3:42)
+04. Simon Chamberlain (piano) - I Love Being Here With You (2:51)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB35EACF82EEC982F34C586135CCC7204B6857C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525197   (607330) от 21.07.2012
 
 Прометей / Prometheus (2012) [MP3|320 кб/с]<Soundtrack>
@@ -606,151 +751,6 @@ Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED6F6FED079CDA1A55FD87F0C387D0641DD42C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297861   (602652) от 25.04.2019
-
-Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Acoustic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602652.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Running Through Woodland
-2.Hidden Beneath
-3.Pretend To Forget
-4.Hope(   Читать дальше...   )Жанр: Ambient, Instrumental, AcousticПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4724E63B3C44A9934D9B80C601A4BF010BE30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297927   (602644) от 25.04.2019
-
-VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602644.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Could It Be Magic -	4:20
-2.	Earth Song -	7:42
-3.	Conquest Of Paradise -	5:02
-4.	Heaven For Everyone -	5:19(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0680EB0A570C4C3B621B0C98987A3C2054290229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149130   (602539) от 09.07.2017
-
-Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in Familiar Sorroundings 04:43
-02. Shifting Sands 03:45
-03. Warm Embrace 03:15
-04. Dance of the Unknown 03:46(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907614CBF95A2726B73B3EC50F9AF6CBC116D8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149111   (602538) от 09.07.2017
-
-Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in Familiar Sorroundings 04:43
-02. Shifting Sands 03:45
-03. Warm Embrace 03:15
-04. Dance of the Unknown 03:46(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D35B2407ED0629CA3FCF090324D4253423AD8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149150   (602518) от 09.07.2017
-
-Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aspiration For Awakening (04:31)
-2. Atlantis (04:23)
-3. Myth (04:24)
-4. New Capability (05:10)(   Читать дальше...   )Жанр: New Age, Ambient, EthnoПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8CFF43D0F8CA62D782B56F24FF290A87C9CF8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

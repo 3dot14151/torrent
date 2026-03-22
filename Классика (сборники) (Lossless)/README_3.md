@@ -1,3 +1,32 @@
+###  Публикация: 1694921   (120134) от 30.01.2024
+
+VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+02. Misha Fomin - 12 Etudes, Op. 10 No. 12 in C Minor Revolutionary (2:38)
+03. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. 13 Pathétique I. Grave - Allegro di molto e con brio (9:07)
+04. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072611F24BF56D68BF07D5480E931BC00E1CC560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702300   (115560) от 26.02.2024
 
 VA - Peaceful Classical (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -720,35 +749,6 @@ VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17765DFA5EFED270B60973D57F46512548917916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728332   (54154) от 06.06.2024
-
-VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:37)
-02. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
-03. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryu (4:38)
-04. Sergey Bryukhno - Sonnet in C Major (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

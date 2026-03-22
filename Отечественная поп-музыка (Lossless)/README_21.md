@@ -1,3 +1,29 @@
+###  Публикация: 1699969   (117190) от 16.02.2024
+
+Кватро - Слишком Честно (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117190.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Слишком ЧестноЖанр: PopПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE4C1CBCDF7F21D622DCDF355D9F51CAEFC71DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699960   (117186) от 16.02.2024
 
 Женя Любич - Лето (2021) [FLAC|Lossless|tracks] <Pop>
@@ -714,35 +740,6 @@ DJ Piligrim - Ты Меня... (2009) [WavPack|Lossless|image + .cue] <Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDEE9C775F4CE88E166684B37453EA7F81E615DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735391   (106918) от 08.07.2024
-
-Эд Шульжевский - Странная Жизнь (2008) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Baby
- 02. Невидимка-Любовь
- 03. Я И Ты
- 04. Сердце(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017B791E0BF5167884DA3A7FF3F8C1E85CDA1523
 ```
 
 https://mybot314.ru/tekegram_catalog/

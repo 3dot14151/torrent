@@ -1,3 +1,322 @@
+###  Публикация: 1036083   (240885) от 18.04.2022
+
+ВИА Акварели - Солнечный Луч В Моем Сердце (1979) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наше Лето (Our Summer)
+02. Дельфины (Dolphins)
+03. Льняные Волосы (Flaxen Hair)
+04. Дилижанс (A Diligence)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F58369FED6DDF88C9431CDCD7A4BE081BDEA9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945104   (240263) от 21.04.2022
+
+VA - Пулсиращи Ноти 1 (1984) [APE 2.0 24/96|image+.cue (Vinyl-Rip)]<Electronic, Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240263.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Майкъл Джексън -	Били Джийн
+A2	Уедър Гърлз -	Вали Дъжд, Хора
+A3	Шортс -	Как Си
+A4	Локомотив ГТ -	На Релси(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478255D319B255DD31D6D6CFAE804A56040F0228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949761   (240202) от 21.04.2022
+
+VA - Девочка Моя Синеглазая - Песни В. Дорохина и Л. Воропаевой (1989) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240202.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Е. Белоусов -	Девочка Моя Синеглазая
+A2	Е. Семенова -	Мужчина, Который Спешит
+A3	Е. Белоусов -	Алушта
+A4	Е. Семенова -	На Минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE0E7A934960643F398F9CD49EE3A6DCDD36852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637245   (240023) от 03.06.2023
+
+DIO - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Holy Diver
+02. Rainbow In The Dark
+03. Don't Talk To Strangers(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B682B62B24B39B2BA0E92A97DCF50B1A537F3223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627339   (239963) от 18.04.2023
+
+Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239963.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Sweet Hello, The Sad Goodbye 4:32
+A2 Whispers Of Love 5:05
+A3 The Echo Of My Heart 4:27
+A4 Maybe I'm Dreaming 4:23(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8A61895B0FC82BA45E281A48A90FCF017F2724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626980   (239947) от 16.04.2023
+
+Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239947.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Desire 3:47
+A2 Vicious Games 4:18
+A3 Oh Yeah 3:05
+A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635275   (239937) от 25.05.2023
+
+VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Folk, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239937.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 П. Нечепоренко - Час Да По Часу
+A2 П. Нечепоренко - Олынка
+A3 П. Нечепоренко - Цвели, Цвели Цветики
+A4 П. Нечепоренко - Наигрыш Владимирских Рожечников(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635254   (239913) от 25.05.2023
+
+Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heretic - американская пауэр-метал группа из Лос-Анджелеса, образованная в 1986 году.1986(2013) - Torture Knows No Boundary (EP)
+1988 - Breaking Point
+2012 - A Time Of Crisis
+2017 - A Game You Cannot WinЖанр: Heavy/Power/Thrash MetalПродолжительность: 02:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635324   (239834) от 25.05.2023
+
+И. Кальман - Принцесса цирка. Фрагменты из оперетты, запись 1952 г. (1982) [FLAC 1.0|192/24|tracks|Vinyl-Rip] <Classical, Operetta>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+Увертюра. I действие
+Сцена и дуэт Лизы и Тони. Ария Мистера Икс. Ария Сюзанны
+Сцена и дуэт Сюзанны и Мистера Икс(   Читать дальше...   )Жанр: Classical, OperettaПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590239   (239802) от 17.04.2023
+
+Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunder — английская рок-группа из Лондона. Основана в 1989 году бывшими участниками Terraplane Дэнни Боузом (вокал), Люком Морли (гитара, бэк-вокал) и Гэри Джеймсом (ударные), а также вторым гитаристом и клавишником Беном Мэтьюзом и басистом Марком Лакхерстом.1990 - Laughing On Judgement Day
+1992 - Laughing On Judgement Day
+1994 - Behind Closed Doors
+1996 - The Thrill Of It All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 19:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059810   (239608) от 24.04.2022
+
+Пикник - Иероглиф (1987) Repress 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Goth Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остров
+02. Иероглиф
+03. Праздник
+04. Ты вся Из огня(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627866   (239544) от 20.04.2023
 
 Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
@@ -426,322 +745,6 @@ LP1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C24632EB75B7B83B40E4204A830CFA1C6EBE7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141505   (238403) от 30.04.2022
-
-VA - RETROспектива часть XXI. Зарубежные исполнители V (1950-1962) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сорина Дан и Николае Ницеску (Румыния)- Мои мысли с тобой
-02. Жижи Марга (Румыния) - С песней по полям
-03. Мозез Ля Мар (США) - Когда-нибудь
-04. Мозез Ля Мар (США) - Бал в негритянском районе(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02AF04C9BF7A7499A0397B6A9426AA131106CF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140831   (238397) от 30.04.2022
-
-Elton John - The New Collection vol. I - vol. II (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238397.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Your Song
-A2 Benny And The Jets
-A3 Harmony
-A4 Take Me To The Pilot(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6A5C76EDC4B147114E5666F003D6092DE7319A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122142   (238389) от 30.04.2022
-
-VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестр - Мелодия (из к.ф. ''Три тополя на Плющихе'')
-02. Марк Бернес - С чего начинается Родина (из к.ф. ''Щит и меч'')
-03. З. Харабадзе и И. Мясников - Всё потому (из к.ф. ''У себя дома'')
-04. Оркестр - Лимба (из к.ф. ''Ещё раз про любовь'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1847AC70BDA4AAAE0EF665A615F953436BB96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141810   (238371) от 30.04.2022
-
-Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд (1976,1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238371.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Урожай
-A2 Снова Один
-A3 Тема Любви
-A4 Сын Моего Отца(   Читать дальше...   )Жанр: Jazz, Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D93D07164B63F6BE4D6F61FF25AC285031D7E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629095   (238357) от 26.04.2023
-
-Visage - The Anvil (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238357.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Damned Don't Cry
-A2 Anvil (Night Club School)
-A3 Move Up
-A4 Night Train(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C1ACC1E694F5BFBD2943833B8C5503D0B77769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144837   (238355) от 30.04.2022
-
-David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+.cue|Audio-DVD-Rip] <Acoustic, Prog Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robert Wyatt's Meltdown Concert
-=========================
-01. Shine On You Crazy Diamond
-02. Terrapin(   Читать дальше...   )Жанр: Acoustic, Prog Rock, Classic RockПродолжительность: 02:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05AA20ED15F99C04BEC6D8EA5D95BF8E8C0DB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145522   (238348) от 30.04.2022
-
-VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Vietnam - Roadhouse Blues (The Doors)
-02. Poison - What I Like About You (The Romantics)
-03. Jorn - Feel Like Making Love (Bad Company)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D0BB1F761B06C3834CA52614E589D708E00026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623865   (238316) от 03.04.2023
-
-Jonathan Jeremiah - Horsepower For The Streets (2023) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop-Rock, Soul, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horsepower For The Streets
-02. You Make Me Feel This Way
-03. Cut A Black Diamond
-04. Small Mercies(   Читать дальше...   )Жанр: Pop-Rock, Soul, R&BПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BF9EF408516EE593942130A41FAB9DDA2F2575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140820   (238299) от 30.04.2022
-
-Ингви Малмстин/Yngwie J. Malmsteen - Трилогия/Trilogy (1986) Reissue 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238299.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ты Не Помнишь, Я Никогда Не Забуду (You Don't Remember, I'll Never Forget)
-A2 Лжец (Liar)
-A3 Влюбленная Королева (Queen In Love)
-A4 Плач (Crying)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639342   (238268) от 13.06.2023
-
-Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clutch — американская рок-группа из города Джермантаун, штат Мэриленд.1993 - Transnational Speedway League
-1995 - Clutch
-1997 - Impetus (EP)
-1998 - The Elephant RidersЖанр: Stoner RockПродолжительность: 14:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6717AE599D59EB30E48D921F7C4A010F96DFB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623834   (238237) от 03.04.2023
-
-Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, PopПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CC70CBC07EEAA5ECF6641346C04DCD0DA694BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

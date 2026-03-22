@@ -1,3 +1,119 @@
+###  Публикация: 1026743   (702515) от 16.06.2016
+
+Inside War - Autophagic Butchering (2016) [MP3|320 кб/с] <Thrash Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avesso
+02. Chaos Within
+03. Bloodmass
+04. Chemical Carnage(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773CB1957EBFB16B90E76034985598F1FD2A69C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220722   (702452) от 20.04.2018
+
+Stryper - God Damn Evil (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take It To The Cross (4:56)
+ 02. Sorry (3:56)
+ 03. Lost (3:44)
+ 04. God Damn Evil (4:06)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EB7A42DE40AFCC0FB7658842D7F8EBEE8E269D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026789   (702309) от 16.06.2016
+
+Motorhead - Clean Your Clock (2016) Live [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomber
+02. Stay Clean
+03. Metropolis
+04. When the Sky Comes Looking for You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16F1F2958C635B748F35EFDDCCD585627B0D253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287626   (701878) от 08.03.2019
+
+Tyr - Hel (2019) [MP3|320 Kbps] <Progressive Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gates Of Hel
+2. All Heroes Fall
+3. Ragnars Kvæði
+4. Garmr(   Читать дальше...   )Жанр: Progressive Viking MetalПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50E0A85EA34A8B031DF1250F5AA5B90189F65EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287830   (701762) от 08.03.2019
 
 Doro - Backstage to Heaven (2019) EP [MP3|320 Kbps] <Heavy Metal>
@@ -635,122 +751,6 @@ Bullet - Dust To Gold (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8A2ECDB601FF6F9B32F7567E40C43E3E17CC919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288943   (692082) от 13.03.2019
-
-Изумрудный город - Мир не прервётся (2019) [MP3|320 kbps] <Hard'n'Heavy, Female vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гинденбург (04:17)
-02. Октябрь (04:21)
-03. Капитан (04:25)
-04. Небо красное (04:38)(   Читать дальше...   )Жанр: Hard'n'Heavy, Female vocalФормат: LPПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1034798B953D3EE83392C765215FAF0B582D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221864   (691374) от 26.04.2018
-
-Crystal Ball - Crystallizer (2018) [MP3|320 Kbps] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystallizer
-02. Curtain Call
-03. Alive for Evermore
-04. S.O.S.(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F542FCC41B4DAD5BDA8A855C56B4A2C23769F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221877   (691132) от 26.04.2018
-
-Godsmack - When Legends Rise (2018) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Legends Rise
-02. Bulletproof
-03. Unforgettable
-04. Every Part of Me(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7819D42E56E86603062B29F239E3178D91F3208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028360   (690799) от 22.06.2016
-
-Beyond All Recognition - Beyond All Recognition (2016) [MP3|320 кб/с] <Metalcore, Electronic, Industrial metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stain Your Name (04:15)
-02. Aesthetic / Pathetic (04:03)
-03. Elation (01:27)
-04. Revelation (04:17)(   Читать дальше...   )Жанр: Metalcore, Electronic, Industrial metalПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F19877710C4BD69EA3628DDF655FB330F1757C
 ```
 
 https://mybot314.ru/tekegram_catalog/

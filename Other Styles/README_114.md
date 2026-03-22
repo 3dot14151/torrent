@@ -1,3 +1,155 @@
+###  Публикация: 708195   (423279) от 11.10.2013
+
+Steven Price - Gravity: Original Motion Picture Soundtrack (2013) [FLAC|Lossless]<Soundtrack / Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above Earth (1:50)
+02. Debris (4:25)
+03. The Void (6:16)
+04. Atlantis (3:43)(   Читать дальше...   )Жанр: Soundtrack / ElectronicПродолжительность: 01:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5069FB9EFDC963CCA2095318DD0B8EAD747A68B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411998   (422963) от 27.09.2020
+
+Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaymen Shuffle
+02. Olley Oxen Free
+03. Everybody Way Oh!
+04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9B8162E776157CEBE1A094185E1A612780F307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412054   (422715) от 27.09.2020
+
+Nicolas de Angelis - Grand Concert (1986) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nicolas de Angelis является ярким представителем французской школы романтической гитары, а также одним из вдохновителей последней волны нового французского романтизма. Родился в местности Сэнт Клод – северном предместье Парижа, потянувшемся вдоль берега Рэйна.
+В юности получил классическое музыкальное образование по классу гитары, с десяти лет занимаясь в парижской (   Читать дальше...   )01. - La Danse Du Sabre (Katchatourian) (02:28)
+02. - Danse Macabre (Saint-Saëns) (02:39)
+03. - Adagio (Albinoni) (03:17)
+04. - Barcarolle (Offenbach) (02:55)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FECD77F2AF1AD87D2A7BD73C214BFE39F9F9398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167039   (421906) от 18.09.2017
+
+Deosil - A Drop of Eternity (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Second Offering (9:17)
+02.  This Beautiful Moment (7:13)
+03.  Days of Renewal (6:29)
+04.  Solemn Intent (6:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E193ADF877FD577442851B2CDFBADB23927C3DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557586   (421797) от 07.10.2012
+
+Amer-Inkas - 3 albums (2010-2012) [MP3|320 кб/с]<Instrumental, Native american>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421797.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:11) 01. Ananace
+(5:36) 02. Colors of the rainbow
+(3:28) 03. Dances with wolves
+(4:26) 04. Dawa (The Cradlesong)
+(5:38) 05. Love mountain
+(5:28) 06. Ly-O-Lay-Ale Loya
+(5:59) 07. Pakari
+(6:51) 08. Sayrinan
+(6:08) 09. Shunguman
+(5:14) 10. Silvermoons secret(   Читать дальше...   )Жанр: Instrumental, Native americanПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81AFE4022F69EB46D836BA0C6EACCF1FC89416F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166700   (421437) от 18.09.2017
 
 VA - Classic Film Music For The Millennium (2000) [MP3|320 Kbps] <Instrumental, Easy Listening, Soundtrack>
@@ -611,151 +763,6 @@ Sherry Finzer & Mark Holland - Somewhere New (2018) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F928D2F21C8CF95E866E9CBE38332F3AB2893A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251777   (415248) от 02.10.2018
-
-Александр Зацепин - Музыка и песни из кинофильмов Леонида Гайдая (2003) [APE|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кавказская пленница
-01. Увертюра (01:18.42)
-02. Марш троицы (02:09.39)
-03. Медленный танец (03:03.56)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C15BF47E78B73975060C5B8F4FD62E150DDAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167558   (415180) от 21.09.2017
-
-Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dawn
-02 - Stars and Butterflies
-03 - The Living Sculptures of Pemberly
-04 - Meryton Townhall(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7C1FFECC3918145C38EF003F02284A27343A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167424   (415092) от 21.09.2017
-
-James Newton Howard - Waterworld (1995) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Titles
-02 - Escaping the Smokers
-03 - The Atoll
-04 - Prodigal Child(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A2D539B9E79481B8AD6096A509F207D916CB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167484   (415032) от 21.09.2017
-
-Trevor Jones - Around the World in 80 Days (2004) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Everybody All Over the World (Join the Celebration)
-02 - River of Dreams
-03 - It's a Small World
-04 - Around the World Overture(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486716AA2464556FC41A5AA670A1BB7658305F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167552   (414881) от 21.09.2017
-
-LeAnn Rimes - You Light Up My Life (1997) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You Light Up My Life (3:38)
-02 - The Rose (3:34)
-03 - Bridge Over Troubled Waters (4:40)
-04 - I Believe (2:22)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17CAB852F5A63994D7253D627939CB5ECA9FF61
 ```
 
 https://mybot314.ru/tekegram_catalog/

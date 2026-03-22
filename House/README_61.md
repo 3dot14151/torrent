@@ -1,3 +1,148 @@
+###  Публикация: 1188073   (276199) от 01.12.2017
+
+VA - Progressive Essentials Vol.7 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Monique - Emotional Cello (Original Mix)
+02. Pro4ound - Deep Reflection (Original Mix)
+03. Gonza Rodriguez - Lucid Dreams (Gh Remix)
+04. Taiyari - Sirio B (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19072A1F2AE4FD2E8502B66C1BC38F8B9D043C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187823   (276152) от 01.12.2017
+
+Matt Darey - Wolf (Album Mixes) (2017) [MP3|320 Kbps] <House, Progressive, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wolf (Original Mix) (feat. Patchy) 6:52
+02.  Ashamed (Extended Mix) (feat. Billie Fountain) 6:26
+03.  Step Outside (Original Mix Pt. 1) (feat. Jonatan Backelie) 5:04
+04.  The Beast (Matt Darey Mix) 8:47(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 01:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C09D31C376077A20801A215575084042BCE35F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187918   (276145) от 01.12.2017
+
+Matt Darey - Wolf (Extended DJ Mixes) (2017) [MP3|320 Kbps] <House, Progressive, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  One More Night In Stars (Intro Mix) 7:11
+02.  Ashamed (feat. Billie Fountain) (122 BPM Mix) 9:15
+03.  Promises (feat. Patchy) (122 BPM Intro Mix) 10:58
+04.  Dream Of Me (feat. The Ridgewalkers & Deepnite) (Extended Mix) 6:17(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 02:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01B712D64E27127E92E0C9FAE229D50E8825B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083006   (275997) от 14.12.2016
+
+VA - Deep Chill House 2017 (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traumton - Tube Riding (Original Mix) 6:57
+02. Mr. Chillout - Fata Morgana (Original Mix) 3:11
+03. Denis Filipovic - Keep Dancing (Brian Berg Remix) 7:48
+04. Italo Brutalo - Paradiso Analogico (Rambla Boys Remix) 6:33(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54092A4D8867A5F450D1D16CFE7E69BFB85FCAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188033   (275963) от 01.12.2017
+
+Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckley) (2017) [MP3|320 Kbps] <House,Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clubbed To Death 3:24
+02.  Galvanize 3:55
+03.  Body Language 3:41
+04.  Killer 4:53(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 01:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06D8115049886F6839E9A10B102089A5766C9B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337103   (274906) от 10.11.2019
 
 VA - Dance The Annual 2020 (2019) [MP3|320 Kbps] <House, Hardstyle, Club, Dance>
@@ -600,151 +745,6 @@ VA - Dance Hits 2018 (2017) [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E286E44FBA93BCC1F30F35C316A0C4694A10181E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267675   (265485) от 07.12.2018
-
-VA - Best Of EDM Party 2019 (2018) [MP3|320 Kbps] <House, Electro House, BigRoom>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teknova - Rhythm Is A Dancer 2K19 (Melbourne Bounce Mix) 3:36
-02. Turbotronic - Animal (Original Mix) 4:15
-03. Turbotronic - Gimme Gimme (Original Mix) 4:28
-04. MaxRiven - The Riddle (Original Mix) 3:15(   Читать дальше...   )Жанр: House, Electro House, BigRoom, EDM, DanceПродолжительность: 03:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFB97087CF46F25755315812E93B29DA1869B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339859   (264661) от 21.11.2019
-
-VA - 25 Best Christmas Songs Ever For Fitness & Workout (2019) [MP3|320 Kbps] <Funky, Club House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'mixmasters - Santa Claus Is Coming To Town (Fitness Version)
-02. Gloriana - All I Want For Christmas Is You (Fitness Version)
-03. Angelica - All Alone On Christmas (Fitness Version)
-04. Speedmaster - Let It Snow Let It Snow Let It Snow (Fitness Version)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD47FEBFD7771C42B7C46AB51B9E05B0882CE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340192   (264287) от 22.11.2019
-
-VA - Best Of Dance 2019 (Presented by Spinnin' Records) [MP3|320 Kbps] <Progressive House, Club House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Feldt feat. RANI - Post Malone 2:54
-02. New World Sound & J2 feat. Sara Phillips - Outta My Head 2:39
-03. Yves V feat. Afrojack & Icona Pop - We Got That Cool 3:33
-04. Dzeko x Riggi & Piros feat. Veronica - Heaven 3:15(   Читать дальше...   )Жанр: Progressive House, Club House, DanceПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D5B31931C472131EF015E9AAE77BDF12A67200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340531   (262917) от 26.11.2019
-
-VA - Planeta Mix Hits 2020: Winter Edition (2019) [MP3|320 Kbps] <Progressive House, Dance, Big Room, Deep House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maureen Sky Jones & DJ Combo – Better Off Alone (Stephan F Remix Edit) (3:12)
-02. Alpha Squad – Under Pressure (Radio Edit) (2:57)
-03. Rene Rodrigezz & Lova – Stand My Ground (Alex Hander Remix Edit) (3:16)
-04. Sander-7 & DJ Combo – Accordion (Radio Edit) (2:31)(   Читать дальше...   )Жанр: Progressive House, Dance, Big Room, Deep House, Future HouseПродолжительность: 01:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8794B759BD69D422B7B546C03D2DD344E470954C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192894   (262502) от 19.12.2017
-
-VA - Destination Chill House (2017) [MP3|320 Kbps] <Deep House,  Lounge, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bananaquit - Cultural Identity 04:41
-02. Zero Feedback - Rebirth 04:40
-03. Felicia Bye - Ordinary People 06:43
-04. Dr. Diver - Selfishness 05:19(   Читать дальше...   )Жанр: Deep House,  Lounge, DowntempoПродолжительность: 01:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDD0A1992EB387986D008B1889C9708AA350F14
 ```
 
 https://mybot314.ru/tekegram_catalog/

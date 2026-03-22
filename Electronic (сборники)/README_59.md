@@ -1,3 +1,90 @@
+###  Публикация: 1512330   (787469) от 24.11.2021
+
+VA - Synthwave Dream (Vol.03) (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787469.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Karlo Wanny - Among Us
+002. Shock Therapy - You Were The Moon
+003. Koreless - White Picket Fence
+004. Quiqui - Everything About You(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7460E2D405625CD6595733C64529051BFA0852D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512363   (787468) от 24.11.2021
+
+VA - Chill Electronic: Casa Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787468.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Important - Except
+002. Sonic Art - Orbital Journey
+003. Rey&Kjavik - Zula
+004. 808 Lounge - Changes(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 08:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2BDD60C7E68B25C4BB28D08B590145B2357523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512356   (787467) от 24.11.2021
+
+VA - Techno Frozen (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787467.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Q-Green - Bubbles
+002. Hardchemist - Red Dragon
+003. Bearface - Live For Life
+004. Alex Tb - Cyberpunk(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E17AF71B01BC9F66F24B1D282BE8B732831DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512284   (787465) от 24.11.2021
 
 VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -661,93 +748,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93F6AC78ABFE06600316D8D6AC9F904F27E57264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204588   (784681) от 06.02.2018
-
-VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.3 (2018) [MP3|320 Kbps] <Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orecch - Parallel Realities
-02. Shyisma - Technology
-03. Beyond Within - Deep Fields (chrizzlix remix)
-04. Filtron Essence - Universal Psychedelic(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 03:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE6EC83DE290F3013189C8067E9A8F05DACF48B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204573   (784659) от 06.02.2018
-
-VA - Deep House Collection Vol.156 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaliyah - Try Again (BeatBlasters Remix) 5:26
-02. Adamant & Darian Crouse - Love Me Strong (Original 530 West 27th Stree) 6:25
-03. Alex Kostadinov - Do The Thing (Original Mix) 5:47
-04. Alex Senna & Pimp Chic! - Talk Slow (Original Mix) 4:21(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFAFD9BB716F48A5F1A8713750E3C4713BBEBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204482   (784653) от 06.02.2018
-
-VA - Romantic Drum Vol 2 (2018) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Techstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WTRFALL – Lose (Original Mix)
-02. Delta Heavy, Dirty Audio, Holly – Stay (Maduk Remix)
-03. Onykia – When You’re Not You (Original Mix)
-04. Kaskade & Deadmau5 – Beneath With Me feat. Skylar Grey (Fearbace Bootleg)(   Читать дальше...   )Жанр: Drum & Bass, Drumfunk, TechstepПродолжительность: 03:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAC3A896D983CC4E23B83208E37A102FA2EFE1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1341542   (262308) от 28.11.2019
+
+VA - Creativity: Rap Playlist (2019) [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262308.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roc Marciano - 1,000 Deaths
+002. Young Dolph - Major
+003. Chucky Trill - Keisha
+004. Fat Trel - Too Much Drink(   Читать дальше...   )Жанр: RapПродолжительность: 08:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2D71CC7CD135717F9F66DE9A74E839F8923643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626821   (240321) от 16.04.2023
+
+VA - Rule Number On Dancehall Mixtape (2023) [MP3|320 Kbps] <Reggae, Dub, Dancehall>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240321.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Philax - Pilule [01:42]
+002. Lijay - Frick [01:50]
+003. Lamatrak - Shatta Boss [01:56]
+004. Rachelle Allison - Too Hot [02:00](   Читать дальше...   )Жанр: Reggae, Dub, DancehallПродолжительность: 07:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BE447F6C275EA4136D89E7B0ED0C5F4988FB1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547022   (239025) от 27.04.2022
 
 VA - Rap NNM (2022) Русский Выпуск [MP3|320 Kbps] <Rap>
@@ -687,64 +745,6 @@ VA - Лучшие хитовые треки в стиле Rap, Hip Hop & R'n'B �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41739ECF8E7C316F94F76F4B7C8233327E47310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087194   (146416) от 27.12.2016
-
-VA - Romantic Soul RnB (2016) [MP3|320 Kbps] <RnB, Lyric>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146416.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jahkoy Feat. Schoolboy Q - California Heaven (Bay Mix)
-002. Drake - Hotline Bling
-003. Sean Garrett Ft Lil Yachty - Look On Your Face (Clean)
-004. Musiq Soulchild - Who Really Loves You(   Читать дальше...   )Жанр: RnB, LyricПродолжительность: 06:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18048C09F1A3C5C1954CC7F6D38AD1C8062FF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348995   (139946) от 30.12.2019
-
-VA - Mode Rap Musical Collection (2019) [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nino Salas - Your Working
-002. C.U.L.T.U.R.E. - Reflective
-003. Kinto Sol - Hijos De Malinche (Feat. Pato Machete)
-004. Hi-Stakes - Dkmv(   Читать дальше...   )Жанр: RapПродолжительность: 08:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C250CA207B9DF432F887662E1811C684BFB7F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

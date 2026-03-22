@@ -1,3 +1,148 @@
+###  Публикация: 1270881   (154518) от 21.12.2018
+
+VA - Disco Electronica Vol.36 (2018) [MP3|320 Kbps] <Deep House, Funky, Nu Disco, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sven Tasnadi - It's Your Love (Edit) 6:38
+02. The Deepshakerz - Diggin' Down 5:12
+03. Diego Lima - Bubblegum 6:39
+04. Huxley, Ron Carroll - Work 5:46(   Читать дальше...   )Жанр: Deep House, Funky, Nu Disco, Indie DanceПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349F7A2C3187C8B2959E263096BD7C46D708D4A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270882   (154499) от 21.12.2018
+
+VA - Mega Dance Party 2019 (2018) [MP3|320 Kbps] <Deep House, Dance, Bigroom, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LocoDJ - Ciao Bella (Radio Edit)
+02. Spikaa feat. Deja - Home (Radio Mix)
+03. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
+04. Klissmoon - Not Today (Radio Edit)(   Читать дальше...   )Жанр: Deep House, Dance, Bigroom, Progressive HouseПродолжительность: 02:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4394FD431CE83DE02FA02A06CFDA220CC9BD3838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194757   (154337) от 26.12.2017
+
+VA - Sport Club Hits Vol.1 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154337.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Avancada vs. Darius & Finlay  -  Xplode (Avancada Mix)  3:16
+02.  Armin van Buuren, Sunnery James & Ryan Marciano  -  You Are  2:57
+03.  Picco  -  Like I Love The Mash (Edit)  3:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A2C5BEA337A8E887EF337D715D91E36B463FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825422   (152074) от 17.10.2025
+
+FaraoN - Deep House Music Collection 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How It Feels 03:40
+02. Soul Funk 05:10
+03. Morning Sun 04:03
+04. Aura 05:05(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1329EB77C6D0E23CE683AC351658FA43175380F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677544   (150547) от 18.11.2023
+
+VA - Black Hole House Music 11-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Rivera - Get Me Out Of Here (Sivz Extended Remix) [5:31]
+02. ZOYA & Factore - Sun Is Dark (Extended Mix) [5:28]
+03. Dsnt Matter - Lost My Heart (Extended Mix) [5:56]
+04. Kiholm & Kris O'Neil - Victorious (Extended Mix) [5:41](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAFCA8133188C905A4D3BCE17F4AFAE750C293A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677628   (150535) от 18.11.2023
 
 VA - The Best Of House 2023 Part 2 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -612,151 +757,6 @@ VA - Sunshine Dance 9 (2017) [MP3|320 Kbps] <House, Euro-House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC1F1A83035FF38CD99CDA7E9C9ECED55940A2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195697   (140891) от 30.12.2017
-
-VA - International Sports Collective 7 (2017) [MP3|320 Kbps] <House, Euro-House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alex Greed & Alina Libkind  -  Scars (Radio Edit)  2:50
-02.  Mark Hills  -  Break (Radio Mix)  3:24
-03.  Cliff Wedge  -  No One Like U (Radio Edit)  3:46
-04.  Masterbeat  -  Hold Me Tonight (Radio Edit)  3:30(   Читать дальше...   )Жанр: House, Euro-House, Vocal HouseПродолжительность: 02:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16159A4D08C78AA45D0AC67B6F0921AB12FF561D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273114   (139807) от 30.12.2018
-
-VA - Addicted 2 House, Vol. 30 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alaia & Gallo, J8Man - Hot 4 U
-02. Popcorn Poppers, Kiki Doll - The Leader (Radio Edit)
-03. Massivedrum - Don't Stop (Radio Edit)
-04. Kid Massive feat. Rebecca King Vanilla Ace Remix - H(   Читать дальше...   )Жанр: HouseПродолжительность: 01:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689DF06FC48661A85C824080720B72D8E0071B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088477   (139173) от 31.12.2016
-
-VA - Deep Dark and Sexy Vol.1: Finest Deep and Elektro House (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buben - My Oxygen
-02. Poenitsch & Jakopic - Two People - Radio Edit
-03. Maksim Biserov - Shambhala Residents
-04. Christos Fourkis - Come In My Life(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6F9927924E7A7AFABC101C8464B99970346201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273356   (138059) от 31.12.2018
-
-VA - 5 Years Of Futura Groove Records (2018) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Kinnard - The Radio Is My Life (Original Mix)
-02. Ramses Jair - Deep Culiacan (Original Mix)
-03. Joy Marquez, Alex Barrera, Chriss Lerman & Abdel Karim Ft. JAC - Neurotic Nation (Original Mix)
-04. Mijangos - Detroi (Original Mix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 03:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C941A5238705224FDBEED771A57BE86FADDEA252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273273   (137883) от 31.12.2018
-
-VA - Classic Car Dance Hits 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raffee - Society 3:45
-02. Parafies - Outrage 2:52
-03. Dj Farre - Raw & Bumpin' (Club Mix) 5:54
-04. Idin Gorji, Tina Amy - You & I (The Remixes) 3:16(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B06CB69CA40B32C035DF7FAFEE486B16E2D24E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

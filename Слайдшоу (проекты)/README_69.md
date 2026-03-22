@@ -1,3 +1,55 @@
+###  Публикация: 1057873   (472751) от 29.09.2016
+
+Проекты - VideoHive - Origami One [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Origami One - это проект для создания стильного и уникального слайд-шоу, презентации или промо.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8B3413F0B83C9E6D3B6E990B3F1B9B5D6B9BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057872   (472625) от 29.09.2016
+
+Проекты - VideoHive - Time Machine [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный проект для создания вашего фильма или слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750BBF9F53CC216CE2EAE52BDA7C1EE60FAFCC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701863   (471657) от 20.09.2013
 
 VideoHive - Mystic Shapes - 2544693 [AEP]
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C999D648609594A8E919A8942209E51DAD04ABE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320731   (466805) от 20.08.2019
-
-Проекты - VideoHive - Clean Photo Opener - 22110112 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clean Photo Opener - простота и в тоже время элегантный шаблон показа Вашего логотипа... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5694EFE5F4A0670C9DEDDF63683BF0DE660E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320806   (466793) от 20.08.2019
-
-Проекты - VideoHive - 8 Modern Openers Pack - 24075166 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь современных шаблонов Ае на различные темы для использования их как в начале, так и в конце Вашего фильма... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A936C1016C0A3363A7395C0DA76B974BE1A92E5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1005284   (830278) от 10.04.2016
+
+Проекты - VideoHive - Big Typo Parallax Presentation Builder [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Параллакс презентация.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FF4E15D7ADCF4C11F40CA83A2FD90531B3A859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005851   (830272) от 10.04.2016
+
+Проекты - VideoHive - Dubstep Urban Opener - 12580789 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания вступительного ролика или фото-видео слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE63BE3DC7E4838352541C225466B5051C251B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005301   (830090) от 10.04.2016
+
+Проекты - VideoHive - Real Estate Gallery [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Презентация для коммерческой рекламы.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0518D9681D2CC80A881780E0C29E6A784B3F776B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114988   (829569) от 16.03.2017
+
+Проекты - Motion Array - 158 Slide Photo - 21503 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829569.jpg" />
+</div>
+
+
+###  Подробнее
+
+158 Slide Photo - это потрясающий проект After Effects с 158 заполнителями для изображений и 24 редактируемых строк текста. Элементарный в использовании и настройке шаблон. Просто перетащите медиа файлы, измените текст и нажмите render.
+Создавайте великолепные слайд-шоу всего за несколько простых шагов при помощи этой потрясающей анимации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC089BF93165CC9CF085B8DEBDF6F3BE422B999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502226   (829533) от 13.10.2021
+
+Проекты - ProShow Producer - Epic Opener [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вырванные страницы старой книги, что они скрывают...? Слайдшоу в стиле "гранж". Просто вставьте фотографии и текст... Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D65B38B1F754BF97C8D145C17585380EE26207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114885   (829455) от 16.03.2017
+
+Проекты - VideoHive - Hypnotic II [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypnotic II - воодушевляющий проект с быстрым и мощным ритмом. Придайте дополнительной энергии вашем видеошедеврам.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E0DDD21A99956D28708F0980A8312718F93204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114848   (829448) от 16.03.2017
 
 Проекты - VideoHive - Electric Logo - 19551097 [AEP]
@@ -524,163 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9CE04DC51C86EAB96942DFF2F56884DDE0D9CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006193   (828607) от 11.04.2016
-
-Проекты - VideoHive - Urban Opener - 14461470 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания стильного и динамичного слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2472C49D1C1DE8B69E90BB2C5503B819A33AB907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006199   (828606) от 11.04.2016
-
-Проекты - VideoHive - Particle Inspirations - Trailer [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трейлер - Испарение частиц. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D4C6CC2630D9F71E16E19B939E2290F308A857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006273   (828603) от 11.04.2016
-
-Проекты - VideoHive - Geometric Glitch Intro 2 - 15066335 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geometric Glitch Intro 2 - Футуристический проект для вашего вступления, и т.д.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFA166348FE4AE87B32AED3BC8D9F72C44D53FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006277   (828488) от 11.04.2016
-
-Проекты - VideoHive - Short Dynamic Slide - 11918452 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания вступительного ролика или фото-видео слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBA3127756DBFCC315709484BEAB66F74EBEA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006371   (828483) от 11.04.2016
-
-Проекты - VideoHive - Light Streak Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD18687ACE3C18DC2FFCBC8FA8052006746873B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006434   (828480) от 11.04.2016
-
-Проекты - VideoHive - Slideshow Pack 3 in 1 - 11126579 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828480.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 проекта для создания фото-видео слайдшоу. Используются в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C88B1C256037C5CEA7EC84EDD74268062BDD6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1456121   (243369) от 21.03.2021
+
+Kosling - Live @ Fireland Festival,France (2021-03-19) [MP3|320 Kbps] <Big Room, Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keud & Cendre - Way Down
+02. Kosling & Blackcode ft. Alessa - Supernova
+03. Kosling & Still Young ft. OMZ - When We Were Young
+04. Thomas Gold & David Shane - Superhuman (Kosling Edit)(   Читать дальше...   )Жанр: Big Room, Dance, Electro PopПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ABFEEC826B4C2CCBC4D21E5112E6B032E7B50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627941   (242549) от 21.04.2023
+
+VA - Armin van Buuren - A State Of Trance 1117 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Grand - Fernet
+02. Andy Moor & Somna & Ava Silver - Alchemy
+03. Ahmed Helmy - Talk To You
+04. Artche - Weightless(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98022A155E6E74FB2D8A5794C209304F51B8D551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634194   (242437) от 21.05.2023
+
+VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & HRRTZ feat. Julia Church - Fire With Fire (Future Favorite)
+02. Super8 & Tab and Crowd+Ctrl feat. Jess Ball - Incomplete
+03. Kryder - The Eye Of Ra
+04. DIM3NSION - Stronger Now(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BC2DE68AC298BAEFC8BC4FAF9E8283EE60A317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542582   (242147) от 10.04.2022
 
 VA - TrackWolves Best Of 2021 DJ Mix (2021-2022) [MP3|320 Kbps] <Electro House, Big Room, Trance>
@@ -656,93 +743,6 @@ Hour 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D69D0239906360522DDF5A45249207AA3B0C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513427   (225569) от 28.11.2021
-
-Cosmic Gate - Cosmic Gate In Concert (The Classics) (2020-10-17) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Rivera feat. Lizzie Curoius - Departures (Cosmic Gate Remix)
-02. deadmau5 - Faxing Berlin
-03 .Nadia Ali - Rapture (Tristan Garner Remix)
-04. Cosmic Gate & Aruna - Free Falling (Barra)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E43732801FA8D7CC4859156A53C7ABA1CFEBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268782   (225217) от 12.12.2018
-
-VA - Markus Schulz – Global DJ Broadcast (World Tour, SQL Miami) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Smiley – The Dreamers (Markus Schulz In Bloom Mix)
-02. ID
-03. Markus Schulz & Jam El Mar – The Lotus
-04. ID(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653A2E63B99E3FECE1C33D3A0A107F496CD800D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268784   (225208) от 12.12.2018
-
-VA - Ori Uplift & Tycoos - Uplifting Only 304 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.BREAKDOWN OF THE WEEK: Kiyoi & Eky & Khairy Ahmed - Silent Heart
-02.Rene Ablaze featuring Andromeda - Elysium
-03.Bobina & Christina Novelli - Mysterious Times (Extended Mix)
-04. Ana Criado - In A Thousand Skies (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686B43C34812AA8078E28F50AC8B219DEA21C85A
 ```
 
 https://mybot314.ru/tekegram_catalog/

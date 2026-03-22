@@ -1,3 +1,61 @@
+###  Публикация: 1730761   (52991) от 17.06.2024
+
+VA - Calm Horizons 1: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow World - Evening Stroll (4:26)
+02. Dellasollounge - Touch Me Long (2:17)
+03. Sky Symbols - Returning Home (3:23)
+04. Capa - The Best Kind of Love (3:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C0990E5496B895C519FB2ED3846D7D9901A2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821385   (52134) от 02.10.2025
+
+VA - Spa Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jero Nougues - Old Memories (5:09)
+02. M-Sol Project - Keep Calm (5:24)
+03. Pier-O - White Sands (5:13)
+04. Paul Seling - Keep Running (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A2C23F4B2543C16A5CEBDC271A75ECB9266B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732548   (52021) от 25.06.2024
 
 VA - Lounge Heaven, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -687,64 +745,6 @@ VA - Chill Sessions: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40445FEE45EC2815FC061E2AA857C150ACB8DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821194   (41017) от 01.10.2025
-
-VA - Slow Down Sessions: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_41017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Andiamo (4:42)
-02. Gary B - Rainy Day in the City (1:51)
-03. Ljay - Let Me Chill (3:58)
-04. Supira - Beautiful You (5:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E37DF3C1A9044D7E0945F2B9A4B4D246C2F4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821229   (40957) от 01.10.2025
-
-VA - Poolside Grooves Chillout Hits Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_40957.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. The Echo of Koenigssee - Slow-Melt Whisperz (4:29)
-• 02. Von Gauss - Neon Wind Down (4:11)
-• 03. Sigrun II - Meadow Mindset (4:16)
-• 04. Quadra Montres - Barefoot Bliss (4:28)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, DowntempoПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D0C27199E4D2046DF0B0B74EC4D3F55B94D33E
 ```
 
 https://mybot314.ru/tekegram_catalog/

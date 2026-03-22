@@ -1,3 +1,61 @@
+###  Публикация: 1154333   (540938) от 30.07.2017
+
+Martian - Flying In Love (2010) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To You (6:06)
+ 02. Crying Heart (4:39)
+ 03. Like In A Movie (4:00)
+ 04. Night Rain (6:29)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA60182C48138000F0D6A757FEE24D9F28F5EBD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036383   (540345) от 04.08.2018
+
+Puremusic - Discography 11 Releases (2013-2017) Silk Sofa Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunray Kiss (05:04)
+ 02. Take A Seat And Relax (05:52)
+ 03. Ai (04:42)
+ 04. Dreams (06:18)(   Читать дальше...   )Тип издания: WEB •Жанр: Downtempo, Ambient, Chillout •Продолжительность: 01:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D64DD877BB6CD672FCC8483D56A1E507FFD861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557691   (539167) от 16.06.2022
 
 VA - Vocal Lounge Gems: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -695,64 +753,6 @@ VA - Soothing Relaxation Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47A80A0DB2C4F8E2558ECF6E8BEF868E479E9A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566172   (486388) от 27.07.2022
-
-VA - Oriental Beauty: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prana Tones - Eastern Voices (Original Mix) (3:44)
-02. J. R. Haim - Wanderlust (4:47)
-03. Michael E - The Fourth Element (Original Mix) (5:49)
-04. Marga Sol - Je T'aime (Original Mix) (5:17)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED80184AAE4BFDB3AC4170FE1C3CEAC885B7A5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937890   (486046) от 16.09.2015
-
-VA - Relax Zone Vol 1 (2015) [FLAC|tracks]<Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baffle - Inside Out... (03:22)
-02. Breex - Somewhere in My Dreams (04:57)
-03. Dave Harrigan - Sunset Avenue (04:22)
-04. CJ Ferrum - Free Flight (03:49)(   Читать дальше...   )Производство: Easy Summer LimitedЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A968D29EF641911841342FF3354BF230689C7797
 ```
 
 https://mybot314.ru/tekegram_catalog/

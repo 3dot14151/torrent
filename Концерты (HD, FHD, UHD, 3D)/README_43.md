@@ -1,3 +1,201 @@
+###  Публикация: 485475   (89683) от 20.04.2012
+
+Григорий Лепс: Научись летать Live (2011) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_89683.jpg" />
+</div>
+
+
+###  Подробнее
+
+23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
+02. Клуб одиноких сердец подполковника Пеппера
+03. Зима
+04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482481   (88265) от 13.04.2012
+
+Григорий Лепс: Научись летать Live (2011) [1080p] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88265.jpg" />
+</div>
+
+
+###  Подробнее
+
+23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
+02. Клуб одиноких сердец подполковника Пеппера
+03. Зима
+04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476784   (86673) от 05.04.2012
+
+Жан Мишель Жарр / Jean Michel Jarre - Live Port Hercule, Monaco (2011) HDTVRip [1080p]
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный концерт Жана Мишеля Жара (Jean Michel Jarre) в порту Монако в честь свадьбы князя Альберта и Шарлин. Телепередача канала NRJ12.
+
+Треклист:
+01. Jean Michel Jarre - Intro (beginning cutted)
+02. Jean Michel Jarre - Chronologie Part 1
+03. Jean Michel Jarre - Oxygene II
+04. Jean Michel Jarre - Magnetic Fields I
+05. Jean Michel Jarre - Equinoxe V
+06. Jean Michel Jarre - Rendez Vous III - Harpe Laser
+07. Jean Michel Jarre - Magnetic Fields II(   Читать дальше...   )Жанр: ТелепередачаПеревод: ОтсутствуетПродолжительность: 02:04:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477542   (86196) от 03.04.2012
+
+Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Red Hot Chili Peppers на фестивале Rock In Rio 2011.01. Monarchy Of Roses
+02. Can't Stop
+03. Charlie
+04. Otherside
+05. Look Around
+06. Dani California
+07. Under The Bridge
+08. Factory Of Faith
+09. Throw Away Your Television
+10. Pea(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: 01:42:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477555   (86175) от 03.04.2012
+
+Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_86175.jpg" />
+</div>
+
+
+###  Подробнее
+
+30-го августа, в день выхода новой пластинки RHCP “I’m”With You” музыканты исполнят весь альбом полностью на концерте в Кёльне... Посмотреть прямую трансляцию концерта поклонники могли в кинотеатрах 39 стран мира, в том числе в США, Аргентине, Чили, Бразилии и странах Европы. В Москве трансляция шла в клубе «16 тонн»... Red Hot Chili Peppers была основана в Калифорнии в 1983 году. С тех пор коллектив продал более 60 миллионов копий своих альбомов...01. Monarchy of Roses
+02. Factory of Faith
+03. Brendan's Death Song
+04. Ethiopia
+05. Annie Wants a Baby
+06. Look Around
+07. Frankenstein (Edgar Wiliams cover)
+08. The Adventures Of Rain Dance Maggie
+09. Jam
+10. Did I Let You Know (with Michael Bulger on trumpet)(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: Видеокодек: MPEG-2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476909   (85969) от 02.04.2012
+
+B.B. King: Live (2006) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись представляет собой снятый в течение четырех ночей в собственном клубе короля блюза в Нэшвилле и Мемфисе и Теннесси, группы B.B. King Blues Band, которая выступала вместе с ним во всем мире. Сама природа блюза это импровизация, и B.B. King, король импровизации. Он играет то, что он чувствует, и чувствует, что он играет, и публика в восторге от его игры. В своей 52-летней карьере он сделал свыше 15 тысяч представлений, охватывая 300 концертов в год во всем мире.01. Manhattan Blues (by B.B. King's band)
+02. Two I Shoot (by B.B. King's band)
+03. Why I Sing The Blues
+04. I Need You So
+05. Bad Case Of Love
+06. Blues Man
+07. When Love Comes To Town
+08. All Over Again
+09. Ain't That Just Like A Woman
+10. A Whole Lot Of Loving(   Читать дальше...   )Жанр: BluesПродолжительность: 01:52:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476649   (85784) от 01.04.2012
 
 Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
@@ -561,188 +759,6 @@ https://mybot314.ru/tekegram_catalog/
 ###  Подробнее
 
 Жанр: Классическая музыка, Вокал, Поп, КроссоверРежиссер: Дэвид ХорнПеревод: ОтсутствуетПродолжительность: 02:05:25+00:28:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451211   (75736) от 12.02.2012
-
-Peter Gabriel - New Blood (Live in London) (2011) HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive RockФормат: TSПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451187   (75661) от 12.02.2012
-
-Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockФормат: TSПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450670   (75469) от 11.02.2012
-
-Bad Company - Live At Wembley (2011) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Enough
-02. Honey Child
-03. Run With The Pack
-04. Burnin' Sky
-05. Young Blood
-06. Seagull
-07. Gone, Gone, Gone
-08. Electric Land
-09. Simple Man
-10. Feel Like Makin' Love(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449688   (75328) от 10.02.2012
-
-Styx: The Grand Illusion/Pieces of Eight Live (2010/2012) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmed on November 9th, 2010 at the historic Orpheum Theater in Memphis, TN, this stunning show captures Styx performing their classic multi-platinum seventies albums The Grand Illusion and Pieces Of Eight live in their entirety for the first time. These iconic albums established Styx as a globally successful rock band and defined the AOR genre for a generation of (   Читать дальше...   )The Grand Illusion
-01. The Grand Illusion
-02. Fooling Yourself (Angry Young Man)
-03. Superstars(   Читать дальше...   )Жанр: RockСубтитры: Английские, немецкие, французские, испанскиеПродолжительность: 01:41:31+00:29:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447937   (74518) от 06.02.2012
-
-The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Under My Thumb - (Tempe, Arizona, 13 December 1981 (outdoor stadium show))
-2. Let's Spend the Night Together - (Tempe, 13 December 1981)
-3. Shattered - (Tempe, 13 December 1981)
-4. Neighbours - (Tempe, 13 December 1981)(   Читать дальше...   )Жанр: rockРежиссер: Хэл ЭшбиАктеры: Мик Джаггер, Кит Ричардс, Чарли Уоттс, Билл Уаймен, Ронни Вуд, Йен Стюарт, Ian McLagan, Эрни Уоттс, Бобби Кис, Джерри ХоллПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447318   (74337) от 05.02.2012
-
-Foreigner - Rockin' at the Ryman (2011) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
-
-Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated for the new Foreigner experience about to take place! Recorded with the highest equipment to capture the rocking that actually took place, this concert included the full-set for ultimate listening and viewing pleasure. This new announcement is certainly a dream come true for any fan or new listener, including all of the hits from their album “Can’t Slow Down” like “Double Vision”, “Cold As Ice” to “Jukebox Hero”, “Hot Blooded” and “Urgent”. This is something you really have to see for yourself, and with the new DVD/Blu-ray disc quality, you can experience it as if you were there.01. Double Vision
-02. Head Games
-03. Cold As Ice
-04. In Pieces
-05. Blue Morning, Blue Day
-06. Waiting For A Girl Like You
-07. When It Comes To Love
-08. Dirty White Boy
-09. Starrider
-10. Feels Like The First Time(   Читать дальше...   )Жанр: RockВ ролях: Mick Jones, Kelly Hansen, Jeff Pilson, Tom Gimbel, Michael Bluestein, Jason BonhamПродолжительность: 01:46:35
 
 ## Скачать торент
 ```bash

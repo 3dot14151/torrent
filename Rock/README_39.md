@@ -1,3 +1,154 @@
+###  Публикация: 1145463   (621644) от 25.06.2017
+
+Donna Dunne & The Mystery Men - Voodoo (2017) [MP3|320 Kbps] <Rockabilly, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo (02:58)
+02. Shame (02:15)
+03. Moonbird (02:44)
+04. Restless Nights (03:58)(   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BAE0BAC2F4663CCA5AA7512DE8D297D297FD55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910303   (621553) от 20.06.2015
+
+Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [MP3|320 кб/с]<Pop rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babe It's Up To You
+02. It's Your Life
+03. Oh Carol
+04. Baby It's You(   Читать дальше...   )Жанр: Pop rockПродолжительность: 02:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3272A17666DE7A3E82FAC8188176A423976D0C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036500   (621162) от 20.07.2016
+
+Fields - Fields (1969) [MP3|320 Kbps] <Heavy Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621162.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Elysian Fields
+2. Bide My Time
+3. Take You Home
+4. Jump On You(   Читать дальше...   )Жанр: Heavy PsychПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9E92E23F51703AD74CEF17BEA2DE6556167628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036244   (621096) от 20.07.2016
+
+Mitch Ryder And The Detroit Wheels - Breakout !!! (1966) 1993, Sundazed Music [MP3|320 Kbps] <Rock, Rockabilly, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking The Dog
+02. I Had It made
+03. In The Midnight Hour
+04. Ooh Poo Pah Doo(   Читать дальше...   )Жанр: Rock, Rockabilly, Rock & RollПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB34E3E7C2E7FE703A158553B8B9A80CF67700B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522826   (620389) от 14.07.2012
+
+VA - Rock Ballads - The Most Beautiful Classic Rock Songs (2004) [MP3|320 кб/с]<Alternative Rock, Pop Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jeff Healey Band - While My Guitar Gently Weeps
+02. David Bowie - Starman
+03. Chad Kroeger Feat. Josey Scott - Hero
+04. Santana - Samba Pa Ti
+05. Bryan Ferry and Roxy Music - Jealous Guy
+06. Phil Collins - Another Day in Paradise
+07. The Corrs - Only When I Sleep
+08. Roxette - It Must Have Been Love
+09. Marillion - Kayleigh
+10. Toto - Africa(   Читать дальше...   )Жанр: Rock Ballads |Продолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C363365BDFA8CC6FE96A6B570EA3B44F26B9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910828   (619838) от 21.06.2015
 
 God Is An Astronaut - Helios | Erebus (2015) [MP3|320 кб/с]<Post-Rock>
@@ -618,151 +769,6 @@ William D. Drake - Revere Reach (2015) [MP3|320 кб/с]<Progressive Rock, Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E312EEFAC30FEE2053F1FB8A7739B696BA5BCEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911228   (612907) от 25.06.2015
-
-Solstice Coil - Commute (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Eyes
-02. Forget You Ever Saw Us
-03. Shuffle the Cards
-04. Her Silent Silhouette(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBCC381CBAA761FD060387E37D0E0DE9FBACCE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911384   (612898) от 25.06.2015
-
-Lloyd Project - Shelter (2015) [MP3|320 кб/с]<Progressive / Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612898.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moonrise (4:02)
-2. Black Dove (3:30)
-3. Shelter (3:57)
-4. Vertigo (3:44)(   Читать дальше...   )Жанр: Progressive / Art RockПродолжительность: 00:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3582B7EC2B2E71691F2289D969CBD813E48270B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146827   (612740) от 30.06.2017
-
-Led Zeppelin - Ottawa Sunshine (1998) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I can't Quit You Baby (05:54)
-02. You Shook Me (04:13)
-03. Sunshine Woman (03:17)
-04. Heartbreaker (07:18)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3867A60BD2F153BC40FAD3D75B9099604177A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912280   (612693) от 25.06.2015
-
-Dark - Dark (2015) [MP3|320 кб/с]<Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distance
-02. Eternity
-03. Dark World
-04. Sleepless In Sao Paulo(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D1AA854E78B162A06A693DF5A6AC8FDBF7760D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911366   (612692) от 25.06.2015
-
-The Aristocrats - Tres Caballeros (2015) [MP3|320 кб/с]<Progressive Rock, Jazz, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stupid 7
-02. Jack s Back
-03. Texas Crazypants
-04. ZZ Top(   Читать дальше...   )Жанр: Progressive Rock, Jazz, FusionПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE79B2B860DBAAB0222BEF98FE4C7579F07A6244
 ```
 
 https://mybot314.ru/tekegram_catalog/

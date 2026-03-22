@@ -1,3 +1,57 @@
+###  Публикация: 989812   (915147) от 23.02.2016
+
+Проекты - RocketStock - Alluvion [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alluvion-стильный проект After Effects, который сделает Ваш логотип в 3D без каких то ни было сторонних плагинов. Проект легко настраивается в цветовую гамму, в соответствии с вашим брендом.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FBFE9C59F0A84AC2ED3163584B3D90A119970E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989892   (914904) от 23.02.2016
+
+Проекты - VideoHive - Flat Bird Quick Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8F64380791AEE7BD5F8422D1D58BCBD7C4D56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989879   (914889) от 23.02.2016
 
 Проекты - VideoHive - Colorful Logo Opener [AEP]
@@ -622,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5B9EF7E934CCB8706E1B3550E9256464CC6F861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101323   (895533) от 06.02.2017
-
-Проекты - VideoHive - Flower - Elegant Logo Reveal - 15224562 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flower - Elegant Logo Reveal - Это нежное цветение действительно является воплощение весны! Это безусловно привлечет внимание своей красотой к вашему блогу, презентации, магазину цветов и косметики.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCCE6F43E77D85BD4E43A642011B8ACFA30AD3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993328   (895054) от 05.03.2016
-
-Проекты - VideoHive - Car Reveal - 14669649 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F15A7863ADBCDE5ED1C322A8980C32AA260680B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1430819   (169749) от 11.12.2020
+
+MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169749.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. kyivstyle
+2. sirena
+3. zvonok
+4. domoi(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9A16A46F4AE10461877BFF9B17D60D59BA27B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430818   (169656) от 11.12.2020
+
+Taylor Swift - evermore (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. willow
+2. champagne problems
+3. gold rush
+4. ‘tis the damn season(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67547EF3E16CCF50A7AADB0005CB0F52D2036B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672491   (169430) от 28.10.2023
+
+Rainbow Train - Accompanied By (1978) LP [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Band (3:41)
+02. Let It Happen Let It Be (5:33)
+03. Good Morning Bad Day (11:10)
+04. Heaven On Earth (3:25)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7880B704DACF44BA9C52DBCB8D127B7A1E62A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672502   (169325) от 28.10.2023
+
+VA - Hit News Vol. 4 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Box Of Laces - Happy Nation
+02. Jamal - Up And Down
+03. V.I.P. - I Like Chopin
+04. Marc Davis - Movie Star(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F48385D06E3AB26E5532BE6A7A55C1CF57D36DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672285   (169104) от 28.10.2023
 
 Taylor Swift - 1989 (2014) Taylor's Version, 2023, Taylor Swift [MP3|320 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - Hit News Vol. 9 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C858D36CCA27F86A882B71DB019BE66D2ED5AD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675022   (160263) от 09.11.2023
-
-VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Bobo - Let Yourself Be Free
-02. 2 Unlimited - The Real Thing
-03. 2 Brothers On The 4th Floor - Dreams
-04. Black Label - Givin' You My Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11FF66FE76F167D4E775E47C0654ED6E85D52D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599562   (159857) от 23.12.2022
-
-VA - Broken Beat & Nu Disco The Best Of (2022) CD, Compilation [MP3|320 Kbps] <Soulful, Nu Disco, Indie Dance, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vito Lalinga (Vi Mode inc project) - Angola (Zane Wayne Massey Saxophone)
-02. Vito Lalinga (Vi Mode inc project) - Legend
-03. Vito Lalinga (Vi Mode inc project) - Driving
-04. Vito Lalinga (Vi Mode inc project) - Party Groove(   Читать дальше...   )Жанр: Soulful, Nu Disco, Indie Dance, FunkПродолжительность: 01:53:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D8DD1412BD6003FA612254572B57A54CC3FD5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599917   (159365) от 25.12.2022
-
-VA - Winter Chill 2023 (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Lewis - How Do I Say Goodbye (2:43)
-02. Olivia Rodrigo - drivers license (4:02)
-03. Taylor Swift - Anti-Hero (3:20)
-04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 04:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28D6BCAD3F4FA413BFEE63E5BCC74BA46355771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599997   (159334) от 25.12.2022
-
-Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Di La (2:57)
-02. Volare (3:20)
-03. Mala Femmina (2:31)
-04. Mama (2:03)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305C7B4EAA3A5B0EA02452C8B703E2737B66ECDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

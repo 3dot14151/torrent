@@ -1,3 +1,61 @@
+###  Публикация: 1792757   (67633) от 20.04.2025
+
+VA - Italian Restaurant Chill Music Vol. 3 (Beats to relax) (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - Tac (3:49)
+02. Bodyles - Washington (3:35)
+03. Papik - Gente Come Noi (4:25)
+04. Cristiana Polegri - Cocktail D'Amore (3:39)(   Читать дальше...   )Жанр: Nu Jazz, Broken Beat, Lounge, Chill OutПродолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F513EE6523DD0DE7DED2D0F18290D253556FBA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795647   (67054) от 05.05.2025
+
+VA - Fantasy Island (Rainbow Chill out Tunes), Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  MONGOA - Eternal (No Beat No Nature Soundscape Mix) (04:54)
+ 02.  Living Room - Organic Sundance (Ambient Dub) (03:29)
+ 03.  Peter Pearson - There Are Flowers in the Sky (06:28)
+ 04.  CA3RD - Dream of Tibet (Mallet Version) (06:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAAC1BB5CD2B948319270D8F64BA1310A87BA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796726   (66926) от 12.05.2025
 
 VA - Chill Out Paradise, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -689,64 +747,6 @@ VA - Chill With Style, Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E4962E4D6E66D738A5B626DAF8FCCAD9BE8368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730761   (52991) от 17.06.2024
-
-VA - Calm Horizons 1: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow World - Evening Stroll (4:26)
-02. Dellasollounge - Touch Me Long (2:17)
-03. Sky Symbols - Returning Home (3:23)
-04. Capa - The Best Kind of Love (3:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C0990E5496B895C519FB2ED3846D7D9901A2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821385   (52134) от 02.10.2025
-
-VA - Spa Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jero Nougues - Old Memories (5:09)
-02. M-Sol Project - Keep Calm (5:24)
-03. Pier-O - White Sands (5:13)
-04. Paul Seling - Keep Running (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A2C23F4B2543C16A5CEBDC271A75ECB9266B71
 ```
 
 https://mybot314.ru/tekegram_catalog/

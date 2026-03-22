@@ -1,3 +1,119 @@
+###  Публикация: 1496992   (867893) от 20.09.2021
+
+Eagles - Legacy (1972-2018) 12xCD, Box Set, Compilation, Remastered, 2018, Warner [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867893.jpg" />
+</div>
+
+
+###  Подробнее
+
+1972 - Eagles
+1973 - Desperado
+1974 - On The Border
+1975 - One Of These Night(   Читать дальше...   )Жанр: RockПродолжительность: 09::41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B598C338F0D0E25DA3BC2AA9C3EFE9CBB96E8F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107523   (867694) от 22.02.2017
+
+The Cars - The Elektra Years 1978-1987 (2016) Reissue, 6CD BoxSet [FLAC|Lossless|tracks + .cue] <Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave Or Stay (2:57)
+02. You Are The Girl (3:53)
+03. Double Trouble (4:15)
+04. Fine Line (5:23)(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75EA04E4B21752EE3679770EBCCFFEA076DD823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375196   (867200) от 13.04.2020
+
+Chimpan A - The Empathy Machine (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World Through My Eyes (07:05)
+02. Its So Real (08:08)
+03. Stars (10:04)
+04. Speed Of Love (08:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828BD1FE4D5D6FC6F92E39F5F23E18F79271524E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999094   (866682) от 21.03.2016
+
+Bonham - Mad Hatter (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bing   04:48
+02. Mad Hatter   05:19
+03. Change Of A Season   06:59
+04. Hold On   04:20(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6065D9B3863E749E85BF096E42FEC946C074DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497104   (866589) от 21.09.2021
 
 TesseracT - Portals (2021) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, Progressive Metal>
@@ -630,119 +746,6 @@ Ot Vinta (От Винта) - 6 Albums (2003-2014) [WV|FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7578FB986D82078AC2146A94668C478EFFE260D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376472   (860367) от 17.04.2020
-
-David Bowie - ChangesNowBowie (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man Who Sold The World (04:01)
-02. Aladdin Sane (03:34)
-03. White Light/White Heat (03:43)
-04. Shopping For Girls (03:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEE1E09C29F39BC4B17C3604BA49256C978654F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497985   (859766) от 25.09.2021
-
-Steve Hackett - Surrender of Silence (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Obliterati (02:16)
-02. Natalia (06:17)
-03. Relaxation Music For Sharks (Featuring Feeding Frenzy) (04:36)
-04. Wingbeats (05:19)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF38F18F38FBC8BFD48675DFE8C3DECB771D6D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498069   (859431) от 25.09.2021
-
-Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970/2021) (50th Anniversary 2CD Remastered Deluxe Edition)[FLAC|Lossless|image + .cue] <Rock opera>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (3:59)
-02. Heaven on Their Minds (4:22)
-03. What’s the Buzz / Strange Thing Mystifying (4:14)
-04. Everything’s Alright (5:15)(   Читать дальше...   )Жанр: Rock operaПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C7AB21B1240E0B2DA7D5203A68F41620C4F6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000003   (859304) от 25.03.2016
-
-Sniff'n'The Tears - Love/Action (1981) [FLAC|Lossless|image + .cue]<Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop Rock, Soft RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5489F0A0CDA6F7D4396786476A4B5C9C4D73DEB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

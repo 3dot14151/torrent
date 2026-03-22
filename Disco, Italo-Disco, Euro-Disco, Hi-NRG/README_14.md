@@ -1,3 +1,32 @@
+###  Публикация: 1025470   (709930) от 12.06.2016
+
+Giorgio Moroder - Midnight Express (1978) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chase (8:25)
+02. Love's Theme (5:33)
+03. (Theme from) Midnight Express (4:39)
+04. Istanbul Blues (3:22)(   Читать дальше...   )Жанр: Electronic, Disco, SoundtrackПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286CBBF8A7B6F7B7133DC96D64CE9FD116F9385E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219978   (709860) от 16.04.2018
 
 Pan Demonium - Start The Fire (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -718,35 +747,6 @@ Sirena - The Dancer (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DECF70AE339A1F95E7DF6CC25FAA22B5D9D037F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221385   (695110) от 24.04.2018
-
-Overdrive - Electric Overdrive (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar My Overdrive (5:47)
-02. Glitter (6:11)
-03. Magic Moon (4:46)
-04. Constantinople (4:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BD3F7257EA60B4F4CCF104C3B33E040E1162AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

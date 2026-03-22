@@ -1,3 +1,30 @@
+###  Публикация: 1065075   (421305) от 22.10.2016
+
+Dee D. Jackson - Automatic Lover [New Digital Version] (1977) Maxi-Single, 1988, Jupiter Records [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421305.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Automatic Lover - Remix '88 (Long Version) (6:52)
+2. Automatic Lover - Remix '88 (Club-Mix) (6:41)Жанр: Disco, Italo-Disco, Euro-Disco, Hi-NRGПродолжительность: 00:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEA190928F66B75DB3E883EC4E0C454504922F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947710   (417816) от 17.10.2015
 
 Pupo - Аллея Звёзд (2005) [FLAC|image+.cue]<Pop, Disco>
@@ -734,35 +761,6 @@ Video Kids - The Invasion Of The Spacepeckers (1995) Unofficial Release [FLAC|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F8AB092056A3EB14BF6C25FE0772F31D5B5E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071404   (361701) от 09.11.2016
-
-Cerrone - Red Lips (2016) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy
-02. Move Me
-03. Illuminate Me
-04. Ain't No Party (Like Monday Night)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3803E1218A479251AFD52B91748DDC100074C27A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1261352   (298767) от 13.11.2018
+
+VA - There Is Soul In My House - Purple Music All Stars Vol.17 (2018) [MP3|320 Kbps] <Funky, Soulful, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamie Lewis - Cookys 11 (The Divas Talk) (07:45)
+02. Karl8 - Higher (Karl8 & Andrea Monta Mix) (05:04)
+03. Marc Cotterell - Give Me Strength (07:15)
+04. Alex Ander - I'll Be There (Jamie Lewis Re-Styled Mix) (09:40)(   Читать дальше...   )Жанр: Funky, Soulful, HouseПродолжительность: 02:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8058825873754650E49FD596BDBDD50B0F898E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184520   (298616) от 18.11.2017
+
+VA - Progressive Gain (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soul Elephant - Fell U Move 06:41
+02. Omni - Lunar 07:50
+03. Trancefeld - Odd to Even 08:57
+04. Fiebak - Love Train 05:56(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D4569DFF077E0BFE20F560799364FCB5020BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334035   (298242) от 27.10.2019
+
+VA - 80's Dance Workout Experience (2019) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In.Deep - Holiday (126 Bpm) 4:34
+02. Groovy 69 - Let's Groove (128 Bpm) 5:06
+03. Dj Space'c - She Drives Me Crazy (128 Bpm) 4:19
+04. Dj Space'c - One Night In Bangkok (128 Bpm) 5:09(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213B1FE66CE73D60D93FC583D6085984F04EA0E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078782   (298220) от 02.12.2016
+
+VA - Everything Is Chilling House (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massimo Gentile - Emotions with You (08:40)
+02. El Nicoya - Lo Que Mueves (06:57)
+03. Nico Gotze - Sonnentaucher (04:26)
+04. Spiritual Soul - Green Coffee (Radio Version) (03:02)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02FEC8E87D76E39CCFA5D36AF24C0A4C6585EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078809   (298138) от 02.12.2016
+
+Deadmau5 - W:/2016ALBUM/ (2016) [MP3|320 Kbps] <Downtempo, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4ware (08:39)
+02. 2448 (06:25)
+03. Cat Thruster (05:36)
+04. Deus Ex Machina (06:31)(   Читать дальше...   )Жанр: Downtempo, Electro House, Progressive HouseПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5721228A4651C0B760B60C61FD3B1CB376598EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079016   (296500) от 03.12.2016
 
 VA - House Lovers Christmas (2016) [MP3|320 Kbps] <Funky, Club House>
@@ -597,151 +742,6 @@ VA - Re: Structured (Mixed by John Digweed) (2015) [MP3|320 кб/с]<Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F849C1B283C078CB5E7835993CE400CC38074CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963554   (287306) от 08.12.2015
-
-VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [MP3|320 кб/с]<Deep House, Tech House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esteble - Passage (2:14)
-02. Solomon Grey - Miradors (Jody Wisternoff & James Grant Remix) (4:41)
-03. 16 Bit Lolitas, Lucy Iris - More Than Music (4:17)
-04. Dems - Never Have, Never Will (2:52)(   Читать дальше...   )Жанр: Deep House, Tech House, Progressive HouseПродолжительность: 05:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C956943548D4F38318E708DAD4EBDAF91B5063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080864   (286642) от 08.12.2016
-
-VA - Deep House Ibiza Chart Best of 2016 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Colors - Drop (Mat.Joe Remix) 06:44
-02. Emil Croff - Jack 06:25
-03. Eriq Johnson - Pink Rhino 05:50
-04. Shawn Wilson - You Only Know 05:22(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0143BE768C62BF2FD77B8AF819F7F85822CE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963922   (285794) от 09.12.2015
-
-VA - White Nights Grooves Vol 1-2 (2015) [MP3|320 кб/с]<House, Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol 1
-
-
-01. Tony Roja - Bitcoin - Original Mix [03:32](   Читать дальше...   )Жанр: House, Deep House, Chill HouseПродолжительность: 04:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680DDB71926D4EF4C0DD602BAA839F2474F3A7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081241   (284895) от 09.12.2016
-
-VA - Best Of Toolroom (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Knight - Yebisah (Original Mix)
-02. Weiss (UK) - You're Sunshine (Original Mix)
-03. Prok Fitch - Heatwave (Original Mix)
-04. Adrian Hour - Like This (Original Mix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 05:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7420CFA2A8773D42B3497318222E07708D6E4C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186800   (284599) от 26.11.2017
-
-VA - Future Trance Vol.82 (2017) 3CD [MP3|320 Kbps] <House, Trance, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CJ Stone  -  Future Trance 82 Intro 1:47
-02.  CJ Stone  -  Be Loved (Heart Of Stone Uplifting Mix) 4:18
-03.  Gaia  -  Saint Vitus 4:40
-04.  Armin van Buuren  -  This Is A Test (Shinovi Remix) 5:13(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 03:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1884254B5CCF54CD96A3A0BB80E724A9955C2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

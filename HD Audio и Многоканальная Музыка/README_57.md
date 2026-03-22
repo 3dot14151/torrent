@@ -1,3 +1,317 @@
+###  Публикация: 1654445   (205196) от 20.08.2023
+
+Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Neo-Psychedelia, Dub>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gettin’ to the Point Dub (Adrian Sherwood 'Reset In Dub' Version) [00:03:33]
+02. Go On Dub (Adrian Sherwood 'Reset In Dub' Version) [00:04:48]
+03. Everyday Dub (Adrian Sherwood 'Reset In Dub' Version) [00:03:50]
+04. Edge of the Edge Dub (Adrian Sherwood 'Reset In Dub' Version) [00:05:33](   Читать дальше...   )Жанр: Neo-Psychedelia, DubПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516908C1EEAAD064655C04167C721E7DD1604011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654423   (205144) от 21.08.2023
+
+Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Death Tone
+02.Metal Daze
+03.Fast Taker
+04.Shell Shock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C65853B6674537CA4F6CB88939C6F3BF0C3C2C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654607   (205122) от 21.08.2023
+
+Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tracks|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205122.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Reconquering the Throne
+A2 The Patriarch
+A3 Violent Revolution
+A4 All of the Same Blood(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D634E009E064101BADD89BCC1A58B569E1C50319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655086   (204616) от 24.08.2023
+
+Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crusher Destroyer
+02. March Of The Fire Ants
+03. Where Strides The Behemoth
+04. Workhorse(   Читать дальше...   )Жанр: Progressive, Sludge MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655257   (204462) от 25.08.2023
+
+Игорь Романов и группа «Союз» - Красный Свет (1990) [FLAC|24/192|image + .cue|VinylRip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204462.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Осторожней, Сталкер
+A2 Стрелы
+A3 Диктатор
+B1 Племена(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3AE30BC92F8C225A78AD535510DB0078DB00FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655200   (204452) от 25.08.2023
+
+Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn - Nonstop (3:03)
+02. Felix Jaehn - Wishlist (2:23)
+03. Jonas Blue - Weekends (2:07)
+04. Butschi - Atme Ein (Atme Rauch Aus) (5:52)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18ECAA31302DF0803FC9012257FD1F4A7AF7E578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655501   (204295) от 26.08.2023
+
+SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204295.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPAN — норвежская рок-группа, образованная в 2000 году.
+Расформирована в 2005 году.2004 - Mass Distraction
+2005 - Vs. TimeЖанр: Hard RockПродолжительность: 02:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603557   (204287) от 09.01.2023
+
+The Cars - The Cars (1978) Remastered, 2015, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <New Wave, Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times Roll 03:46
+02. My Best Friend’s Girl 03:44
+03. Just What I Needed 03:44
+04. I’m In Touch With Your World 03:32(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5D862F2C07004B63653D2418040F5EF13C0ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655542   (204266) от 26.08.2023
+
+Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204266.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Sergio Corbucci Is Dead
+A2 - Hate Uber Alles
+A3 - Killer Of Jesus
+A4 - Crush The Tyrants(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8A925B03EC6C3823AA02235C891C97B281DC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604059   (204160) от 12.01.2023
+
+Мираж - МИРАЖ-III (оригинал) (1991) [FLAC 2.0|48/24|tracks|MB-Rip] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204160.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:52] Я жду тебя
+[4:40] Ты словно тень
+[5:52] Солнечный ЗайчикЖанр: Pop, Disco, DanceПродолжительность: 00:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8D3AECEA25FDDF7DD68C3CE06561BE1374F282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604662   (204069) от 14.01.2023
+
+Vanessa-Mae - The Violin Player (1995) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Techno/Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно уже ставший классикой дебютный альбом 1995 года совсем тогда молоденькой китайско-тайской скрипачки. В 2004 году на ЭМИ был сделан многоканальный ремикс и выпущен SACD. Довольно слабенький, на мой взгляд/мое ухо микс, но сама музыка и экспрессия исполнительницы все искупают...За образ SACD благодаримЖанр: Techno/Pop, ElectronicПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B917221CB8D3F53DB9C9F702F9CC7F39289A37D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655843   (203795) от 28.08.2023
 
 Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ Мелодия, лицензия от Polydor [FLAC|24/192|image + .cue|VinylRip] <Prog Rock>
@@ -433,324 +747,6 @@ A4 Так Лучше · C'est Mieux Comme Ca(   Читать дальше...   )
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BCFFDA9286168ECDA880FD6ABE74EA3A11A2871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617851   (201632) от 08.03.2023
-
-The Alan Parsons Project – The Turn Of A Friendly Card (1980) 2023 [DTS 5.1 CD-DA|44.1/16|image+.cue|BD-Audio] <Electronic, Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May Be A Price To Pay
-02. Games People Play
-03. Time
-04. I Don't Wanna Go Home(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4595EF428B892223CE732B06255B6FA38F2F7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617718   (201610) от 08.03.2023
-
-Johann Sebastian Bach, Akiko Suwanai - The Sonatas And Partitas For Violin Solo (2022) Japanese Edition, 2 x SACD [DSD64(DST64) 2.0, 5.0|2822,4/1|SACD-R] <Classical, baroque>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc - 1:
-Sonata No.1 In G Minor, BWV 1001
-1-1 I. Adagio
-1-2 II. Fuga. Allegro(   Читать дальше...   )Жанр: Classical, baroqueПродолжительность: 02:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3945962A1B79D961702C882FE79566827987774E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599189   (201512) от 09.03.2023
-
-In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal, Melodic Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201512.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Flames — шведская музыкальная группа, играющая в жанре мелодичный дэт-метал.
-Группа была основана в 1990 году ударником и гитаристом Йеспером Стрёмбладом как сайд-проект его основной группы Ceremonial Oath.
-В 1993 году Стрёмблад покинул группу и сосредоточился на In Flames. К нему присоединились гитарист Гленн Люнгстрём и басист Йохан Ларссен, сформировав первый (   Читать дальше...   )1994 - Lunar Strain + Subterranean (EP)
-1996 - The Jester Race
-1997 - Whoracle
-1999 - ColonyЖанр: Melodic Death Metal, Melodic Groove Metal/MetalcoreПродолжительность: 13:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E212FBF43AC8B9EA9521815678762830BA9F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172695   (201399) от 11.03.2023
-
-VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Таня Тишинская - Золотая ручка
-02. Иван Кучин - Жиганская душа
-03. Слава Исетский мл. - От бухты Цемесской... (Сон жигана)
-04. Михаил Круг - Ярославская(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59F93A57D00DBF3E160F82898F2EDB6649956B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622796   (200557) от 30.03.2023
-
-Eagles - The Long Run (1979) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab, Special Edition  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Run
-Lead Vocals - Don Henley / Organ - Don Felder
-Slide Guitar - Joe Walsh / Written-By - Don Henley, Glenn Frey
-02. I Can't Tell You Why(   Читать дальше...   )Жанр: Classic Rock, Country RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8C9E13A0AE6F446FA87FD7EEE5C5C065CE956B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623371   (200488) от 02.04.2023
-
-Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05919032C3DCDB93C8E83D52C977783D806CC3DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624200   (200378) от 04.04.2023
-
-Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Italo-Disco, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200378.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Wanna Hear Your Heartbeat (Sunday Girl) 3:50
-A2 Mon Amie 4:35
-A3 One Night In Heaven 4:45
-A4 Baby I Love You 4:05(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0516415DA150824AE74BA119DF738D99981E4E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624989   (200228) от 08.04.2023
-
-Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200228.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		In The Heat Of The Night	5:20
-A2		On The Tray (Seven Years)	3:45
-A3		Little Girl	3:11
-A4		You And I	6:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1658B77489D61A9EB9B53A0D0B3571339125FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626106   (199996) от 13.04.2023
-
-Roma Trio - The Four Seasons (2008) Reissue, 2016, Venus Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199996.jpg" />
-</div>
-
-
-###  Подробнее
-
-～ Concerto No.1 in E major, Op.8, RV269 ～ Spring ～
-01. “Alleglo”
-02. 2nd Movemnet “Largo e Pianissimo”
-03. 3rd Movement “Alleglo Pastorale”(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05296AF3E2EE1AFC45FA2F288B800C9735475D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626371   (199887) от 14.04.2023
-
-Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199887.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blackout
-A2. Can't Live Without You
-A3. No One Like You
-A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557543   (199804) от 14.04.2023
-
-Overkill - Studio Albums (21 releases) (1985 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Overkill — американская трэш-метал-группа, основанная в 1980 году в Нью-Джерси. Состав группы претерпел неоднократные изменения, и единственными неизменными участниками Overkill с момента основания являются вокалист Бобби «Blitz» Эллсворт и басист Д. Д. Верни. У группы есть талисман по имени Чали, который нарисован на большинстве обложек их альбомов — череп с костлявыми (   Читать дальше...   )1993 - I Hear Black
-1994 - W.F.O.
-1996 - The Killing Kind
-1997 - From The Underground And Below(   Читать дальше...   )Жанр: Thrash/Groove MetalПродолжительность: 18:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
 ```
 
 https://mybot314.ru/tekegram_catalog/

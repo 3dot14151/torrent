@@ -1,3 +1,32 @@
+###  Публикация: 1511163   (789191) от 20.11.2021
+
+Zucchero - Discover (2021) [AAC|~325 Kbps] <Pop, Rock, Blues>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amore Adesso (No Time For Love Like Now) (4:11)
+02. Canta La Vita (Let Your Love Be Known) (4:05)
+03. The Scientist (5:06)
+04. Wicked Game (4:21)(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D28F95487A356B01F86DFB7C634D49D68160280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202523   (789020) от 31.01.2018
 
 Виктория и Абдул / Victoria & Abdul (2017) BDRip [1080p] ATV
@@ -671,35 +700,6 @@ Amanda Lear - Tuberose (2021) [AAC|~302 Kbps] <Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AA0492EFE958449EC93BDD205DCB3FA9458663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511879   (788372) от 22.11.2021
-
-VA - Electro Cocktail, Vol. 2 (2021) [AAC|~326 Kbps] <Lounge, Chill House, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Booka Boogie (2:59)
-02. Magmatunes - The Beach (4:36)
-03. Lounge Groove Avenue - Shine (3:12)
-04. Classemotion - Underground (4:26)(   Читать дальше...   )Жанр: Lounge, Chill House, DowntempoПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9847F6910A68C5E5E773A8A70F4E0294D37D5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

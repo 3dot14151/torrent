@@ -1,3 +1,32 @@
+###  Публикация: 912092   (612290) от 25.06.2015
+
+Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Industrial Revolution-Ouverture
+02. Industrial Revolution part 1
+03. Industrial Revolution part 2
+04. Industrial Revolution part 3(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 02:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060B9B0D06C6BAD2E7A256097B7CD50C4E0F274E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 221943   (611421) от 26.07.2010
 
 VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, Enigmatic>
@@ -769,35 +798,6 @@ Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDE086DB00269F3C630F39DF15391F1D9F0103F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041811   (581464) от 10.08.2016
-
-Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irish Skies
-02. New Life
-03. As One
-04. Boy Buries Mother(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFA416EC135DF10387EF12CBC8FDE1D59D4D4E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

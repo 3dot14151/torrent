@@ -1,3 +1,148 @@
+###  Публикация: 1051431   (532346) от 11.09.2016
+
+Black Sabbath - The Spirit Of 666 (2016) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Pigs
+02. N.I.B.
+03. Fairies Wear Boots
+04. Into The Void(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9992FB457F5DCE3D992A71368B01A8B7FFAA9210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155671   (531568) от 04.08.2017
+
+The Devils Deuce - Supercharged (2017) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Change Me (02:28)
+02. I Won't Get Drunk & I Won't Get Lost (02:31)
+03. Cool Cat Died (02:23)
+04. Passion Pit (02:29)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5395573C8DFACA36F3C7D2770EAF385ED67CCA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312758   (530611) от 05.07.2019
+
+Deep Purple - Live In Newcastle 2001 (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman From Tokyo ( 6:14)
+02. Ted The Mechanic ( 5:11)
+03. Mary Long ( 5:57)
+04. Lazy ( 6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB924E7F72A9CEA5B2B1A6E4ED72A7ABD5FD332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051945   (530507) от 12.09.2016
+
+David Gilmour - L.A. 3rd Night (2016) 2CD Bootleg, Live [MP3|320 Kbps] <Progressive rock, Art rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On You Crazy Diamond(10:15)
+02. Fat Old Sun(6:48)
+03. Coming Back To Life(7:06)
+04. Band introduction(2:23)(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 02:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F7732EEF8EF55AA95EAD103E1225FFA19FC9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051735   (530499) от 12.09.2016
+
+Freddie Mercury - Messenger Of The Gods: The Singles Collection (2016) 2CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выход сборника «Messenger Of The Gods» приурочен к семидесятилетнему юбилею Фредди Меркьюри. В двухдисковое издание вошли избранные песни из альбома Queen «Made In Heaven», вышедшего уже после смерти музыканта, а также треки из его сольных альбомов.01. Freddie Mercury - Living On My Own
+02. Freddie Mercury - The Great Pretender
+03. Freddie Mercury - In My Defence
+04. Freddie Mercury - Love Kills(   Читать дальше...   )Жанр: RockПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB12B55541102BD683683561DA936F70D3BCF26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927519   (528762) от 13.08.2015
 
 Ricky Nelson - Les Genies du Rock - I'm Walkin' (1993) [MP3|320 кб/с]<Rock>
@@ -603,159 +748,6 @@ Eric Clapton - Eric Clapton & Friends (2014) [MP3|320 кб/с]<Classic rock, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:172420F2B9837357C1756BD8B3B5FE3512535254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533824   (521681) от 12.08.2012
-
-Show Me A Dinosaur - Evolvent EP (2011) [MP3|320 кб/с]<post-rock, instrumental, post-metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still First In Space
-02. Gagarin
-03. Is This Really Happening?!
-04. Petropavlovsk-Kamchatsky
-05. You Can't Find This Place On Google Maps
-06. Lift Up Your TelescopesЖанр: post-rock, instrumental, post-metalПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D543747C9A796ED7610223ABEC3D01D18692E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533011   (521680) от 12.08.2012
-
-Gendos (Gen Dos / Gennady Chamzyryn) - Bay-Tayga (2007) [MP3|320 кб/с]<Ethnic, Rock, Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521680.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Khovuda kezhee (Night in the s (4:28)
-2.  Huliganskaya (3:18)
-3.  Bay-Taiga (Rich Taiga) (4:44)
-4.  Kyzylym sen (My Kyzyl) (5:05)
-5.  Aza alzyn (Features take) (4:58)
-6.  Kysh (Winter) (3:20)
-7.  Langchyy boom (My Gun) (5:36)
-8.  Saktyyshkyn (Memories) (2:11)
-9.  Teek (remake of "Tos") (4:02)
-10. Manchureem (Beautiful District (5:38)Жанр: Ethnic, Rock, Folk-RockПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4489E83231409FA208A1CA6C97B594BC9E9E29D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560340   (520878) от 29.06.2022
-
-Seedy Jeezus - The Hollow Earth (Double Live) (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, 70's Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Is There All That Is
-02 The Golden Miles
-03 My Gods Are Stone
-04 How Ya Doin'(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, 70's RockПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7D0A47C03F8710A30E0F1C9390F28AA855B3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241503   (520131) от 17.08.2018
-
-Fox - 3 Albums (1975-1977) LP [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520131.jpg" />
-</div>
-
-
-###  Подробнее
-
-За свою скоропалительную карьеру "FOX" выпустили всего три альбома, но тем не менее успели снискать расположение публики и несколько раз побывали в горячей десятке. Своему появлению на свет группа обязана композитору, продюсеру, гитаристу Кенни Янгу. В начале 70-х Янг занялся созданием сольных альбомов, и на одном из них в качестве бэк-вокалистки выступила (   Читать дальше...   )Список альбомов:
-1975 - Fox
-1975 - Tails Of Illusion
-1977 - Blue Hotel(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F149313CAC12E88C1BA753E3E0E75D1AE15DB43B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241425   (520050) от 17.08.2018
-
-Status Quo - Down Down & Dirty At Wacken (2018) (Live)  [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caroline (Live At Wacken 2017) 05:31
-02. Something About You Baby I Like (Live At Wacken 2017) 02:16
-03. Rain (Live At Wacken 2017) 05:01
-04. Softer Ride (Live At Wacken 2017) 04:02(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104928D73D4FCE69A7CB7DB5A5147F17A95B3F6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1507385   (798450) от 04.11.2021
+
+VA - My Little Planet: Pop Rock Indie (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798450.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dopamoon - Ailleurs Que Le Soleil
+002. The Underground Youth - For You Are The One
+003. Cerberus Shoal - Yes Sir, No Sir
+004. Sam Valdez - For A While(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165C77ACC8FD92A7D83EBEC19097246CADA77384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385474   (797779) от 24.05.2020
 
 Jeff Beck - 100% Jeff Beck (2020) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -107,6 +136,35 @@ VA - Ancient World: Modern Alternative Rock (2020) [MP3|320 Kbps] <Rock, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CB3F90AF6CE01F7E7EC7F2053572ED742E7F686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386029   (795979) от 27.05.2020
+
+VA - Made Of Ashes: Hard Rock Times (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_795979.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amarionette - Perfect
+002. Billy Talent - Forgiveness
+003. Francis Moon - In Colour
+004. The Kooks - She Moves In Her Own Way(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 09:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13012B27F251CC1631FE948FAB1CA2044C76CDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,64 +745,6 @@ VA - Rebel Rock Box (CD1) (2021) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33E4CA925E1E9602C863EBD81BB2076EC328F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876793   (789216) от 13.01.2019
-
-Rammstein & VA - Unofficial Compilations (2001-2005) [MP3|320 кб/с]<Industrial, NDH, Rock, Metal, Alternative>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein Die Schwarze Tanzen (Remix Album)
-Rammstein Presents Vol.2 (2001)
-Rammstein Presents Vol.3 (2001)
-Rammstein Presents (Special 2002)(   Читать дальше...   )Жанр: Industrial, NDH, Rock, Metal, AlternativeПродолжительность: 21:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BAE0C34B852754FB63A5B5FC3B9EA7B34C224EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202864   (789015) от 31.01.2018
-
-VA - За Полшага До Зимы (2018) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789015.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кипелов - Косово Поле
-002. БИ-2 feat. John Grant - Виски
-003. Сплин - Храм
-004. 25-17 - Она не такая, как все(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6297466B124669DFCC54FC9FED23310192DD04ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

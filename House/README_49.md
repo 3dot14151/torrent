@@ -1,3 +1,160 @@
+###  Публикация: 551078   (456181) от 23.09.2012
+
+VA - A Long Hot Summer (Mixed & Selected by Chris Brann from Ananda Project) (2012) [MP3|320 кб/с]<House, Deep House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuccillo & Kiko Navarro - Quartetto O'batalistico (Main Mix)
+02. Ananda Project - Into The Sunrise (Kiko Navarro Disco Version) (feat. Terrance Downs)
+03. Franco De Mulero - Porroig (Original Mix)
+04. Ananda Project - Universal Love (Jay-J's Shifted Up Mix) (feat. Jay-J)
+05. Namy - There She Stands (Feliciano Vocal) (feat. Monday Michiru)
+06. Lips - Time Is Now (Groove Assassin Main Remix)
+07. Soundealers - Keep On
+08. Franco De Mulero - The Darkness String
+09. Sunshine Jones - Warm Sun On My Face (Dub)
+10. John Rivera & Esteban Carrasco - Attempt To Dream(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 02:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155FD99CB8B051D4FE63F71B3DFDF73C5228B5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408386   (455778) от 12.09.2020
+
+VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellen - Mood Ring (Fitness Version 132 Bpm) (04:07)
+02. D'Mixmasters - Never Seen The Rain (Fitness Version 132 Bpm) (03:52)
+03. Lawrence - Young And Alive (Fitness Version 132 Bpm) (03:52)
+04. Th Express - Underdog (Fitness Version 132 Bpm) (03:23)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA57291FA33DFCC98286891E932DA82F687CE826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162817   (454995) от 03.09.2017
+
+VA - Chillhouse At The Beach Vol.1 (2017) [MP3|320 Kbps] <House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bed Shop Toys - Himmelhochjauchzend (Radio Version)  3:32
+02.  Max Gabani & J. Paes - I Just Need To Know (Original Mix)  3:31
+03.  Deep Azur - Sunset Island (Chillhouse Radio Version)  3:53
+04.  Markus Teschner - Carabain (Original Mix)  3:24(   Читать дальше...   )Жанр: House, ChillhouseПродолжительность: 02:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99A8B0F4B782CB4EDFA29AE9151A23CC33342F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551505   (452792) от 24.09.2012
+
+Various Artists - Hed Kandi: Nu Disco (2012) [MP3|320 кб/с]<House, Deep House, Lounge>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lana Del Rey - Blue Jeans (RAC Mix) (03:38)
+02. Yogi & Husky - Turn It On (06:39)
+03. Choklate - Break My Heart (Special Dubbb Radio Edit) (04:43)
+04. Grant Nelson Presents Departure Lounge - Time Ties (05:32)
+05. Jupiter - One O Six (03:08)
+06. Gigamesh - Your Body (05:03)
+07. Axel Le Baron & Kurbatov - Fame (Fred Falke Remix) (07:28)
+08. Kraak & Smaak ft Sebastian & DJ Git Hyper - Dynamite (Kraak & Smaa Boogie Funk Version) (06:34)
+09. Artful & Ridney ft Aaron James Cashell - Do What We Do (WebQueawry Remix) (03:06)
+10. Mr Gonzo - Dance On You (Tagteam Terror Remix) (05:23)(   Читать дальше...   )Жанр: House, Deep House, LoungeПродолжительность: 05:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7064293B63384D14B8FE486ED4E23686095D894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163193   (452785) от 04.09.2017
+
+VA - Tech House Music Market (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Market Fish Project - Small Square (Original Mix) 07:03
+02. Thomas Ferry, Dot Comma - Have A Good Time (Grandoni & Cava Remix) 06:33
+03. Ang3lino - La Boda (Ti & Leia Remix) 05:03
+04. Klod Rights - Funk Sun (Club Mix) 07:50(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE3EE9832DEAC3891CD31D74107898D2382DD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163190   (452784) от 04.09.2017
 
 VA - Feeling Better Now (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -623,169 +780,6 @@ Various Artists - Ministry Of Sound - Deep House (2012) [MP3|320 кб/с]<Deep H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:870A0463C97DFAE290B59EDEA668316ECCDFE2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553352   (442257) от 29.09.2012
-
-VA - Club 86 Recordings - Ibiza Closing 12 (2012) [MP3|320 кб/с]<Progressive House,House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weltraum - Heinrich Kantholz
-02. Leka - Horstenbacher
-03. Feeling Fine - Tero
-04. Held Des Alltags - Chantola & Heinrich Kantholz
-05. Love Jones - Johny S
-06. The Way of the Cobra (Tero Tiger Style Remix) - Neo Neo
-07. Bailar - Johny S
-08. Selva Febre - Alec Hall
-09. High Drive (Tommi Oskari Club Twist) - Tommi Oskari
-10. Frisco (Klaukenberg Remix) - Kajis & LadeЖанр: Progressive House,HouseПродолжительность: 02:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503023F77704104CE8F022FB34A06C7488193734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164301   (441835) от 09.09.2017
-
-VA - This Is It Hard Workout Pays Off! (2017) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rich Franklin – Rush
-02. Rampage Jackson – Wall
-03. Phatt – Golden
-04. Nadeem Ruil – Proraso(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FEFD4289D33EA1D0719AA2FFAE56BA1E15430B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164269   (441509) от 09.09.2017
-
-VA - Ibiza Summer House Sessions 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York, J.L. - Seaborne 06:47
-02. Simon Le Grec - Addicted 2 U (Radio mix) 03:50
-03. Anthya - Pranayama 04:49
-04. David Puentez - Aerius (Koen Groeneveld Ibz remix) 06:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E7B3A7F98FB8FB030FED7E89CF8BB48072D001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553903   (438911) от 30.09.2012
-
-Peter Gun - Powder (2012) [MP3|320 кб/с]<Progressive House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock You
-02. Back 2 Late (feat. Max Rage)
-03. Shit U Want (feat. Martin H)
-04. Globe (feat. Max Rage)
-05. Mirrorman (feat. Max Rage)
-06. Summer Breeze (feat. Max Rage)
-07. Mexican Hotel
-08. Drumpunk (feat. Max Rage)
-09. Spooky (feat. Max Rage)
-10. Night ReturnЖанр: Progressive House, Tech HouseПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470018277345F748424243754902B199E3C6E816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552876   (438753) от 30.09.2012
-
-Various Artists - Future Bass: Ministry of Sound (2012) [MP3|320 кб/с]<Tech / Deep / House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438753.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jessie Ware - Running (Disclosure Remix) (5:17)
-2. TNGHT - Higher Ground (3:19)
-3. Pirupa - Party Non Stop (Huxley Remix) (7:33)
-4. Disclosure & Ria Ritchie - Control feat. Ria Ritchie (4:49)
-5. Maya Jane Coles - Not Listening (6:31)
-6. Jamie Jones - Frequencies (5:25)
-7. Hudson Mohawke - Thunder Bay (3:18)
-8. Eliphino - More Than Me (7:01)
-9. Rustie - After Light (3:42)
-10. Drumsound, Bassline Smith & Tom Cane - Through The Night feat. Tom Cane (Shadow Child Remix) (6:07)(   Читать дальше...   )Жанр: Tech / Deep / HouseПродолжительность: 02:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0503235AB28FD97ED39D37B1395BD561B6AE9285
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 617600   (972461) от 12.02.2013
+
+Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EB7F4FD26284EB932F686AE84E034C133B0E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617601   (972353) от 12.02.2013
+
+Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5274A6B55EF2F53840CDBA16B78434AFC1942E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617534   (972350) от 12.02.2013
+
+BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, ElectroПродолжительность: 00:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5528990F4653E76C1838050E9E029B731C534D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617538   (972275) от 12.02.2013
+
+Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, ElectroПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F199C72B375102761D6A09669C16A230EF4747F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617533   (972200) от 12.02.2013
+
+DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, ElectroПродолжительность: 00:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC80442AFB4079A8340145E1619C7B8193473C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617279   (971758) от 12.02.2013
 
 Сборник видеоклипов / Clips (music video) HDTV-1080i
@@ -564,151 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9DA6B0B7BE3848C150851034293B197E4FB36BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359419   (962993) от 13.02.2020
-
-Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/1080p/720p-LQ] <Symphonic Power Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tarja Turunen: 00:50:41
-001 2017 Tarja - Feliz Navidad (Solo Version)
-002 2013 Tarja - Never Enough
-003 2017 Tarja - O Come, O Come, Emmanuel(   Читать дальше...   )Производство: Nuclear BlastЖанр: Symphonic Power MetalПродолжительность: 02:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B6E747CB24313A683490D191598A31DF99EEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621822   (961654) от 21.02.2013
-
-"O2label" /Pulsar (vol.1.) (2013) HDTV 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsar & Strannik - Dance Of Galaxies
-02. Back To Reality
-03. Belt Of Orion
-04. Canaan(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA88FECA02352DBDD5865E607C7D271FED8E6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979135   (960807) от 25.01.2016
-
-VA - Зимний марафон № 221: Продвинутые Зимние Хиты (2015-2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (25.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. A.R.M.I.A - Independent (Official Video) (00:03:35)
-02. Alekseev - Пьяное солнце (Official Video) (00:04:02)
-03. Alvaro Soler ft. Jennifer Lopez - El Mismo Sol (Under The Same Sun) (B-Case Remix) (00:03:25)
-04. Burak Yeter ft. Delaney Jane - Reckless (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, TranceПродолжительность: 01:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C061F440EB926B5F4D704230F34451CDDA0A18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622268   (960469) от 22.02.2013
-
-"O2label"/Pulsar (vol.2.) HDTV 720p (2013) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Am
-02. In Harmony With The World
-03. Mysteries Of Baikal
-04. Nomads Of The North(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEA38059D829E2A862F34706F8C4776A9D62F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622299   (960464) от 22.02.2013
-
-"O2label"/Strannik (vol.1.) HDTV 720p (2013) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Blue
-02. An Universe Is In A Pocket
-03. Autumn
-04. Out Of Mirror(About Love)(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3ABF01FE6A40FB23B591A4E47EC9BB44CCA473
 ```
 
 https://mybot314.ru/tekegram_catalog/

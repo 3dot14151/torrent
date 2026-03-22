@@ -1,3 +1,32 @@
+###  Публикация: 1076854   (311198) от 26.11.2016
+
+VA - Jazz Tunes Vol 1 (2016) [MP3|191-320 Kbps] <Smooth Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reel People feat. Tony Momrelle  Imaani - Amazing (Tarantulaz Main Mix) (6:09)
+02. Richard Cheese - Another Brick In The Wall (Pink Floyd) (2:14)
+03. Ben Tankard - Ben's Coffee House (Featuring Tim Bowman) (4:31)
+04. Basia - Blame It On The Summer (4:29)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 02:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93213D5AE8568BE2C13453FE378F824857E0F891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960171   (309819) от 27.11.2015
 
 VA - Love In My Soul: Autumn Blues (2015) [MP3|320 кб/с]<Blues, Rock Blues, Soul>
@@ -716,35 +745,6 @@ AI - No name compilation part 12 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C486CCCD96F61A40EC5D8434E0485E5889CFA8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837248   (256851) от 15.11.2025
-
-VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul Blues, Soulful Blues Ballad, Soothing Soul Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rosie Malone - River of Mercy
-02 - Josephine Carter - Deep River of Peace
-03 - Eleanor Nora Jackson - Whispers in the Sanctum
-04 - Josephine Carter - River of My Soul(   Читать дальше...   )Жанр: Soul Blues, Soulful Blues Ballad, Soothing Soul BluesПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DD2267ECBF2A0DCD87873B55598A4476DF27E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

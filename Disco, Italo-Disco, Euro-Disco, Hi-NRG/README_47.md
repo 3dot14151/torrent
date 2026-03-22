@@ -1,3 +1,32 @@
+###  Публикация: 1788055   (68662) от 28.03.2025
+
+VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Mine - Hypnotic Tango (Extended Player '89)
+02. Robert Camero - Lady Suprise (12'' Version)
+03. Broken Dreams - Broken Dreams (12'' Version)
+04. Taco - Got To Be Your Lover (Special D.J. Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91BF17B07CA365F63E4C61489EBCCE9008665AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788135   (68661) от 28.03.2025
 
 VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
@@ -713,35 +742,6 @@ Rice & Beans Orchestra - Cross Over (1977) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF323018590384A714DA66A3038ACABA0EFA21FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750937   (42721) от 22.09.2024
-
-Purple Disco Machine - Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W.T.P [00:04:26]
-02. Beat Of Your Heart [00:03:29]
-03. Dirty Pleasures [00:05:32]
-04. Honey Boy [00:03:47](   Читать дальше...   )Жанр: Electronic, Disco, Nu-DiscoПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E683C2CC44A6B76BCB741888443E7BA23CCF89
 ```
 
 https://mybot314.ru/tekegram_catalog/

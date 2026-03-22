@@ -1,3 +1,119 @@
+###  Публикация: 919165   (583956) от 18.07.2015
+
+Bring Me the Horizon - Live at Wembley (2015) 2CD [MP3|320 кб/с]<Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelsea Smile
+02. Pray for Plague
+03. Blessed with a Curse
+04. Antivist(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 01:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583E31B39612FCD84F19940D4B7D8CE84CC15419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 103057   (583880) от 12.05.2019
+
+Avenged Sevenfold - 6albums + 4EPs + 12singles (1999-2013) [MP3|320kbps] <Heavy Metal/Metalcore>
+
+>>След.
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avenged Sevenfold («Отомщённый Семикратно») — американская метал-группа из Хантингтон-Бич, образованная в 1999 году.
+На дебютном альбоме Sounding the Seventh Trumpet, преобладали металкор и скрим. На Waking the Fallen было уже что-то среднее между хэви-металом и металкором, ну а в третьем альбоме (и первом крупном релизе лейбла) City of Evil, звук уже был как у классических (   Читать дальше...   )Жанр: Heavy Metal, Metalcore, Hard Rock |Продолжительность: 00:11:28
+01  Hail To The King                  5:06
+02  Nightmare (Live)                  6:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38E9E2C56C44D67040242CD8BB84A8F338C0A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919450   (583022) от 19.07.2015
+
+Himinbjorg - Wyrd (2015) [MP3|320 кб/с]<Pagan/Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583022.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro - Call To The Being
+2. The Sword Of Dignity
+3. The World Of Men Without Virtue - The Circle Of Disillusion
+4. The Circle Of Warriors(   Читать дальше...   )Жанр: Pagan/Black MetalПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF332A36DC17057240875C7045A2A88163AC4294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919515   (583019) от 19.07.2015
+
+Set In Stone - Where Secrets Hide (2015) [MP3|320 кб/с]<Metalcore / Post-Hardcore / Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer Of Pardon
+02. Dominate
+03. Closing Statement
+04. Rumors(   Читать дальше...   )Жанр: Metalcore / Post-Hardcore / ElectronicПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33484D6F8D8E460C9D2205B27B1FB3B5DE35587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358121   (582110) от 06.07.2011
 
 Braindeadz - Born From Damnation (2011) [MP3|320 kbps]<Thrash Metal>
@@ -671,122 +787,6 @@ Magistarium - Dreamlord Opera (2022) [MP3|320 Kbps] <Symphonic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D6FA17494980AB3F5006DFF2D7978C28412252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920874   (573796) от 26.07.2015
-
-Wolves Den - Deus Vult (2015) [MP3|320 кб/с]<Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Via Iustorum
-2. Gedeih Und Verderb (Feat. Winterherz Van Pänsen)
-3. Schwarzes Firmament
-4. Deus Vult(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E84E0C3328B377E0E80A5096D7E3F52362CEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921953   (573244) от 26.07.2015
-
-Manowar - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of Steel
-02. Warriors Of The World United
-03. Return Of The Warlord
-04. Fighting The World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FA36CD4A9CC52A801D42D1566D9004E8704C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528053   (573190) от 28.07.2012
-
-Testament - Dark Roots Of Earth (2012) Deluxe Edition [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise Up (4:18)
-02. Native Blood (5:21)
-03. Dark Roots Of Earth (5:45)
-04. True American Hate (5:27)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0055484BA7D577A1BD4A6F54CA9602C24D7692E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151532   (572563) от 19.07.2017
-
-Wintersun - The Forest Seasons (2017) [MP3|320 Kbps] <Epic Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Awaken From The Dark Slumber (Spring)
-2. The Forest That Weeps (Summer)
-3. Eternal Darkness (Autumn)
-4. Loneliness (Winter)(   Читать дальше...   )Жанр: Epic Metal, Melodic Death MetalПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E1BD94B399E408244E0C89AA36677B465EEB54
 ```
 
 https://mybot314.ru/tekegram_catalog/

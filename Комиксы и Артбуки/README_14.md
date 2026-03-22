@@ -1,3 +1,56 @@
+###  Публикация: 1347728   (148068) от 24.12.2019
+
+Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Gallery № 1 (2019) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комикса "Lady Death"Жанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55B2EC613D3D119E300C03B6F56E59B6A1DEBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435350   (143774) от 28.12.2020
+
+Кэти Бёрнетт, Арни Феннер | Артбук Spectrum / Spectrum: The First Annual Collection of the Best in Contemporary Fantastic Art (1994) [PDF] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук Spectrum: Первая ежегодная коллекция лучших произведений современного фантастического искусства.
+В этой богато иллюстрированной книге представлены работы современных создателей бестселлеров в области фэнтези и научной фантастики. Представлено более 100 художников, отобранных жюри из отмеченных наградами профессионалов. Предисловие написано лауреатом Пулитцеровской (   Читать дальше...   )Жанр: АртбукФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E7F2B1BB7626881AE5DEB9766C600AD77C1DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435348   (143094) от 28.12.2020
 
 Ubisoft | Артбук по игре Assassin’s Creed Вальгалла / The Art of Assassin's Creed Valhalla (2020) [PDF] [EN]
@@ -636,60 +689,6 @@ Blizzard Entertainment | Артбук по игре Diablo 4 / The Art of Diablo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:587DDEE932BF8FE002E18FDDBD0659CA718DB37F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704004   (114691) от 02.03.2024
-
-Blue Brain Games | Артбук по игре The House of Da Vinci / The House of Da Vinci - The Art Book (2020) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "The House of Da Vinci".Жанр: АртбукЯзык: АнглийскийИздательство: Blue Brain GamesФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E859F308FD0BF4BE3CD56A8E9754562B2E9C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704271   (114546) от 03.03.2024
-
-Eidos Montreal | Артбук по игре Deus Ex: Human Revolution / Deus Ex: Human Revolution - Design Work (2011) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Deus Ex: Human Revolution".
-
-Серия артбуков по играм "Deus Ex": Артбук Deus ExЖанр: АртбукЯзык: АнглийскийИздательство: Square EnixФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68F745DAAE8ED839DF6B22278DBA41B912CDAB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

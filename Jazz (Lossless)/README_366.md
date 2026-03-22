@@ -1,3 +1,177 @@
+###  Публикация: 1800305   (15838) от 02.06.2025
+
+Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughing at Life [4:08]
+02. Something to Live For [5:39]
+03. Look for the Silver Lining [4:05]
+04. Nuages [5:03](   Читать дальше...   )Жанр: Vocal Jazz, Bossa NovaПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82BE448D39A967365AEF094FE0E3BE16750652A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800511   (15761) от 03.06.2025
+
+V.A. - Pop International Hits Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Bossa Nova, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Candies - Dance A Little Bit Closer
+02. Melania - Diamonds (Bossa Version)
+03. Solis String Quartet - Love Is A Losing game
+04. Neja - Last Night a DJ Saved My Life(   Читать дальше...   )Жанр: Pop Jazz, Bossa Nova, LoungeПродолжительность: 01:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE290B5633A5C9580069780F074206E5D6CDBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800469   (15743) от 03.06.2025
+
+Susannah McCorkle - Dream (1987) 2002, The Jazz Alliance [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Long Last Love [3:40]
+02. Just for a Thrill [5:12]
+03. Train in the Distance [4:09]
+04. Bewitched [4:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41701D24F650B2BADA04A1E7D59B6EDDD4541144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800639   (15556) от 05.06.2025
+
+Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stolen Moments [2:40]
+02. Angel Eyes [8:07]
+03. My Foolish Heart [5:14]
+04. So Doggone Lonesome [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5E8EECAC1761B25B134A1DA45E3FEE1050B266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800720   (15537) от 05.06.2025
+
+Mark Murphy - Mark Murphy Sings (1975) 1995, Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Red Clay [4:40]
+02. Naima [4:55]
+03. Body and Soul [5:20]
+04. Young and Foolish [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A9C3D64F569049B1912D4A174B6DE467EC3473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800847   (15452) от 06.06.2025
+
+Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Intimacy of the Blues [5:33]
+02. Sentimental Lady [4:20]
+03. Prelude to a Kiss [6:05]
+04. Paris Blues [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE36367F090EAC139F41D780EDE4B9C28544E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801256   (15145) от 09.06.2025
 
 Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -572,183 +746,6 @@ VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D87F5E048B82AC15AA9BCC38E315C60113D9B855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 425798   (12094) от 09.07.2025
-
-VA - The Perfect Jazz Collection: 25 Original Albums (2010) Box Set, 25 CD [FLAC (image+.cue)|Lossless] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об изданном Sony бокссете можно сказать, что в нем собрали самых-самых классиков джаза. Большая часть CD ремастирована с дополнительными треками. Каждый альбом упакован в картонный обложку в формате факсимильного винила. Если вам нужна история джаза, то эта раздача для Вас.01 Louis Armstrong - Louis Armstrong plays W. C. Handy (1954)
-02 Sarah Vaughan - Sarah Vaughan In Hi-Fi (1955)
-03 Art Blakey - The Jazz Messengers (1956)
-04 Billie Holiday - Lady in Satin (1958)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 22:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE1815AE93A08BAF0357BC08C5BB3F7DFB00AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299621   (12092) от 09.07.2025
-
-VA - Membran Music’s Jazz Ballads Series (2004) 20 x 2CD boxset [FLAC|Lossless]<Jazz, Bop, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю Вашему вниманию отличную подборку джазовых баллад в исполнении множества легендарных музыкантов после повторной реставрации.
-В жизни каждого человека бывают моменты, когда хочется отдохнуть от этого безумного ритма жизни, присесть у камина, прилечь на диване (тут каждый выбирает то, что ему ближе, как в духовном, так и в финансовом смысле), заварить чашку-другую (   Читать дальше...   )Список альбомов:
-Jazz Ballads 1: Chet Baker & Gerry Mulligan
-Jazz Ballads 2: Ben Webster
-Jazz Ballads 3: Lester Young(   Читать дальше...   )Тип издания: 20 x 2CD boxsetРелиз состоялся: 26 июля 2004Жанр: Jazz, Bop, VocalПродолжительность: 41:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838DCB9AB5586B99148952FFA3163D3A83159BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771450   (12056) от 09.07.2025
-
-VA - Verve Jazzclub - 154 Albums + Box Set (2006-2013) [FLAC|Lossless|image + .cue, tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серии:
-- Verve Jazzclub | Moods
-- Verve Jazzclub | Legends
-- Verve Jazzclub | Highlights(   Читать дальше...   )Жанр: JazzПродолжительность: 165:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E3DCD0FA54C6735BFC2D0F842CE79367EF298A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805886   (12029) от 09.07.2025
-
-Mark Murphy - Four Classic Albums (1956 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firefly [2:28]
-02. Lonesome Town [2:25]
-03. Kansas City [2:41]
-04. Come To Me [2:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8953ADEFD92D4FF38CD40EE19FFAF759983871C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805987   (12024) от 09.07.2025
-
-John William Gordon - John William Gordon (2005) CD, Album [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Fusion, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harm Alarm    [0:06:46.16]
-02. Distillery    [0:04:18.53]
-03. Quidnunc Mo    [0:04:10.08]
-04. Folly Stroll    [0:04:00.42](   Читать дальше...   )Жанр: Jazz-Rock, Fusion, JazzПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B1498BE27E3F2C1D48600884AFA795B5689027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652018   (11973) от 10.07.2025
-
-3rd Force - 7 Альбомов (1994-2016) [FLAC|Lossless|tracks + .cue] <Сontemporary Jazz, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11973.jpg" />
-</div>
-
-
-###  Подробнее
-
-3rd Force – инструментальная cоntemporary jazz-группа, основу которой составляют три человека - William Aura, Craig Dobbin и Alain Eskinasi.
-Особенностью музыкального почерка 3rd Force является своеобразное сочетание разных направлений - к мягкому саунду smooth jazz добавляются оттенки acid jazz, new age, танцевальной и этнической музыки.
-В записи альбомов 3rd Force (   Читать дальше...   )Список альбомов:
-1994 - 3rd Force
-1995 - Force Of Nature
-1997 - Vital Force(   Читать дальше...   )Жанр: Сontemporary Jazz, New AgeПродолжительность: 05:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A78702DFCD5B612B00525FE4505FD8D0C43C991
 ```
 
 https://mybot314.ru/tekegram_catalog/

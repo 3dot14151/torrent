@@ -1,3 +1,183 @@
+###  Публикация: 1030119   (676663) от 29.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 26 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Chroma Band - A New Day ( 1986 )
+02. 2 Eivissa - Open Your Eyes ( 1998 )
+03. Silent Circle - Oh, Don't Lose Your Heart Tonight ( Maxi Version 1987 )
+04. Alexis - Somebody Tonight ( Extended Mix 1991 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E7A9D10A7BCCEF2EECF9C1AE08E23B8EB829C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136228   (676617) от 21.05.2017
+
+VA - Back In Disco vol.2 (2017) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Project - Der Da Da Da (5:46)
+02. Arpeggio - Runaway (5:46)
+03. Claudja Barry - (Boogie Woogie) Dancin' Shoes (5:01)
+04. Laser - His Name Is Charlie (4:13)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD78800BD237173DF819590EBC66B1FE9957C8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030128   (676525) от 29.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 27 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys Next Door - Lady Of The Night ( 1987 )
+02. Video Kids - Satellite ( Reprise 1987 )
+03. Denise - You Belong To Me ( 1997 )
+04. Lazarus - Wait ( 1989 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4624AF3BDD64EB46B589410C60C7C25C72C64827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030118   (676397) от 29.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 25 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laser Cowboys - Radioactivity ( From The Ukraine 1986 )
+02. Fancy - Chinese Eyes ( 1984 )
+03. Monte Kristo - Sherry Mi-Sai ( 1988 )
+04. Nero - A. E. I. O. U. ( Special DJ Version 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 1:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3517B8FCBD8E296EA4CCE6A085881D6B2F69B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509663   (675305) от 12.06.2012
+
+VA - Дискотека: Жаркое лето №100 50/50 (2012) [MP3|160-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Настя Крайнова - Стоп Время
+02 Far East Movement feat. Flo Rida & Sidney Samson - Change Your Life
+03 Оля Полякова - Лепесток
+04 Aqua - Like A Robot
+05 Челси - Надо
+06 Taio Cruz Feat. Flo-Rida - Hangover
+07 Шатунов - Майский Вечер 2012
+08 Tina Cousins - Wonderful Life (Kenny Hayes Sunshine Funk Edit)
+09 Меседа Багаудинова - Дым
+10 Duck Sauce - Barbra Streisand(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:32:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536530   (675125) от 12.03.2022
+
+VA - German Top 100 Single Charts 11.03.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miksu / MacLoud & T-Low - Sehnsucht
+02. Glass Animals - Heat Waves
+03. GAYLE - abcdefu
+04. Civo - Weg von mir(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF79E5292E088FF1C689E381D78FE7AC1C172B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030189   (674789) от 30.06.2016
 
 VA - Зарубежная Дискотека ХХ Века - 30 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -571,180 +751,6 @@ VA - German Top 100 Single Charts 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93B511ADE139DD2154A11A9606548C429C47095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136523   (673230) от 23.05.2017
-
-VA - Весенний хитовичок молодежный выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673230.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. U3u - Ток  Бьет 3:00
-002. Александр Кэтлин - Монстр 4:40
-003. Дидо Каримов - Раз И Навсегда 4:39
-004. Надежда Грановская - Беги От Меня 3:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1132F70D2950A5572D6233BFDA66163731787CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136518   (673132) от 23.05.2017
-
-VA - Горячая весенняя танцплощадка. Версия № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ольга Крымская - Давай Не Поверим Им 4:14
-002. Даша Данилова - Останься В Прошлом 4:15
-003. Тимур Спб - Лучшая Подруга 3:27
-004. Mainstream One - Последний Поцелуй 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535EC3D77870F235B4EE46DB70F96C8278AF4C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136531   (673123) от 23.05.2017
-
-VA - Звездная тусовочка. Сборник № 12 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673123.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Султан Трамов Feat. Ренат Джамилов - Моя Любовь 2:41
-002. Empire Of The Sun - Ride 4:07
-003. Миля - Выбирай Любовь 3:55
-004. Samoel - Я Не Такой 3:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BDFED4ED85803B89F0328451AAAAF7C88B8190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136521   (673008) от 23.05.2017
-
-VA - Зажигай вместе с Europa Plus. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673008.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. K.Stelmah - Не Вернусь 3:05
-002. Alex Milano & Squeeze Feat. Max Ten - Первая 3:08
-003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
-004. Isabelle - Не Играй 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D36B1EA88CCDF067EA9FAE1304CAFF8E2F366F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136533   (673005) от 23.05.2017
-
-VA - Топовая весенняя сотня выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673005.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ejen & Lunna - Гармония 3:10
-002. 2 Маши - Не Буди 4:03
-003. Татьяна Буланова & Михаил Боярский - Единственный Дом 4:01
-004. Hann - На Больничном 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEABD28CC02E444D3FD3669359DBCF42D2C4838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136526   (672761) от 23.05.2017
-
-VA - Дискотека Хит FM. Любимая музыка выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Грейс - Больно 3:52
-002. Валерий Леонтьев - Ты Где-То Там 3:47
-003. Денис Майданов - Час-Пик 3:34
-004. Станислав Сорока - Дай Мне 3:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A0566AA5FC7EACC803905547CACB33145402FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

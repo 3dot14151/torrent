@@ -1,3 +1,32 @@
+###  Публикация: 1837248   (256851) от 15.11.2025
+
+VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul Blues, Soulful Blues Ballad, Soothing Soul Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rosie Malone - River of Mercy
+02 - Josephine Carter - Deep River of Peace
+03 - Eleanor Nora Jackson - Whispers in the Sanctum
+04 - Josephine Carter - River of My Soul(   Читать дальше...   )Жанр: Soul Blues, Soulful Blues Ballad, Soothing Soul BluesПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DD2267ECBF2A0DCD87873B55598A4476DF27E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837186   (256850) от 15.11.2025
 
 VA - No name compilation part 7 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul Blues, Soulful Blues Ballad, Soothing Soul Blues>
@@ -722,35 +751,6 @@ Chicago Blues Radio - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44605BAC2EACD00704B5CE779F902A2168C540BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833481   (246090) от 01.11.2025
-
-Chicago Blues Radio - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Midnight City Blues
- 02 - Midnight crying
- 03 - Midnight Blues on Ashland Avenue
- 04 - Midnight on State Street(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD629A376500A328E4C8C5DAC7D8B1B950321F35
 ```
 
 https://mybot314.ru/tekegram_catalog/

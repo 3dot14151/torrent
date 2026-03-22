@@ -1,3 +1,90 @@
+###  Публикация: 1438449   (1041157) от 08.01.2021
+
+Restless Spirits - Restless Spirits (2019) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Livin' To Live Online (feat. Johnny Gioeli)
+02. Unbreakable (feat. Deen Castronovo)
+03. I Remember Your Name (feat. Kent Hilli)
+04. 'Cause I Know You're The One (feat. Dino Jelusic)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B528CAEE5204AC91B643BAD86BCB41604E7539D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438301   (1041113) от 08.01.2021
+
+Magnum - Dance of the Black Tattoo (2021) Compilation [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Skies (Live) [00:06:06]
+02 - Freedom Day (Live) [00:06:20]
+03 - All My Bridges (Live) [00:04:55]
+04 - On a Storytellers Night (Live) [00:05:09](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BB3FFA93F1589894F30BB97E9567E059EBD9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438549   (1040920) от 09.01.2021
+
+Hearts & Hand Grenades - Turning To Ashes (2021) [FLAC|Lossless|tracks + .cue] <Modern Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Turning to Ashes [00:04:17]
+02 - For the Weakened [00:04:05]
+03 - Daggers [00:03:38]
+04 - I Hide [00:04:23](   Читать дальше...   )Жанр: Modern Hard Rock, Female VocalПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427C66796F16697E5DEB9F17553337F9FEDC78A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612067   (1040633) от 14.02.2023
 
 Brannon - Heartbreak Is Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -658,93 +745,6 @@ H.E.A.T - II (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08DCCD2E562F06E91AB1B7B95A632F2259DCC681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614830   (1038378) от 23.02.2023
-
-Royal Autumn - Life Is Strangely Accidental (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watcha Got? (03:36)
-02. Thin & Blond (04:36)
-03. Take It To The Grave (02:40)
-04. Life Is Strangely Accidental (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDE4F09A83F9B58833FD9EF2FDE5FFEF5078A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440880   (1038285) от 19.01.2021
-
-Tony Mitchell - Church Of A Restless Soul (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Church Of A Restless Soul
-02. Living On The Run
-03. In & Out Of Love
-04. The Mighty Fall(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698F10D6E1ECCC505DE1C50CC71AEBE5CCB1C8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615094   (1038125) от 24.02.2023
-
-El Supremo - Acid Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom, Space>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crowley Magick [00:03:11]
-02. The Ghost of… [00:10:35]
-03. 261 to Lisbon [00:07:25]
-04. White Hot Fever Dream [00:07:35](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Doom, SpaceПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB21A8CDF2EA2B561B2B81FE968D7025B03E0BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1670150   (172078) от 20.10.2023
+
+Limora - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Time
+02. Zehra
+03. Paris
+04. False Feeling(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2FACE4B48A74DBBDE0E1BDB980A7FBBA5D5A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670017   (171710) от 22.10.2023
+
+VA - Relaxing Rhythms - Chill Electronic (2023) [MP3|320 Kbps] <Electronic, Lounge, Chill Out, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sijya - Clear [04:26]
+02. Mar Io - A Part Of Past And Future [05:39]
+03. Multicast - Foehn [05:33]
+04. Fallen Metropolis & Bufo Bureau - Particle Frost [03:44](   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, AmbientПродолжительность: 05:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED51B49C84B95534AACF32241A9C27C60E48382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670864   (171707) от 22.10.2023
+
+VA - 60 minutes. Old School Dance Music vol.21 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Hard Trance, Euro Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Groove Gangsters - Make You Yeah
+02-The Chemist - Ruff Kutz (Brooklyn Bounce Undertaker Mix)
+03-The Horny Crew - R U Ready 4 Some More (Dj Glenn B`s Nasty Club Mix)
+04-Drunkenmunky - E (DJ BoozyWoozy Mix)(   Читать дальше...   )Жанр: Club House, Hard Trance, Euro TranceПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0B6FED409DA7E1327EA1ECCD7475D17215BC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670596   (171647) от 22.10.2023
+
+Umar Keyn - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deceived heart again
+02. Rain
+03. Morocco
+04. Souls(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB22D9F79B35E76AC4927D8469322099AF45A52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671187   (171384) от 24.10.2023
+
+Aykan Emir - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty World
+02. Odyssey
+03. Space Boy
+04. Sweet Feeling(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1A92B1F5B98376CBBAD21032A2FD991E996CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671199   (171379) от 24.10.2023
+
+Hussein Arbabi - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promises
+02. Rose
+03. Letter
+04. Malak(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA069F37C03ED368E2D0AC5554541001FBD0CD7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671168   (171367) от 24.10.2023
+
+Neuron - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te amo
+02. Melena
+03. Feel It
+04. Never Forget(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DF3E382E17AB96D8A174D8CDD6B9BA7A861F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671173   (171362) от 24.10.2023
+
+MENDA - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help
+02. Anxiety
+03. Midnight Dance
+04. Miracle(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E043F7A3966505D2E6B5B189900B39E03091E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671518   (171173) от 25.10.2023
 
 VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
@@ -516,235 +748,6 @@ VA - Groovy Day: Beach Party (2019) [MP3|320 Kbps] <Techno, Tech House, Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55CAB0769089CE9E7DF009211895F989711942D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431457   (167916) от 13.12.2020
-
-VA - Beatport Techno: Electro Sound Pack #208 (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима вступает в свои права, поэтому пришло время глобально обновлять музыкальную библиотеку и начинать слушать только веселую, качественную, энергичную и позитивную музыку от ведущих европейских диджеев. Все это Вы сможете получить, если скачаете 208-ю подборку клубного техно от Beatport!001. Aleeg - La Push
-002. Deep Spirit - Lonely 2K17
-003. Ike Release - Television Sky
-004. Space Native - Aphelion (Club Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8917BF601DE5ED87DFF4777CA1BE4B36275210F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431454   (167831) от 13.12.2020
-
-VA - Club Dance: Fitness Version (2020) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это активная, бодрящая, воодушевляющая музыка, ведомая силой и духом. Её можно использовать на тренировке в спортзале или при пробежке в парке. Она поможет ощутить яркую бурлящую жизнь внутри себя, единство силы и воли для достижений и побед в спорте.001. Dj Gang - Dance With Me
-002. Diego A Ft Oscar Yestera - Me Gustas Tanto
-003. Awaiik Ft. Sabacca - Lets Get It
-004. Teknova - Mistik(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1A5263A6BD230565F06C44A50562ACA53169F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515857   (167805) от 09.12.2021
-
-VA - Beatport Tech House: Sound Pack #381 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка которая находится на стыке двух стилей - ещё не техно, но уже не хаус. Это уже даже не стиль, а точка пространства, где встречаются и взаимопроникают две большие музыкальные стихии – техно и хаус.001. Cristhian Balcazar - Body Trap
-002. Dexxx Gum - Lights
-003. Ron Flatter - Dragoon
-004. Arni & Kazuma Akasaki - Kage(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 10:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE0214AC1906C3B2D859A7E765D9DD5602F4F66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515862   (167789) от 09.12.2021
-
-VA - Beatport Electro House: Sound Pack #382 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый всеядный жанр танцевальный музыки, заходящий одним краем в радиоформат. В хаусе гораздо чаще, чем в остальной электронике, встречаются мелодии, вокал и прочие атрибуты поп-музыки. Этому жанру не чуждо стремление к гламуру, театральности, иногда даже китчу.001. From Tokyo To Sao Paulo - U're Funked
-002. Jason Lindell - Disco Dancin
-003. Luke Chable - Melburn
-004. Dirty Clone - Raw Mood(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB0187A3DE1F1BF16BC20D358E2A29F8FDC56A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380061   (167587) от 13.12.2020
-
-aQuaLuna - Best of Destination Paradise (2020) [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345223   (167454) от 14.12.2019
-
-VA - Sphinx: Synth Electronica (2019) [MP3|320 Kbps] <Electronic, Syntheti>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167454.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Z · Axis - Voluptous
-002. Geomatic - Shadow World
-003. Asc - Scattered Mind
-004. Dmitry Molosh - Only U (Original Mix)(   Читать дальше...   )Жанр: Electronic, SynthetiПродолжительность: 11:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1ABFC0D02D32496F02462B611A753D21A6B14AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345225   (167361) от 14.12.2019
-
-VA - Digital Madness: Retrowave Music (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167361.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Analogue-X - World Of Silence
-002. Surge - Escape From Xylon
-003. Robert Parker - Final Moment
-004. Michael Hunter - Dusk Road(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectronicПродолжительность: 12:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7A3F5F6BE74D8135B7ACF35075C206716ABCAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826495   (167359) от 19.10.2025
-
-VA - Record Super Chart 18.10.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanco & AYA - Ma Tnsani (Yalla Habibi) (Samuel Prince Remix) (4:25)
-02. Rudimental & Khalid - All I Know (Ely Oaks Remix) (2:29)
-03. Inna, R3HAB - I'll Be Waiting (2:03)
-04. Hurts, Purple Disco Machine - Wonderful Life 25 (Original Mix) (2:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C9FA4C41993327F6E8E2303CDDDBB96C2CF210
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,350 @@
+###  Публикация: 1630815   (236410) от 04.05.2023
+
+Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236410.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. A Pain That I'm Used To (4:11)
+A2. John The Revelator (3:43)
+A3. Suffer Well (3:49)
+B1. The Sinner In Me (4:56)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6A86AAFF7E3EB1C8F7E43049BAAEE7137C8110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629913   (236395) от 28.04.2023
+
+Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236395.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Change The Weather
+A2 Stand Up
+A3 Fever
+A4 Original Song(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2623DCC96EA8789D4F7D9C132CC461ED1AFC7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640413   (236312) от 17.06.2023
+
+Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkseed — немецкая готик-метал-группа, образованная в 1992 году.1996 - Midnight Solemnly Dance
+1997 - Spellcraft
+1998 - Romantic Tales
+1999 - Give Me LightЖанр: Gothic MetalПродолжительность: 07:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F1C6AC053FEA983DB4813116F75EE2F2ABA434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640596   (236104) от 18.06.2023
+
+Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal with Doom Metal influences>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Danzig — американская метал-группа, смешивающая мрачную лирику и образы с блюз-роковыми веяниями.1994 - Danzig 4
+1996 - Blackacidevil
+1999 - 6.66 Satan's Child
+2002 - I LuciferiЖанр: Heavy Metal with Doom Metal influencesПродолжительность: 08:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DECC7B09715B5ECA90511A43FA253427D4391FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631725   (236092) от 07.05.2023
+
+VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_236092.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 И. Крайичек – Марика
+A2 З. Каминьска – Я Жду
+A3 И. Шерфези – Лола
+A4 В. Стойкович – В Долгих Ночах(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18B17D203C39F9283540A540F383D0577F52098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631691   (235963) от 06.05.2023
+
+Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Civil War — хеви-пауэр-метал-группа из Швеции, основанная в 2012 году.2012 - Civil War (EP)
+2013 - The Killer Angels
+2015 - Gods And Generals
+2016 - The Last Full Measure(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 04:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3014CBC3A138A5D2C9798A678555C9E42C30EA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640709   (235909) от 19.06.2023
+
+Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal / Death 'n' Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Entombed — шведская дэт-метал-группа, сформированная в 1987. Группа является пионерами скандинавского дэт-метала.1990 - Left Hand Path
+1991 - Clandestine
+1993 - Wolverine Blues
+1997 - DCLXVI: To Ride, Shoot Straight And Speak The Truth!Жанр: Death Metal / Death 'n' RollПродолжительность: 12:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642113   (235786) от 26.06.2023
+
+A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235786.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stay On These Roads 4:44
+A2 The Blood That Moves The Body 4:05
+A3 Touchy 4:31
+A4 This Alone Is Love 5:13(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6868FBE367A08BB0303738B18AB784F6863B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640972   (235659) от 20.06.2023
+
+Поют Екатерина Шаврина и Михаил Котляр (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235659.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Соловьи поют, заливаются
+А2 Река моя
+А3 Подари мне признание
+А4 Женщины(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559084019D1B11B1F3B6B9DE1AF515BF7D240B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632161   (235630) от 09.05.2023
+
+VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Funk, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235630.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Шейла – Волшебники
+A2 Элвис Пресли – Беззаботный
+A3 Мак Кэйти Киссун – Я Нашла Его
+A4 Ринго Вилли Кэт – Ты Слишком Красива(   Читать дальше...   )Жанр: Rock, Funk, PopПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642322   (235348) от 28.06.2023
+
+The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235348.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Sins of Thy Beloved — музыкальный коллектив из Норвегии, исполняющий свою музыку в направлении симфонического готик/дум-метала. Название группы переводится как «Грехи твоей возлюбленной/Грехи твоего возлюбленного». По словам участников коллектива они выбрали именно это название, так как оно наиболее полно отображает музыку, концепцию и лирику группы (лирика песен (   Читать дальше...   )1997 - All Alone (EP)
+1998 - Lake of Sorrow
+2002 - Perpetual DesolutionЖанр: Symphonic Gothic/Doom MetalПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2850E838857667DD3914CFAE98763A28F7998B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632635   (235260) от 11.05.2023
+
+Наташа Королёва + Тарзан - Веришь или Нет (2003) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Мне Веришь Или Нет
+02. Не Забуду
+03. Твой Мир
+04. Капелька(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E70CEC8684CFB9578E8EFB4986205D36C7DA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633099   (234631) от 13.05.2023
 
 Веселые Ребята - Любовь - огромная страна (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classic Rock, Prog Rock>
@@ -397,355 +744,6 @@ A4 Play The Game (The Game)(   Читать дальше...   )Жанр: Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0219688D49CED240AA3B3BED93374284BBCE8F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637289   (230957) от 03.06.2023
-
-Krokus - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 24/48|Lossless|image + .cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Wild Love
-02. Winning Man
-03. Fire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9201EA3647D2C001F4D1D38FBE90564F59ED482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850096   (230927) от 06.06.2022
-
-Владимир Высоцкий - Лукоморья больше нет. Песни 1967 - 1968 годов (1995) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня про правого инсайда
-02. ''У нас вчера с позавчера...''
-03. Аисты
-04. Лукоморья больше нет(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C95834D4B1AFBFE0B9F2971CFA55BEAE8C506A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637232   (230921) от 03.06.2023
-
-Creedence Clearwater Revival - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before You Assure Me
-02. Green River
-03. I Put A Speel On You
-04. Travelin' Band(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556033   (230778) от 07.06.2022
-
-Running Wild (X-Wild, Toxic Taste, Giant X) - Studio Albums (22 releases) (1984 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Running Wild (с англ. — «Ведущий беспутный образ жизни») — немецкая метал-группа. Основана в 1976 году гитаристом Рольфом Каспареком в Гамбурге, ФРГ.
-Стиль группы можно определить как некую смесь хэви-метал, пауэр-метал и спид-метал. Музыкально Running Wild сформировались под влиянием «Новой волны британского хэви-метал» с заметными заимствованиями из (   Читать дальше...   )1984 - Gates To Purgatory
-1985 - Branded And Exiled
-1987 - Under Jolly Roger
-1988 - Port Royal(   Читать дальше...   )Жанр: Heavy/Power/Speed MetalПродолжительность: 20:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395195E3218167A7611320B7E0C7EA9E5DBF3C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637784   (230481) от 06.06.2023
-
-10СС - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Dreadlock Holiday
-02. Take This Woman
-03. Nothing Can Move Me(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4042834B66FA71CC492D07143A6B8B3141220A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582736   (230384) от 11.10.2022
-
-Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera) (1970) [DSD128 2.0|images(sides)|Vinyl-Rip]<Classic Rock, Musical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (3:59)
- 02. Heaven on Their Minds (4:22)
- 03. What's the Buzz/Strange Thing Mystifying (4:14)
- 04. Everything's Alright (5:15)(   Читать дальше...   )Жанр: Classic Rock, MusicalПродолжительность: 01:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC0ABFDD80805AA4B4CA376CBCBD5DBCEBE1006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964888   (230001) от 12.12.2015
-
-Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Was a Boy (3:12)
-02. Love & Rain (3:30)
-03. Dirty To The Bone (3:06)
-04. When The Night Comes (3:21)(   Читать дальше...   )Производство: Columbia / Big Trilby Rec.Жанр: RockПродолжительность: 00:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E180AAD96C0AF6372D39F23596412C68FFF1ED0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735819   (229534) от 18.12.2013
-
-Аквариум - Оракул Божественной Бутылки (1998) 2LP /2013, Solyd Records/ [WavPack 2.0 24/192|image (Vinyl-Rip)]<Рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229534.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. Мой друг доктор (3:27)
-C2. Электрический пес (5:12)
-C3. Скорбец (3:06)
-C4. Афанасий Никитин Буги (3:54)(   Читать дальше...   )Жанр: РокПродолжительность: 00:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFE44147D50044ADDE2F8DD4BFFCCB808B93E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341440   (228845) от 29.11.2019
-
-Эмиль Горовец - Поет Эмиль Горовец II (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228845.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Двадцатый Век
-A2 Твоя Любовь
-A3 Смоленский Мальчишка
-A4 Белая Береза(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D2B710AFB31D39D9A98F0093BFFB703F667F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648898   (228561) от 29.07.2023
-
-VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image + .cue|Vinyl-Rip] <Euro House, Swingbeat, Italodance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228561.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Londonbeat - You Bring On The Sun
-A2 Ce Ce Peniston - We Got A Love Thang
-A3 Got To Be - Lucy
-A4 R. Kelly And Public Announcement - She's Got That Vibe(   Читать дальше...   )Жанр: Euro House, Swingbeat, ItalodanceПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648182   (228434) от 29.07.2023
-
-VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FLAC|24/192|image + .cue|Vinyl-Rip]] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228434.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Edward Van Halen - Donut City
-A2 Hanover Fist - Metal Of The Night
-A3 Charlie Sexton With Ron Wood - It's Not Easy
-A4 Andy Summers - Human Shout(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583598   (227970) от 16.10.2022
-
-VA - The Dooley Family And The Others (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227970.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Dooley Family – Hands Across The Sea
-A2 The Dooley Family – Sha La La Lullaby
-A3 The Dooley Family – Oo-Pa-Pa-Doo
-A4 The Dooley Family – Sneaking Up On Me(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
 ```
 
 https://mybot314.ru/tekegram_catalog/

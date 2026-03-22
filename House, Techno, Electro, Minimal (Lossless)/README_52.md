@@ -1,3 +1,148 @@
+###  Публикация: 1188653   (273686) от 03.12.2017
+
+Mr. Cloudy - Memoria / Sprayer (2017) Local Traffic [FLAC|Lossless|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memoria l (20:00)
+02. Memoria ll (18:06)
+03. Sprayer l (08:09)
+04. Sprayer ll (13:52)Тип издания: VinylЖанр: Dub Techno, AmbientПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEABE3EF7805F733317DB9F908AB082A419684D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188655   (273679) от 03.12.2017
+
+Mr. Cloudy - Perceived 2 (Magnetic Tide) (2017) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetic Tide 1 (17:50)
+02. Magnetic Tide 1 (Toki Fuko ReDub) (17:50)
+03. Magnetic Tide 2 (19:00)
+04. Magnetic Tide 2 (Toki Fuko Reshape) (18:44)Жанр: Ambient, Drone, Dub TechnoПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00A5232B38E9F51502E691690B1EEFEA61E3045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188651   (273677) от 03.12.2017
+
+Joachim Spieth - Irradiance (2017) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iliachtides (05:17)
+02. Dispersion (07:08)
+03. Luciferin (07:29)
+04. Candela (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95611C0CEC645A033C701AD977DBFC7D94063439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188649   (273676) от 03.12.2017
+
+Automatic Tasty - A World Of Moving And Connected Parts (2017) SLEEPERS [FLAC|Lossless|24Bit|tracks] <Electro, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A World Of Moving And Connected Parts (03:58)
+02. Notes From Underground (04:00)
+03. I Tried To Take A Selfie (But There Was Nobody There) (03:05)
+04. R U Local ? (05:19)(   Читать дальше...   )Тип издания: VinylЖанр: Electro, AcidПродолжительность: 00:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75742CF111D41126B72C8325C94C5AC0579FE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188892   (273674) от 03.12.2017
+
+VA - Kitties Wanna Dance! Vol. 3 (2012) Suara [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pig & Dan - No Rules Limitation (07:14)
+ 02. Sharam Jey & Night Talk - Lies (05:36)
+ 03. Tapesh & Dayne S - All Day Long (07:33)
+ 04. Hot Since 82 - Planes & Trains (06:43)(   Читать дальше...   )Жанр: House, Deep House, Minimal, Tech HouseПродолжительность: 02:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B373A8C9FC19FADDBE7C2429F99001470065160F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337613   (273265) от 11.11.2019
 
 VA - Soviett 1 Year (Compiled & Mixed by Ivan Starzev) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
@@ -596,151 +741,6 @@ Arkaean - Dawnlit Passage (2019) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3EEC628273AE05E90C06A3E66EED5973240CA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193112   (262364) от 19.12.2017
-
-Scooter - 100% Scooter: 25 Years Wild & Wicked 5CD (Limited Edition) (2017) [FLAC|Lossless|tracks + .cue] <Electro House,Euro House,House,Techno,Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Logical Song
-02. How Much Is The Fish
-03. One (Always Hardcore)
-04. Move Your Ass!(   Читать дальше...   )Жанр: Electro House,Euro House,House,Techno,TranceПродолжительность: 05:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F237D7A296BE4DA91EC0D6753B4986049818464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341495   (262352) от 28.11.2019
-
-Dj De Key - Anniversary Edit (2019) [FLAC|Lossless|image + .cue] <Progressive House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinlicker feat. Belle Doron - Close Your Eyes (Extended Mix)
-02. Exit 11 - Nights Of The Jaguar (Extended Mix)
-03. Nora En Pure - Dry Sobbing (Original Club Mix)
-04. Saaz, Gu Noronha - Together (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28F1F504B2774A3915388B35BDBC4F3C0104F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341333   (262340) от 28.11.2019
-
-Bob Sinclar - III (2006) [FLAC|Lossless|tracks + .cue] <House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Goes On
-02. Kiss My Eyes
-03. If I Was
-04. Musique Is Fantastique(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0BE08394D04D8C273B36585BCBEA74D6DD4340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193134   (262272) от 20.12.2017
-
-Application - Discography 3 Releases (2014) Dust Science Recordings [FLAC|Lossless|tracks+.cue, tracks] <Techno, Breakbeat, IDM, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambient A (02:59)
- 02. Flange 7 (04:04)
- 03. Steve Reichs Ice Cream Van (03:41)
- 04. Front End (04:27)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Breakbeat/Techno/IDM/AmbientПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A5B49F040A60EBC3023A8A6F34B70928E8829A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193412   (262086) от 21.12.2017
-
-VA - Remembering The 90's: Best Hits Remixed (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Club, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Red 5  -  I Love You Stop (Damage Control Remix)  6:21
-02.  K.K. Project & Felicia Uwaje  -  Mary Had A Little Boy (Thorsten Wagner Remix)  3:27
-03.  Damon Paul, Tony T. & Simone Mangiapane  -  Rhythm Is A Dancer (Rap Festival Mix)  3:30
-04.  Elaine Winter  -  Forever Young (Patricio AMC Remix)  3:54(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB04335152CB59808EED81988C3F230B2692A918
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1512148   (63124) от 13.03.2024
+
+Deep Forest - Studio Albums (15 releases) (1992-2023) [APE, Flac|Lossless|image + .cue, tracks + .cue] <World music, Ambient, House>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Forest - французский дуэт, состоящий из музыкантов, Мишеля Санчеса (Michel Sanchez) и Эрика Муке (Eric Mouquet). Создают музыку в стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Их звучание было описано как «этно-интроспективная музыка в стиле эмбиент».
+В 1994 году они (   Читать дальше...   )1992 - 1994 - World Mix
+1995 - Boheme
+1997 - Comparsa
+2000 - Pacifique(   Читать дальше...   )Жанр: Electronic, new-age, ambient, world, ethnic electronicaПродолжительность: 13:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9B6A4BEF278DD4FF4F1DE8800A610444AFDF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708196   (62342) от 20.03.2024
+
+Mivari - Жар-Птица (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Ethnic, House>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Детство [00:06:28]
+02. Жар-Птица [00:03:30]
+03. Сирена [00:03:52]
+04. Ведьмы [00:05:24](   Читать дальше...   )Жанр: Folk, Ethnic, HouseПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC2D337FE080EC56AC84CA6D8B2C441204058F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538913   (62123) от 22.03.2024
+
+Лёдъ - Неведомо, не страшно (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Neofolk, Nordic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Лёдъ (00:02:36)
+02 - Кузница Мира (00:06:35)
+03 - Чёрная Ладья (00:06:46)
+04 - Охотник И Cын (00:04:54)(   Читать дальше...   )Жанр: Dark Neofolk, Nordic FolkПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC9A2CB2C97EA6FB579C4822E7B6E6342240E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708763   (61834) от 25.03.2024
+
+Радда Эрденко, Карина Габриэлян, Сёстры Бэрри - Жизнь и приключения Мишки Япончика (2011) [MP3|192 Kbps] <Soundtrack, Folk, Jazz, Swing>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Основная тема
+02. Одесса за меня узнает
+03. ЧирибимЖанр: Soundtrack, Folk, Jazz, SwingПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DFF66A0E02BC581611B156F426500B0C1F7799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710544   (61601) от 27.03.2024
+
+Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensual Chill (3:02)
+02. Wet Dream (3:41)
+03. Erotic Massage (2:57)
+04. Want You (2:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E83186511F0CAED67BDF861DD3C0E066AAF3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585597   (60377) от 08.04.2024
 
 Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -589,151 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8688BD397778F3C4D708C33507712DEA73ACAA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741690   (46915) от 13.08.2024
-
-Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image + .cue] <Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runnin Wild
- 02. I'm Thru With Love
- 03. When Love Goes Wrong
- 04. My Heart Belongs To Daddy(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743492   (46583) от 16.08.2024
-
-Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adagietto
-02. Sandrine's Dream
-03. Franz
-04. Evening in Gourmos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743924   (46378) от 18.08.2024
-
-101 Strings Orchestra - Moon River: The Music of Henry Mancini (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River (From "Breakfast at Tiffany's")
-02. The Pink Panther Theme (From "The Pink Panther")
-03. Peter Gunn Theme
-04. Theme from "Cade's County"(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68CCFBB92C0F8B2C3BC93D1E36A1F7873CE8E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747686   (44391) от 06.09.2024
-
-101 Strings Orchestra - San Francisco: City of Romance (1974) 2014-2024 Remaster From The Original Alshire Tapes [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Left My Heart in San Francisco (2014 Remaster)
-02. Top o’ the Mark (2024 Remaster)
-03. Cable Cars (2024 Remaster)
-04. Concerto to the Golden Gate (2021 Remaster)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7D44062994B26F2836657E090909EB4E66DD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748599   (43993) от 10.09.2024
-
-Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensual Sunrise Asanas (3:49)
-02. Tantric Tranquility Flow (3:10)
-03. Whispers of Intimacy (3:10)
-04. Sacred Connection (3:18)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A0278C849B5B16DF484A219EF0220797A81863
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1679012   (142581) от 23.11.2023
+
+Legacy - Stand And Conquer (2003) [MP3|320 Kbps] <Progressive, Power Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Free To Fly [00:05:02]
+02 - You Can't Hide [00:03:24]
+03 - Stand And Conquer [00:03:58]
+04 - Sky Will Burn [00:04:07](   Читать дальше...   )Жанр: Progressive, Power Metal, Hard RockПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC650B0B807BABF4081945B45E2B87666D7827D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678925   (142575) от 23.11.2023
+
+Sieges Even - The Art Of Navigating By The Stars (2005) [MP3|320kbps] <Progressive Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro - Navigating By The Stars [00:00:29]
+02 - Sequence I_ The Weight [00:10:13]
+03 - Sequence II_ The Lonely Views Of Condors [00:06:14]
+04 - Sequence III_ Unbreakable [00:08:59](   Читать дальше...   )Жанр: Progressive Metal, Hard RockПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3668F78C448A29F4533ADCF44CA8B2E984678BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679035   (142268) от 23.11.2023
+
+Heretic Brazil - Gilgamesh (2023) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hybrid Fear [00:04:25]
+02 - Stay [00:03:52]
+03 - Gilgamesh [00:04:38]
+04 - In The Eye Of The Night [00:04:54](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9C61DB0A4FF8CEF32465DBC118099459465AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348789   (141828) от 29.12.2019
+
+Sons Of Apollo - MMXX (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141828.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Goodbye Divinity [7:13]
+ 2 - Wither To Black [4:45]
+ 3 - Asphyxiation [5:08]
+ 4 - Desolate July [5:59](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EB38F30B7133862E5D374220C3147841FAF674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348771   (141596) от 29.12.2019
 
 Silvertomb - Edge of Existence (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Doom>
@@ -648,136 +764,6 @@ Old Ruins - Always Heading East (2023) [MP3|320 Kbps] <Heavy, Post-Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:465A75F61A7ADAFC17563C7BD74CA3021416B584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595357   (131018) от 31.12.2012
-
-Guttural Engorgement - The Slow Decay Of Infested Flesh [Digi-Pack Limited Edition] (2010) [MP3|320 кб/с]<Brutal Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Process Begins (Intro)
- 02. The Slow Decay of Infested Flesh
- 03. Job For A Hammer
- 04. Bile Defilement
- 05. Molested Dissection
- 06. Cadaveric Maggot Copulation
- 07. Omnipresent Ecchymosis
- 08. Cinder Block Facial Reconstruction
- 09. Steak Knife Face Fuck
- 10. Chopsaw Sodomy(   Читать дальше...   )Жанр: Brutal DeathПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EB1A848B3A2CACF68FE8657D85AD2AA92D1FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595335   (131011) от 31.12.2012
-
-General Surgery - A Collection of Depravation (2012) [MP3|320 кб/с]<Death Metal / Goregrind>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pre-Bisectal Corrosive Immersion.[01:54]
- 02. Lab Rat.[01:09]
- 03. Mortuary Wars.[02:59]
- 04. Cauterization Frenzy.[02:23]
- 05. Reception of Cadavers.[02:15]
- 06. Decomposer.[02:14]
- 07. Convivial Corpse Disposal Methodology.[06:41]
- 08. Foetal Mush (Xysma cover).[02:09]
- 09. Unruly Dissection Marathon.[01:22]
- 10. Scalpel Infestation.[01:53](   Читать дальше...   )Жанр: Death Metal / GoregrindПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8815F1E83C2F3096AAFBD73C11CB1D70AAA0B110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525009   (130466) от 18.01.2022
-
-Battle Beast - Circus Of Doom (2022) [MP3|320 Kbps] <Melodic Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circus of Doom [00:04:57]
-02. Wings of Light [00:04:07]
-03. Master of Illusion [00:04:08]
-04. Where Angels Fear to Fly [00:03:56](   Читать дальше...   )Жанр: Melodic Heavy Metal, Female VocalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C814DB8D76C6225E168BDEDD1D32B71D6A0DAD29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488284   (129143) от 27.04.2012
-
-Hideous Divinity - Obeisance Rising (2012) [MP3|320 кб/с]<Brutal Technical Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Morning 02:49
- 02. Life During Epidemic 04:17
- 03. The Servant's Speech 05:11
- 04. Summoning Fists To Heaven 05:41
- 05. A New Hope Of Worms 04:02
- 06. Cerebral Code Of Obeisance 03:42Жанр: Brutal Technical DeathПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C704DF67F6746BAEDA5FCAE10C4F9B506453414
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 188994   (722736) от 03.08.2020
+
+VA - Cafe Chillout Ibiza Edition (2008) [MP3|167-233 kbps]<Lo-Fi>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armstrong - Future City 			(04:43)
+02. Orient Team - The Quest 			(04:06)
+03. Del Mar - Evening Cafe (Ibiza Dub) 		(05:28)
+04. Van Der Hayden - Hymn To Love 		(04:58)(   Читать дальше...   )Жанр: Lo-FiПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7286AFE461ABAF191E4E3AEFBB4567AAC074093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129237   (722501) от 28.04.2017
+
+VA - Los clasicos argentinos - Tango - Vol.17 - Francisco Canaro: El ritmo canyengue (1996) [MP3|192 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aromas
+02. Alma de loca
+03. Una cancion
+04. Preludio nochero(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9B3AFC2652620D44EFD06A8BB1D9AB69FB9990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129176   (722262) от 28.04.2017
+
+VA - Enigma & D-Emotion Project (2001) Bootleg [FLAC|Lossless|image + .cue] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial - Cang Ding 4:45
+02. Mythos - Planinata 3:24
+03. Delerium - Flatlands 6:57
+04. Mythos - June 4:58(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8209780D95BABBF0C589B2A61DE41240096DF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023776   (722248) от 06.06.2016
+
+Rebekah Long - Here I Am (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Life Sweet (3:55)
+02. The Fightin' Side of Me (3:17)
+03. Hairpin Hattie (3:52)
+04. Here I Am (3:14)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE14C443D2DFB7FA2CBA55C216438B34F7518605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023922   (722245) от 06.06.2016
 
 Sayama - Yoga Meditations (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
@@ -626,122 +742,6 @@ Dean Evenson & Peter Ali - Prayers on the Wind (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F76026964135330D2460AC4E8E4FF9C1B9541AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285058   (718953) от 27.02.2019
-
-VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Capoeira>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capoeira Ultimate - Berimbao Viola
-02. Tafari Roots - Faca De Ponta
-03. Capoeira Experience - Ingá Ingá
-04. Capoeira Muzenza - Vou Ver Mou Mestre(   Читать дальше...   )Жанр: World, Ethnic, CapoeiraПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEB51035559FF56E28FC43BD23135BC21062E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285486   (718929) от 27.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 6 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of The Bumble Bee / Hungarian Dance No. 5 / Light Cavalry Carmen
-02. Blue Moon
-03. Holy Halls
-04. Here, There and Everywhere/ Hey Jude(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43C24CC7767FC64943BB14D2807763F45A5639F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285106   (718926) от 27.02.2019
-
-Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fields Of Anfield Road
-02. Scouser Tommy
-03. The Banks Of The Merseyside
-04. Liverpool Lou(   Читать дальше...   )Жанр: FolkПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285475   (718916) от 27.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here, There and Everywhere + Hey Jude - Symphonic Rock Orchestra
-02. Chopin's Dreams (Etude) - Wave's Computer Orchestra
-03. Hello Mary (BachGounod Ave Maria) - Philharmonics of London
-04. Hummelflug + Ungarischer Tanz No.5 + Leichte Kavallerie + Carmen - Symphonic Rock Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C807FC1A5FD955CBA403183BF156487354C1EDF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

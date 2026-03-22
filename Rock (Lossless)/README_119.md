@@ -1,3 +1,380 @@
+###  Публикация: 1340126   (264256) от 22.11.2019
+
+Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orchestra) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie May
+02. Reason To Believe
+03. Handbags and Gladrags
+04. Sailing(   Читать дальше...   )Жанр: Soft RockПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B9A51D23B937769CC0A69C5E7C48670B0C0D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340011   (264246) от 22.11.2019
+
+Chris Rea - Auberge (1991) 2CD, Deluxe Edition, Remastered 2019 [FLAC|Lossless|image + .cue] <Rock, Soft Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Auberge (2019 Remaster)
+02. Gone Fishing (2019 Remaster)
+03. You're Not A Number (2019 Remaster)(   Читать дальше...   )Жанр: Rock, Soft Rock, BluesПродолжительность: 02:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401AFBA998F5C6A710849B62F34ECFDC8FF86FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340161   (264003) от 23.11.2019
+
+Marc Bolan - Electronic Musik (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264003.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Wizard (Unused stereo mix) (1:46)
+2. Beyond The Rising Sun (Unused stereo mix) (1:43)
+3. The Third Degree (Remastered 2019 version) (2:29)
+4. Hippy Gumbo (Remastered 2019 version) (2:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C5383CFA94C3425C338AA3E777B0FF62F0C268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340662   (263611) от 24.11.2019
+
+Birtha - Birtha / Can't Stop The Madness (1997) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Birtha
+01. Free Spirit (2:57)
+02. Fine Talkin' Man (6:00)
+03. Tuesday (3:26)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD27B572C83474837E964FED53F0BD161A2F590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192263   (263486) от 16.12.2017
+
+Taproban - Per Aspera Ad Astra (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Outside Nowhere (15:07)
+2. Fragments of Life (1:26)
+3. Il Difficile Equilibrio Tra Sorgenti d'Enegia (8:16)
+4. Ves Ml' TaHghach (4:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C1A1ACFB710957E71AA0759A0A31713F2680F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192110   (263447) от 16.12.2017
+
+Yes - Close To The Edge (1972) Reissue, Remastered, 1998, Atlantic [FLAC|Lossless|image + .cue] <Rock, Art Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close to the Edge(18:41)
+1.I The Solid Time Of Change
+1.II Total Mass Retain
+1.III Get Up I Get Down(   Читать дальше...   )Жанр: Rock, Art Rock, Prog RockПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AE8A9F45BC04FA260B7B5F3DB0C6AC3F562148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192168   (263394) от 16.12.2017
+
+Bryan Adams - Ultimate (2017) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Down Rockin' (2:59)
+ 02. Can't Stop This Thing We Started (3:16)
+ 03. Run To You (3:53)
+ 04. Ultimate Love (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C754E893EEC50D686293E399E3A52F191E7D100E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192751   (262804) от 18.12.2017
+
+Spirit - Spirit (1968) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh-Garbage (3:13)
+02. Uncle Jack (2:45)
+03. Mechanical World (5:17)
+04. Taurus (2:38)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0034EDCCE1FC89AC9418F5AF6D5103B066C277DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192768   (262797) от 18.12.2017
+
+Spirit - The Family That Plays Together (1969) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got a Line on You (2:39)
+02. It Shall Be (3:00)
+03. Poor Richard (2:32)
+04. Silky Sam (3:45)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22BECC53E994345E1D387E40E68792A265CC9F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341039   (262632) от 27.11.2019
+
+The Parlour Band ‎ - Is A Friend? (1972) [FLAC|Lossless|image + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgotten Dreams (2:43)
+02. Pretty Haired Girl (2:51)
+03. Spring's Sweet Comfort (5:05)
+04. Early Morning Eyes (3:53)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273A75209A3CC36B13EA3912E1A71F366126B815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341041   (262629) от 27.11.2019
+
+The Pillbugs - Happy Birthday (2004) [FLAC|Lossless|image + .cue] <Rock, Psychedelic Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_262629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Birthday (4:04)
+02. Life As It Happens Pt 1 (0:32)
+03. The World's Most Harmless Villain (4:09)
+04. Your Taste Is Mellow (2:32)(   Читать дальше...   )Жанр: Rock, Psychedelic PopПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283CC0888804C2A133965DCCC8E765BF5006B7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193335   (262110) от 21.12.2017
+
+Alannah Myles - Alannah Myles (1989) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Got This Thing (4:37)
+ 02. Love Is (3:40)
+ 03. Black Velvet (4:49)
+ 04. Rock This Joint (4:02)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FA29B54228795E67B61A16C2359D265D4C8C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839017   (261628) от 26.11.2025
+
+Queen - Queen On Fire (Live At The Bowl) (2004) 2 x CD, SHM-CD, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Arena Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc1:
+01. Flash
+02. The Hero
+03. We Will Rock You(   Читать дальше...   )Жанр: Classic Rock, Arena Rock, Pop RockПродолжительность: 01:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A61147FD49926C66E56ECF444DCC3C54A49A731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838759   (261299) от 24.11.2025
 
 Queen - Live Magic (1986) Japanese Edition, SHM-CD, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Rock, Arena Rock>
@@ -415,389 +792,6 @@ Roger Waters - The Best (1995) [FLAC|Lossless]<Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497501   (255727) от 19.05.2012
-
-VA - Glory Days Of Rock 'n' Roll ( 5 x 2CD) (1999) [FLAC|Lossless]<Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky Nelson - Hello Mary Lou [02:20]
-02. Annette Funicello - Tall Paul [01:36]
-03. Dick and Dee Dee - The Mountain's High [02:16]
-04. Edd Byrnes and Connie Stevens - Kookie, Kookie (Lend Me Your Comb) [02:07]
-05. Connie Stevens - Sixteen Reasons [01:58]
-06. Bobby Vee - Take Good Care Of My Baby [02:40]
-07. Tommy Sands - Teenage Crush [02:25]
-08. Tab Hunter - Young Love [02:27]
-09. Dion and the Belmonts - A Teenager In Love [02:34]
-10. Connie Francis - Everybody's Somebody's Fool [02:41](   Читать дальше...   )1999Жанр: Rock & RollПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624731   (255441) от 07.04.2023
-
-Mono Inc. - Ravenblack (2023) [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwave, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The End Of The Rainbow
-02. Empire
-03. Princess Of The Night
-04. Angels Never Die(   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Alternative RockПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97DE180DB2A729E481CD106009F095DF7F910638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625235   (255375) от 09.04.2023
-
-VA - The Rock Collection: Soft Rock (1992) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255375.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A-Ha - The Sun Always Shine on TV (Single Version) (4:46)
-02. Bonnie Tyler - It's a Heartache (3:29)
-03. Air Supply - Lost in Love (Album Version) (3:53)(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E616612BA12AE179AFD41D21C0BF4AAB6D5BCC23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625412   (255344) от 10.04.2023
-
-Chris Rosander - The Monster Inside (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR, Westcoast>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Monster Inside (00:04:36)
-02 - Only Hearts Die Young (00:04:31)
-03 - Nothing Last Forever (00:04:25)
-04 - High On Love (00:04:28)(   Читать дальше...   )Жанр: Melodic Rock, AOR, WestcoastПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708DD41A73C5C9BAF5F171D4F5D848B8409C1EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625453   (255343) от 10.04.2023
-
-Zio - Truewaves (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Truewaves (00:01:09)
-02 - Untenable (00:03:51)
-03 - Amused (00:01:30)
-04 - Space Heater (00:04:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3FC0E40E8743494CDC590587ECD8270A145F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625610   (255335) от 10.04.2023
-
-Destination Unknown - Destination Unknown (2023) [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rivals
-02. One Heart
-03. Even Angels Fall
-04. Holding On(   Читать дальше...   )Жанр: AORПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195D2C0DE35725775D4CE9FE098BC23ED381EE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625407   (255333) от 10.04.2023
-
-T3nors - Naked Soul (2023) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. April Rain (3:59)
-2. Naked Soul (3:38)
-3. Nights (3:42)
-4. Time Is Coming (3:47)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4FBD5A6F3DA8172BC09160AF1465F4DD133884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625973   (255274) от 12.04.2023
-
-Chaos and The Cosmos - Our Song (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Singularity (00:05:45)
-02 - u Go-Go (00:05:31)
-03 - Heart Flies (00:06:38)
-04 - Prologue (00:02:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DB0254971BBCBF2A3EDDEA9B9390D346DC80AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625980   (255270) от 12.04.2023
-
-The Savage Blush - Ether Dome (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ether Fever (00:03:22)
-02 - Incantations (00:03:18)
-03 - Waltz for the Lonely (00:02:38)
-04 - Euphoria (00:02:54)(   Читать дальше...   )Жанр: Psychedelic, Garage RockПродолжительность: 00:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B74ED0D8141B602B15A476CD344A379BCA91804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626180   (255232) от 13.04.2023
-
-VA - Old Rock 90s (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Temple Pilots -- Interstate Love Song (3:14)
-02. Alanis Morissette -- Hand in My Pocket (3:42)
-03. Red Hot Chili Peppers -- Under the Bridge (4:24)
-04. Green Day -- When I Come Around (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 02:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EE8173F8B12C84E9E8E548878CCAED49BB2936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626187   (255231) от 13.04.2023
-
-VA - Rock Workout Hits 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons -- Enemy (from the series Arcane League of Legends) (2:53)
-02. Coin -- Cutie (3:04)
-03. Easy Life -- ocean view (2:55)
-04. renforshort -- wannabe (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D255F5DA13D8C9FFFE916037EE9421750A136CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627948   (254947) от 21.04.2023
-
-Jethro Tull - RökFlöte (RokFlote) (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voluspo
-02. Ginnungagap
-03. Allfather
-04. The Feathered Consort(   Читать дальше...   )Жанр: Progressive Rock, Folk RockПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC25887F4193ABBCFB812F7B91B6F41C24285A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628587   (254889) от 23.04.2023
-
-VA - Worldwide hits 20 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Killers -- Mr. Brightside (3:44)
-02. Tears For Fears -- Everybody Wants To Rule The World (4:13)
-03. Olivia Rodrigo -- good 4 u (2:58)
-04. The Beach Boys -- Little Saint Nick (1991 Remix) (1:59)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B9FA35B505FFA70C839038E1185A222B2D4EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

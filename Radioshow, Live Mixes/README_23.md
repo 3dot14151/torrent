@@ -1,3 +1,90 @@
+###  Публикация: 1719229   (110589) от 29.04.2024
+
+Nora En Pure - Purified Radio 400 (Drakensberg, South Africa) (2024-04-21) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nora En Pure - Indulgence
+02. Jono Stephenson - I Can't Save You
+03. Asrem - Sunset
+04. Nora En Pure - Sycamore(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1ECAE676D8700E211F559312A96C480528D4E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719258   (110577) от 29.04.2024
+
+Markus Schulz - Global DJ Broadcast In Bloom (Vocal Dance Mix) (2024-04-25) [MP3|320 Kbps] <Progressive House, Trance, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Pretty Poison - Stolen
+02. Tritonal & Susie Ledge - Keep My Dreams Alive (Hessian Remix)
+03. Kyau & Albert - Always a Fool (Jope Remix)
+04. Adina Butar - Whisper(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic House, TechnoПродолжительность: 02:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339B10F98339C161466D645DAE3AD5FD11370133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719314   (110503) от 30.04.2024
+
+Sara Landry - Live @ All Night Long, Knockdown Center New York, United States (2024-03-15) [MP3|320 Kbps] <Techno, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Princess Superstar - Perfect (Peligre Edit)
+02. Fabrizio De Santis - Budokai Tenkaichi
+03. Peligre - BRB Crying
+04. Nico Moreno ft. Laren - You Make Me Horny(   Читать дальше...   )Жанр: Techno, Hard DanceПродолжительность: 02:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B086380EDAD5DB7CE51B6440059BD8040081707D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719756   (110411) от 02.05.2024
 
 KAAZE - Live @ Illuzion Phuket, Thailand (2024-04-20) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
@@ -657,93 +744,6 @@ Armin van Buuren - Live  @ Seismic Dance Event Spring Edition (2024-05-10) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57C526659C123EB200E89885FA9C0046B5246646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733407   (107304) от 28.06.2024
-
-MEDUZA & Alec Monopoly - Live @ Our House Pre-Party, Cafe Mambo Ibiza, Spain (2024-06-21) [MP3|320 Kbps] <House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-02. HELLMATE & Santiago & Carlitos & Chantal Lewis-Brown - Show Me Love
-03. Marshall Jefferson & Solardo - Move Your Body
-04. Jerry Ropero & Denis The Menace ft. Jaqueline - Coraçao(   Читать дальше...   )Жанр: HouseПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6379562532FFB0BCB7D5B5E10089C408A2C33917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733153   (107300) от 28.06.2024
-
-VA - Armin van Buuren - A State Of Trance 1179 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rivo vs. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Tune Of The Week)
-02. Kyau & Albert - Cascading Waterfalls
-03. Pete K & Paul Arcane ft. Amy J Pryce - Hold Me
-04. KASIA - Drowning (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66DE28C1960B1693E46FFAFB4CA8C510A9E1423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733414   (107298) от 28.06.2024
-
-Markus Schulz - Global DJ Broadcast Sunrise Set (2024-06-27) [MP3|320 Kbps] <Progressive House, Trance, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Early (Symphonic Rehearsal Mix)
-02. Markus Schulz - Summer of '99
-03. Stu McNally - Innerversions
-04. Estiva - Mesa(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic HouseПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA58148A89576888A2E86B06C4675FA656E8BC26
 ```
 
 https://mybot314.ru/tekegram_catalog/

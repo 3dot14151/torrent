@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1859030   (1060957) от 13.03.2026
+
+Babooshka - 7 Albums (2019-2025) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Ha cтpaжe Пpaвocлaвия
+2019 - Православный Аватар
+2020 - Плюнь Дьяволу в лицо!(   Читать дальше...   )Жанр: AlternativeПродолжительность: 7 CD, 05:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B425B74C52FF6488A46CEA593AD2F80293B52BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858996   (1060914) от 14.03.2026
+
+Crimson Caravan - 2 Albums, 2 Singles (2019-2024) [opus|320 Kbps] <Stoner-Sludge, Stoner-Desert-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Crimson Caravan (2019) Highwayman (Single)
+Crimson Caravan (2020) Big Big Bang (EP)
+Crimson Caravan (2021) The Glow (EP)(   Читать дальше...   )Жанр: Stoner-Sludge, Stoner-Desert-RockПродолжительность: 4 CD, 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F74A374DBC1ED28472406880162A67616D2A4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858841   (1060694) от 13.03.2026
+
+Би-2 - Путешествие вокруг Солнца (2026) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Без любви не греет солнце
+2. Свободная любовь
+3. Синдром отмены
+4. Плоский мир(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834E519BB8A216B6EEA797B11586BE127BDAC26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858681   (1060599) от 12.03.2026
+
+Dmitry Spirin (ex-Тараканы) - Чужие (2026) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Равнодушие
+2. Лапти
+3. Домой
+4. Спойлер(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630E975B0CF6C817CD241CB6D9968DAEEB4F0B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857901   (1060100) от 09.03.2026
 
 Злая Рыба - 2 Albums (2026) [MP3|320 Kbps] <Alternative Rock, Punk>
@@ -627,122 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89F52DA0170F815E2D94299F709365A45B53CED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848025   (1052604) от 15.01.2026
-
-VA - Трибьют Пятая Бригада (2025) [MP3|320 Kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - ОРЗ; Пятая Бригада - Punks Not Dead! [00:02:45]
-02 - АНАНАСОВ и Ко; Пятая Бригада; HOOCH TO BUTCH  ЮЛВА - Первомайская [00:03:06]
-03 - Ядрёный Корень; Пятая Бригада - Трипдача [00:04:06]
-04 - С.В.У.; Пятая Бригада - Химический завод [00:02:36](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8A2303D43C9240A6F3E1231B7579464B533EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847669   (1052508) от 14.01.2026
-
-Анитья - Пластилин (2026) [MP3|320 Kbps] <Grunge, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052508.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Анархия [00:01:33]
-2. ЕГОР [00:02:48]
-3. Пластилин [00:03:01]
-4. Строим Оптимизм [00:03:17](   Читать дальше...   )Жанр: Grunge, PunkПродолжительность: 00:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20DB314870B565BF75B38AE2E3DA372D41C8A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846934   (1051812) от 11.01.2026
-
-Aeon Spiral - Королевство Кривых Зеркал (2026) [MP3|320 Kbps] <Progressive Metal, Neoclassical>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051812.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пролог_ Отражение в Осколках [00:04:29]
-2. Король без Лица [00:06:01]
-3. Министерство Полуправды [00:05:25]
-4. Хранители Молчания [00:06:24](   Читать дальше...   )Жанр: Progressive Metal, NeoclassicalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0063669BD8D47F6CBB0ED4000D53C492884CE078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846116   (1051243) от 06.01.2026
-
-Оркестр - Hui na vse (2006) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Крылья [00:00:15]
-02-Мне нравится жить' [00:02:46]
-03-Над землею синева [00:03:20]
-04-Грязь [00:02:54](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A020CC52E5CC844ADCB66E3B487D95F025514E9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

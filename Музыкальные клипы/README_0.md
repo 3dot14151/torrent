@@ -1,3 +1,140 @@
+###  Публикация: 64632   (1030591) от 18.02.2021
+
+VA «20 Years Of Nuclear Blast» 2007 2DVD
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двойной DVD, выпущенный в честь 20-летнего юбилея легендарной немецкой звукозаписывающей компании Nuclear Blast и содержащий почти шесть часов видео! На дисках вы найдете 70 клипов и историю лейбла в четырех частях, рассказанную фронтменом Destruction Sсhirmer'ом. Также вы обнаружите массу интересного дополнительного материала. И конечно, о своей компании вам расскажет (   Читать дальше...   )Жанр: VARIOUSАктеры: NIGHTWISH, DIMMU BORGIR, IN FLAMES, HYPOCRISY, IMMORTAL, BLIND GUARDIAN, NILE, CHILDREN OF BODOM, HAMMERFALL, AMORPHIS, CLAWFINGER, DIE APOKALYPTISCHEN REITER, KATAKLYSM, SONIC SYNDICATE, DESTRUCTION, SOILWORK, EXODUS, CHIMAIRA, THERION, MESHUGGAH, ANTHRAX, EDGUY, AFTER FOREVER, EPICA, SONATA ARCTICA, WINTERSUN и другие.Перевод: ОригинальныйПродолжительность: 350:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94F2C41810C38151AAB68AB0C4100DF14E2C65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451080   (1027454) от 07.03.2021
+
+Сборник клипов (02.2021) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за февраль 202101_Mitoo & Тони Раут - Новый рассвет
+02_Alexandra Stan - Aleasa
+03_Ани Лорак - Наполовину
+04_ANTONIA x Yoss Bones - Dinero(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D236CCFF6C7C75010F442959A0D6FCC427D46910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452900   (1027337) от 08.03.2021
+
+Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6092845C4BF6E31F41BF689B37664CE611A490CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447642   (1025596) от 19.03.2021
+
+Dua Lipa - We're Good (2021) WEB-DL [1440p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025596.jpg" />
+</div>
+
+
+###  Подробнее
+
+« We Good » - песня английской певицы Dua Lipa из переиздания ее второго студийного альбома Future Nostalgia: The Moonlight Edition (2021). Он был выпущен на лейбле Warner Records 11 февраля 2021 года в качестве ведущего сингла переиздания.
+Новый клип Dua Lipa "We're Good" — это душераздирающая история одного лобстера. Его сняли Ваня Хейманн и Галь Муджиа, (   Читать дальше...   )Производство: UMG, WMG (от лица компании "Warner Music UK"Жанр: Pop, tropicalРежиссер: Vania Heymann, Gal MuggiaАктеры: Dua LipaПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71BAC5A47B3EFADEE01BC20749CEC29397F930B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368146   (1024985) от 22.03.2021
+
+Little Big Family - 40 Music Videos (2013-2021) WEB-DLRip [H.264/V9/1080p/2160p-LQ]
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2013 Little Big - Everyday I'm Drinking [1080p] (srt)Производство: Warner Music RussiaЖанр: Rave, Raprave, Electronicmusic, PopСубтитры: Английские, Русские, Украинские, Французские, Польские, Турецкие, Азербайджанские, Немецкие, Венгерские, Португальские, Чешские, Румынские, Арабские, Итальянские, Иврит и тд.
+
+Видео 01: AVC/H.264, 1920x1080, ~6924 kbps, 1920x560, ~5806 kbps, 1920x972, ~6336 kbps
+Видео 02: AVC/V9, 3840x2160, ~17.4 Mbps(   Читать дальше...   )Продолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792CCE67C2E6B40388A2092ADF37D66330BDE8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459555   (1023106) от 02.04.2021
 
 The Beatles: Мне следовало быть осторожнее / I Should Have Known Better (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
@@ -576,145 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597947BC1D0E8755C10CC4E20A68EE06E68D38EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599449   (999323) от 06.01.2013
-
-BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB805082B038CC709C10B92564052C8D76E2D99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599120   (999314) от 06.01.2013
-
-Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: Club, House, DanceПродолжительность: 00:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C32BCDBB7493B94317AA898CA5BE18BF67CA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599450   (999303) от 06.01.2013
-
-Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D15367268E625CE3A0973F7760FFE811F4034FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599949   (999109) от 07.01.2013
-
-Slade At The BBC (1969-1991) (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ретроспективная передача канала BBC4 от 21 декабря 2012 года. Коллекция студийных видеозаписей BBC 1969-1991 годов и01.Intro
-02.Martha My Dear /Monster Music Mash 1969/
-03.Wild Winds Are Blowing /Monster Music Mash 1969/
-04.Coz I Luv You /TOTP 1971/
-05.Mama Weer All Crazee Now /TOTP 1972/
-06.Gudbuy T' Jane /TOTP 1972/
-07.Cum On Feel The Noize /TOTP 1973/
-08.My Friend Stan /TOTP 1973/
-09.Everyday /TOTP 1974/
-10.How Does It Feel /Crackerjack 1975/(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A116B664E6A9BEBE4480ECDFD6937C5A023954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600635   (998559) от 09.01.2013
-
-Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
 ```
 
 https://mybot314.ru/tekegram_catalog/

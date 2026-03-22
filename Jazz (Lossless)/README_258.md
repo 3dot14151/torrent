@@ -1,3 +1,177 @@
+###  Публикация: 1644688   (233327) от 06.07.2023
+
+Lucky Thompson - I Offer You (1973) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Munsoon [5:08]
+02. Sun Out [6:22]
+03. Yesterday's Child [4:27]
+04. Aliyah [5:10](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1FFF3CEA5439C2592A277344D4708DB73ACD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628234   (233322) от 22.04.2023
+
+George Shearing - Conception (1944 - 1958) 2015, Sound Of Yester Year [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move [3:20]
+02. I'll Never Smile Again [3:15]
+03. Swedish Pastry [2:53]
+04. I'll Be Around [3:16](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79B5579329025937338D2446079D5CBF599BF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577119   (233291) от 17.09.2022
+
+Kenny Barron & Mulgrew Miller - The Art of Piano Duo: Live (2005, 2011) 3CD, 2019, Groovin' High [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233291.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Stars Fell on Alabama [12:26]
+02. When Lights Are Low [14:11]
+03. Recordame [13:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 03:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17F184530307032C7501009C61D6D0E0250227D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644961   (233178) от 07.07.2023
+
+Brian Culbertson - The Trilogy, Pt. 3: White (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude
+02. Stars
+03. Step into Love
+04. Dance With Me Tonight(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F1D0DD52292F99DF645EF680A3ACD6B80EE74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642826   (233165) от 29.06.2023
+
+Sonny Rollins - Milestone Profiles (1972 - 2000) 2CD, 2006, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Henderson - The Kicker [4:09]
+02. McCoy Tyner - Song for My Lady [7:33]
+03. Flora Purim - Dindi [3:37]
+04. Jim Hall & Ron Carter Duo - St. Thomas [4:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B50888EEDFB21EFD576C5E0231731744B2D4D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645598   (233142) от 10.07.2023
+
+Charlie Byrd - Four Classic Albums (1957 - 1960) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby In Bassoonville [4:28]
+02. Satin Doll [4:43]
+03. Tri-X [4:31]
+04. Conversation Piece [3:34](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Latin JazzПродолжительность: 02:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18D12F885F1061128195CBA8F9A723A3CF373A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642896   (233118) от 29.06.2023
 
 Bill McGee - The Tree of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -571,180 +745,6 @@ Kay Starr - Losers, Weepers (1960) 2012, Capitol Records [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A00728CB56B458B022FB083D8EA2B977486D38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643539   (232569) от 02.07.2023
-
-Lew Soloff - Yesterdays (1986) King [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays [9:52]
-02. Barbara [8:59]
-03. Beautiful Mimi [3:40]
-04. All Blues [9:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6440573E6611753E8675E7F4DCF725FD01F9F589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646115   (232561) от 13.07.2023
-
-Bud Shank - The Pacific Jazz Studio Sessions (1956 - 1961) 5CD, 1998, Mosaic Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Groove [6:47]
-02. The Awakening [4:27]
-03. White Lightnin' [5:23]
-04. Sultry Serenade [7:15](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 04:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F371025F1EC53D563C40566236A632CAB3B493BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645761   (232504) от 11.07.2023
-
-Stan Getz - Four Classic Albums: Fourth Set (1957, 1962) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desafinado [5:51]
-02. Samba Dees Days [3:35]
-03. O Pato [2:32]
-04. Samba Triste [4:46](   Читать дальше...   )Жанр: Bop, Cool, Bossa NovaПродолжительность: 02:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C70D8D6812704A6163460764740BFB7B0915F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639852   (232498) от 15.06.2023
-
-Odean Pope - Plant Life (2008) Porter Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Dreams Part 1 [6:34]
-02. Happiness Tears [7:26]
-03. Plant Life [5:49]
-04. I Want To Talk About You [9:16](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Post-BopПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A389C71BDA4D3B44CFFCEB91A4A81E732FEDD4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608845   (232481) от 01.02.2023
-
-Chico Hamilton - The Dealer (1966) 1990, Impulse! [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dealer [6:24]
-02. For Mods Only [4:28]
-03. A Trip [6:37]
-04. Baby, You Know [3:59](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D777617DA09F0B752D6ABA2D48043F30B949B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608840   (232474) от 01.02.2023
-
-Cal Tjader - Eight Classic Albums (1954 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232474.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Yesterdays [3:23]
-02. Out of Nowhere [3:03]
-03. Fascinating Rhythm [2:46](   Читать дальше...   )Жанр: Latin Jazz, CoolПродолжительность: 05:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5A1A951C6259BB381C684A3E395C556CA28099
 ```
 
 https://mybot314.ru/tekegram_catalog/

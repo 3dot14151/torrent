@@ -1,3 +1,119 @@
+###  Публикация: 956242   (329323) от 15.11.2015
+
+Sviatoslav Richter - Tchaikovsky, Mussorgsky - Piano Works (1994) [FLAC|image +.cue]<Classical, Orchestral, Sonata, Classical Period, Piece>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata in G major, Op. 37
+01. Moderato e risoluto (11:28)
+02. Andante non troppo quasi moderato (10:04)
+03. Scherzo. Allegro giocoso (02:50)(   Читать дальше...   )Жанр: Classical, Orchestral, Sonata, Classical Period, PieceПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CACFE47CA204D7DFC12722902486A341B2CD335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956265   (329318) от 15.11.2015
+
+Mozart - Requiem (Jordi Savall) (2000) [FLAC|image +.cue]<Classical, Classical Period, Requiem>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maurerische Trauermusik, KV 477
+01. Ode funebre (1785) (05:23)
+Requiem in D minor, KV 626
+02. Requiem (06:45)(   Читать дальше...   )Жанр: Classical, Classical Period, RequiemПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3FDC66B04562EE9E427A43C56D669ED6B4D680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957462   (326660) от 18.11.2015
+
+Tchaikovsky, Scriabin - Piano Concertos (Solomon) (2002) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Romantic Period, Post-Romantic, 20th Century Period, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tchaikovski - Piano Concerto No. 1 in B flat minor, Op. 23
+01. Allegro non troppo e molto maetoso - Allegro con spirito (18:49)
+02. Andantino semplice - Prestissimo - Tempo 1 (06:58)
+03. Allegro con fuoco (06:47)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Romantic Period, Post-Romantic, 20th Century Period, ConcertoПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C16B7E2659B06FA8C92B9909E215CAF1C0A9101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957657   (326600) от 18.11.2015
+
+Schubert - Impromptus, Moments musicaux, Sonatas D960 & D664 (Wilhelm Kempff) (2CDs) (1998) [FLAC|image +.cue]<Classical, Romantic Period, Chamber Music, Recitals, Sonata, Impromptu, Musical ...
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Impromptus (4) for piano, D. 899 (Op. 90)
+01. No.1 in C minor Allegro molto moderato (10:03)
+02. No.2 in E flat Allegro (04:40)
+03. No.3 in G flat Andante (07:00)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, Impromptu, Musical MomentsПродолжительность: 02:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D2E77BBCDAD398109008801287A6A88E6C25AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957540   (326592) от 18.11.2015
 
 Chopin - Horowitz Plays Chopin (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Dance, Fantasy, Waltz, Etude, Polonaise, Ballade, Barcarolle>
@@ -624,122 +740,6 @@ VA - Classical Romance, Vol. 2 (Famous Classical Music) (2018) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DCDF05C93FD1A764F979F85830911AAD7BFFBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260077   (313975) от 06.11.2018
-
-VA - Classical Romance, Vol. 1  (Famous Classical Music) (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silvano Sant Agata - Turandot, III, Scene 1: "Nessun Dorma"
-02. Slovak Philharmonic Orchestra - Peer Gynt Suite No.1, Op. 46 "Morning Mood": 1
-03. Capella Weilburgensis - Clarinet Concerto in A Major, K622: II. Adagio
-04. Staatsopernchor Stuttgart - Madame Butterfly: Humming Chorus(   Читать дальше...   )Жанр: Classical, Instrumental, Easy ListeningПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C578BB25B28C38C1CD24849C2347F1307B14F47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076128   (313530) от 25.11.2016
-
-Julian Bream - Dances of Dowland (1967-1976) 1993 BMG Music [FLAC|Lossless|image + .cue] <Classical, Instrumental, Lute.>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Earl of Essex Galliard (1:58)
-02. Lachrimae antiquae (5:52)
-03. Galliard to Lachrimae (4:02)
-04. My Lady Hunsdon's Puffe (1:30)(   Читать дальше...   )Жанр: Classical, Instrumental, Lute.Продолжительность: 01:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C9ABC4878A7EBBA4C253FCEB34E2BCDD28597B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075875   (313342) от 25.11.2016
-
-Julian Bream - The Golden Age of English Lute music (1960-1963) 1993 BMG Music [FLAC|Lossless|image + .cue] <Classical, Instrumental, Lute & Guitar>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Johnson - Two Almaines (2:17)
-02. John Johnson - Fantasia (4:15)
-03. Francis Cutting - Walsingham (3:28)
-04. John Dowland - Mignarda (4:15)(   Читать дальше...   )Жанр: Classical, Instrumental, Lute & GuitarПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C0BAB17747AC11FD9B75C4A9486CF3CF66B983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959763   (311741) от 26.11.2015
-
-Шуберт - Гении классической музыки (2011) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria, D839
-02. Серенада ре минор, D957
-03. Allegretto, 'Октет для духовых и струнных'
-04. Антракт №3, 'Розамунда'(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5F63BC1A495597462F4A1B898E6280E6455C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

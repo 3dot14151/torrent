@@ -1,3 +1,177 @@
+###  Публикация: 1445904   (238093) от 07.02.2021
+
+Buck Clayton - 1949 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Tide [3:01]
+02. Swingin' at Sundown [2:49]
+03. Who's Sorry Now [2:34]
+04. Sugar Blues [2:35](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E2FC5AC791322234643167856B9ED33E8AA17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638146   (238085) от 07.06.2023
+
+Martial Solal - The Vogue Recordings, Vol.2 (1955, 1956) 1993, Vogue [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Only Have Eyes For You [2:56]
+02. You Stepped Out Of A Dream [2:32]
+03. Darn That Dream [3:34]
+04. The Way You Look Tonight [2:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97EAE5593168D3B6ADCD146F594E7376195AB6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445905   (238081) от 07.02.2021
+
+Leo Parker - 1947 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Sino [3:15]
+02. Ineta [2:55]
+03. Wild Leo [2:58]
+04. Leapin' Leo [3:06](   Читать дальше...   )Жанр: BopПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98DC432C035924F79DAF05A1A34FA8B5BBDDB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638147   (238070) от 07.06.2023
+
+Martial Solal - The Vogue Recordings, Vol.3 (1955 - 1958) 1993, Vogue [FLAC|Lossless|tracks + .cue] <Bop, Big Band, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine [3:38]
+02. The Song Is You [2:27]
+03. Ridikool [2:43]
+04. You Go To My Head [2:52](   Читать дальше...   )Жанр: Bop, Big Band, Piano JazzПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D36F0DDC5AAFFE1351047161317C246CAD8798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624977   (238024) от 08.04.2023
+
+Kjellerbandet & Tore Johansen - Thad Jones Tribute (2008) Normann Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Dipper [5:35]
+02. The Groove Merchant [5:23]
+03. Dedicated [5:52]
+04. Castell [3:41](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Big BandПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875F5C1752192629D0B8C98D3CE34DC37A4B2BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624974   (238017) от 08.04.2023
+
+McCoy Tyner - Beautiful Love: Live in Warsaw (1991) 1994, All At Once Happy Price [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Love [3:44]
+02. Suddenly [5:32]
+03. Giant Steps [3:57]
+04. Darn That Dream [6:11](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4681DD2ABDA040386EB00A61CCC7BEC0BAA0048D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446188   (237992) от 08.02.2021
 
 Fats Waller - 1938 (1996) Classics [FLAC|Lossless|image + .cue] <Swing>
@@ -571,180 +745,6 @@ Chucho Valdes - Tumi Sessions (2007) Tumi Music [FLAC|Lossless|tracks + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF26C7F59D660396FC67EFF4BF69DA92D87031D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627219   (237471) от 18.04.2023
-
-Gabriele Mirabassi & Simone Zanchini - Il gatto e la volpe (2021) Egea [FLAC|Lossless|tracks + .cue] <World Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Choro Romagnolo [5:39]
-02. Our Spanish Love Song [7:57]
-03. Chisciotte [4:37]
-04. Impro N.5 [1:26](   Читать дальше...   )Жанр: World Fusion, Contemporary JazzПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D98FA26889D4F8C27EC981E38AC9F573B079C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638635   (237464) от 11.06.2023
-
-Lou Bennett - Enfin! (1963) 1997, RCA Victor [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment's Notice [4:48]
-02. I Remember Sonny [5:34]
-03. Loin du Bresil [4:55]
-04. Indicatif [0:45](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD1F272B099BE5E7EB397F7E24DFBFFEB8CBAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606246   (237446) от 21.01.2023
-
-The Herb Geller Sextette -  The Herb Geller Sextette (1955) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outpost Incident [4:27]
-02. Crazy He Calls Me [5:29]
-03. Gin for Fuguelhorns [3:44]
-04. Tardi at Zardi's [4:35](   Читать дальше...   )Жанр: BopПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFF705873D9D1FD5FC650D93FA3AAA50C7786FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606440   (237383) от 22.01.2023
-
-Karin Krog & Laila Dalseth, Per Borthen Swing Department Ltd. - Swingin' (1999) Carat [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wop [4:15]
-02. Me, Myself and I [4:22]
-03. Flying Home [3:54]
-04. Sailboat in the Moonlight [4:25](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8411F434855245E3ED0F4D8E1179F2383ED88D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606561   (237369) от 22.01.2023
-
-Wilbur De Paris And His New New Orleans Jazz - Marchin' And Swingin' (1952) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martinique [5:19]
-02. Tres Moutarde [3:15]
-03. Under The Double Eagle [5:09]
-04. Shreveport Stomp [3:02](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE911EEA78A79EA2022543E54D22F42C5B910469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450929   (237356) от 28.02.2021
-
-Benny Goodman - The Essential Benny Goodman (1937 - 1958) 2CD, 2015, Not Now Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237356.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Let's Dance [2:35]
-02. Stompin' At The Savoy [3:14]
-03. Whispering [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D9A7E57AE3ABDD9EA2D9CE47D12904C1E2E618
 ```
 
 https://mybot314.ru/tekegram_catalog/

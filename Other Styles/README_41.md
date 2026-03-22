@@ -1,3 +1,32 @@
+###  Публикация: 1198731   (802711) от 14.01.2018
+
+Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dislodged (4:03)
+ 02.  Distant (2:36)
+ 03. Absent (2:28)
+ 04. Healing (1:58)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFBF0B7039CCF736D8A79E5819FAB0EFA413067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198624   (802705) от 14.01.2018
 
 Jonny Greenwood - Phantom Thread / Призрачная нить (2018) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Indian Classical, Experimental>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDFBE0B6BC1923465DC191C5557EA5C02073315B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121285   (800500) от 02.04.2017
-
-Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hannah and Volmer (04:35)
-02. Nobody Ever Leaves (01:49)
-03. Bicycle (02:00)
-04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
 ```
 
 https://mybot314.ru/tekegram_catalog/

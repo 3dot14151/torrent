@@ -1,3 +1,177 @@
+###  Публикация: 1415709   (372137) от 14.10.2020
+
+Sun Ra & Walt Dickerson - Visions (1978) 1988, SteepleChase [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astro [7:52]
+02. Utopia [8:16]
+03. Visions [2:55]
+04. Constructive Neutrons [10:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83795E6F9DA4B3C2CE6D2AA0EB8A2E30BADA097F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415712   (372135) от 14.10.2020
+
+Poncho Sanchez - Chile Con Soul (1990) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for Cal [4:17]
+02. A Night in London [6:17]
+03. Mama Guela [5:52]
+04. Soul Burst [3:39](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 00:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F79F81991671F0A2716B417CE4A84C888BF9FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415936   (372133) от 14.10.2020
+
+Peter Bernstein Quartet - Live At Smalls (2008) Smalls Live [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vida Blue [9:50]
+02. Say, Little Mama, Say [10:25]
+03. Stairway to the Stars [8:25]
+04. Delilah [12:20](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead Jazz, Guitar JazzПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015E273AB51C6341D0139D08A9AEC4D89F52C65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415711   (372019) от 14.10.2020
+
+Peter Bernstein Trio - Monk (2008) Xanadu Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Cool One [6:33]
+02. Pannonica [4:35]
+03. Work [4:23]
+04. Brilliant Corners [4:47](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead Jazz, Guitar JazzПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6860880B4C4BF79ACE2A3A5364FE0B42E70FBB0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415938   (372018) от 14.10.2020
+
+Elvin Jones - The Main Force (1976) 2019, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz-Rock, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salty Iron [5:19]
+02. Sweet Mama [6:23]
+03. Mini Modes [10:35]
+04. Philomene [4:38](   Читать дальше...   )Жанр: Hard Bop, Jazz-Rock, Jazz-FunkПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032B57F20C086A51A9B70B8587D15354154D9334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415935   (372015) от 14.10.2020
+
+Tito Puente - Live at Birdland: Dancemania '99 (1998) RMM Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Salsa, Mambo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby of Birdland [1:10]
+02. Mambo Inn [8:33]
+03. Cayuco [8:32]
+04. Complicacion [6:38](   Читать дальше...   )Жанр: Latin Jazz, Salsa, MamboПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCED114F625D2CCAFDD28DFD940AD3B2DE26C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415940   (372006) от 14.10.2020
 
 Poncho Sanchez - Soul Sauce: Memories Of Cal Tjader (1995) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz>
@@ -571,180 +745,6 @@ Zaz - Paris (2014) Limited Edition [FLAC|image + .cue]<Nu Jazz, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A15F280B44FB5D0E1835FFAE26B74E584A748BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950148   (369888) от 26.10.2015
-
-James Last/Astrud Gilberto - Plus (1986) [FLAC|Lossless]<Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Do Soho
-02. I'm Nothin' Without You
-03. Champagne And Caviar
-04. Listen To Your Heart(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83636F0385AC0E639650E7152A8E798ABBD0439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416200   (369866) от 15.10.2020
-
-Poncho Sanchez - Para Todos (1994) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Brothers [5:56]
-02. Cold Duck Time [5:35]
-03. Ugetsu [5:12]
-04. Anque Tu [5:48](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE298010F804D6607EFE494D7F8DD6F00B025942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416198   (369863) от 15.10.2020
-
-Tito Puente - 50 Years Of Swing (1946 - 1995) 1997, 3CD, RMM Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369863.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Que No, Que No [3:01]
-02. Mambo Macoco [2:56]
-03. El Yoyo [2:59](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 03:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F09A597733C55E77B8CC6E2EE6E5FCE7415B664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416201   (369858) от 15.10.2020
-
-Donald Byrd - Places And Spaces (1975) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change (Makes You Want to Hustle) [5:11]
-02. Wind Parade [6:10]
-03. Dominoes [4:37]
-04. Places and Spaces [6:21](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFC1022EF81623990953312EB3FB624502427E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070425   (369381) от 06.11.2016
-
-Phat Phunktion - You and Me (2004) [APE|Lossless|image + .cue] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (Weekend Special) (3:30)
-02. You And Me (3:59)
-03. Higher (3:50)
-04. How Do I Get To Your Heart? (3:18)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9567827F7598079D21490A59D9433BA80AAF09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070231   (369380) от 06.11.2016
-
-Benny Carter - 4 Albums From The MusicMasters Catalogue (1987-1989) 4CD, 2011, Nimbus Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369380.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - In the Mood for Swing:
-01.I'm in the Mood for Swing [06:53]
-02.Another Time, Another Place [06:23]
-03.The Courtship [04:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 04:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A7C1DC428F489F3A9EC6D1522226D9740FDA0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

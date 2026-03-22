@@ -1,3 +1,142 @@
+###  Публикация: 1344239   (213659) от 09.12.2019
+
+Armin van Buuren - Balance (Extended Versions) (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Trance, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Avalan - Sucker For Love (Original Mix)
+02. Armin van Buuren & Avian Grays feat. Jordan Shaw - Something Real (Extended Mix)
+03. Armin van Buuren feat. Sam Martin - Wild Wild Son (Original Mix)
+04. Armin van Buuren & Garibay - Phone Down (Original Mix)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 02:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F329C51826CC057AB4F4B91857839DBCEA0C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832226   (213484) от 30.10.2025
+
+VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amlex - Be With You 02:40
+02. Tod Allen & Kris Kiss - Feelings 03:33
+03. Francesco Diaz, Radio Killer & Young Rebels - Clothes Off (Jeff Rock Remix) 06:09
+04. Muphus - Mahaba 03:35(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7071191FA515ADFE437A280149DED7B9A3971E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602046   (210982) от 03.01.2023
+
+VA - Beach Lounge Selected, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Medsound -  Afterlife  (3:44)
+02.  Medsound -  Satellites  (4:16)
+03.  Medsound, Maria Estrella -  Firestorm  (3:45)
+04.  Pavel Svetlove -  Look at Me (Medsound Remix)  (4:38)(   Читать дальше...   )Жанр: Nu Disco, Deep House, Chill HouseПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48722385C51B9F463B9D1DEA8D753D9EAA07AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642234   (210495) от 26.06.2023
+
+Tensnake - Stimulate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, Nu-DiscoПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E5B6405AA9DC287C23FB36FE3BF19064C7FF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224726   (210444) от 14.08.2022
+
+Tomcraft - 4 Альбома (2002 - 2007) [FLAC, APE|Lossless]<House, Electro, Ambient, Breaks, Progressive, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: House, Electro, Ambient, Breaks, Progressive, TechnoПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9850AD38E0381FE6DFDE453988EA9FBC3C547D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612540   (207151) от 17.02.2023
 
 VA - 80s & 90s Remixed - The Dance HIT Workout (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky House, Dance>
@@ -598,142 +737,6 @@ VA - BPR Compilation Vol 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:122DAAE6BFD35CC1690415AF7FF6727148675CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658747   (190475) от 10.09.2023
-
-VA - House Relax 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase - I Feel (3:25)
-02. Anton Ishutin - Her Name (7:36)
-03. Abee Sash - Ain't nobody (2:38)
-04. Abriviatura IV - Tears Away (4:56)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A1899F9862AEFDD66C3357644D9B74C18A5F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589670   (189758) от 11.11.2022
-
-NOIYSE PROJECT - Path Of The Sun 1 (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (8:39)
- 02. In a Cloudland (9:01)
- 03. Mindscream (8:23)
- 04. Night Call (8:18)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65758414BD860D1E59F2C3D0A3DF5D68561C3A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662270   (188069) от 17.09.2023
-
-Robert Babicz - Light Of The Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F5EB08C08DE64AF81CD7D72F7C62FF308B4D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662272   (188048) от 17.09.2023
-
-Vince Watson - Another Moment In Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep HouseПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758182EE629613CBED3BF7AD9A1CB90F5629E63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 699066   (187916) от 17.09.2023
-
-Hot Natured - Different Sides Of The Sun (2013) [FLAC|Lossless]<Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep HouseПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76084B04A8C9E953D9E6A846A451E31A129C4E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1374235   (874711) от 09.04.2020
+
+I Miss My Death - Mysto (2020) [MP3|320 Kbps] <Gothic Sympho Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спогад
+02. На Чорних Схилах
+03. Господар
+04. Голоси Сіють Істину(   Читать дальше...   )Жанр: Gothic Sympho Doom MetalПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDB857CA92AF08ED85E301183AF6FEDD7697781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374379   (874577) от 09.04.2020
 
 Axxis - Virus of a Modern Time (2020) (EP) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
@@ -720,35 +749,6 @@ Viscera - Obsidian (2020) [MP3|320 Kbps] <Progressive Metalcore, Deathcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C2C508EF9561A232DDF396BAA5554B204377CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374557   (871202) от 11.04.2020
-
-Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871202.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Kill the Kong
-2017 - Colossus
-2016 - Bring the Heat (Single)
-2017 - Ashes in the Wind (Single)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 6 CD, 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821C05446B88AE87133541432E2D2624937157C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

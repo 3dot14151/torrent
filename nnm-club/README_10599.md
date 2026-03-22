@@ -1,22 +1,25 @@
-###  Публикация: 1295873   (616634) от 14.04.2019
+###  Публикация: 1036455   (621164) от 20.07.2016
 
-Как не стать президентом / The Front Runner (2018) Blu-ray [H.264/1080p] [EUR]
+VA - Works Receptor Liquid Body (2016) [MP3|243-320 Kbps] <Club, Soulful, Nu Disco>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616634.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За многие годы карьеры в политике сенатор Гэри Харт создал себе идеальную репутацию. В 1988 году он баллотируется в президенты с прогрессивной программой, в частности в экономике. Его предвыборный штаб работает днём и ночью на поддержание привлекательного имиджа кандидата, и предварительные данные опросов говорят, что Гэри Харт — главный кандидат на должность президента (   Читать дальше...   )Производство: США, Канада / BRON Studios, Creative Wealth Media Finance, Right of Way FilmsЖанр: Драма, биография, историяРежиссер: Джейсон РайтманАктеры: Хью Джекман, Вера Фармига, Джонатан Кимбл Симмонс, Марк О’Брайэн, Молли Эфраим, Крис Кой, Алекс Карповски, Джош Бренер, Томми Дьюи, Кейтлин ДиверПеревод: Профессиональный, многоголосый закадровый (Лицензия BD EUR)Субтитры: Русские, английские, датские, эстонские, финские, литовские, латвийские, норвежские, польские, испанские, шведские, украинскиеПродолжительность: 01:53:31
+01. Manuel Kane - Echoes 07:00
+02. Nick Holder - Black Jazz #4 08:00
+03. Kush - Drive 07:09
+04. Askery Ft. Jax - Castle (Extended Mix) 04:52(   Читать дальше...   )Жанр: Club, Soulful, Nu DiscoПродолжительность: 08:47:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8E4028EE1C6E0FD65C60FC16AFB1B0D67BBF2C3
+magnet:?xt=urn:btih:E765F5180831DF1246900059EDE8AF735B9A8B1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,339 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295916   (616631) от 14.04.2019
+###  Публикация: 1036272   (621163) от 20.07.2016
 
-Проекты - VideoHive - Grunge Slides - Cinematic Trailer - 21394307 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grunge Slides - Cinematic Trailer - стильный шаблон для создания оригинального видео в After Effects в несколько простых шагов. Для вашего творчества.
-Автор проекта: MartinProUserФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3A936E85FE619F53F53E6B9AD7911077FAB801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 244881   (616628) от 14.04.2019
-
-Рай океана / Ocean Heaven / Hai yang tian tang (2010) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой узнает, что неизлечимо болен раком. Его сын — беспомощный аутист. И умирающий отец должен успеть как-то устроить его жизнь до своего ухода туда, откуда не возвращаются...Производство: Китай / BDI Films Inc.Жанр: ДрамаРежиссер: Сюэ СяолуАктеры: Джет Ли, Ран Чен, Чжан Вэнь, Луньмэй Квай, Юаньюань Жу, Гао Юаньюань, Йонг Донг, Юн Мэй, Чуньхай Ли, Бо РунПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44F65481C835A7DEDA43211D502343B619356CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523601   (616626) от 16.07.2012
-
-XWidget 1.6.0.710 [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616626.jpg" />
-</div>
-
-
-###  Подробнее
-
-xWidget - бесплатная платформа для персонализации и оптимизации рабочего стола при помощи установки анимированных виджетов. Создана по "мотивам" Dashboard - элемента интерфейса операционной системы MacOS X. XWidget - Это совершено новое решение для оптимизации рабочего пространства с помощью виджетов. Программа мультиязычная и пользоваться ей можно без особых проблем. Так как все значки интуитивно понятные. Причем огромное количество настроек не только делают эту программу более совершенной по сравнению со своими конкурентами, но и засчёт простоты этих же настроек, она оставила всех далеко позади. Вам не придется редактировать код виджетов, все манипуляции по настройке и редактированию виджетов делаются через интерфейс XWidget (Дизайнер XWidget)
-
-(   Читать дальше...   )Название программы: XWidgetЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183512   (616625) от 14.04.2019
-
-Мой отец – мой герой / Mon pere ce heros (1991) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие согласны в том, что мальчиков воспитывать легче: дал понюхать пробку и подышать сигаретным дымом — и он уже чувствует себя взрослее всех взрослых и уж тем более — сверстников. Девочки предпочитают более серьезные игры. В этом убедился Андре, приехавший со своей юной дочкой отдыхать на сказочную Маврикию.
-Экзотическим вскоре оказался не только отдых: чтобы (   Читать дальше...   )Производство: Франция / Film Par Film, DD Productions, Orly FilmsЖанр: драма, мелодрама, комедияРежиссер: Жерар ЛозьеАктеры: Жерар Депардье, Мари Жиллен, Патрик Милле, Катрин Жакоб, Шарлотт де Тюркейм, Эрик Бергер, Ян Бриан, Жан-Франсуа Рангазами, Харриет Батчелор, Жерар ЭрольдПеревод: Профессиональный многолосыйСубтитры: отсутствуютПродолжительность: 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB06EED657FD3E8DAA555814DCF34C60CD3C15A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523625   (616623) от 16.07.2012
-
-UNetbootin 5.78 [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616623.jpg" />
-</div>
-
-
-###  Подробнее
-
-UNetbootin - это приложение, позволяющая полностью перенести программу установки операционной системы на флэш за несколько кликов мышки. Это означает, что вы можете установить Linux с флэш карты, HDD, etc на ваш компьютер или нэтбук. А так же для установки операционной системы Linux/BSD из Windows, Linux, через интернет или из загруженного ранее образа с ОС. UNetbootin позволяет запустить установку выбранной пользователем операционной системы на жёсткий диск, или можно средствами утилиты создать загрузочный Flash-диск. Поддерживается работа со следующими дистрибутивами операционных систем: Ubuntu, Debian, Linux Mint, openSUSE, Arch Linux, Damn Small Linux, SliTaz, Puppy Linux, gNewSense, FreeBSD, NetBSD, Fedora, PCLinuxOS, Sabayon Linux, Gentoo, MEPIS, Zenwalk, Slax, Dreamlinux, Elive, CentOS, Mandriva, FaunOS, Frugalware Linux, xPUD.
-
-(   Читать дальше...   )Название программы: UNetbootinЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184310   (616622) от 14.04.2019
-
-Большой / Big (1988) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616622.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летний мальчишка очень хочет стать большим, и вот его желание сбывается. Он как бы вселяется в тело 30-летнего мужчины, каким он будет еще через много лет. Этот взрослый ребенок делает головокружительную карьеру в бизнесе игрушек - в большом игрушечном магазине, любимом детище бизнесмена Лоджа. Однако природа берет свое. Быть большим хорошо, но пропустить детство (   Читать дальше...   )Жанр: КомедияРежиссер: Пенни Маршалл / Penny Marshall/Актеры: Том Хэнкс / Tom Hanks/, Элизабет Перкинс / Elizabeth Perkins/, Джон Херд / John Heard/, Джэред Раштон / Jared Rushton/, Роберт Лоджиа / Robert Loggia/, Мерседес Руэл / Mercedes Ruehl/, Джош Кларк / Josh Clark/, Джон Ловитц /Jon Lovitz/, Дэвид Москоу /David Moscow/, Кимберли Дэвис /Kimberly Davis/Перевод: Авторский (одноголосый)Субтитры: отсутствуютФормат: AVIПродолжительность: 01:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF50A50A7CBEDCE3B228966B090A8BADE26F7CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523500   (616620) от 16.07.2012
-
-Майкл / Michael (1996) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его зовут Майкл. Он живет где-то в захолустье, в прогорающем мотеле посреди штата Айова. Он любитель выпивки, женщин и праздной жизни. Он просто ангел… Не верите? У него, как и положено, есть крылья...Жанр: Фэнтези, Драма, КомедияРежиссер: Нора ЭфронАктеры: Джон Траволта, Боб Хоскинс, Энди МакДауэлл, Уильям Херт, Роберт Пасторелли, Жан Степлтон, Тери Гарр, Уоллес Лэнгэм, Джои Лорен Эдамс, Карла Гуджино, Том Ходжис, Катрин Ллойд Барнс, Ричард ШиффПеревод: Авторский одноголосый (Юрий Сербин)Продолжительность: 01:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27338B3D58D8B8339A5B4C32D46F0C76E79821AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 217624   (616619) от 14.04.2019
-
-В раю, как в ловушке / Пойманный в раю / Trapped in Paradise (1994) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький провинциальный городок под названием "Рай", канун Рождества. Бил Фирпо, человек честный, приезжает сюда по делу с двумя только что вышедшими из тюрьмы братьями - хитрецом Дэйвом и клептоманом Элвином. Когда братья решают ограбить местный банк, Билу не удается их отговорить. К тому же дело на редкость простое и "верное": в здании отсутствует (   Читать дальше...   )Жанр: Комедия, Приключения, МелодрамаРежиссер: Джордж Галло / George GalloАктеры: Николас Кейдж /Nicolas Cage/, Джон Ловитц /Jon Lovitz/, Дэйна Карви /Dana Carvey/, Мадхен Амик /Madchen Amick/, Флоренс Стэнли /Florence Stanley/, Доналд Моффэт /Donald Moffat/Перевод: Многоголосый закадровый + Гаврилов + ОригиналПродолжительность: 01:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71C7B227A1717160F8F2C88124CD76100B335AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295894   (616616) от 14.04.2019
-
-Rembibitor | Покупаем супер ПК в 2 раза дешевле [+ примеры сборок] (2019) [PDF]
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616616.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вас есть потребность в очень сильном ПК для работы? Или вы хотите поиграть самые новые игры?
-Но ваш ПК старенький и слабый, а на новый нету денег?
-
-Согласитесь, что не каждый может позволить себе купить новый ПК за 150.000р.(   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3532753B552C4F5CBF30B1AFBBDC1D224F26F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523863   (616615) от 16.07.2012
-
-А.А.Ионина, А.С.Саакаян | How Articles Work in English. Как же все-таки употреблять артикли? [2002] [DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта полезная книга поможет сформировать, развить и закрепить навыки правильного употребления английских артиклей с самыми различными разрядами существительных. Материал книги поможет как учителю английского языка - проводить интенсивное обучение при индивидуальном подходе, так и всем тем, кто самостоятельно изучает английский язык - издание содержит ответы к упражнениям и тестам для самоконтроля.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A673ED7C3CB953BBEBA704D58C3699E86CCDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295923   (616614) от 14.04.2019
-
-Проекты - VideoHive - Lower Thirds - Sketch (v.2) - 5705496 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lower Thirds - Sketch - Коллекция из шести вариантов анимационных текстовых подложек на две, три линии текста. В раздаче присутствует старый вариант для CS4, который включает два стиля.
-Автор проекта: tunaxuФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38AAE37BC6964ABE953020028F03C791A751202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523505   (616612) от 16.07.2012
-
-Nine Inch Nails - Greatest Hits (2 CD) /Russian Release/ (2008) [MP3|320 кб/с]<Industrial>
+Dust Bolt - Mass Confusion (2016) Japanese Edition [MP3|320 Kbps] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616612.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1| Продолжительность: 01:19:31
-01. Down In It
-02. Head Like a Hole
-03. Sin
-04. Terrible Lie
-05. Something I Can Never Have
-06. Pinion
-07. Wish
-08. Gave Up
-09. Happines In Slavery(   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:18:49
-01. The Perfect Drug
-02. The Day The World Went Away
-03. We're In This Together
-04. Into The Void
-05. Starfuckers, Inc
-06. Where Is Everybody
-07. The Fragile
-08. Deep
-09. And All That Could Have Been(   Читать дальше...   )
+01. SickxBrain
+02. Mass Confusion
+03. Allergy
+04. Turned to Grey(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7DAB44689CBC826D04BA58C10BE7B1F2176FE8F
+magnet:?xt=urn:btih:271A041F4FA6A15327CCCEC4CC249477D3560ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295942   (616611) от 14.04.2019
+###  Публикация: 1036500   (621162) от 20.07.2016
 
-Человек-паук: Через вселенные / Spider-Man: Into the Spider-Verse (2018) BDRip [H.264/720p]
+Fields - Fields (1969) [MP3|320 Kbps] <Heavy Psych>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616611.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы всё знаем о Питере Паркере. Он спас город, влюбился, а потом спасал город снова и снова… Но все это — в нашем измерении. А что если в результате работы гигантского коллайдера откроется окно из одного измерения в другое? Найдется ли в нем свой Человек-паук? И как он будет выглядеть? Приготовьтесь к тому, что в разных вселенных могут быть разные Люди-пауки и однажды (   Читать дальше...   )Производство: США, Sony Pictures Entertainment (SPE), Columbia Pictures Corporation, Marvel EntertainmentЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Боб Персичетти, Питер Рэмзи, Родни РотманПеревод: ДублированныйСубтитры: Русские, Украинские, АнглийскиеПродолжительность: 01:56:48
+1. Elysian Fields
+2. Bide My Time
+3. Take You Home
+4. Jump On You(   Читать дальше...   )Жанр: Heavy PsychПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EED45C2E85CCF28F7305F8996A51F90EED3E1CC0
+magnet:?xt=urn:btih:2B9E92E23F51703AD74CEF17BEA2DE6556167628
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +85,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521626   (616609) от 16.07.2012
+###  Публикация: 1036114   (621161) от 20.07.2016
 
-Shank (RePack/1.0u3) [Ru] 2010 l Fenixx
+Orden Ogan - Vale (2007) Reissue, Remastered, 2015 [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Graves Bay    01:16
+02.  To New Shores Of Sadness    06:14
+03.  Winds Of Vale    03:27
+04.  Farewell    03:50(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A0A20ABAB631A916248EFBA822F552719F457C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036169   (621160) от 20.07.2016
+
+Diana Rein - Long Road (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Long Road (6:36)
+2. Wild One (4:46)
+3. Livin' Loud (4:59)
+4. Green Light (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 0:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BC72744641B25182E76CF1278E0348A06D5BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036256   (621159) от 20.07.2016
+
+Together 3.5.14 [En]
 
 >>Архив торрентов
->>Архив Игр
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616609.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shank – двумерный слэшер со стильной мультипликационной графикой. Местный герой одинаково ловко орудует ножами, пистолетами и бензопилой. Причем делает это практически одновременно. Если бы по фильму «Мачете» делали игру, то ей бы должен был стать Shank. Это жестокий комикс – только совсем не нуар, а трэш-боевик, разудалая комедия.(   Читать дальше...   )Тип издания: RePackРазработчик: Klei EntertainmentЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык интерфейса: Русский
+Together - Программа для хранения и организации файлов.
+Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
+
+Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D37F6EAAC881A85CE06C86C31F7BB48A9DCE825
+magnet:?xt=urn:btih:12A73215EE7B861226EA724ABC9CC1D062C8C2F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,21 +172,208 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523232   (616606) от 16.07.2012
+###  Публикация: 1036394   (621158) от 20.07.2016
 
-36 Ступеней Шаолиня / Shao Lin san shi liu fang / The 36th Chamber of Shaolin (1978) [H.264/1080p-LQ] BDRip
+VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, Progressive>
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616606.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После трагической гибели семьи, деревенский паренек решает бежать в храм Шаолинь и научиться там боевым искусствам. Постоянные занятия позволяют ему достичь своей 36-й ступени - высшей цели в Кунг-фу.Жанр: Боевик, Драма, ПриключенияРежиссер: Лиу Чиа-ЛянгАктеры: Гордон Лиу, Ло Лье, Лау Кар-Винг, Уилсон Тонг, Ли Хой-Сан, Саймон Юэнь ст., Норман Чу, Билли Чан, Джонни Чеунг, Ван Фат, Шен Чан, Хон Квок-Чои, Фунг Кин-Ман, Хсяо Хо, Ланг Чан, Чан Си-Кай, Шум ЛоПеревод: Профессиональный (двухголосый закадровый) TV1000 / Авторский (одноголосый закадровый) Сергей КузнецовПродолжительность: 01:56:08
+001. Armin Van Buuren -  Eiforya (Talla 2xlc 140 Radio Edit) 2:45
+002. Talla 2XLC pres. Alan Walker -  Faded (DJ Aleksard Mashup) 6:35
+003. W&W -  Lift Off! (Radio Edit) 3:04
+004. Photographer -  Airport (Radio Edit) 4:43(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D8E84C97AAD7096B78155E4282E541577C117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036334   (621157) от 20.07.2016
+
+VA - Clubbing Designer Long Days (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Headhunterz & KSHMR -  Dharma (Extended Mix) 3:56
+002. Cosmo & Skoro feat. Nathan Brumley -  Feel So Deep (Radio Edit) 2:56
+003. Bassjackers & Jay Hardway -  El Mariachi (Extended Mix) 4:26
+004. Sander Van Doorn -  Not Alone (Extended Mix) 4:57(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:21:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C90E39FE158FB4253BE61D1DE818A7F9D7180E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522876   (621155) от 14.07.2012
+
+VA - Русский Avto Club Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sandro Escobar & Katrin Queen vs. Reflex - Non Stop (extended mix)
+02. A-Lika & Korol Lir - Любовь подставила (DJ Pomeha mix)
+03. Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
+04. MaXimA - Так тихо (Fidel Wicked radio edit)
+05. Иракли vs. Бьянка - Белый пляж (DJ Kirill Clash & DJ Dmitriy Nema remix)
+06. Shyma - Ветрами (Flashtronica remix)
+07. Makhno Project - De Janeiro (extended mix)
+08. Lika Star - Точка росы (Tone Project club mix)
+09. Карина Крит feat. Chris Parker - Мое сердце (Radio edit)
+10. KOLA Project - Время (original mix)Жанр: Dance, ClubПродолжительность: 04:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0D65910A5A194A82E9FDED7D7D0419CCF1B8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522661   (621154) от 14.07.2012
+
+[Wallpapers 16+] Beautiful Girls Wallpapers (14.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 11680х1050 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E0BD5E432A8AF0FA7CED8930D0A14B119C39F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522207   (621152) от 14.07.2012
+
+[Wallpapers] HD Nature Wallpapers (13.07.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111966AF22F87228B15A49A25FE2F3ED1EA47F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519896   (621151) от 14.07.2012
+
+VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621151.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Supermodels - Sumasutra (3:52)
+2. Skyline - Sky L (4:25)
+3. New Deep Room (Night mix) - Alexis Montgomery (5:39)
+4. Black Diamond (deep progression mix) - Bass O' Matik (5:39)
+5. Mexico (feat Enjoy - Da vocal mix) - Karl Van Dee (5:42)
+6. Heaven & Paradise - K & C (3:59)
+7. Improbality (feat Voiceen - Phunkadeep mix) - Black Jag (5:39)
+8. We Can Dance (feat Barra Lopez - Modell & Mercier mix) - Caesar Anthony (5:44)Жанр: Deep HouseПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521959   (621150) от 14.07.2012
+
+Reverence - When Darkness Calls (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Darkness Calls (5:01)
+02. Bleed For Me (4:11)
+03. Phantom Road (3:47)
+04. Devil In Disguise (4:31)
+05. Too Late (5:17)
+06. Gatekeeper (3:55)
+07. The Price You Pay (4:19)
+08. Monster (4:54)
+09. Revolution Rising (5:33)
+10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 00:49:09
 
 ## Скачать торент
 ```bash
@@ -442,25 +385,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523511   (616605) от 16.07.2012
+###  Публикация: 522827   (621149) от 14.07.2012
 
-Хемингуэй и Геллхорн / Hemingway & Gellhorn (2012) HDTVRip
+VA - Club In Car Summer Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616605.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие картины начинается в 1936 году в баре Флориды, где Хемингуэй и Геллхорн впервые встретились. К тому времени он уже был знаменитым писателем, она — одна из величайших военных корреспондентов XX века. Их пятилетний брак начался с поездки в Испании, где бушевала гражданская война 1936—1939 года. Геллхорн стала первой женой, подавшей на развод, а также вдохновившей Хемингуэя на написание самого знаменитого романа «По ком звонит колокол».Жанр: Мелодрама, ДрамаРежиссер: Филип КауфманПродюсер: Марк Армстронг, Джеймс Гандольфини, Триш ХофманнАктеры: Николь Кидман, Клайв Оуэн, Родриго Санторо, Роберт Дювалл, Конни Нильсен, Паркер Поузи, Тони Шэлуб, Дэвид Стрэтэйрн, Молли Паркер, Марк ПеллегриноПеревод: Одноголосый закадровый, любительскийПродолжительность: 02:34:44
+01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
+02. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
+03. Bartlett Bros & Matt Loki feat. Tiff Lacey - Sweet Child (Fabio XB Rework)
+04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
+05. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
+06. S.K.A.M. - Outside The Box (Original Mix)
+07. David Amo, Julio Navas - I Can (Original Mix)
+08. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
+09. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
+10. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)Жанр: Dance, ClubПродолжительность: 05:06:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:942E587FF69424F3F1F0DA96791D4C40DFED8992
+magnet:?xt=urn:btih:6017EF703ED780771F5984B78D44D5A4DA338810
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,26 +420,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295775   (616603) от 14.04.2019
+###  Публикация: 522261   (621148) от 14.07.2012
 
-Аннигиляция / Annihilation (2018) BDRip [H.264/720p]
+Reverence - When Darkness Calls (2012) [MP3|320 кб/с]<Heavy/Power Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616603.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На Землю прилетает маленький метеорит и становится причиной больших перемен. Он врезается в одиноко стоящий маяк, что загадочным образом меняет территорию вокруг.
-Профессор биологии Лина уже год страдает от потери мужа-военного. Кейн отправился на очередное секретное задание, но так и не вернулся — жив ли, погиб — женщина не знает, пока однажды дезориентированный (   Читать дальше...   )Производство: Великобритания, США /  Paramount Pictures, Skydance Media, Scott Rudin ProductionsЖанр: Фантастика, Фэнтези, Ужасы, ТриллерРежиссер: Алекс ГарлендАктеры: Натали Портман, Дженнифер Джейсон Ли, Оскар Айзек, Тесса Томпсон, Джина Родригез, Тува Новотны, Бенедикт Вонг, Дэвид Гяси, Соноя Мидзуно, Джон ШвабПеревод: Дублированный, профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: русские (forced, full), английские (full, SDH, SDH-Colored)Продолжительность: 01:55:26
+01. When Darkness Calls (5:00)
+ 02. Bleed For Me (4:11)
+ 03. Phantom Road (3:47)
+ 04. Devil In Disguise (4:31)
+ 05. Too Late (5:17)
+ 06. Gatekeeper (3:55)
+ 07. The Price You Pay (4:19)
+ 08. Monster (4:54)
+ 09. Revolution Rising (5:33)
+ 10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:49:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D1CA4456CE6A0CB962DB1AA88EEC7A4E5A164D7
+magnet:?xt=urn:btih:D9C956D86962F05008B962756B9BDD053437E180
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -495,25 +455,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523877   (616602) от 16.07.2012
+###  Публикация: 522443   (621147) от 14.07.2012
 
-Рестлинг / WWE Money In The Bank (2012) HDTVRip [H.264]
+[картинки] Native American Art
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616602.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WWE Money In The Ban - это профессиональное рестлерское pay-per-view шоу, проводимое World Wrestling Entertainment (WWE).Жанр: СпортПеревод: Многоголосый закадровый, любительскийПродолжительность: 02:49:42
+На мой взгляд довольно интересные художники пишущие картины с индейцами.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6892F3F7D8E0BBCAC9FBB364484A4D72F1D17D20
+magnet:?xt=urn:btih:061A3E7AC2546D336BA408B6DB2E9973B48D6921
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,25 +481,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295620   (616601) от 14.04.2019
+###  Публикация: 522243   (621145) от 14.07.2012
 
-Апрельские обновления Windows кладут систему с Avast, Avira и Sophos
+[Wallpapers]Cool Mixed HQ Colorful Wallpapers 06
 
->>3
->>4
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616601.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пользователи Windows столкнулись с очередным конфликтом обновлений системы с антивирусными продуктами. На этот раз виной всему стал ежемесячный набор патчей, пришедший в апреле — получившие его системы зависали, а в некоторых случаях даже были неспособны загрузиться.Жалобы поступили от пользователей популярных антивирусов — Avast, Avira и Sophos. В частности, известно, (   Читать дальше...   )
+Обои для рабочего стола.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:17EBC007A9253403526FF48F8E71D54CC13F74C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,43 +507,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523345   (616599) от 16.07.2012
+###  Публикация: 522946   (621144) от 14.07.2012
 
-VA - Лучшая русская попса (2012) [MP3|256 кб/с]<Pop>
+[Wallpapers] Best HD Wallpapers Pack (15.07.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8A61933D4E9C91CAC3B48B4AE05B56C5E784E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522241   (621143) от 14.07.2012
+
+[Wallpapers]Водопады
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0890B701B9AF5A72F7387E38BD55D4F1E8F05EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522829   (621142) от 14.07.2012
+
+VA - На гребне хитового лета (2012) [MP3|256-320 кб/с]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616599.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. СтаЯ - Сердце
-002. Леонид Агутин и Анжелика Варум - Как не думать о тебе
-003. Юрий Шатунов - Это лето
-004. Апрель - Город-Любовь
-005. Алексей Хлестов - Снежинки на твоих ресницах
-006. Полина Гагарина - Спектакль окончен
-007. Leyla - Ночной DJ
-008. Нола - Тебе
-009. Юлия Волкова (t.A.T.u.) - Сдвину мир
-010. Reggaer - ВлюбленЖанр: PopПродолжительность: 05:53:44
-
-001. Чай Вдвоем feat. Лиана - Виниловое сердце
-002. Любэ, Корни и In2nation - Просто любовь
-003. Emin - Сердце бьется
-004. Градусы - Заметает
-005. Татьяна Котова - Мир для сильных мужчин
-006. Алисия & Влад Корса - Здесь и сейчас
-007. Елена Терлеева - Просто
-008. Вероника Агапова - Baby бай бай(   Читать дальше...   )
+1. Инь - Ян - Инопланетянин (4:21)
+2. DJ Nano & Kate Ryan feat. Dmol - The Next Road (3:35)
+3. Инфинити - Я Так Скучаю (Alex Menco Remix) (3:35)
+4. Pobeda - Лето Любви (3:17)
+5. Тимур Темиров - Лето Жаркое (3:30)
+6. Christina Aguilera feat. Chris Mann - The Prayer (3:08)
+7. Иракли - Я Тебя Люблю (4:09)
+8. Ирина Нельсон - Теплое Солнце (3:12)
+9. Татьяна Котова - Вампирица (3:12)
+10. Sak Noel - Loca People (4:22)Жанр: PopПродолжительность: 05:51:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:282F95FEE0C3D7750643D6498403C3D0434DEABF
+magnet:?xt=urn:btih:383E73FC3753D5DDF8799D6F499A3C06189E92D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,28 +594,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295559   (616598) от 14.04.2019
+###  Публикация: 522132   (621141) от 14.07.2012
 
-VA - Classical Chill: Piano (2019) [MP3|320 Kbps] <Classical, Piano>
+Black Breath - Sentenced To Life (2012) [FLAC|Lossless]<Death 'n' Roll/Thrash Metal>
 
->>Классика
->>Фортепиано
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616598.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stephanie McCallum - Debussy-Suite bergamasque, L.75 - 3. Clair de lune 5:15
-02. Gerard Willems - Grieg-Peer Gynt Suite No.1, Op.46 - 1. Morning Mood 3:35
-03. Roger Woodward - Jessica's Theme (From 'The Man from Snowy River') 3:21
-04. Catherine Strutt - Traditional American-Amazing Grace (New Britain) 4:33(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 02:21:20
+01. Feast of the Damned (2:52)
+02. Sentenced To Life (2:24)
+03. Forced Into Possession (1:57)
+04. Home of the Grave (3:30)
+05. Endless Corpse (4:31)
+06. Mother Abyss (2:33)
+07. Of Flesh (3:32)
+08. Doomed (2:00)
+09. The Flame (4:09)
+10. Obey (5:12)Жанр: Death 'n' Roll/Thrash MetalПродолжительность: 00:32:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ECA9FD68FB321FB06DEA7E62B71E50BE87C44A6
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,27 +629,88 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523844   (616596) от 16.07.2012
+###  Публикация: 522582   (621140) от 14.07.2012
 
-Притворись моим мужем / You May Not Kiss the Bride (2011) HDRip
+VA - Paradise Islands (Sicily Beach Chillhouse Lounge Edition) (10-July-2012) [MP3|320 кб/с]<Chill House, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621140.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lovebirds - Running Backwards (6:36)
+2. Roberto De Carlo - Never Forget - Jay-J's Shifted Up Mix (7:13)
+3. Ricky Inch - Summer - Ricky Inch Trumpy Mix (8:02)
+4. Coeo - Get Down - Fex Fellini Remix (7:25)
+5. Roed Svensk - Never Be the Same - Main Mix (6:09)
+6. Raw Artistic Soul - Flores para ti - Can 7 Part 1 (6:53)
+7. Simon Grey - Signs - Pete Gust & Lefthander Remix (5:34)
+8. Urban Bang - The Birch (5:27)
+9. Ben Hart - Perfect Love Song - Original Mix (7:05)
+10. Ben From Corduroy - Come Together (4:22)(   Читать дальше...   )Жанр: Chill House, LoungeПродолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3B9BC02CC5FBE33F525E81F2C7A643B09669C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350935   (621133) от 17.06.2011
+
+Парк Юрского периода / Jurassic Park (1993) [1080p] HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экспансивный богач и профессор уговаривает пару ученых-палеонтологов приехать на остров у побережья Коста-Рики, где он устроил реликтовый парк. В парке этом водятся древние зверушки — динозавры, которые по его идее и должны стать гвоздем программы нового аттракциона.
+
+До открытия остается несколько дней, а один из работников, пытаясь продать «рассаду» налево, нарушает (   Читать дальше...   )Жанр: фантастика, боевик, приключения, семейныйРежиссер: Стивен СпилбергАктеры: Сэм Нилл, Лора Дерн, Ричард Эттенборо, Джефф Голдблюм, Боб Пек, Мартин Ферреро, Б. Д. Уонг, Сэмюэл Л. Джексон, Уэйн Найт, Джозеф Мадзелло, Ариана Ричардс, Джералд Р. Молен, Мигель Сандовал, Дин КандиПеревод: Профессиональный (многоголосый, закадровый)Субтитры: RussianФормат: MKVПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351597   (621129) от 17.06.2011
+
+10 шагов к успеху / 10 Items or Less (2006) [H.264] DVDRip
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616596.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Скромному фотографу Брайану Лайтхаусу не повезло. Совершенно неожиданно он оказался в долгу перед обосновавшимся в США хорватским криминальным авторитетом Вадиком Никитиным. Теперь Брайану нужно жениться на дочери бандита Маше, чтобы та смогла беспрепятственно получить американское гражданство, а потом спокойно развестись.
-
-Есть и другое условие: брак — браком, но к невесте горе-жених и пальцем не должен прикасаться. И это самая непростая часть договора, потому что девушка — ослепительная красавица. Дело осложняется и тем, что во время медового месяца на далеком экзотическом острове новоиспеченную жену похищают неизвестные. Ее возвращение становится для Брайана вопросом жизни и смерти…Жанр: Мелодрама, Комедия, ПриключенияРежиссер: Роб ХедденПродюсер: Дэвид А. Джексон, Шона Шапиро ДжексонАктеры: Дэйв Эннэйбл, Кэтрин МакФи, Роб Шнайдер, Мена Сувари, Кэти Бейтс, Кен Давитян, Тиа Каррере, Кевин Данн, Винни Джонс, Стивен ТоболовскиПеревод: Профессиональный многоголосый, закадровыйПродолжительность: 01:40:10
+Стареющая звезда Голливуда осознает, что, поддавшись страху провала, он попросту забыл о своем творческом потенциале, раз за разом отказываясь от перспективных предложений. Надеясь изменить сложившееся положение дел, он решает присмотреть для себя интересную роль в каком-нибудь малобюджетном независимом фильме. Для изучения будущей роли он едет в латиноамериканский (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Брэд СилберлингАктеры: Морган Фриман, Паз Вега, Джона Хилл, Энн Дудек, Франциска Эрнандез, Начо Пина, Гектор Раннинг-Хоук, Алексис Эрнандез, Сильвия Куриэль, Шоун Расселл, Кумар Паллана, Гектор Руис, Бобби Каннавале, Джим Парсонс, Дэнни ДеВито, Реа ПерлманПеревод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:17:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38BECEBA3521D38A14E8973CA3646457B9867180
+magnet:?xt=urn:btih:5AB930419BD65F03917836A9942CDF4E89EE2E26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,28 +718,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295717   (616595) от 14.04.2019
+###  Публикация: 351733   (621123) от 17.06.2011
 
-VA - Classical Chill Guitar (2019) [MP3|320 Kbps] <Classical>
+Кто ж такие птички (Птичий рынок; Слон и пеночка; Пластилиновая ворона; Сова; Птичий праздник; Малиновка и медведь; Крылья, ноги и хвосты) (1974-1986) DVD5 [Крупный план, без реставрации]
 
->>Классика
->>Классика (сборники)
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616595.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matt Withers - Myers-Cavatina (Arr. John Williams) (From 'The Deer Hunter') 3:12
-02. Grigoryan Brothers - Lovelady-Incantation No.2 5:02
-03. Slava Grigoryan & Leonard Grigoryan - J.S. Bach-Cantata BWV 156 - 1. Sinfonia (arr. Edward Grigoryan) 5:19
-04. Guitar Trek - Charlton-Dances for the Rainbow Serpent - 3. The Beauties of the World Are Revealed for the (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:33:31
+Сборник лучших отечественных мультфильмов, в который вошли следующие мультфильмы: Птичий рынок; Слон и пеночка; Пластилиновая ворона; Сова; Птичий праздник; Малиновка и медведь; Крылья, ноги и хвосты.Жанр: Рисованая анимацияРежиссер: Юлиан Калишер, Марианна Новогрудская, Натан Лернер, Александр Татарский и др.Формат: DVD VideoПродолжительность: 01:12:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6BF06944F21DB244CEC722C4A525A8CA7326D86
+magnet:?xt=urn:btih:4B9BB357DD35EA1F37C54AABE8D1AB451876DD37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,54 +744,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 523869   (616594) от 16.07.2012
+###  Публикация: 351754   (621119) от 17.06.2011
 
-Рестлинг / WWE Money In The Bank - Preshow (2012) WEBRip [H.264]
+Безбрачная неделя / Hall Pass (2011) DVD5
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616594.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Русская версия от 545TV WWE Money In The Ban прешоуЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:27:50
+Главный герой получает от своей супруги разрешение на свободные отношения с другими женщинами. Похожая ситуация возникает и в семье его лучшего друга. Когда жены героев также решают воспользоваться подобным «пропуском», история принимает новый оборот.Производство: СШАЖанр: Мелодрама, КомедияРежиссер: Бобби Фаррелли, Питер ФарреллиАктеры: Оуэн Уилсон, Джейсон Судейкис, Дженна Фишер, Кристина Эпплгейт, Никки Вилан, Ричард Дженкинс, Стефен Мерчант, Ларри Джо Кэмпбелл, Брюс Томас, Тайлер ХёхлинПеревод: ДублированныйСубтитры: нетПродолжительность: 01:45:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:987A9FA8F0C5D5FDBBAF61B83E0BFB42D8AF7B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146005   (616593) от 28.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616593.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июня 2017 года, воскресенье. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа B. 3-й тур
-Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD9626DF1A8BDBD7EE7ACAF434F8C1DE8B514BA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

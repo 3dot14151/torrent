@@ -1,3 +1,32 @@
+###  Публикация: 1839872   (1046724) от 01.12.2025
+
+Inner Shrine - The Last Emperor (2025) [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:21)
+02. Breath of you (5:26)
+03. No time to die (3:25)
+04. Storm of revenge (5:05)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4B8366B43806B9E7A971AAA86F9DF459596DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839355   (1046640) от 29.11.2025
 
 Dream Theater - Quarantième: Live À Paris (2025) [MP3|320 Kbps] <Progressive Metal>
@@ -717,35 +746,6 @@ Project  Wreckless - We Are Wreckless (2020) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CC46D1F8D47CE6EA89620F3088CF13F731E2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436924   (1042814) от 02.01.2021
-
-Rubicon - Demonstar (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demon star (04:07)
- 02. Neon Gladiators (04:32)
- 03. Last floor of hell (05:55)
- 04. Down in darkness (05:55)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCD56542FD158A9EE631CB401D9CCE4B3A794E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

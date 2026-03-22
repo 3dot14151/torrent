@@ -1,3 +1,176 @@
+###  Публикация: 1068693   (378453) от 02.11.2016
+
+Wild Carrot with Hank Ross - I've Heard That Song Before (2008) Falling Mountain Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I've Heard That Song Before [03:54]
+ 02.Five Foot Two Eyes of Blue [03:19]
+ 03.The Very Thought of You [03:46]
+ 04.Till There Was You [03:50](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3C45CAB3877EB81DE59E406B40548E2CCE7040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068839   (378449) от 02.11.2016
+
+Paolo Fresu & Omar Sosa - Eros (2016) Tuk Music[FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Teardrop/Ya Habibi [07:28]
+ 02.Sensuousness [04:03]
+ 03.Zeus' Desires [03:46]
+ 04.Brezza del Verano [05:32](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AB917E86EB80B17731D8716E2690FE76FCAFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068891   (378448) от 02.11.2016
+
+Jeanne Lee & Ran Blake - The Legendary Duets (1961) 1987, Bluebird[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Laura [05:11]
+ 02.Blue Monk [04:50]
+ 03.Church on Russell Street [03:14]
+ 04.Where Flamingos Fly [04:19](   Читать дальше...   )Жанр: Vocal Jazz, Avant-Garde JazzПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD54EA02DC3B21FA49634CD50951051A7BB0E8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068828   (378315) от 02.11.2016
+
+Sir Roland Hanna Trio - Milano, Paris, New York finding John Lewis (2003) Venus Records[FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Django [06:15]
+ 02.Skating In Central Park [05:38]
+ 03.Afternoon In Paris [07:04]
+ 04.Milano [06:00](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD352E0F317CCA6E3B13973620D3C74412D14B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251199   (378260) от 29.10.2010
+
+John Coltrane - Lush Life (1957) Reissue, Remastered, 1997, DCC [WavPack|Lossless|image + .cue]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_378260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone in Love (4:59)
+02. I Love You (5:32)
+03. Trane's Slo Blues (6:07)
+04. Lush Life (14:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573545   (377754) от 11.11.2012
+
+Bob James & Company - Casino Lights '99 (2000) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_377754.jpg" />
+</div>
+
+
+###  Подробнее
+
+--DISC 1--
+
+1. Mind GamesЖанр: JazzПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949558   (377705) от 23.10.2015
 
 Virgil Gonsalves Sextet & Steve White Quartet / Quintet - Jazz In Hollywood Series (1954) /1997, Nocturne Records/[FLAC|tracks+.cue]<Cool>
@@ -578,180 +751,6 @@ Ernestine Anderson - Blues, Dues & Love News (1996) Qwest Records [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:665638F573A14E7C6FB0C78CCF45AC91EFA19E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175990   (374570) от 20.10.2017
-
-Ernestine Anderson - A Song For You (2009) HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Can't Be Love [03:53]
-02. A Song for You [05:52]
-03. Make Someone Happy [04:35]
-04. Skylark [07:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6B337A22F42F955A479D23E7C07D1766B31D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175993   (374569) от 20.10.2017
-
-Ernestine Anderson - Live at the 1990 Concord Jazz Festival: Third Set (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues in the Closet [07:33]
-02. I Let a Song Go Out of My Heart [04:43]
-03. I Should Care [10:22]
-04. There Is No Greater Love [05:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D2408E9F03098DBB6AE62B8DA4CD15D9104378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176062   (374568) от 20.10.2017
-
-Della Reese - The Jubilee Years (1954 - 1959) 2CD, 2010, Jasmine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374568.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. In the Still of the Night [03:04]
-02. Time After Time [02:46]
-03. Fine Sugar [02:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CC023C4446A24A441D67CD9C8207D37EEEEC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175982   (374567) от 20.10.2017
-
-The Dave Brubeck Quartet - Jazz Goes to College (1954) 1998, Sony Music [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balcony Rock [11:59]
-02. Out of Nowhere [08:07]
-03. Le Souk [04:41]
-04. Take the 'A' Train [06:17](   Читать дальше...   )Жанр: CoolПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD7D3511E9101A08AB8218BAA217E357925A93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175983   (374564) от 20.10.2017
-
-Bobby Darin & Johnny Mercer - Two oF A Kind (1961) 1990, Atco Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two of a Kind [00:50]
-02. Indiana [02:41]
-03. Bob White [03:38]
-04. Ace in the Hole [03:10](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E06463B43EE2BA9F28FA1123CBDC73747630EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175985   (374441) от 20.10.2017
-
-Ernestine Anderson - Now And Then (1993) Qwest Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Street [04:38]
-02. A Night in Tunisia [05:21]
-03. One Child [05:49]
-04. This Could Be Dangerous [05:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813A9853CDD55018C7BE66583E9B426AE7913CAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

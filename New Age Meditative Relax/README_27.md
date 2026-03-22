@@ -1,3 +1,32 @@
+###  Публикация: 1195370   (142320) от 29.12.2017
+
+Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadness (Reprise) (02:53)
+02. Honour Thy Father and Thy Mother (04:25)
+03. Time Will Pass (04:00)
+04. Rise Above the Bustle (04:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195824   (138290) от 31.12.2017
 
 Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Ethnic>
@@ -756,35 +785,6 @@ The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764238   (34414) от 12.12.2024
-
-David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps] <New age, Relax, Meditative, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Stalking (Spirit Dance remix) [06:26]
-02. The Moa Hunters (Spirit Dance remix) [05:29]
-03. The Rainmakers (Spirit Dance remix) [04:32]
-04. Frog Dancing (Spirit Dance remix) [04:44](   Читать дальше...   )Жанр: New age, Relax, Meditative, WorldПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92909C9343F094E2816B92F859210B62CA1C571
 ```
 
 https://mybot314.ru/tekegram_catalog/

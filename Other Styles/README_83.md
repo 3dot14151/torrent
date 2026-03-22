@@ -1,3 +1,157 @@
+###  Публикация: 1545676   (613276) от 20.04.2022
+
+Father John Misty - Chloë and the Next 20th Century (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Indie Folk, Singer-Songwriter>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chloë (3:28)
+02. Goodbye Mr. Blue (5:00)
+03. Kiss Me (I Loved You) (3:57)
+04. (Everything But) Her Love (4:16)(   Читать дальше...   )Жанр: Indie Folk, Singer-SongwriterПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5ACA3C07824C72DDF10E50093F1894FB318473A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545678   (613030) от 20.04.2022
+
+Giovanni Marradi - Piano Poetry (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Chilly Wind From The North (3:37)
+02. Concerto De Aranjuez - Mon Amor (4:05)
+03. Roggy's Theme (3:17)
+04. Requiem (3:14)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99AD882ADDB632504FFBCF3AE2B7B6C3B025DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221675   (612882) от 25.07.2010
+
+VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_612882.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:52) 01. Jonas Assarsson - Calm Breeze
+(4:42) 02. Bindu - The Natural Flow
+(6:33) 03. Skovbye/Brander - Friendship part 2
+(4:47) 04. Egil Fylling - So many to make time for
+(4:13) 05. Steen Hansen - The Beach
+(4:40) 06. Jan Skogvaard Petersen - The first Wave
+(3:53) 07. Pushkar - Manamalei
+(6:09) 08. Gabrielle - Blind Mary
+(4:59) 09. Carsten Rosenlund - She Moved Through the Fair
+(4:46) 10. Peter Bastian & Stig Moller - Just Be(   Читать дальше...   )Жанр: Relax, ChilloutПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522638   (612832) от 18.07.2012
+
+VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_612832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood Bowl Orchestra - John Dunbar Theme {Жанр: Classical, Pop, Rock, Stage & ScreenФормат: BoxSet 2CDПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524322   (612603) от 18.07.2012
+
+Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_612603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up All Night (2:43)
+02. Treading Water (3:38)
+03. Relax My Beloved (3:31)
+04. Too Close (4:16)
+05. When Doves Cry (4:08)
+06. Hummingbird (3:50)
+07. Hands Are Clever (3:16)
+08. Tightrope (3:37)
+09. Whispering (4:30)
+10. Love You (4:39)(   Читать дальше...   )Жанр: Soul/Pop/DubstepПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230747   (612335) от 14.06.2018
 
 Rhonda Mackert - Time Not Forgotten (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -636,151 +790,6 @@ Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231098   (608849) от 16.06.2018
-
-Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cloudforest Trail (6:16)
-2. Pillars in the Mist (9:34)
-3. In the Presence of Beauty (7:05)
-4. Secrets in Stone (10:04)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296841   (608534) от 19.04.2019
-
-Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Reflection (7:17)
- 02. The Road to Here (6:07)
- 03. Rising (8:49)
- 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB769BCDBA2AA1F1B967FF983C28F8F54E77A3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296785   (607895) от 19.04.2019
-
-А.И.Жихарев - Вознесение (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Напутствие (5:23)
-02. Призыв (3:58)
-03. Без названия (5:54)
-04. Исповедь (7:35)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC651860470A4FE4ACFBD145FEF98D0D8C32DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147338   (607606) от 03.07.2017
-
-VA - The Organ Plays Sentimental Favorites (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dick Hyman - A String Of Pearls (3:01)
-02. Dick Hyman - Moonlight Serenade (4:08 )
-03. Eddie Layton - Medley: Tangerine / That Old Black Magic (3:20)
-04. Bill Thomson - Ebb Tide (3:13)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8D5E8DEA9007CC4CDB37294E17AFE8BC686459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147321   (607511) от 03.07.2017
-
-VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gordon Langford (piano) - La Mer (Beyond the Sea) (3:19)
-02. Francis Goya (guitar) - Try a Little Tenderness (3:41)
-03. Terry Harrington (clarinet) - I'll Walk Alone (3:42)
-04. Simon Chamberlain (piano) - I Love Being Here With You (2:51)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB35EACF82EEC982F34C586135CCC7204B6857C
 ```
 
 https://mybot314.ru/tekegram_catalog/

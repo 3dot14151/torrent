@@ -1,3 +1,32 @@
+###  Публикация: 1179932   (344579) от 02.11.2017
+
+Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Together
+02. Silver Sound
+03. Moment of Silence
+04. Just a Little Song(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0E7A333504CDD6525068A259BC7D1042B356CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953813   (343923) от 06.11.2015
 
 Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New Age, Enigmatic>
@@ -717,35 +746,6 @@ VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12E0F91CA0BC5FD035CE3A1C05C1F8393C39B8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260246   (314050) от 06.11.2018
-
-VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrumental, New Age, Space>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stive Morgan - Spirit Of The Earth (6:12)
-02. Aleksey Kovalenko - Noise In The Head (6:45)
-03. Sergey Nsd - Where you (Lost in the ice) (6:07)
-04. Rainy - The Secret Of Desert (7:22)(   Читать дальше...   )Жанр: Chillout, Electronic, Instrumental, New Age, SpaceПродолжительность: 05:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1770C34719A0CA06F5E2DAF7C73674E0F319C9DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 957044   (328347) от 16.11.2015
+
+Teramaze - Her Halo (2015) [OGG|482-502 кб/с]<Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Ordinary Dream (Enla Momento)
+02. To Love, a Tyrant
+03. Her Halo
+04. Out of Subconscious(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCFA8E8684A23AD6EB70BC0067A0BE16982BF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957489   (327663) от 17.11.2015
+
+Sound Of Memories - To Deliverance (2015) [MP3|320 кб/с]<MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Non Compos Mentis
+02. Momentum
+03. Confined In Struggle
+04. Eulogy(   Читать дальше...   )Жанр: MDMПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FE0A46072887450BECD084575A1E4FCCD01B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957271   (327650) от 17.11.2015
+
+Leather Heart - Comeback (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crow
+02. Destiny
+03. Leather Heart
+04. Depths Of Space(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB50DE303899C4AAB6D3D5155FA085A869CD5FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581487   (327294) от 05.10.2022
+
+Tell You What Now - Tell You What Now (2022) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wraith (4:20)
+02. Decay Constant (feat. Alexander Kraft) (3:31)
+03. Extremis Malis (4:12)
+04. Extrema Remedia (2:40)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF9792609FAC202D0D512BF8009934A902740E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957550   (326724) от 18.11.2015
 
 Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
@@ -628,122 +744,6 @@ Amberian Dawn - Darkness of Eternity (2017) [MP3|320 Kbps] <Symphonic Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53ADFF7676EFC883336836ABD8FE65A04E8F89B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421693   (317763) от 05.11.2020
-
-Evildead - United States of Anarchy (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Descending (03:12)
-02. Word of God (03:04)
-03. Napoleon Complex (03:08)
-04. Greenhouse (03:58)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029D44C8D3BEEC9004ADA361E47C897054B89832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421710   (317751) от 05.11.2020
-
-Fates Warning - Long Day Good Night (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Destination Onward (08:13)
- 02. Shuttered World (05:14)
- 03. Alone We Walk (04:44)
- 04. Now Comes the Rain (04:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA612303B5AFEEA2B9D1C378C02FFE24ED125CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959441   (317392) от 24.11.2015
-
-Battlecreek - Hate Injection (2015) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317392.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dealing Death
-2. Redneck Riot
-3. Kill Or Be Killed
-4. Hate Injection(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9A36C22C5696C4CC03391CF6E0AAB8E0EF02C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421749   (315525) от 06.11.2020
-
-White Magician - Dealers of Divinity (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dealers of Divinity (07:32)
- 02. Mad Magic II_ In the Absence of Gods (Bad Magic) (05:11)
- 03. Fading into the Obscurity of Ages (04:13)
- 04. In Memoriam_ Love and Magic (Magic and Love) (07:49)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78FCBD0AD712465D1E68749DFB043DDA7141389
 ```
 
 https://mybot314.ru/tekegram_catalog/

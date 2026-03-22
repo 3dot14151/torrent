@@ -1,3 +1,119 @@
+###  Публикация: 1273288   (137892) от 31.12.2018
+
+Toro y Moi - Outer Peace (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie Pop, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fading (03:17)
+02. Ordinary Pleasure (03:03)
+03. Laws of the Universe (02:49)
+04. Miss Me (feat. ABRA) (03:00)(   Читать дальше...   )Жанр: Indie Pop, Dream PopПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EC386872AB93F2C6AE705806E66CAD453AA143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903069   (136999) от 25.11.2023
+
+Foo Fighters - 15 альбомов, 3 сингла (1995 - 2023) 26 CD [FLAC|Lossless|tracks + .cue]<Alternative, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foo Fighters — американская альтернативная пост-гранжевая рок-группа, образованная бывшим участником рок-группы Nirvana Дейвом Гролом (David Eric Grohl) в 1995 году. "Если бы не смерть Кобейна, я думаю, никаких Foo Fighters сейчас бы не было. Я наверняка остался бы тем, кем я был, и по сей день стучал бы на барабанах в Nirvana. Мне всегда хотелось быть просто (   Читать дальше...   )Список альбомов:
+1995 Foo Fighters
+1997 The Colour And The Shape
+1999 There Is Nothing Left To LoseЖанр: Alternative, Post-GrungeПродолжительность: 121:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A3E491C01B8759BADD466FA02E67D83F7216D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824225   (136954) от 15.10.2025
+
+Swiss & Die Andern - 9 Albums (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Punk-Rock, Hip Hop, Trip-Hop, RAC, Oli, 88>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - Grosse Freiheit (Premium Edition) (16-Bit,44.1 kHz)
+2018 - Randalieren fur die Liebe (16-Bit,44.1 kHz)
+2020 - Saunaclub (24-Bit,44.1 kHz)(   Читать дальше...   )Жанр: Punk-Rock, Hip Hop, Trip-Hop, RAC, Oli, 88Продолжительность: 9 CD, 07:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1493DCB776FC47861A578E5070D1F414BC0980A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824940   (136787) от 16.10.2025
+
+Vimic - Open Your Omen (2025) [FLAC|Lossless|WEB-DL|tracks] <lternative Metal, Groove Metal, Industrial Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - The Ending (Love & Lacerations) (2:08)
+02. - Marionette (5:30)
+03. - She Sees Everything (5:28)
+04. - Earth Stood Still (4:18)(   Читать дальше...   )Жанр: lternative Metal, Groove Metal, Industrial Metal, Nu MetalПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD7DCC9544B18CC40622C560024E1C5C8F10786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825253   (136703) от 16.10.2025
 
 Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock>
@@ -635,122 +751,6 @@ Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61712588D00B04E029F47922B235A6E87A0E791F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684170   (127765) от 15.12.2023
-
-Riding with Killers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do This on My Own [00:04:09]
-02. Hostility [00:03:30]
-03. World Apart [00:03:20]
-04. Dna [00:03:21](   Читать дальше...   )Жанр: Alternative Metal, Post GrungeПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A167ECB74A236C8ED6F0F10CC02FF14EA3B63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684148   (127761) от 15.12.2023
-
-C-Clamp - Dream Backwards (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passing [00:06:13]
-02. Ten Degrees Arc [00:06:05]
-03. Bats [00:04:39]
-04. A Stand Still [00:03:26](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 02:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F75F98B6F1C507C7C0A6E6687A385CE9B5D45A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684481   (127599) от 16.12.2023
-
-Placebo - Collapse Into Never - Live In Europe (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Chemicals (Live In Europe 2023) [00:05:08]
-02. Beautiful James (Live In Europe 2023) [00:04:01]
-03. Scene of the Crime (Live In Europe 2023) [00:03:27]
-04. Hugz (Live In Europe 2023) [00:04:53](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6321ED9AB6120EFE45445C301870A04112CA3D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684894   (127359) от 17.12.2023
-
-(hed) Planet Earth - Detox (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Way Out [00:04:01]
-02. DETOX [00:03:45]
-03. Waiting [00:03:37]
-04. Too Late [00:04:09](   Читать дальше...   )Жанр: Rapcore, Nu Metal, HardcoreПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C250823CA40E7B95AA522F74E62820C485C4BF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

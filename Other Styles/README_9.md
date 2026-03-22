@@ -1,3 +1,38 @@
+###  Публикация: 604547   (996063) от 18.01.2013
+
+Chris Spheeris - Greatest Hits (2CD) (2009) [MP3|320 кб/с]<New Age, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996063.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:01. Andalu
+ 02. Quiver
+ 03. Field Of Tears
+ 04. Eros
+ 05. Allura
+ 06. From Where They Fall
+ 07. Aria
+ 08. Laguna
+ 09. Bellaire
+ 10. Lanotte(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604293   (995224) от 21.01.2013
 
 Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native american>
@@ -777,35 +812,6 @@ Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970808   (987322) от 02.01.2016
-
-Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music Of The Beatles (2001) SACD [FLAC|Lossless|tracks + .cue] <Pop, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleanor Rigby (Orchestral version) (3:24)
-02. All You Need Is Love (3:15)
-03. When I'm Sixty-Four (3:15)
-04. Michelle (3:32)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

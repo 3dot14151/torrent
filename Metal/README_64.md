@@ -1,3 +1,119 @@
+###  Публикация: 1056126   (484100) от 24.09.2016
+
+Veonity - Into The Void (2016) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Humanity Is Gone
+02. Frozen
+03. A New Dimension
+04. Awake(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F266B2E46E79564E69B091A674F3984C7653AC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938039   (484065) от 17.09.2015
+
+Claret Ash - The Cleansing (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Progressive Black Metal,>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484065.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tides Of Darkness
+2. Effigy Of Insolence
+3. Desolation Of A Pierced Soul
+4. The Sombre Fields(   Читать дальше...   )Жанр: Atmospheric Black Metal, Progressive Black Metal,Продолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832D19CE71BFEE8681B6A8D10DCA27699864A815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244074   (483981) от 31.08.2018
+
+Omnium Gatherum - The Burning Cold (2018) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483981.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Burning
+2. Gods Go First
+3. Refining Fire
+4. Rest In Your Heart(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E4D7312FC3D9206785922B8BEF1D111DDD0489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405662   (483683) от 30.08.2020
+
+Devon Murray - Dedicated, Resistant, Minute. (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dedication (03:13)
+ 02. Man in the Wall (08:47)
+ 03. Wander (04:16)
+ 04. Traversing the Truth (05:19)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C958740C62D332ED4FB914EC3FC1E7503F3D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405281   (483679) от 30.08.2020
 
 Manticora - To Live to Kill to Live (2020) [MP3|320 Kbps] <Progressive Power Metal>
@@ -626,122 +742,6 @@ Oceans of Slumber - Oceans of Slumber (2020) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F86F6DA74A2635316C8E16D1EC37299184DFA0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386454   (472706) от 11.09.2011
-
-Holy Force - Holy Force (2011) [MP3|320 kbps]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Force 04:54
-02. Flying 03:45
-03. Breathe 01:24
-04. Seasons 05:05(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E7E147D16B33DD3BFB0CFFBD4E38435A9D341B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939853   (471546) от 23.09.2015
-
-Tyranny - Aeons In Tectonic Interment (2015) [MP3|320 кб/с]<Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471546.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sunless Deluge
-2. A Voice Given Unto Ruin
-3. Preparation Of A Vessel
-4. The Stygian Enclave(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568B2ADFF53AC3D12C808A0EFE5B3CB6DCEF9285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406867   (470679) от 05.09.2020
-
-Zakk Sabbath - Vertigo (2020) [MP3|320 Kbps] <Heavy, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath (6:17)
-02. The Wizard (4:22)
-03. Wasp / Behind The Wall Of Sleep / Bassically / N.I.B. (10:35)
-04. Wicked World (5:11)(   Читать дальше...   )Жанр: Heavy, Doom MetalПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997BF00C9A69E5215F6E3BCAEDE2D0AF5361B87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058016   (470613) от 30.09.2016
-
-Epica - The Holographic Principle (2016) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eidola
-02. Edge of the Blade
-03. A Phantasmic Parade
-04. Universal Death Squad(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14459ADEC7B5F1C791A88EEEF66232EC3BAEA31B
 ```
 
 https://mybot314.ru/tekegram_catalog/

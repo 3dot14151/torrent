@@ -1,3 +1,90 @@
+###  Публикация: 1101652   (894822) от 07.02.2017
+
+Degreed - Dead But Not Forgotten (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Scam [3:48]
+ 02. Face The Fact [3:12]
+ 03. Madness [4:00]
+ 04. Shame On Me [3:41](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E84B5097C6E773E92C6A168D3002EC9BA8E0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101371   (894771) от 07.02.2017
+
+Apollo - Waterdevils (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution For The Brave [3:51]
+ 02. Liberate Yourself [3:36]
+ 03. Buried In A Flame [3:51]
+ 04. Safe And Sound [3:47](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171CD83542A428762D80EEBDDDB9D422BAD544ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101729   (893143) от 08.02.2017
+
+Monkeyhead - Monkeyhead (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The One That Makes You Crazy 4:26
+02. Dragon Fly 4:23
+03. Guns Of July 3:56
+04. Temptation 4:31(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B14D1863D78B228D8454B3707F1773CA3E36EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493839   (892424) от 05.09.2021
 
 Billy Rankin - Growin' Up Too Fast (1984) Reissue, Remastered, 2002, Zoom Club Records [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -653,93 +740,6 @@ China - 7 albums, 9 CD (1988-2014) [FLAC|Lossless|image + .cue | tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F52DB9558DEF98AF4CDB0DCBE0FFE03748D6D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104069   (881900) от 14.02.2017
-
-Velocity - Impact (1997) [APE|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Amaze Me Anymore (5:14)
-02. Riot Goin' On (3:29)
-03. Supernatural Lover (4:57)
-04. Julia Ann (4:13)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0652F92161B5687A36BA78D79213356C3F7973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104075   (881869) от 14.02.2017
-
-Stephen Pearcy - Smash (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know I'm Crazy (5:12)
-02. Ten Miles Wide (3:33)
-03. Shut Down Baby (3:29)
-04. Dead Rose's (3:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C9FB3028DDDBAF524E55AD5585C5B47290560A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495454   (880818) от 12.09.2021
-
-Blacksmith - Once Upon A Star (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon A Star
-02. Dragons Fire
-03. Hall Of The Mountain King
-04. Come On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2133ABFEDCBF7F950CD14D606CCF17675313BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

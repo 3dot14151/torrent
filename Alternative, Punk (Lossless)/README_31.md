@@ -1,3 +1,119 @@
+###  Публикация: 1308662   (553781) от 15.06.2019
+
+Reptaliens - Valis (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise Sunset
+02. Venetian Blinds
+03. Shuggie 1
+04. Shuggie 2(   Читать дальше...   )Жанр: Indie Pop, Lo-FiПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FDE0032ECCA1BE6FF3408878DACE4D3248FDEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237034   (553276) от 22.07.2018
+
+Panic! At the Disco - Pray For The Wicked (2018) [FLAC|Lossless|tracks + .cue] <Alternative, pop rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Fuck a) Silver Lining (2:48)
+02. Say Amen (Saturday Night) (3:09)
+03. Hey Look Ma, I Made It (2:49)
+04. High Hopes (3:10)(   Читать дальше...   )Жанр: Alternative, pop rockПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F431041FB339B47964082FA77F6108A3A4958E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308974   (552881) от 17.06.2019
+
+Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner Painter (04:31)
+02. Counterfeit (04:04)
+03. Hard To Be Alone (04:55)
+04. Haunted Love (06:27)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C7EE65592C1201FB62B3B318DB67A1DD6173CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237338   (552357) от 23.07.2018
+
+Bring Me The Horizon - 2004-2013 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traitors Never Play Hangman (3:37)
+ 02. Pray For Plagues (4:22)
+ 03. Diamond Aren't Forever (3:48)
+ 04. The Sadness Will Never End (Feat. Sam Carter) (5:22)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1094B05668DBF6A6D72D9C4E2B5699690E2E3E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237360   (552341) от 23.07.2018
 
 Bad Wolves - Disobey (2018) Eleven Seven Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Groove Metal, Metalcore>
@@ -626,122 +742,6 @@ A Projection - Framework (2017) [FLAC|Lossless|tracks + .cue] <New Wave, Post-Pu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C7AF2CC4471B01BA033E135C7EEB15F386D2D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048996   (544861) от 04.09.2016
-
-De Staat - O (2016) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peptalk
-02. Make the Call, Leave It All
-03. Get on Screen
-04. Murder Death(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Experimental RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654D514C2209750A420F9AE7FDEF0643717D8B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310944   (544538) от 27.06.2019
-
-Weeping Willows - After Us (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Alternative country>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butterfly
-02. Let Go
-03. Save Us From Ourselves
-04. I Travel With You(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Alternative countryПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8C5E8967558F2731FBF91E07A6008EC8054102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311233   (543744) от 28.06.2019
-
-Cachorro Grande - Baixo Augusta (2012) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Não Entendo, Não Aguento (4:18)
- 02. Difícil de Segurar (2:46)
- 03. Tudo Vai Mudar (3:00)
- 04. Baixo Augusta (4:22)(   Читать дальше...   )Жанр: Pop Rock, Alternative Rock, Rock & RollПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78EE7C4A8B484304EC77EAC50A0558D3C1245188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311207   (543743) от 28.06.2019
-
-Night Moves - Can You Really Find Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mexico
-02. Recollections
-03. Keep Me In Mind
-04. Strands Align(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DA52F33EE95C9A046D6A09A800417B964C4AB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

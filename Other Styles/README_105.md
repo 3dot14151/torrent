@@ -1,3 +1,166 @@
+###  Публикация: 545525   (482909) от 11.09.2012
+
+VA - Веселої забави! ч.1 (2011) [MP3|256 кб/с]<Folk-Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Марш.
+002-Нiченька-циганка.
+003-Ми зустрiлись на веснi.
+004-Мама тихо говорила.
+005-Ой лелеки-лелеченьки.
+006-Де ти.
+007-Дiвчино кохана.
+008-Оксана.
+009-Летiли гуси.
+010-Чому,козаче, сумний ходиш.(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 06:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEA559E37370FBFB01794350D1F94E3F7EA5C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544769   (482906) от 11.09.2012
+
+Capella Gregoriana - Mystic Gregorian Pop Songs & Ballads (2CD) (2005) [MP3|320 кб/с]<New age, Chorus, Gregorian chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482906.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+1. Mystic Pray (4:51)
+2. Hallelujah (Dance Version) (7:36)
+3. Sanctus (II) (Pop version) (6:00)
+4. Pater Noster (Dance In Trance) (8:40)
+5. Dance Of Sacrifice (5:57)
+6. The Prophecy Of Light: Creator alme siderum (5:15)
+7. The Evening Prayer: Agnus Dei (5:50)
+8. Sounds From Heaven (6:50)Жанр: New age, Chorus, Gregorian chantПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13B0B97FCE45961AF35EB34413B72B4E595B039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544993   (482760) от 11.09.2012
+
+Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [MP3|320 кб/с]<Folk / Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Христос Воскрес!
+02. Разлад
+03. Монолог собаки
+04. Появились молодые...
+05. Перед атакой
+06. Бабулька
+07. Ой, кума
+08. Чырвона ружа
+09. Я лишь поэт
+10. Тем, кто помнит(   Читать дальше...   )Жанр: Folk / RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7E2BB294CD00C9FED63BF08CE4AB451954C898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319330   (482698) от 12.08.2019
+
+Omar Akram - Destiny (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Take Me Away (4:23)
+2.Destiny (4:01)
+3.My Promise To You (4:19)
+4.Nomad (4:22)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5234CB3A44AB2B138BE6BBF8B3BB165F10E4776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 699983   (482491) от 15.09.2013
+
+101 Strings Orchestra - 3 альбома (1996-2007) [FLAC|Lossless|image, tracks + .cue] <Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koi Nobori (BoysFestival Song) [02:31]
+02. Oshogatsu - Yuki (Snow and New Year) [02:42]
+03. Mura Matsuri (Village Festival Song [03:30]
+04. Orobo Zukiyo [01:45](   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 03:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CA0DADCB7D6FB3BE5E08F5B90930938D13FC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545349   (482236) от 11.09.2012
 
 Иван Купала - Родина (2012) [MP3|320 кб/с]<folk>
@@ -616,152 +779,6 @@ Kitaro - Final Call (2013) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD6DBBB09C8B5FBF2027C25C69C188DD5908D31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160041   (478121) от 23.08.2017
-
-Sarah Darling - Dream Country (2016) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wandering Star (3:20)
-02. Where Cowboys Ride (4:05)
-03. Anchor (3:45)
-04. Tell That Devil (2:57)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44E43A668AE26869D7784B58A612F654BD60D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244934   (477967) от 03.09.2018
-
-Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ishq (8:09)
-02. Tumi Bhaja Re Mana (8:07)
-03. Sattva (7:06)
-04. Shivoham (9:42)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4814A6F941F99B5B4E984C56165B02C72F4B468C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939134   (477917) от 20.09.2015
-
-Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blues, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds With Broken Wings (03:41)
-02. I Got Me A Woman (03:06)
-03. Belly Of The Worm (03:47)
-04. Ride On (03:30)(   Читать дальше...   )Жанр: Country, Funky Blues, FolkПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F29B68A9518F6EBF0309DE2472980B812404A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057078   (477505) от 27.09.2016
-
-Blue Rodeo - In Our Nature (2013) [MP3|320 Kbps] <Folk Rock, World, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Morning Sun   (04:35)
-02. Wondering   (05:06)
-03. Over Me   (03:25)
-04. Never Too Late   (04:52)(   Читать дальше...   )Жанр: Folk Rock, World, CountryПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF80153FE44CCF6FAD38E552BF05DE713EC3C2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405923   (477356) от 02.09.2020
-
-Земфира - Последняя сказка Риты (2012) [FLAC|Lossless|tracks + .cue] <Art Rock, Ambient, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477356.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Последняя сказка Риты» — саундтрек российской исполнительницы Земфиры к фильму Ренаты Литвиновой «Последняя сказка Риты».
-14 сентября 2011 года начал работать официальный сайт фильма «Последняя сказка Риты» (реж. Р. Литвинова), музыку к которому написала Земфира. В трейлере фильма звучит гитарная вариация на тему «Танца с саблями» А. Хачатуряна, а также фрагмент (   Читать дальше...   )01. Intro (2:08)
-02. Сон 1 (2:06)
-03. Коля (1:48)
-04. Не надо (Танец смерти) (3:18)(   Читать дальше...   )Жанр: Art Rock, Ambient, SoundtrackПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43A409063FDB94126A254962D4897A432CB0761
 ```
 
 https://mybot314.ru/tekegram_catalog/

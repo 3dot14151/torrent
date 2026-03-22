@@ -1,3 +1,135 @@
+###  Публикация: 1374429   (872834) от 10.04.2020
+
+Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Disbelief - The Ground Collapse (2020)Производство: Listenable RecordsЖанр: Death, Thrash, Sludge MetalПродолжительность: 00:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA6005D98F54B75C97BECB338FD69A1F058FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374432   (872828) от 10.04.2020
+
+Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872828.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Megatherium - God (2020)Жанр: Psychedelic Stoner, Doom MetalПродолжительность: 00:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D198ECEFCFA130C4953819247BB22BAFBF6763C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374624   (872579) от 10.04.2020
+
+Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Thrash, Heavy Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872579.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Sodom - 2001 - M-16Жанр: Thrash, Heavy MetalПродолжительность: 00:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D222F1EBBFA6262CB6880AE09F178DEA6B0D865F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188099   (871447) от 31.03.2010
+
+Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка клипов исполнителя Paul van Dyk. Там где это было возможно звуковые дорожки AC3 заменены на FLAC из этого замечательного релиза. На мой взгляд получилось вполне удачно, но окончательное мнение, разумеется, за вами. В подборку не вошли клипы, сделанные из видеоматериала, отснятого во время тура в поддержку альбома Global так как музыкальные треки там урезаны, (   Читать дальше...   )01. Paul Van Dyk - For An Angel (03:03) (2009)
+02. Paul Van Dyk - Let Go (03:45) (2007)
+03. Paul Van Dyk - Tell Me Why (06:16) (2000)Жанр: Trance, Progressive Trance, DanceПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644421   (867127) от 17.04.2013
+
+Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Горизонтальная анаморфная стереопара 3D]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрывайтесь по-полной в 3d-клипе с «Gangnam Style»  — синглом южнокорейского исполнителя и автора песен PSY! Песня в 2012 году стала первой в рейтинге Gaon Chart, а её видеоклип на YouTub сделал певца миллионером. В 3d ролике  комически танцующий PSY,  в двух местах в Каннамгу (район в Сеуле) и в восьми, которые находятся в Инчхоне и провинции Кёнгидо. В 3д-видеоклипе PSY задействовано много корейских актёров, а девушка – корейская певица Хёна.Жанр: Музыка, Dance, PopПеревод: ОтсутствуетПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B42D7985B869CC4A45DEB4BCBED6FF2B1A97BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766413   (867087) от 16.03.2014
 
 Демонстрационный DVD-Video диск #2. Dolby Digital 6.1, DTS Multichannel Sound 6.1 [DVD5]
@@ -567,150 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFA58A86487825C9C91585F212F43E74989BADA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111068   (848067) от 05.03.2017
-
-Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848067.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Lichtspielhaus» («Кинотеатр») — второй DVD группы Rammstein, выпущенный в декабре 2003 года. DVD содержит все клипы группы, имевшиеся на момент издания релиза. Также релиз включает такой раздел как «Making Of», в котором представлены процессы съёмок некоторых клипов. Секция концертного видео содержит съёмки выступлений с различных концертных площадок, начиная с (   Читать дальше...   )01. Videos
-02. Live
-03. Making Of
-04. TV TrailersПроизводство: Германия | Motor Music GmbH, Universal RecordsЖанр: Industrial Metal, NDHЯзык субтитров: английский, немецкий, французский, испанский, японскийПродолжительность: 03:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2B99B0A7577B3A6829F17495609854E17F084B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003103   (842926) от 03.04.2016
-
-Сборник - Bollywood Video Yarmix (2016) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мини-сборник клипов из индийских фильмов01. Intro, Dhoom-2
-02. Saiyaan Superstar - Ek Paheli Leela
-03. Mainu Ishq Da Lagya Rog - Mainu Ishq Da Lagya Rog
-04. Desi Look (Ek Paheli Leela)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан,  Катрина Кэйф и др.Продолжительность: 00:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D282B40545DA82651BB2C8816AB5CCEF048307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309135   (842116) от 15.03.2011
-
-Supermax - Rhythm Of Live (2010) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник концертных выступлений и видеоклипов группы Supermax.
-Бонус - выступление Курта Хауенштайна  (Kurt Hauenstein) с группой Земляне ("Living In A World" и "Hotline") на фестивале байкеров в г. Москва в 2008 году.Жанр: Pop/Rock, Electronic, Reggae, Funk / Soul, Hip Hop, Folk, World & Country, Disco.Формат: DVD VideoПродолжительность: 01:34:46 + 00:18:16 (bonus)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CAAA345F1231F0E174D56BA611B5A6146861ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112869   (840860) от 09.03.2017
-
-Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушайте хорошую музыку! Музыка способна оживить поникшие растения. Если рядом с увядающим цветком поставить колонки и включить легкую музыку, то он на глазах оживет, наполнится красками и может даже склониться к источнику музыки.
-Музыка предотвращает потерю слуха. Эксперимент показал, что музыканты слышат лучше, чем  те люди, которые никогда не увлекались музыкой. (   Читать дальше...   )01. Rag'n'Bone Man - Human (Official Video)  (3:18)
-02. The Weeknd - Starboy (official) ft. Daft Punk  (4:33)
-03. Feder feat. Alex Aiono - Lordly (Official Video)  (3:14)
-04. Ed Sheeran - Shape of You (Official Video)  (4:23)(   Читать дальше...   )Производство: Different countriesЖанр: Музыкальные клипыРежиссер: Europa PlusАктеры: Rag'n'Bone Man, The Weeknd, Feder feat. Alex Aiono, Ed Sheeran, Alok, Bruno Martini feat. Zeeba etcСубтитры: отсутствуютПродолжительность: 02:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFECF279058125DFF9085CB6619ADC0A6871869A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379380   (840685) от 28.04.2020
-
-Вика Старикова - Три желания (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип Виктории Стариковой — «Три желания».
-Русская версия небезызвестной детской песенки — «Лягушка и три желания»
-Автор – Фрэнсис Лемарк (Francis Lemarque).
-Русский текст - Самюил Болотин.Производство: Serghey Grey ProductionЖанр: ПопРежиссер: Serghey GreyАктеры: Виктория СтариковаПродолжительность: 00:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BFC578AB563C01F17C5B505BD37D83A63D06E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

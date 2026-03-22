@@ -1,3 +1,32 @@
+###  Публикация: 1784435   (24985) от 11.03.2025
+
+VA - ZYX Italo Disco Collection (The Memory Label) (2002) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyber People - Polaris (Club Mix)
+02. Ken Laszlo - Hey Hey Guy (US Remix)
+03. Brian Ice - Tokyo (DJ Version)
+04. Hypnosis - Droid (Automatic Piano)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, DiscoПродолжительность: 03:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75ECDB8F1DE2B26E7133E7F8DBB01EBA154D44BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784726   (24890) от 12.03.2025
 
 Maxi Talo - Emotions (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>

@@ -1,3 +1,32 @@
+###  Публикация: 1342040   (225394) от 01.12.2019
+
+Margaret Singana - Tribal Fence (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Afrobeat, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Rhythm (3:26)
+02. Why Did You Do It? (3:25)
+03. It's A Man's World (2:52)
+04. Have You Ever Seen The Rain (2:42)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Afrobeat, DiscoПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AE32EB31A19C31C4534330F620C2D1BBC78FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268739   (224861) от 12.12.2018
 
 Spargo - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -719,35 +748,6 @@ Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0504CB6AABC0C3E6DDC292053F8FEC38CA974190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588383   (191643) от 04.11.2022
-
-Blue System - Forever Blue (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laila
-02. I Wanna Smile
-03. Baby Jealousy
-04. Taxi Girl(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDF11845316BA09C1EB12289EFCC67BE042C227
 ```
 
 https://mybot314.ru/tekegram_catalog/

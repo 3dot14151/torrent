@@ -1,3 +1,32 @@
+###  Публикация: 1322862   (444698) от 31.08.2019
+
+Peter Richard - Frozen Red (1983) [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For You, For Only You (4:31)
+02. Walking In The Neon (6:46)
+03. Marlene (4:30)
+04. Fly Away (4:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DFA8C26C51584B886D6F3A7064D88330F34FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164068   (444108) от 08.09.2017
 
 A Taste Of Honey - 4 Albums (1978-1982) Reissue CD [MP3|320 Kbps] <Funk, Soul, Disco>
@@ -721,35 +750,6 @@ VA - New Italo Disco Top 25 Compilation Vol. 14 (2020) [MP3|320 Kbps] <Italo-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89B83BA866999D7511B05C3A38949D6630DFD150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251463   (417848) от 01.10.2018
-
-London Boys - The Twelve Commanments Of Dance (1989) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem (4:20)
-02. Kimbaley (My Ma-Mama Say) (4:18)
-03. Harlem Desire (3:49)
-04. Chinese Radio (3:50)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E156CE0EAF1999DFA3F499A11008B2C8562C86
 ```
 
 https://mybot314.ru/tekegram_catalog/

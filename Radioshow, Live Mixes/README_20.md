@@ -1,3 +1,90 @@
+###  Публикация: 1679102   (134963) от 27.11.2023
+
+VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LSR/CITY ft. Annabel - House In The Streetlight (Tune Of The Week)
+02. UUFO & Ava Silver - Young Hearts
+03. David Broaders - Undertow (Progressive Pick)
+04. Armin van Buuren ft. Trevor Guthrie - This Is What It Feels Like (Armin van Buuren 2023 Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D53110A0DC2C8BD0BA37D762F0163A2A1B6789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679014   (134955) от 27.11.2023
+
+Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-11-03) [MP3|320 Kbps] <Progressive House, House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 01:03:04
+01. Kashovski - Code K
+02. ID - ID
+03. ID - ID(   Читать дальше...   )Жанр: Progressive House, House, Tech HouseПродолжительность: 02:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E8D5A7B0D42074D99DB73D11E6E18ED01BD1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679427   (134281) от 29.11.2023
+
+Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023-10-19) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Let You Down (Nifra Remix)
+02. Nifra & Leo Reyes - Humanoids
+03. Tiësto ft. BT - Love Comes Again (Nifra 2023 Remix)
+04. Hardwell - GODD(   Читать дальше...   )Жанр: TranceПродолжительность: 00:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D4B5E712ABDC26F0B43EC651BF6B8E8A99DB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681129   (133139) от 02.12.2023
 
 Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search Of Sunrise 19 Release Special (2023-11-30) [MP3|320 Kbps] <Progressive House, Trance, Techno>
@@ -654,91 +741,6 @@ VA - Armin van Buuren - A State Of Trance 1154 (2024) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A167BB9887651A7F03AF0C5AD4F269EDC0B7D308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690091   (124164) от 05.01.2024
-
-Markus Schulz - Global DJ Broadcast New Year's Rehab (2024-01-04) [MP3|320 Kbps] <Melodic House, Indie Dance, Nu Disco>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BadWolf & Soff - After Todo
-02. Purple Disco Machine - Bad Company (Instrumental Mix)
-03. Röyksopp featuring Susanne Sundfør - Stay Awhile
-04. Kendal - Come to Me(   Читать дальше...   )Жанр: Melodic House, Indie Dance, Nu DiscoПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550E7C0309C4EF9E9C526C3B03F9809FB55F5DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690950   (123649) от 09.01.2024
-
-Corey James - Axtone House Party (2024-01-08) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrefakt - Nano
-02. Corey James & Dice Of Nights - Sisco
-03. Corey James & HIISAK ft. Roland Clark - The Underground (House of God) (Steve Angello Edit)
-04. 96 Vibe - Go Down(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BFB3DA1CD0A3A5A8C16586C8414FCD848A05CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691496   (123088) от 13.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1155 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omnia - Feeling
-02. The Hidd3ns & Michael Ra - TakhatumЖанр: Trance, Progressive, ElectronicПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5F7F590963593FC8A1E49D9692A6DCC6BC2435
 ```
 
 https://mybot314.ru/tekegram_catalog/

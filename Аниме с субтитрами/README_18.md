@@ -1,3 +1,31 @@
+###  Публикация: 1357998   (970555) от 06.02.2020
+
+Kandagawa Jet Girls: Tokyo Girls Take a Shot at Promotions | Кандагава: Девушки на гидроциклах OVA [2020, OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая история о том, как героини сериала снимали рекламный ролик о своём любимом виде спорта.
+
+Бонусный диск от игры "Kandagawa Jet Girls' DX Jet Pack" для PS4.Жанр: эччи, комедияПеревод: TiredGirlЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4899645A123B9E50C4E9E02C6D72BA981FC445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 618086   (970545) от 13.02.2013
 
 Tatakae! Iczer-1 / Bouken! Iczer 3 / Sen-shoujo Iczelion [1985,1990,1995, OVA] DVDRip raw
@@ -648,32 +676,6 @@ Shijou Saikyou no Deshi Kenichi OVA / Kenichi: The Mightiest Disciple OVA / Си
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97168B7149BF0DD03B306221BBE950FE46FAD46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280718   (950176) от 10.01.2011
-
-Kyoushoku Soukou Guyver / Guyver: The Bioboosted Armor / Гайвер [ТВ] [2005, TV, 26 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: приключения, фантастикаРежиссер: Акияма КацухитоСубтитры: РусскийПродолжительность: (26 эп.), 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1C877844823C8F3476A585BD4833F30DA7D973
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 552457   (448155) от 26.09.2012
+
+Heart Of A Coward - Hope And Hindrance (2012) [MP3|320 кб/с]<Progressive Metalcore / Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Fields
+02. All Eyes To The Sky
+03. Around A Girl (In 80 Days)
+04. We Stand As One
+05. Light
+06. Shade
+07. Nightmare
+08. Hope And Hindrance
+09. And Only Time Will Tell
+10. Break These ChainsЖанр: Progressive Metalcore / Math MetalПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D93347368CB102ECE73B9342FC4EAB7E5E3E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409148   (447588) от 16.09.2020
+
+Ensepulchre - Desolation (2020) [MP3|320 Kbps] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prolegomenon [00:00:50]
+02. The Mountain [00:04:37]
+03. Anthropogenesis [00:05:03]
+04. Transcend [00:05:16](   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FE92C8EE79C046F82A6852CBC3487467093C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409184   (447586) от 16.09.2020
+
+Heat Affected Zone - Limbo Bar (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Something In (00:02:23)
+02 - Mad Town (00:05:40)
+03 - Empty Cup (00:03:43)
+04 - Thoughtless One (00:03:22)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07021EEF998AD2C450D04E8DD50782A9242DB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409353   (447489) от 16.09.2020
+
+Raven - Metal City (2020) [MP3|320 Kbps] <Speed, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power (03:54)
+ 02. Top of the Mountain (03:36)
+ 03. Human Race (04:00)
+ 04. Metal City (03:28)(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAF1CD61DD2232E13447A373729CEA4F1784103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409388   (447368) от 16.09.2020
 
 Finntroll - Vredesvävd (2020) [MP3|320 Kbps] <Blackened Folk Metal>
@@ -632,122 +754,6 @@ Amon Amarth - The Great Heathen Army (2022) [MP3|320 kbps] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C54321CF126C95DFF898E072E248F75142934133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945310   (433934) от 10.10.2015
-
-Vreid - Solverv (2015) [MP3|320 кб/с]<Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433934.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Haust
-2. Sólverv
-3. Geitaskadl
-4. Ætti Sitt Fjedl(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E833BD5DAEF7079CBF0E0678AF1E2DF6A6187563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571351   (433848) от 21.08.2022
-
-Arch Enemy - Deceivers (2022) [MP3|320 kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handshake with Hell (05:38)
-02. Deceiver, Deceiver (03:51)
-03. In the Eye of the Storm (04:09)
-04. The Watcher (04:58)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2997F2101E3A00F2B75BD44B0C41376950549152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410778   (431989) от 23.09.2020
-
-Vous Autres - Sel de Pierre (2020) [MP3|320 Kbps] <Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onde [00:09:14]
-02. Vesuve [00:07:20]
-03. Ecueil [00:05:17]
-04. Sans Sèves [00:04:13](   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A0A8FB7A55D696F9661F0DD444F31AF03B6C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410766   (431930) от 23.09.2020
-
-Corrupt-R - Awakening (2020) [MP3|320 Kbps] <Modern Metal, Djent Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Vivification [00:04:45]
-02 -  Cognizance [00:02:53]
-03 -  Terminus Attempt (feat. Andromida) [00:05:00]
-04 -  The Culmination of All Things [00:03:45](   Читать дальше...   )Жанр: Modern Metal, Djent InstrumentalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952132ACA3B73256FC2732C2BF1C85A7B30D1D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

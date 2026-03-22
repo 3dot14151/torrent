@@ -1,31 +1,31 @@
-###  Публикация: 475303   (98069) от 30.03.2012
+###  Публикация: 477397   (98570) от 04.04.2012
 
-VA - Дискотека Русские Звезды (2012) [MP3|128 kbps]<Pop>
+Black Messiah - The Final Journey (2012) [FLAC|Lossless]<Symphonic Black, Folk, Viking Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98069.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Юрий Шатунов - Это Лето
-002. Reflex - Первый Раз 2012
-003. DJ Грув & Гарик DMCB - Я Не Знаю Кто Мы
-004. Alyosha (Aлешa) & Влад Дарвин - Больше Чем Любовь
-005. Алисия & Master Spensor - Почему
-006. Лиза Лукашина feat. LikbeZ - Олимпиада 2014
-007. Hi-Fi - Не Покидай
-008. Николай Басков - Странник
-009. Couple - Дым
-010. София Ротару - Мы Будем Вместе(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:55:56
+01.Windloni 	(05:10)
+02.Der Ring Mit Dem Kreuz 	(08:35)
+03.To Become a Man 	(06:10)
+04.Into the Unfathomed Tower (A Tribute to Candlemass) 	(03:18)
+05.Feld Der Ehre 	(04:29)
+06.Lindisfarne 	(05:00)
+07.The Naglfar Saga : Prologue - The Final Journey 	(03:47)
+08.The Naglfar Saga : Mother Hel 	(05:43)
+09. The Naglfar Saga : On Board 	(06:43)
+10.The Naglfar Saga : Sailing Into Eternity 	(06:28)Жанр: Symphonic Black, Folk, Viking MetalПродолжительность: 00:55:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:885D505FAC580E02DB542CEA9EDDA405B3F47195
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,29 +33,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475463   (98061) от 30.03.2012
+###  Публикация: 478268   (98569) от 04.04.2012
 
-[Wallpapers] Nature HD Wallpapers Pack 7
+[Wallpapers] Girls Desktop Wallpapers №1
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98061.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature HD Wallpapers Pack 7 
-Название:  Nature HD Wallpapers Pack 7 
+[Wallpapers] Girls Desktop Wallpapers №1
+Название: Girls Desktop Wallpapers №1
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 7800х5658
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Разрешение файлов: 1280х1024 - 3504х2336
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4823FDA1FAFDF95A263606DCEBB68B1FC1AC98C
+magnet:?xt=urn:btih:9C9B07270416532C99100877C637AB5855E3E6C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -63,25 +63,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475504   (98059) от 30.03.2012
+###  Публикация: 478245   (98562) от 04.04.2012
 
-Родители / Parenthood (1989) DVD5
+[Wallpapers] Desktop Wallpapers №1
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98059.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Быть главой большой семьи — задача не из легких. Тем более, если ты, как любой уважающий себя родитель, хочешь, чтобы твои дети выросли приличными людьми. Вот Гилу Бакмену и приходится «крутиться», чтобы делать успешную карьеру, и одновременно быть любящим мужем и заботливым отцом.Жанр: КомедияРежиссер: Рон ХовардАктеры: Стив Мартин, Рик Моранис, Киану Ривз, Мэри Стинберджен,Том Халс, Джейсон Робардс-Младший, Дайэн УистПеревод: Одноголосый закадровый (А. Михалев)Язык субтитров: английские, испанскиеПродолжительность: 02:04:00
+[Wallpapers] Desktop Wallpapers №1
+Название: Desktop Wallpapers №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4DE679129D4BDAFFF7FE74C7E10E19B0A1355AAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -89,28 +93,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472953   (98050) от 30.03.2012
+###  Публикация: 477823   (98560) от 04.04.2012
 
-Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
+VA - 538 Hitzone 58 2CD (2011) [MP3|320 кб/с]<Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98050.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unisonic (03:22)
-02. My Sanctuary (04:13)
-03. Souls Alive (Demo Version) (05:11)
-04. I Want Out (Live Version) (05:32)Жанр: Power MetalПродолжительность: 00:18:25
+CD1. Время звучания 01:18:10
+-----------------------------
+01.Coldplay - Every Teardrop Is A Waterfall.mp3audio9.17 MB.mp3
+02.Sak Noel - Loca People.mp3audio8.20 MB.mp3
+03.Adele - Someone Like You.mp3audio10.98 MB.mp3
+04.Pitbull Ft. Neyo, Nayer & Afrojack - Give Me Everything Tonight (Radio Edit).mp3audio9.28 MB.mp3
+05.Racoon - No Mercy.mp3audio6.33 MB.mp3
+06.Caro Emerald - Riviera Life.mp3audio8.00 MB.mp3
+07.Blof - Hou Vol Hou Vast.mp3
+08.Anouk - Down and Dirty.mp3audio7.33 MB.mp3(   Читать дальше...   )2011Жанр: DanceПродолжительность: 02:41:48
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A8F7BDFE2C4F5736D8A7BDF3461493236755534E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -118,25 +128,149 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475545   (98049) от 30.03.2012
+###  Публикация: 477931   (98554) от 04.04.2012
 
-Журнал | Загородная резиденция №1 [2012 февраль-март] [PDF]
+War Master - Pyramid Of The Necropolis (2011) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mass Cremation 05:23
+ 02. Into the Abysmal Fire 04:10
+ 03. Cult of Greed 04:12Жанр: DeathПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4B6CC517C9B0E4504E8769609F1148F4830FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477705   (98552) от 04.04.2012
+
+VA - Off Said (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time In Motion & Flexus - Lakrids 08:53
+02. Omsphere vs Snow - Bambino Nuovo 07:51
+03. Hi Profile - Ro-Bo-Tix 06:50
+04. SattelLight - Biometric Data 06:45
+05. Interactive Noise And Fabio And Moon - Coming Home Late 07:23
+06. Querox - Rest In Peace (Odd Sequence remix) 08:15
+07. Twelve Sessions - Earth Dance 08:42
+08. Ananda Shake - Heart Beat 08:09
+09. Erotic Dream - Big Red Bus 07:07
+10. Slow Control - Strong Poison 07:05(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76834096879A3A8DA911CA704FB8976C95D04CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477483   (98548) от 04.04.2012
+
+Ankhagram - Where Are You Now (2010) [MP3|320 кб/с]<Dark Funeral Doom / Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Life's Ocean 11:00
+ 2. The Mistress 10:53
+ 3. Trees of Feeling 10:27
+ 4. Shade You 09:08
+ 5. K.O.D 09:04
+ 6. Kids (MGMT cover) 06:422010Жанр: Dark Funeral Doom / DeathПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038C5D1A90EECED4A17B12BD817E214A9A873B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478275   (98539) от 04.04.2012
+
+[Wallpapers] Green Wallpapers 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98539.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Green Wallpapers 3
+Название: Green Wallpapers 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C64B81A887E4A90B05327043DD74993C4C3053C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477877   (98538) от 04.04.2012
+
+Журнал | Просто. Вкусно № 3 [март 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98049.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Загородная резиденция - журнал о ценностях загородной жизни, будет интересен тем, кто живет в частном доме или только собирается его себе приобрести. В каждом номере советы от ведущих специалистом, обзор рынка, примеры удачных проектов.2012 февраль-мартФормат: PDF
+Журнал для тех, кто любит вкусно готовить. «ПРОСТО. ВКУСНО» создает особенное настроение: кухня превращается в гастрономическую лабораторию, где происходят удивительные открытия. «ПРОСТО. ВКУСНО» — это кулинарный журнал, который помогает повысить качество жизни простыми и доступными способами.март 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAEAB4C48655FC6A67BFBECDABCB24C4D3D7DFCB
+magnet:?xt=urn:btih:3DECC99E074758277BEF3E5EFC8318C5BAE9CC7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -144,34 +278,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475313   (98048) от 30.03.2012
+###  Публикация: 477831   (98537) от 04.04.2012
 
-VA - Горячий Автохит (2012) [MP3|256 kbps]<Club | Dance>
+ChipaChip - Постоянство (2012) [MP3|320 кб/с]<Rap>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98048.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
-02. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
-03. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)
-04. Dj Tatiana Feat. Topsax - Love Drop (Sax Version The Original Mix)
-05. Dj Winn Feat. Freeman Drilla - All About You (Radio Edit)
-06. John Dubs Dj Kenny - Life Arel (Radio Edit)
-07. Sarah West - Black Blue
-08. Nadia Oh - Fqn Amazing
-09. T.I. Feat. Meek Mill - Who What When
-10. Alex Sergius Feat. Роман Гвоздев - Дежавю(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:26
+01. Из города с улицей Лизюкова
+02. Про растения (ft. PlaZo)
+03. Где-то вдали
+04. Очередь вникуда (ft. Sandz)
+05. Дай мне драпа
+06. Это уже где-то было (Скит)
+07. Сентябрь (ft. Серёжа Внатуре, Филя Файя, parachute)
+08. Постоянство
+09. Заморочки (ft. Артём Татищевский, Ворошиловский андеграунд)
+10. Пути назад нет (Скит)(   Читать дальше...   )2012Жанр: RapПродолжительность: 01:01:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
+magnet:?xt=urn:btih:AA592F2771A11B2AF1B082ADC0D7C954E58DCDCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -179,21 +313,126 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475538   (98047) от 30.03.2012
+###  Публикация: 477456   (98534) от 04.04.2012
 
-Mozilla SeaMonkey 2.9 Beta 2 [Русский]
+Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tears Of Horizon (Breaking Dawn Mix) (02:23)
+02.The Rising Of a New Day (Original Mix) (09:07)
+03.Water (Original Mix) (05:13)
+04.Norther Lights (Extended Mix) (06:06)
+05.Falling Stars 9.0 (Radio Edit) (03:52)
+06.Nature 2.0 (Extended Mix) (09:04)
+07.No Silence (DNA Revolutions Remix) (08:28)
+08.When The Rain Falls (Original Mix) (03:52)
+09.The Beauty Of Life (Extended Mix) (09:28)
+10.Beach Breeze (Original Mix) (03:59)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7F934A86F61CED6E7986E701419837A3726C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477690   (98531) от 04.04.2012
+
+Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98531.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vid Elden (01:38)
+2. Ripeluokte (06:24)
+3. Himlalågor (07:40)
+4. Tjåkkå (04:22)
+5. Stállo (06:03)
+6. Ripeluokte II (08:50)
+7. Nordafejd (05:41)
+8. På Fjället (04:22)
+
+"...Lönndom seems to be situated elsewhere, in its own still lively world, listening to inner and outer voices most of the civilized people in the Western societies might never hear, even when they made a trip into the outback - these two musicians have a truly individual and sensitive approach towards nature and spiritual matters..."(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A675062C8B45827EF5121DDB8FE5DF22F42E8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478138   (98529) от 04.04.2012
+
+VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Rocca - Time Happens Flying (Araya & Wach 'Polisia' Remix) 07:20
+02. Araya & Wach - Tunland (Aiera Remix) 07:11
+03. Miroslav Vrlik - Love In Us (Manuel Rocca Levitated Mix) 07:04
+04. Miroslav Vrlik - Sweetheart (Original Mix) 06:43
+05. Ahmed Romel - City Of Life (Running Man Remix) 08:46
+06. Ico - And She Made It All Of Light (Thomas G 303 Mix) 07:58
+07. Evo & Faveon - Essence (Denis Sender Remix) 07:01
+08. K-Narf & Tristan Armes - Glimmer (N&R Project Remix) 07:57
+09. Kaimo Kerge - For What Its Worth (Airway 7 Vs Alter Future Remix) 07:53
+10. Inca - Time (Original Mix) 08:362012Жанр: TranceПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489BABA50135FB59CD2814ACC6E1F3A42DE421BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477492   (98525) от 03.04.2012
+
+Sumatra PDF 2.0 Final + Portable [Мульти, есть русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98047.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
+Sumatra PDF — это программа для просмотра файлов в формате PDF с минималистическим интерфейсом и только самыми необходимыми функциями. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Название программы: Sumatra PDFЯзык интерфейса: Мульти, есть русский
 
 ## Скачать торент
 ```bash
@@ -205,317 +444,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475492   (98043) от 30.03.2012
+###  Публикация: 477438   (98522) от 03.04.2012
 
-VA - Самый, Самый! Русский (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера Брежнева - Sexy Bambina
-02. Шахзода - Нереально без тебя
-03. DIK - Вселенная
-04. Тамерлан и Алена Омаргалиева - Hey Yo
-05. Митя Фомин - Садовник (Radio Edit)
-06. Алисия & Влад Корса - Здесь и сейчас
-07. Ирина Ортман - Медленно
-08. Шиншиллы - Пушкин Саша
-09. Ажур - Город
-10. Марта - Из тысячи лиц(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF93365B1D159B2CAFC6813960642C857068B2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475026   (98039) от 30.03.2012
-
-Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunny (9:01)
-02. Up In Betty's Room (6:42)
-03. Pistaccio (4:44)
-04. Smul's Paradise (8:27)
-05. Little Miss Halfsteps (4:53)
-06. Aires (8:15)
-07. Blues for DP (6:36)
-08. Heavenly Hours (4:02)2012Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475549   (98034) от 30.03.2012
-
-Журнал | Жилая среда №3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Жилая среда» представляет на своих страницах самые интересные реализованные интерьеры архитекторов и дизайнеров Санкт-Петербурга. Помогает читателю разобраться в многообразии стилей и направлений, рассказывает о тенденциях в интерьерном дизайне, о новинках мировых и отечественных брендов, являясь эффективным навигатором, позволяющим ориентироваться в многообразии (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3CBB267539E52B4E0CFDD82173918874BCA381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475040   (98032) от 30.03.2012
-
-Monster Mike Welch - Axe To Grind (1997) [FLAC|Lossless]<Modern Electric Blues, Blues-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Did She Say (3:31)
-02. Palm of Her Hand (3:07)
-03. Axe to Grind (4:59)
-04. The Elkmont Stomp (2:37)
-05. Every Time You Lie (3:11)
-06. Afraid of My Own Tears (2:54)
-07. Take Your Best Shot (4:30)
-08. She Couldn't Know (3:16)
-09. Time Stands Still (3:14)
-10. That's My Sin (4:34)(   Читать дальше...   )1997Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475347   (98025) от 30.03.2012
-
-VA - 538 Hitzone 59 2CD (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98025.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Время звучания 01:08:02
----------------------------------
-01 - Lucenzo ft. Don Omar - Danza Kuduro
-02 - Maroon 5 ft. Christina Aquilera - Moves Like Jagger
-03 - Katy Perry - Last Friday Night
-04 - James Morrison - Slave To The Music
-05 - Snow Patrol - Called Out In The Dark
-06 - Alexis Jordan - Hush Hush
-07 - Krystl - Fool For You
-08 - Onerepublic - Good Life(   Читать дальше...   )2011Жанр: DanceПродолжительность: 02:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB832AB57CFDAF07201FA38FB5372EF58ABC523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474104   (98024) от 30.03.2012
-
-VA - Клубные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Mantzur - Epics (David Granha Remix)
-02. DJ Yellow, Yota - I Can't Resist You (DJ Yellow's Sleep No More Drum Edit)
-03. Alexander Popov - When The Sun (Eximinds Remix)
-04. Daniele Sorrenti - A Bailar (DJ Chick Remix)
-05. Beat Service feat. Gemma Pavlovic - Masquerade (Sunn Jellie Remix)
-06. Arkadi & William Daniel - Skypark (Original Mix)
-07. D&S - Tomato (Original Mix)
-08. Max Graham feat. Susana - Down To Nothing (Original Mix)
-09. Masaya (CH) - Again (Nhar Remix)
-10. Madonna - Girl Gone Wild (Offer Nissim Club Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF7DD5EBF539A713BCEE88D3850E045157C62C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475029   (98021) от 29.03.2012
-
-Опасная банда / De Bende van Oss / The Gangs of OSS (2011) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йоханна хочет порвать с преступным прошлым, которое ее окружает. Но когда ее муж освобождается из тюрьмы, все возвращается на круги своя. Йоханне все труднее и труднее уйти от зверств, совершаемых бандой Oss, и чем дальше, тем глубже она погружается в обман, проституцию и убийства.Жанр: Драма, криминалРежиссер: Андре ван ДаренАктеры: Матиас Скунартс, Сильвия Хукс, Джульетт Ван Арденн, Дан Шурманс, Пьер Бокма, Беня Бружнинг, Дэннис Оверем, Фрэнк ЛаммерсПеревод: Одноголосый закадровый (любительский)Продолжительность: 01:51:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474934   (98017) от 29.03.2012
-
-VA - Magic of Instrumental music (2012) [MP3|256 kbps]<Instrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.Taylor - Ima Wa Shiwasekai
-02. N.Mouskuri - Recuerdes De La Alhambra
-03. R.Coniff - Those Were The Days
-04. E.Simoni - Pan Serenade
-05. B.Stenberg - Allegretto
-06. The Ventures - Mexico
-07. E.Schimseheimer - Bamboleo
-08. F.Duval - Kalinas Melodie
-09. S.Preux - Phytandros
-10. Aimable - La Moskova(   Читать дальше...   )2012Жанр: InstrumentalПродолжительность: 05:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B25DDB69680F107623791E3B5429B43872EFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474829   (98014) от 29.03.2012
-
-Александр Сивинских | Проходящий сквозь стены (2 Книги) [2004,2010] [FB2, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проходящий сквозь стены
-Перед Россией открылась дверь в мир высокотехнологического будущего: именно здесь будет производиться новейший суперпроцессор. Однако никому не известно, что за корпорация намерена вложить миллиарды в проект, а главное, каково его истинное назначение. Детективу Павлу Дезире поставлена задача: приоткрыть хотя бы краешек тайны. Задание может показаться невыполнимым, но только не для Павла. Ведь он — комбинатор, человек, способный проникать сквозь любые стены. Да и помощник у него подходящий — мелкий пронырливый бес. В прямом смысле слова.
-Тайные общества и мифические чудовища, безжалостные опричники и прекрасные весталки, оборотни на службе китайской разведки и байкеры с неустойчивой психикой на службе у собственных комплексов — вот лишь малая часть элементов головоломки, которую предстоит сложить напарникам. И не ясно, обрадует ли их полученная картина. Может статься, она спасёт земную цивилизацию. А возможно — подтолкнёт к гибели.2004, 2010Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0051DAB79291B63494F5388657F01DEE01B22560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474771   (98012) от 29.03.2012
-
-[Wallpapers] Black Girls Desktop Wallpapers Pack 31
+[Wallpapers] Easter  Desktop Wallpapers
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98012.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Black Girls Desktop Wallpapers Pack 31 
-Название:  Black Girls Desktop Wallpapers Pack 31 
+[Wallpapers] Easter  Desktop Wallpapers 
+Название:  Easter  Desktop Wallpapers 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 4368х2912
+Разрешение файлов: 1920х1080 - 2560х1600
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9A5420A6A7D888FB3FBAABAB9A49053AE0004E8
+magnet:?xt=urn:btih:910CD88D6CF66204D97D83B01D6C73CBC5A4770F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,29 +474,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474777   (98003) от 29.03.2012
+###  Публикация: 477327   (98520) от 03.04.2012
 
-[Wallpapers] Black Girls Desktop Wallpapers Pack 32
+[Wallpapers] Retro AVTO Collection
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98003.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Black Girls Desktop Wallpapers Pack 32 
-Название:  Black Girls Desktop Wallpapers Pack 32 
+[Wallpapers] Retro AVTO Collection 
+Название:  Full Retro AVTO Collection 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1440 
+Разрешение файлов: 1920х1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49387731DB333996F4983EB6BE2313D8D49BF044
+magnet:?xt=urn:btih:DC55A726118716AA2C3E73A152EA068B8303990F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,125 +504,145 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475235   (97999) от 29.03.2012
+###  Публикация: 477342   (98515) от 03.04.2012
 
-Журнал | Тайны ХХ века. Загадки истории №4 [2012 апрель] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97999.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» - теперь отдельный ежемесячный журнал! Он расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!2012 апрельФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A7248D1D52F5E75A653F0385ABA4727E4143D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474947   (97991) от 29.03.2012
-
-Гастон Леру | Тайна желтой комнаты [2009] [MP3], Евгений Терновский
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман
-Серия: Необычайные приключения Жозефа Рультабия
-Оригинальное название:Жанр: ДетективИздательство: Нигде не купишь
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965A1FE7B533AF1BF059F85470A2DE6C5F84A99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475018   (97989) от 29.03.2012
-
-Ход королевой / Knight Moves (1992) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время международного шахматного турнира, проводившегося на небольшом острове, кто-то убивает молодых женщин. Подозреваемым становится лидер турнира Питер Сэндерсон. Полиция пытается решить задачу не менее сложную, чем разыгрываемые партии. А убийца тем временем дразнит Сэндерсона, подсовывая с каждой жертвой загадки, которые чемпион должен расшифровать. Удастся ли гроссмейстеру предугадать ходы в этой партии? Ведь каждый неверный ход ведет к новому убийству.Жанр: Триллер, ДетективРежиссер: Карл ШенкельАктеры: Кристофер Ламберт, Дайан Лэйн, Том Скерритт, Дэниэл Болдуин, Коди Лукас Уилби, Джош Мюррэй, Фрэнк Ч. Тернер, Дон Томпсон, Меган Лейтч, Алекс Дьякун, Ферди Мэйн, Кэтрин Изабель, Марк Уилсон, Блу Манкума, Моника Марко, Уолтер Марш, Артур Браусс, Сьюзи Карби, Сэм Малкин, Элизабет Болдуин, Дуайт МакФи, Пэт Бермел, Элизабет Барклай, Ребекка Тулан, Ондреа Макдональд, Фреда Перри, Холли Честер, Мэрилин Норри, Донна Ямамото, Том Хитон, Рэйчел Хейярд, Кимберли Шеппард, Дерил ХэйесПеревод: ДублированныйПродолжительность: 01:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D32C0BA3D2549E3B322B5A9CF77ABA82DFC67CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474867   (97988) от 29.03.2012
-
-[Wallpapers] Anime Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97988.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Anime Desktop Wallpapers Pack 4 
-Название:  Anime Desktop Wallpapers Pack 4 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 6556х3782
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB1D49F8E4BA3A9A7BC45B8F552C67FD620F90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475231   (97986) от 29.03.2012
-
-[Wallpapers] Sexy Girls Pack (30.03.12)
+[Wallpapers] Desktop Wallpapers Pack 35
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97986.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98515.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 35 
+Название:  Desktop Wallpapers Pack 35 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 5000х3000
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477411   (98514) от 03.04.2012
+
+[Wallpapers] Spring Desktop Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98514.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Spring Desktop Wallpapers 
+Название:  Spring Desktop Wallpapers 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 4152х2757
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477525   (98509) от 03.04.2012
+
+VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Adele - Set Fire To The Rain (The Perez Brothers Remix)
+02 Alexandra Burke feat. Erick Morillo - Elephant (Wideboys Club Mix)
+03 Alex M.O.R.P.H. feat. Sylvia Tousun vs. Gaia - An Angels Tuvan (Coleman Hamilton 'Stryker Memorial' Mashup)
+04 Armin Van Buuren - Orbion (Max Graham, Protoculture Remix)
+05 Betsie Larkin & Sied Van Riel - The Offering (Extended Mix)
+06 Betsie Larkin & Sied Van Riel - The Offering (Save The Robot Remix)
+07 Courtney Argue & J.Greene feat. Pitbull - Make It Rain (RLS & 2Frenchguys Extended Remix)
+08 Daddy's Groove & Little Nancy - It's Not Right, But It's Okay (Extended Mix)
+09 Damon Paul Feat Patricia Banks - Without You (Sven & Olav Mix)
+10 Deep Voices feat. Alexander K.G. Klaus - Because The Rain (Space RockerZ Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 5:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477001   (98508) от 03.04.2012
+
+Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic Death,with Middle Eastern influences>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Last Breath 05:36
+02. What Remains 03:45
+03. Voices From Within 05:28
+04. Fading 03:49
+05. A Soft Whisper 04:14
+06. Reveal My Path 03:41
+07. Escaping the Mind-Grid 06:03
+08. Obscure 03:24
+09. Theom 01:22
+10. Consistent Duality 05:22(   Читать дальше...   )Жанр: Gothic Metal,Melodic Death,with Middle Eastern influencesПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477660   (98504) от 03.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (04.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98504.jpg" />
 </div>
 
 
@@ -681,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3D9072122A94839AE60D30FA246A41A42AE77FC
+magnet:?xt=urn:btih:854AD789E2035878F2D2C41AF4129E8C81A345C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +660,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474813   (97983) от 29.03.2012
+###  Публикация: 477623   (98503) от 03.04.2012
 
-Mozilla Thunderbird 11.0.1 Final + Portable 11.0.1 [Русский]
+VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97983.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Thunderbird - позволяет многократно увеличить эффективность Вашей работы с электронной почтой, а полноценная совместимость с другими почтовыми клиентами позволяет этой программе по праву считаться незаменимой на компьютере любого профессионала. Имеется почтовая книга, поддержка нескольких аккаунтов и т.д Что касается изменений, затронувших эту версию популярной программы, то сообщается об исправлении ряда ошибок, содержавшихся в предыдущей версии почтового клиента (в том числе и способные привести к переполнению буфера).Этот почтовый клиент распространяется абсолютно бесплатно.Название программы: Mozilla Thunderbird 11.0.1 Final + PortableЯзык интерфейса: Русский
+01 Contraband - Rocknrolla (Original Mix)
+02 Azari & Iii - Reckless (With Your Love)
+03 Bara Brost - Madame Mila
+04 Blue Foundation - Bonfires (Dubstep)
+05 Boris Brejcha - My Love
+06 Duck Sauce - Big Bad Wolf
+07 Maceo Plex - Ain't That Love
+08 Spektre - Get Together (Original Mix)
+09 Whitenoize - The Underground (Tjr Remix)
+10 Ticon - The Programmer (Spektre Remix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 10:27:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,25 +695,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475132   (97981) от 29.03.2012
+###  Публикация: 476231   (98501) от 03.04.2012
 
-Захват / Угон / Carjacked (2011) [1080p] Blu-ray
+VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Techno, Dubstep, Drum&bass, Electronic>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97981.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодую женщину с ребёнком в её же собственной машине берёт в заложницы грабитель банка.Жанр: триллерРежиссер: Джон БонитоВ ролях: Мария Белло, Стивен Дорфф, Джоанна Кэссиди, Катрин Дент, Гэри Граббс, Кристен Керр, Тим Гриффин, Дэвид Дженсен, Молли МакКуин, Анджелл БруксПеревод: многоголосый закадровыйПродолжительность: 01:29:26
+01. Marcel Woods - Champagne Dreams ( Original Mix )
+02. David Forbes - Safety ( Original Mix )
+03. Toper & Andrian - Laziness ( Original Mix )
+04. Octane & DLR feat TST - Red Tape ( Original Mix )
+05. Cliff Coenraad - Modulate ( Original Mix )
+06. Pfirter - The Dub Track ( Len Faki Remix )
+07. Tommy Trash - Cascade ( Original Mix )
+08. Broken Note - War In The Making ( Original Mix )
+09. Schelmanoff - Roof Wanted ( Original Mix )
+10. Utopia - Scan Me ( Original Mix )(   Читать дальше...   )1997-2012Жанр: Progressive house, Electro, Techno, Dubstep, Drum&bass, ElectronicПродолжительность: 01:30:37
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:378AD882309B3DE5C8BF21E390989F44C591707E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -741,15 +730,50 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475234   (97980) от 29.03.2012
+###  Публикация: 477501   (98499) от 03.04.2012
 
-[Wallpapers] Sexy Women Wallpaper (30.03.12)
+VA - Весенняя танцевальная вечеринка (2012) [MP3|160-256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Аника Далински - От Заката До Рассвета (3:15)
+2. Шахзода - Нереально без тебя (DJ Kirill Clash radio remix) (3:27)
+3. Джиган (Geegun) feat. Жанна Фриске - Ты Рядом (3:27)
+4. Milena & Denis Murzin - До Утра (Filipp Aniskin Remix) (3:22)
+5. Leyla - Ночной DJ (3:45)
+6. Глюкоза - Кошка (3:23)
+7. Mixi - Между Мной И Тобой (Dj Andy Wait Remix) (4:02)
+8. Слава - Люди любят (3:11)
+9. Нимфа - Доминикана (3:30)
+10. Глюк`oza - Хочу мужчину (DFM mix) (3:15)2012Жанр: PopПродолжительность: 06:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6E3F346F64A5DBA6DF89EE3BAE5276AFEEAFFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477662   (98497) от 03.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (04.04.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97980.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98497.jpg" />
 </div>
 
 
@@ -759,7 +783,37 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A78DFDD898D41A98E74FDEFA9E22D58ADEE1A26
+magnet:?xt=urn:btih:EAA409F92BB64958BF4C5B35D19CC7B722D34821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477305   (98495) от 03.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 34
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98495.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 34 
+Название:  Desktop Wallpapers Pack 34 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1418х1065 - 4968х1572
+Расширение (тип) файлов: jpgСкриншоты::tongue:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
 ```
 
 https://mybot314.ru/tekegram_catalog/

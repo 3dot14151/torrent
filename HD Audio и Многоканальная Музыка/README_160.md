@@ -1,3 +1,322 @@
+###  Публикация: 1754032   (103746) от 08.10.2024
+
+Antonio Dayyani - Trop op (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wow, det er nat (3:45)
+02. Skiftevisen (3:52)
+03. Fyldt op (…pludselig af kærlighed) (6:07)
+04. Snefald på Lyravej (4:39)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A116BF752DC7753967C44A1A5AE9A144234138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754117   (103745) от 08.10.2024
+
+Bobbie Dazzle - Fandabidozi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightning Fantasy (4:29)
+02. Merry-Go-Round (4:36)
+03. Revolution (4:38)
+04. Magic of Music (3:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCB4E60B5A4A4FF2C44628059E570A7BE3A4E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754031   (103744) от 08.10.2024
+
+Agnes Darelid - RISE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stakes Are High (6:43)
+02. Liliana Zavala - Anten (5:51)
+03. If it Were All About Feelings (6:54)
+04. Bloom of November (5:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1658F3A522998DE5F7A460C339A433CC62DE7E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754120   (103743) от 08.10.2024
+
+Chris Killz and The Family - Mister Move On (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mister Move On (2:29)
+02. Are We Gonna Make It (5:09)
+03. Would You Believe Me (4:22)
+04. Give Me Time (2:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E796C3614F19A3C3DD9829090CD1A7A1FE15B848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754123   (103742) от 08.10.2024
+
+Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Knows (3:37)
+02. My Burning Flower (2:50)
+03. Light of Day (3:35)
+04. Double Vision (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B842C68CA65071136BEA3A4BB6BB5B248A4572E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754134   (103741) от 08.10.2024
+
+Krzysiek Ponieważ - The Devil, the Past and the Countryside: The Blues Collected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Was It the Devil? (2:49)
+02. Heavy Delta Blues (Electric) (4:29)
+03. Where Everything Began (Electric) (6:20)
+04. Called by the Devil (5:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5C584D373FBEEBB3BEA5A6D322B35BAE348184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754130   (103740) от 08.10.2024
+
+Abraham - Swing Low, Rock Hard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Tell It on the Mountain (3:40)
+02. Oh Happy Day (3:05)
+03. Come Down Angels (3:29)
+04. Wade in the Water (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3158B08EA50E6935E6E4E6E4F2A4AA5622F5AFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754144   (103739) от 08.10.2024
+
+Ten eleven XII bluesband - Something Different (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight (6:12)
+02. Always on My Mind (8:05)
+03. Every Time You Come Home (5:59)
+04. 20 - Wien - 20 (6:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F062EB87B37BBACA4D190C0FCC560350924D2C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754133   (103738) от 08.10.2024
+
+Andrew Moore and Hooch - Artists of the Moon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Ride With You (5:11)
+02. First Love (2:47)
+03. Tyrant (5:20)
+04. Freedom (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9316E40D74545AD8255E9AAEB00F23948AC76C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754042   (103737) от 08.10.2024
+
+Wind Rose - Trollslayer (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Ice and Blood (2:25)
+02. Dance of the Axes (4:48)
+03. The Great Feast Underground (4:44)
+04. Rock and Stone (5:05)(   Читать дальше...   )Жанр: Power metalПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A53E4A38B5264C0FF042B79037ECBA893DFB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754047   (103736) от 08.10.2024
+
+Oceanator - Everything is Love and Death (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Time (2:57)
+02. Lullaby (4:06)
+03. Cut String (2:50)
+04. Happy New Year (4:07)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92CA47951D61E912E9143A1EDD5E2DAE2DE69CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754041   (103735) от 08.10.2024
 
 k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country, Western Swing>
@@ -425,326 +744,6 @@ Astral Magic - Those Who Came from the Stars (2024) [FLAC 24/48|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76769322AE39A1ABF0ADD5E7F0A2AD1F19BA35B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754506   (103702) от 11.10.2024
-
-Dragony - Hic Svnt Dracones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The New World (1584) (1:21)
-02. Dreamchasers (4:52)
-03. Silver & Blood (5:36)
-04. Dragon Of The Sea (Sic Parvis Magna) (4:50)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50626B203588ED8A69A992CECE2129112596C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754492   (103701) от 11.10.2024
-
-Cemetery Skyline - Nordic Gothic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extreme metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torn Away (3:57)
-02. In Darkness (4:46)
-03. Violent Storm (4:08)
-04. Behind the Lie (5:02)(   Читать дальше...   )Жанр: Extreme metalПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE1612160BD547BB54F27BC8AB8DD4DBD3CEB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754898   (103690) от 12.10.2024
-
-Def Leppard - Live At The Leadmill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action (Live) (4:04)
-02. Fire It Up (Live) (3:50)
-03. Let It Go (Live) (6:08)
-04. Too Late for Love (Live) (5:23)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E94FF76677F8DD98D5D73D5483615ECDD3F4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754844   (103671) от 12.10.2024
-
-Joe Bonamassa - Different Shades Of Blue (Overdrive) (2014) 2024 Reissue, 10th Anniversary Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Baby (New Rising Sun)
-02. Oh Beautiful!
-03. Love Ain't A Love Song
-04. Living On The Moon(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C8829A41B7FBEBB84EAB8D8AF9C54D170852BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754987   (103611) от 13.10.2024
-
-Бранимир (Александр Геннадиевич Паршиков) - Ждут домой (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Acoustic, Dark-Folk-Rock, Dark-Chanson>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты меня где-то ждёшь [00:03:49]
-02. Вахтовик звонит домой [00:03:52]
-03. Провожал я друга на войну [00:03:41]
-04. Стёпка украл гуся [00:03:20](   Читать дальше...   )Жанр: Acoustic, Dark-Folk-Rock, Dark-ChansonПродолжительность: 00:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247368BED278E525A98929B8F7BA460981E379C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755819   (103594) от 18.10.2024
-
-Cold Cave - Passion Depression (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Reigns Down [00:02:45]
-02. Shadow Dance [00:02:43]
-03. Blackberries [00:04:19]
-04. Hourglass [00:05:02](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20825ABE652672B000F16399C2C70BBCF8F76045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755912   (103577) от 18.10.2024
-
-DGM - Endless (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянские мастера прогрессив-метала DGM с радостью объявляют о выходе своего нового студийного альбома “Endless”, который выйдет 18 октября 2024 года на лейбле Frontiers Music Srl.
-Гитарист Симоне Муларони (Simone Mularoni), комментируя новую пластинку, сказал: “Endless” - это первый по-настоящему концептуальный альбом группы. И это также первый альбом DGM, который (   Читать дальше...   )01. Promises (5:17)
-02. The Great Unknown (7:03)
-03. The Wake (7:30)
-04. Solitude (5:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21444571B8FAF18E20B871D65D25B8AF8B1F791C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755719   (103576) от 18.10.2024
-
-Widespread Panic - Warfield 2000 #4 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Alternative Rock, Blues Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Joe (Live) [00:04:12]
-02. Driving Song (Live) [00:04:42]
-03. Pilgrims (Live) [00:09:12]
-04. Party at Your Mama's House (Live) [00:11:18](   Читать дальше...   )Жанр: Southern Rock, Alternative Rock, Blues Rock, Country RockПродолжительность: 03:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E766A3542EFDE4760BB70CD215919283CF879F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755803   (103574) от 18.10.2024
-
-Health - Rat Wars (2023) Ultra Edition, 2024,  Loma Vista Recordings [FLAC 24/48|Lossless|WEB-DL|tracks] <Experimental, Alternative, Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demigods [00:05:41]
-02. Future of hell [00:02:32]
-03. Hateful [00:04:08]
-04. (of all else) [00:02:30](   Читать дальше...   )Жанр: Experimental, Alternative, IndieПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66E1244A287496371E818C3B5F3F06C7D5B2D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756186   (103561) от 19.10.2024
-
-Red Giant - Red Giant (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friends (3:58)
-02. Tell Me (4:11)
-03. Why? (3:53)
-04. Monsters (2:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F982555891AA289BD207701F36D553CD056ABF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756144   (103552) от 19.10.2024
-
-Black D.O.G - It's A Long Way For Rock'N'Roll (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'M Rock'N'Roll (2:35)
-02. God Save My Soul (2:22)
-03. Like It Ore Leave It (3:36)
-04. The Devil (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99AD71D6FE9CFC0999E89DF49B72CEFFEE9F1FF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

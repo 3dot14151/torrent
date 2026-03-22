@@ -1,3 +1,61 @@
+###  Публикация: 1690730   (123827) от 08.01.2024
+
+VA - Музыка для сна и прослушивания перед сном (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.I.B. - Games Rain (Chillout Mix) (7:28)
+02. S.A.T - Dream Of The Sea (Chillout Mix) (6:25)
+03. Soulalive - After Sun (Chillout Mix) (6:25)
+04. Seven24 - The Journey (Chris Wonderful Remix) (3:41)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B205BFE085203FC882D718EBEFCEC654DFF1D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691067   (123553) от 10.01.2024
+
+V.A. - Chill Out Cafe 60 Essentials Classics (25 Years Celebration) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Nu Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ltj X-perience - Moon Beat (5:12)
+02. The Black Mighty Orchestra - Ocean Beach (Cybophonia Cinematic Remix)
+03. Le Berry - El Verde Amanacer
+04. Zeb - From The Distance(   Читать дальше...   )Жанр: Chill Out, Downtempo, Nu JazzПродолжительность: 05:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA65035E8432CC5F0C5559A83ADDBA3FBDDD41B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691422   (123281) от 12.01.2024
 
 Blank & Jones - #WhatWeDoAtNight 4 EP 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
@@ -686,64 +744,6 @@ Looper - Up A Tree (1999) 25th Anniversary Edition, 2024, Mute [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E26C42BB10F3FF2B44FCD40263BA5763158D5A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706424   (113675) от 12.03.2024
-
-VA - Harmony in Hush: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - The Dream That Was Summer (Original Mix) (6:03)
-02. Michael E - Jhenna (Original Mix) (4:51)
-03. Marie Therese - Endless Time (Chillout Mix) (4:28)
-04. Florito - Saigon Morning (Original Mix) (4:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31D6533A50B1D21CFA57142A3C573FD43C500BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706500   (113560) от 13.03.2024
-
-VA - Tranquil Horizons: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Matterhorn (Original Mix) (4:04)
-02. Prana Tones - Eastern Zen (Original Mix) (3:12)
-03. La Estación Del Mar - Punta Begona (Original Mix) (3:35)
-04. Velvet Dreamer - Mystic Traveller (Eskadet Remix) (6:01)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC8F69E86E063EECAAD169836094F556DF18493
 ```
 
 https://mybot314.ru/tekegram_catalog/

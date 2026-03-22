@@ -1,3 +1,32 @@
+###  Публикация: 1609727   (1043164) от 04.02.2023
+
+VA - The Stress: Rock Psychedelic Compilation (2023) [MP3|320 Kbps] <Psychedelic-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043164.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gambardella - Ascensiones
+002. Kesem - No Future
+003. Liquify - Subzero Descent
+004. The Tyromancers - Behold ! The Tyromancers(   Читать дальше...   )Жанр: Psychedelic-RockПродолжительность: 09:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5647BF312DFB978D8FEFE482C118900545E3E140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609738   (1043143) от 04.02.2023
 
 VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
@@ -716,35 +745,6 @@ VA - Рок впрок 16 (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAACF6558643397D542503C10B34E42490D79420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447647   (1031550) от 14.02.2021
-
-VA - Rock Drive 12 (2020) от DON Music (2020) [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miguel Montalban - True Lies
-02. Joe Bonamassa - Royal Tea
-03. Alastair Greene - Living Today
-04. U.D.O. & Das Musikkorps Der Bundeswehr - Mother Earth(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3FD6106A14015C12C971CA7BD5BF0E6B73539C
 ```
 
 https://mybot314.ru/tekegram_catalog/

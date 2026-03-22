@@ -1,3 +1,155 @@
+###  Публикация: 1050101   (540373) от 07.09.2016
+
+Kitaro - Asian Cafe (2002) 2016 Domo Records [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet
+02. Linden
+03. Unicorn
+04. Legend Of The Road(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535AFE6B783905B2862AC7925E0A2D97D7863FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311251   (540053) от 30.06.2019
+
+Andrei Denisov - Easy to Fly (1996) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На крыльях любви (5:05)
+02. Спящее дитя (Симе) (3:51)
+03. Счастливое ничто (5:40)
+04. Забытые грёзы (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37208E8AB7CAA719B633AD6E238323DD7388E454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531989   (540045) от 06.08.2012
+
+VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, Chillout, Lounge, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540045.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wholeness Of The Essence
+2. True Sensuality
+3. Essence
+4. La Vie Rouge
+5. Deep Desire
+6. Serene Harmony
+7. Rivers Of Lust
+8. Blue Heaven
+9. Open Windows
+10. Love Dream(   Читать дальше...   )Жанр: New age , Enigmatic, Chillout, Lounge, DowntempoПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E93F3A84B91ACEE64E6CD3679617B859DD9C273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311232   (539969) от 30.06.2019
+
+Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fellows (03:51)
+02. Gem (03:57)
+03. Fields of Gold (03:31)
+04. Shining Woman (03:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F290B0A889FFE48EA7D725B9C3FFA51A152C1783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226421   (539753) от 14.08.2010
+
+Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539753.jpg" />
+</div>
+
+
+###  Подробнее
+
+(15:30) 1. Dancing Gallery
+(11:34) 2. Dreams
+(09:50) 3. Sunset
+(06:49) 4. Thea
+(04:17) 5. Simple MindednessЖанр: Relax, New AgeПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049600   (539674) от 07.09.2016
 
 Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, Hip Hop>
@@ -637,151 +789,6 @@ Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E31371629ABD73564FEBAB8B44B2F746C1EE7D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154766   (535186) от 02.08.2017
-
-Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Walk The Line
-02. Folsom Prison Blues
-03. Cry! Cry! Cry!
-04. Get Rhythm(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926078   (535158) от 09.08.2015
-
-Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Talk About It (feat. King Mez & Justus)
-03. Genocide (feat. Kendrick Lamar, Marsha Ambrosius & Candice Pillay)
-04. It's All On Me (feat. Justus & BJ the Chicago Kid)(   Читать дальше...   )Жанр: Soundtrack, Rap, Hip-HopПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A7B45F3DA4374C41826BC3C9217438339FFF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312181   (534387) от 03.07.2019
-
-Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track 1 (02:15)
-02. Theme from Child's Play (04:25)
-03. Birth of Chucky (02:41)
-04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819506   (533682) от 07.09.2014
-
-V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronnie Price Orchestra - The First Time Ever I Saw Your Face
-02. Eddie Heywood - A Dreamer's Holiday
-03. Floyd Cramer Orchestra - It Had To Be You
-04. Ronnie Price with Nick Ingman Orchestra - Somewhere My Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD80F54D3BE6FE847F43E3E24B0E7E0658CAC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926551   (533310) от 10.08.2015
-
-Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2011) [FLAC|Lossless|WEB-DL]<Instrumental, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Else Matters
-02. Brothers In Arms
-03. Californication
-04. Don't Cry(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B10EB5B9831EF70DECC39492A06D8E1D2A800C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

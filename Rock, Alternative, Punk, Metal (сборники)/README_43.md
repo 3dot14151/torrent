@@ -1,3 +1,235 @@
+###  Публикация: 1520939   (138886) от 30.12.2021
+
+Tony Joe White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach Life
+02. Saturday Night in Oak Grove Louisiana
+03. We'll Live on Love
+04. High Horse(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2F6059CB64A208E48E3E7E3ACE0FC87FDC11CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520935   (138869) от 30.12.2021
+
+Snowy White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riding the Blues
+02. Red Wine Blues
+03. Highway to the Sun
+04. Land of Plenty(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 07:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC55970637894BEE8AC9208D4368D0C8180F3CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970767   (138808) от 31.12.2015
+
+VA - Rock Collection 1988 (2015) [MP3|320 кб/с] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+01. Death Angel - 3rd Floor
+02. Lita Ford - Back to the Cave
+03. Anthrax - Be All, End All(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 24:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9271A04310E45F697C71498566A5A23CCFF1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435981   (138789) от 30.12.2020
+
+VA - The Urban Rock Music (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на сеанс настоящей рок музыки! Представляем Вам разностилевой рок сборник под названием "Urban Rock Music". Исполнители представляемого лонгплея в своих песнях сочетают откровенную агрессию с довольно яркой и ранимой мелодикой. В результате получаются весьма драйвовые, забойные боевички, но не лишённые философской изюминки.001. Islander - Freedom
+002. Guns N' Roses - Sweet Child O' Mine
+003. Cathedral Bells - A Passing Phase
+004. Mrs. Green Apple - Stardom(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98903D428B49E17776D66E8457E3D9A67E0C62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520980   (138581) от 30.12.2021
+
+VA - Русский рок 2021 [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grechka - ночью (13:18)
+02. Animal Jazz - Если дышишь (4:05)
+03. Splean - Топай! (2:52)
+04. TRITIA - Негде ставить крест (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 03:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0773B8E94705C7861F15CBBA6A8C89248B55AC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970835   (138439) от 31.12.2015
+
+VA - Rock Collection 1989 (2015) [MP3|256 кб/с] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Dream Theater - A Fortune in Lies
+02. Terrorizer - After World Obliteration(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 25:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B565164419C27625E07D6AB47A1BD159E9811D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970804   (138346) от 31.12.2015
+
+VA - Rock Collection 1987 (2015) [MP3|320 кб/с] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+01. Bruce Springsteen - Ain't Got You
+02. Warlock - All We Are
+03. Anthrax - Among the Living(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 22:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7260F8632E3D31970D49576E5D70326290D1645B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521054   (137674) от 31.12.2021
+
+Chris Bell - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24 Hours a Day
+02. Cold-Hearted Woman
+03. Bad News
+04. Two Jobs(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3098E6A9207A0D994061E82A0E5A602D7D86D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521056   (137601) от 31.12.2021
 
 Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
@@ -519,235 +751,6 @@ VA - Best Rock Ballads 60-90s (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B180F3E1487D6C33DDE3D9AEA15C39E90090EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703989   (114670) от 02.03.2024
-
-VA - The Metal Griffin (2024) [MP3|320 Kbps] <Metal, Hard, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114670.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. I Am Your God - Shotgun (00:03:11)
-002. Danicide - Stronger (00:02:41)
-003. Evile - Out Of Sight (00:02:57)
-004. Tarja - Frosty The Snowman (00:03:07)(   Читать дальше...   )Жанр: Metal, Hard, RockПродолжительность: 09:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A980B273C7D5E475767EF5B022FAE6A4E3FBF644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823016   (112330) от 10.10.2025
-
-Robert Plant - Voice Of Rock - Compilation (1967-2025) [MP3|320 Kbps] <Blues rock, Hard rock, New wave, Folk rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112330.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arbaden (Maggie's Babby) (& Sensational Space Shifters) {Lullaby And…The Ceaselless Roar} 2014
-002. Hurting Kind (I've Got My Eyes On You) {Manic Nirvana} 1990
-003. Ship Of Fools {Now & Zen} 1988
-004. Let's Have A Party {The Last Temptation Of Elvis} 1990(   Читать дальше...   )Жанр: Blues rock, Hard rock, New wave, Folk rockПродолжительность: 08:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B333B74802FC57437EFA302A1B53AAFCD519A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715946   (111491) от 13.04.2024
-
-VA - Redemption (2024) [MP3|320 Kbps] <Metal, Death, Black>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steel Rhino - In Rhino We Trust (00:05:15)
-002. Draconicon - Drowned (00:04:09)
-003. Somewhere In Nowhere - Lake Of Sorrow (00:07:17)
-004. Ignition - Betrayal (00:05:33)(   Читать дальше...   )Жанр: Metal, Death, Black, Heavy, TrashПродолжительность: 11:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFD61300362208B400EE2F355A261D504FD243F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718188   (110775) от 27.04.2024
-
-Jeff McMillan - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Soul>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Checking Out While I Was Checking In
- 02.  Devil Woman
- 03.  Don't Cry Those Tears
- 04.  Don't Let the Devil Know When I'm Gone(   Читать дальше...   )Жанр: Rock, Blues Rock, SoulПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EE62BE508A4DE34598D4348DC301DB48FD5A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721811   (109927) от 09.05.2024
-
-Blues Saraceno - Compilation (2024) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Evil Ways (Justice Mix)
- 02.  The Bible Or the Gun
- 03.  The Devil You Know
- 04.  The River(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CF29C927D4A48D0C5F7ABE20A0C476000505CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721609   (109848) от 10.05.2024
-
-Моторадио | ROCK LIVE - живые выступления великих рок-групп (2017-2020) [MP3, Александра Ромашова]
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записи концертных выступлений звезд мировой рок-музыки. Вместе с нами вы сможете окунуться в неповторимую атмосферу лучших концертных выступлений таких исполнителей, как Queen, Deep Purple, Gotthard, Paul McCartney и многих других. Передача записана в рамках различных проектов радиостанции, в частности Радио Рокс, Радио Фонтанка ФМ, радио Imagine и MOTORADIO. Ведущая (   Читать дальше...   )Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 72:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62A90AA4EF2C07928D558A8581CE0D353FD9D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721111   (109834) от 10.05.2024
-
-VA - Hippie vibes Make Love... (2024) [MP3|320 Kbps] <Pop, Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109834.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Rolling Stones - Gimme Shelter [04:31]
-002. The Who - My Generation [03:20]
-003. Janis Joplin - Cry Baby [03:57]
-004. Eagles - Hotel California (2013 Remaster) [06:31](   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 09:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EAAEFBC64B40A564930CFE6D43001471D9FEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722225   (109786) от 10.05.2024
-
-Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Crawfish
- 02.  It's in Her Heels
- 03.  With You I Feel Alone
- 04.  Scary Story(   Читать дальше...   )Жанр: Rock, Pop Rock, SoulПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9B4D96DCD6B3858B1A437BACE00DF51E08F005
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,141 @@
+###  Публикация: 971781   (985469) от 03.01.2016
+
+VA - Зимний марафон № 217: Новогодний Хит Парад (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (03.01.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Alex Blue ft. Judith - Dance (Official Video) (00:03:20)
+02. BBX ft. Paul Mayre - Longing 4 You (Official Video) (00:03:30)
+03. Brutto - Вечірнє сонце (Прем'ера!) (00:05:07)
+04. Cream - Change (Official Video) (00:04:06)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, Шансон, House, TranceПродолжительность: 01:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088145E58C425E846586F78B83C60351C3BF4525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612651   (985465) от 02.02.2013
+
+Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAC52A633086A4243A946E05A4FE6211079E63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612580   (983877) от 03.02.2013
+
+DJ Smash & Семён Слепаков/Откат (2013).HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE78A467A99BFE5B90341158B8335E76EFB4411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354626   (983443) от 26.01.2020
+
+In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983443.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 In This Moment - Beautiful Tragedy (Official Video)
+2007 In This Moment - Prayers (Official Video)
+2008 In This Moment - Forever (Official Video)
+2009 In This Moment - Call Me (Official Video)(   Читать дальше...   )Производство: Atlantic RecordsЖанр: MetalcoreПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04FC5DBB42616289FDE5C7C4E0B508C4A52045E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355337   (983439) от 26.01.2020
+
+Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983439.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 Pet Shop Boys - Leaving (Promotional Video)
+2020 Pet Shop Boys - Monkey business (Official video)
+2020 Pet Shop Boys (feat. Years & Years) - Dreamland (Official lyric video)Жанр: Synthpop, Dance-PopПродолжительность: 00:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF33B513B67039B76F766F99CC9E630CC97647DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 436013   (982331) от 13.01.2012
 
 VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
@@ -576,136 +714,6 @@ Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C9BA189BF073A4952274300922C591A9FC1A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617600   (972461) от 12.02.2013
-
-Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EB7F4FD26284EB932F686AE84E034C133B0E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617601   (972353) от 12.02.2013
-
-Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5274A6B55EF2F53840CDBA16B78434AFC1942E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617534   (972350) от 12.02.2013
-
-BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, ElectroПродолжительность: 00:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5528990F4653E76C1838050E9E029B731C534D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617538   (972275) от 12.02.2013
-
-Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, ElectroПродолжительность: 00:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F199C72B375102761D6A09669C16A230EF4747F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617533   (972200) от 12.02.2013
-
-DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, ElectroПродолжительность: 00:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC80442AFB4079A8340145E1619C7B8193473C63
 ```
 
 https://mybot314.ru/tekegram_catalog/

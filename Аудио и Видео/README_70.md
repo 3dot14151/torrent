@@ -24,6 +24,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510512   (790866) от 17.11.2021
+
+VA - Sacred Journey, Vol. 3 (2021) [AAC|~302 Kbps] <Electronic, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_790866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tashima - Meditation (3:24)
+02. Ushnisha - The Angel (3:41)
+03. Therah - Thaten (2:23)
+04. Nanda Raj - Dike (4:31)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B928AC631F9A2F4DFEA31E6956B4DCA098F6F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510472   (790744) от 17.11.2021
 
 Распутье (2020) WEB-DL [1080p] ATV
@@ -681,35 +710,6 @@ Smooth Jazz All Stars - 100 Gospel Jazz Hits (Instrumental) (2021) [AAC|~302 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D176BA5E1ECC344263B8EBD31E80A87C74CFFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510883   (790201) от 18.11.2021
-
-Sting - The Bridge (Deluxe) (2021) [AAC|~310 Kbps] <Pop, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rushing Water (3:18)
-02. If It's Love (3:14)
-03. The Book of Numbers (3:19)
-04. Loving You (4:24)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DE5984F882A84F6E3F07FDB109F81FA023B04A
 ```
 
 https://mybot314.ru/tekegram_catalog/

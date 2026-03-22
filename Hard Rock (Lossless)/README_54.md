@@ -1,3 +1,177 @@
+###  Публикация: 708744   (364037) от 08.11.2016
+
+Black Sabbath - Best Ballads (1996) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364037.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Won't Cry For You
+2. Solitude
+3. Children Of The Sea
+4. Born Again(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A2D2D12BD1888DB5D2BC4249ACCB01A4DF2765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951574   (363069) от 29.10.2015
+
+Def Leppard - Def Leppard (2015) [FLAC|tracks|WEB-DL]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Go
+02. Dangerous
+03. Man Enough
+04. We Belong(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14B0009A9CF6783736811E248FFDEA97737C6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417010   (363010) от 18.10.2020
+
+Gary Barden - 9 albums, 10CD (1986-2014) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gary John Barden - английский певец и автор песен, ветеран хард-рока, наиболее известный по своей работе с Michael Schenker Group. Так же Barden работал с Гэри Муром, группой Statetrooper с братьями Steve and Paul Johnson, группой Praying Mantis, проектом S.i.l.v.e.r, и еще успевал выпускать сольные альбомы. Настоящий брутальный британский рок–вокалист не без харизматичности, (   Читать дальше...   )--------------------------
+
+01. Shape Of Things To Come (4:15)
+02. Set Fire To The Night (3:31)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Melodic Rock |Продолжительность: 08:28:15 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4A7FC1ED1DB066208268A3D9FF649A30DF9DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070908   (361951) от 09.11.2016
+
+Bulletrain - What You Fear The Most (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory Lane
+02. Love Lies
+03. Can't Get Away
+04. Fight With Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1F41FBDB427EFBC35CF2EF01E4612C9B742B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071284   (361879) от 09.11.2016
+
+Overland - Contagious (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doctor My Heart 05:12
+02. Easy On Me 04:20
+03. Edge of the Universe 04:36
+04. Every Lonely Night 04:08(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7AF6C8AB4CAA58FDCE6C10E854C4ACA0602FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255877   (361640) от 19.10.2018
+
+Stage Dolls - Stage Dolls (1988) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still In Love (4:17)
+ 02. Wings Of Steel (3:34)
+ 03. Lorraine (3:20)
+ 04. Waitin' For You (3:51)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCB2A6007F122A38D232D4C899F1E53823A15E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177793   (360898) от 26.10.2017
 
 Alice Cooper - Welcome To My Nightmare (1975) Remastered, 2002, Atlantic/Rhino [FLAC|Lossless|image + .cue]<Hard Rock>
@@ -586,186 +760,6 @@ Dorothy - Rockisdead (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1986D7532CC7253609024F76049C0065C918BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418260   (349294) от 24.10.2020
-
-Pride Of Lions - Lion Heart (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lion Heart
-02. We Play For Free
-03. Heart Of The Warrior
-04. Carry Me Back(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7BBEFF17915F320B3053820A68B4CE7D330B773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579379   (347507) от 23.11.2012
-
-Krokus -  12 Альбомов (1977 - 2003) Non-remastered, 1st Press [WavPack|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1977- To You All
-1980- Metal Rendez-vous
-1981- Hardware
-1983- Headhunter
-1984- The Blitz
-1986- Alive And Screamin'
-1986- Change Of Address
-1988- Heart Attack
-1989- Stayed Awake All Night(   Читать дальше...   )Жанр: Hard RockПродолжительность: 9:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7833DC84580CA045F6E217EA5A398FA688A33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953722   (346833) от 05.11.2015
-
-The Winery Dogs - Hot Streak (2015) [FLAC|image+.cue]<Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblivion (4:11)
-02. Captain Love (5:06)
-03. Hot Streak (5:10)
-04. How Long (3:55)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F75DAFB4194EFED90A29720135AF113DD17182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418662   (346803) от 25.10.2020
-
-Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Ballads, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Life One Soul (3:45)
-02. Let It Be (4:21)
-03. In The Name (3:33)
-04. Lonely People (3:24)(   Читать дальше...   )Жанр: Hard Rock, Ballads, AcousticПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CCA3A885C7B9F4B24FAC632ED943113ACFE344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953830   (346718) от 05.11.2015
-
-Geordie - Don't Be Fooled By The Name (1974) Japanese Edition /2006, Archive/ [FLAC|image +.cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' Down
-02. House of the Rising Sun
-03. So What
-04. Mercenary Man(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B610B282888AC03B715D97CC651FC5FAA494058B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578415   (345857) от 23.09.2022
-
-Tony Mills - Streets of Chance (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scars
-02. When the Lights Go Down
-03. Legacy
-04. Battleground(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF3D5EE39BC6D617FC251224C024561E7D3C8BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

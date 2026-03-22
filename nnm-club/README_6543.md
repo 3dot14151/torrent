@@ -1,22 +1,22 @@
-###  Публикация: 1511141   (789807) от 19.11.2021
+###  Публикация: 1387485   (791723) от 01.06.2020
 
-Пенины / Pieniny (2021) WEBRip [VP9/2160p]
+Бог грома / Mortal (2020) WEB-DL [H.264/1080p-LQ]
 
->>Документалистика и Телепередачи
->>Релакс / Relax
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789807.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пенинам, представляющим собой небольшой горный массив, раскинувшийся на территории двух соседних стран (Словакии и Польши), тяжело соревноваться в величии со своим «соседом» - Татрами. Но и этот северный «отрог» Карпатских гор обладает собственным неброским очарованием, манящим сюда многих туристов со всего континента. Здесь, на территории обоих государств, вдоль (   Читать дальше...   )Производство: ПольшаЖанр: документальный, видовойРежиссер: MichałПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:35
+Повелевать стихией, обращать в пепел прикосновением и заставлять всё живое трепетать от страха — удел языческих богов. Но что произойдет, когда планета столкнется с одним из них во плоти? Ведь этот древний Бог всего лишь человек.Производство: Норвегия, США, Великобритания / 42, Automatik Entertainment, Eldorado FilmЖанр: Фэнтези, боевик, приключенияРежиссер: Андре ОвредалАктеры: Нат Вулф, Приянка Бозе, Ибен М. Акерлие, Артур Хакалахти, Оддрун Валестранд, Равдип Сингх Баджва, Аня Нова, Суннива Линд Ховерстад, Пер Фриш, Нико РусаковПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4A4F65DCE649E7B160882AA1F80CA7CAB5F32C0
+magnet:?xt=urn:btih:FF87F145E175BE55EAF3DB79144AEA7FB877231D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510044   (789806) от 19.11.2021
+###  Публикация: 1275032   (791722) от 09.01.2019
 
-Бизнес-Мастер | Дистрибьюция. Диск-2 (2006) DVD5
+Holy State - Demo (2009) [FLAC|Lossless|tracks + .cue] <Punk>
 
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789806.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Корпорация «Бизнес-Мастер» образовалась в 1996 году под нарастающую потребность рынка в ускоренной подготовке персонала квалифицированному ведению бизнеса.
-Фактически, организация привлекла на тех или иных условиях бывших корпоративных тренеров и менеджеров по обучения крупнейших мультинациональных компаний в Украине, таких как Wrigley, Coca-Cola, Henkel, Uniliver, (   Читать дальше...   )Жанр: Бизнес семинарПродолжительность: 02:06:08
+01. Comatones (2:38)
+ 02. Solid State Messiah (vs the Valve Viking) (3:35)
+ 03. Repeat and Fade (2:10)
+ 04. Skeleton Coast (2:58)Жанр: PunkПродолжительность: 00:11:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74F76CFBE5A290011A66F28EA696EA6D14A664BC
+magnet:?xt=urn:btih:3C0BAADCC0A13E09CFD71C3974F7A8E81A76F4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,28 +53,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511094   (789805) от 19.11.2021
+###  Публикация: 1275033   (791721) от 09.01.2019
 
-Exodus - Persona Non Grata (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Lonewolves - A True Discourse (2010) EP [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollow (1:57)
+ 02. Shadows & Dust (2:53)
+ 03. Death March (2:22)
+ 04. Deity (6:22)Жанр: HardcoreПродолжительность: 00:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E3CC33CA5B21D9178624EEBD9D7CDE37ECD60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275039   (791720) от 09.01.2019
+
+Livimørket - Dark Totality (2009) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789805.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Persona Non Grata
-02. R.E.M.F.
-03. Slipping Into Madness
-04. Elitist(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:00:52
+01. Dark Totality (39:06)Жанр: Black MetalПродолжительность: 00:39:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:147F68B466256640D2FC7344A516B121DC3C2155
+magnet:?xt=urn:btih:D6550EF1A3316E682E6C47F2E2A44BE9901FA57D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +108,604 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511063   (789804) от 19.11.2021
+###  Публикация: 1274841   (791719) от 09.01.2019
 
-VA - Viskas Bus Gerai (lietuviska muzika) (2021) 2CD [MP3|256-320 Kbps] <Pop, Rock, Folk>
+1917 - Vision (2004) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     In tenebra
+02.     La vieja sangre
+03.     Piel de mбrtir, carne de asesino
+04.     Mercader de voluntades(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1A1AF4CFDFC00262F31F026E913CAB31BAF306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274972   (791718) от 09.01.2019
+
+Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791718.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 John Coltrane - Giant Steps:
+01. Giant Steps [4:47]
+02. Cousin Mary [5:50]
+03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274843   (791717) от 09.01.2019
+
+Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enferma Humanidad
+02. Sabor a Muerte
+03. Pastores Oscuros
+04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275040   (791716) от 09.01.2019
+
+Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Moriendi  (4:06)
+ 02. Dawn of Misery  (3:58)
+ 03. Requiem  (2:02)
+ 04. Post-Mortem Feast  (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF06B12499FFF542FEB4BA91102EC6FC05F25E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274842   (791715) от 09.01.2019
+
+1917 - Vox Fatum (2007) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legado Sombrío
+02. Contemplaciones
+03. Trofeos de Honor
+04. La Iniquidad Penitente (Pt. 1)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275036   (791714) от 09.01.2019
+
+VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tortuga - Hell's Red Roads (03:25)
+02. Sylosis - Visions of Demise (04:26)
+03. Romeo Must Die - Who Died and Made You God (03:19)
+04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275042   (791713) от 09.01.2019
+
+Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peeled Back Organs (3:57)
+ 02. Embalmed in Perservatives (3:10)
+ 03. Slime (3:36)
+ 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274838   (791712) от 09.01.2019
+
+Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth of the Universe
+02. Moonchild
+03. Surveillance Society
+04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274839   (791711) от 09.01.2019
+
+Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evermore
+02. Prisoner
+03. The Fallen
+04. Pursuit of Desire(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7ABB344D09B1F58C6CD1C7826D95D5C1006A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274991   (791710) от 09.01.2019
+
+VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
+02. Jay Frog & Amfree - Is This Love (Radio Edit)
+03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
+04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274946   (791709) от 09.01.2019
+
+VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Draxler - Right Time (Club Mix) 4:28
+02. Christopher G - Bassline Drops (Club Mix) 4:56
+03. Tom Bekker - What You Got (Instrumental Mix) 4:49
+04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274880   (791708) от 09.01.2019
+
+VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown - Dice (Original Mix)
+02. Jose Ogalla - After Now (Chris Montana Piano Dub)
+03. Scotty Boy - Ya'll Came to Jack (Original Mix)
+04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274888   (791707) от 09.01.2019
+
+Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Float (08:22)
+ 02. Carousel (06:01)
+ 03. Abandoned (18:00)
+ 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274141   (791706) от 09.01.2019
+
+VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
+02. Find Your Way (Sunrise Mix)-Moon Rocket
+03. Baakoya (Armonica Remix)-Mabiisi
+04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274889   (791705) от 09.01.2019
+
+VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
+02. Nico Del Prato - Anymore (Radio Edit) 3:07
+03. Enormous Cats - Ready Or Not (Club Mix) 4:31
+04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274852   (791704) от 09.01.2019
+
+Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unsoi (4:54)
+02. Aamu Ja Kaste (6:20)
+03. Lumikuuro (7:02)
+04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274912   (791703) от 09.01.2019
+
+Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remote (17:58)
+ 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274609   (791702) от 09.01.2019
+
+Dropzone 3.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2019Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353CF1AAFF737BFBEFC38945E5EE2D48A4A4D7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275067   (791701) от 09.01.2019
+
+Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I (4:58)
+02. II (4:42)
+03. III (5:15)
+04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275031   (791700) от 09.01.2019
+
+Джин-Тоник - Нетакой (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791700.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Нетакой (feat. Ксения Стрижакова)
+2. Вдруг это всё (feat. Алексей Кортнев)
+3. Селфи (feat. Валерий Сюткин)
+4. Старпёрская (feat. Евгений Маргулис)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F946C75BB70A00A6186BA5E54009BB27656DE07B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274945   (791699) от 09.01.2019
+
+VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789804.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sel - Nes As Tik Vejas
-02. Mia - Yra Kaip Yra
-03. Karcema - Aukso zuvele
-04. Andrius Mamontovas - Viskas Is Naujo(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 08:13:00
+001. Avantgardet - Walk Of Shame
+002. Hazey Eyes - Scars (Ukiyo Remix)
+003. Horses Without Makeup - Forget About Chlorine
+004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA91DF567A2D6FC351DEE3BBB5250EA94393FC89
+magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,594 +713,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511006   (789803) от 19.11.2021
+###  Публикация: 1274948   (791698) от 09.01.2019
 
-Картинки - NNM-Club - Календари 2022 (Украина) от Warrior 123 №4 - 1511006 [PNG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календари созданные нашим одноклубником Warrior 123Формат: PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA9524E7A1BB386B67B01016197C726633564834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511061   (789802) от 19.11.2021
-
-Николай Брест | Враг или брат? (2018) [MP3, Павел Русский]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть основана на реальных событиях. Главный герой повести «Враг или брат» - снайпер ополченцев ДНР с позывным «Угрюмый». Это отважный воин с солидным боевым опытом. Ему противостоит молодой, но умелый и амбициозный снайпер ВСУ. Кто победит в этой беспощадной схватке на Донбассе? Что несёт братоубийственная война? К чему ведёт жестокость и есть ли место милосердию (   Читать дальше...   )Жанр: Военная драмаПродолжительность: 02:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B55A92D74FD5B31B363696589E01542FE6749DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275653   (789801) от 12.01.2019
-
-VA - Rock Select Mix (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789801.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wheatus - Teenage Dirtbag
-002. Lynch Mob - Main Offender
-003. Baddiel, Skinner - Three Lions '98
-004. Cherri Rokkett - Do You Want Me(   Читать дальше...   )Жанр: RockПродолжительность: 08:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00E4BAE5CC9EF3D36149DE48D5A081964F9E876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511011   (789800) от 19.11.2021
-
-Один день из смерти Джо по прозвищу Сидень / A Day in the Death of Joe Egg (1972) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм – экранизация одноимённой пьесы Питера Николса. Джо - уменьшительное от Джозефины, а прозвище Сидень ей дал папа, потому что девочка Джо не может ходить. Впрочем, сидеть она тоже не может. Как не может разговаривать, самостоятельно есть и дышать. У Джозефины ДЦП с симптоматической эпилепсией. Поэтому её жизнь больше похожа на смерть, но всё же это жизнь... (   Читать дальше...   )Производство: Великобритания, DominoЖанр: драма, комедияРежиссер: Питер МедакАктеры: Алан Бэйтс, Дженет Сьюзман, Питер Боулз, Шила Гиш, Джоан Хиксон, Элизабет Робиллард, Мюррэй Мелвин, Фанни Карби, Констанс Чэпман, Элизабет ТирреллПеревод: любительский одноголосыйСубтитры: русские (на места без перевода и два варианта полных), английскиеПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A43AEC5779324E45237742CE2D465D7BF4EFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275686   (789799) от 12.01.2019
-
-Audiobook Builder 2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для аудиокниг в Mac OS X существует специальный формат M4B, который является стандартом для iTunes Store. В связи с этим, чтобы иметь возможность залить к себе на iPod или iPhone аудиокнигу, не купленную в iTunes Store, нужно иметь инструменты для создания файлов m4b своими руками.
-
-Ничего особенно выдающегося в M4B нет – он абсолютно идентичен формату AAC. Но всё (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2019Разработчик: Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9676E3FFB7093AD7249DEADEB255F11F2B4EC625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511054   (789798) от 19.11.2021
-
-Swallow The Sun - Moonflowers (2021) 2CD,  Deluxe Edition [FLAC 2.0|48/24|tracks|WEB-DL] <Death Metal, Doom Metal>
+VA - Soft Rock Nuggets (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789798.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc - 1 - Moonflowers:
-1. Moonflowers Bloom in Misery (6:19)
-2. Enemy (5:39)
-3. Woven into Sorrow (7:46)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:24:56
+01. Foreigner - Blue Morning, Blue Day
+02. Chicago - Little One
+03. Daryl Hall & John Oates - When the Morning Comes
+04. America - Don't Cross the River(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48604049C8328D36B85315E9E21575F80744D777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275411   (789797) от 12.01.2019
-
-Александр Ковалев, Борис Морев | Арсенал оратора. Полный боекомплект (2012) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789797.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описываются все аспекты публичных выступлений - от структуры и видов аргументации до методов привлечения внимания и создания запоминающегося образа. Теперь вы добьетесь прекрасных выступлений, прилагая минимум усилий. Книга для тех кому приходится выступать: студентам в университете, менеджерам на переговорах, продавцам на презентациях, политикам на митингах.Жанр: РиторикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF91B4179EE55E0EF2FFCA980806EA5E2F0812CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508008   (789796) от 19.11.2021
-
-Тулку Дхондуб Дордже, Александр Хосмо | Ритуал подношения светильников духам-гьялпо (2015) WEBRip
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная методика описана в древнем тексте «Нефритовая Шкатулка», корни которого тянутся из Даосизма. Именно эта методика, в полном объёме, будет передана на предстоящем вебинаре. Методика не требует каких-либо дополнительных знаний или посвящений и может быть освоена любым человеком.
-
-Программа Вебинара:
-(   Читать дальше...   )Жанр: йога, дзогченПродолжительность: 01:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D827F1510EA6904B11ADCE08143C0A50030350E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275656   (789795) от 12.01.2019
-
-Окно (2011) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю детей, которые живут в неблагополучной семье. Несмотря на это, они любят своих родителей, проявляя заботу и протягивая им руку помощи. Но будут ли их поступки оценены? Дети верят в то, что родители рано или поздно задумаются и произведут переоценку своей жизненной позиции. Главное, чтобы не было слишком поздно.Производство: Россия | ТО ОКНОЖанр: Социальная драмаРежиссер: Николай РогожинАктеры: Дарья Василик, Антон Зимников, Александр Черкашин, Регина Щукина, Валерия Меньшова, Елена Снитовская, Василий Леонтьев, Юлия Москаленко, Александр ГрановецкийПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79661103BA2D310E7A965CC87BD15803ABBFEA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275232   (789794) от 12.01.2019
-
-Сергей Давиденко (Варго) | Оранжевый домик (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братьям Дики и Шимми, пришлось пройти через все муки ада, прежде чем они поняли: кто попал в Оранжевый домик, живым из него не возвращается…Жанр: Мистика, УжасыПродолжительность: 08:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FE00AF74FAA55B7E8B09C9C2E1555F449D8479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275506   (789793) от 12.01.2019
-
-Агент Джонни Инглиш 3.0 / Johnny English Strikes Again (2018) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда все агенты секретной службы Её Величества внезапно выходят из строя, в игру вступает запасной вариант. Образец английского стиля и любимец роковых красоток; король безвыходных ситуаций и хранитель аналоговых традиций в цифровом мире, агент Джонни Инглиш — боль и гордость британской разведки. Этому парню есть что взбалтывать, и он взболтает не по-детски.Производство: Великобритания, Франция, СШАЖанр: Боевик, комедия, приключенияРежиссер: Дэвид КеррАктеры: Роуэн Эткинсон, Кевин Элдон, Эмма Томпсон, Адам Джеймс, Noah Spiers, Kendra Mei, Alfie Kennedy, Jasmine Brightmore, Джордж Тернер, Rua RobertsonПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF31E095CD5300C9148D7BB14F077D03B64B8742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275708   (789792) от 12.01.2019
-
-Audiaire - Zone 1.1.1 VSTi, VSTi3, AAX (x64) RePack by R2R [EN]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audiaire запустили Zone, уникальный полифонический синтезатор, созданный для звукового дизайна, демонстрируя прекрасные особенности, редко встречающиеся в цифровых инструментах.
-Audiaire — это новый стартап создания музыки, созданный в 2018 году Шаоузом Раофи, основателем Sample Magic, Attack Magazine и Sounds to Sample. Zone позволяет вам последовательно упорядочить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A399226F7C8971F46B12ED249255D5377FBAFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275455   (789791) от 12.01.2019
-
-Доктор (2014) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях.
-Первая Чеченская война. Мирные жители покидают город. Михаил, врач-хирург, один из немногих русских оставшихся в Грозном. Друг Михаила, чеченец, пытается убедить его уехать к семье. Жена и дочь врача, покинули город после начала войны. Михаил принимает решение уехать. Но ночью в дом к доктору вламываются боевики с раненым. А рано (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, военный, драмаРежиссер: Анна ГороянАктеры: Кирилл Кяро, Александр Голубев, Арслан Мурзабеков, Александр Хошабаев, Давид Мардян, Размик Дирарян, Ишхан Назаретян, Михаил Симонян, Арман Никогосян, Михаил ЧерныхСубтитры: ОтсутствуютПродолжительность: 00:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5372B3DA385FC52DCEB5DA048BCEC266C86E154B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275691   (789790) от 12.01.2019
-
-BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray [H.264/1080i] [Custom]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789790.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Борьба за выживание" - эпический сериал одного из самых знаменитых в мире ведущих и натуралистов сэра Дэвида Аттенборо. Этот признанный шедевр документального кино удостоен многочисленных международных наград, среди которых 6 премий BAFTA. У каждой новой жизни на Земле есть своя собственная история: как живое существо появляется на свет, как добывает себе (   Читать дальше...   )Производство: Великобритания, Канада, Australian Broadcasting Corporation (ABC), BBC BristolЖанр: ДокументальныйРежиссер: Майкл ГантонАктеры: Дэвид АттенбороПеревод: Одноголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 12 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3ACEFA7E0091EAD90696392A5CEB6658B3BA8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275605   (789789) от 12.01.2019
-
-Игнат Коробань | Москалёв. Новобранец космической пехоты (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окончив школу, Игорь Москалёв решает пойти в армию Федерации, чтобы стать героем и защищать Землю. Однако родственники считают, что служба - это слишком опасное занятие для их отпрыска. Подключая «связи», они непрошенной заботой создают Игорю множество проблем, которые главный герой вынужден решать. Попутно он узнаёт что такое служба в армии и понимает, что скрывается (   Читать дальше...   )Жанр: Книги о приключениях, Юмористическая проза, Юмористическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248AD561BF2A53620D441DEE0A7A695AE2B80940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275577   (789788) от 12.01.2019
-
-Шрифты - Creative Market - Zinon Handwritten Font - 264943 [TTF, OTF, WOFF, EOT]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство шрифтов наиболее подходит для заголовков всех размеров. Шрифт Zinon применим для любого графического дизайна в печатной графике и идеально подходит для логотипов, значков, футболок и других предметов.Формат: TTF, OTF, WOFF, WOOF2, EOT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F11B76ED67B5F66120A4863420521CC125BC28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275658   (789787) от 12.01.2019
-
-VA - Top Of The Pops '1981 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Новом году продолжаем десятилетие 80-х в популярной музыке. Предыдущие выпуски можете посмотреть по ссылке внизу.
-Я специально для ознакомления привел фрагменты из треков немного подзабытых сегодня групп, что бы вы могли ещё раз ощутить то разнообразие стилей, которое присутствовало в музыке 80-х.
-Этот список треков является хронологическим списком популярных песен (   Читать дальше...   )CD1:
-01. Philip Lynott - Yellow Pearl  (2:55)
-02. Visage - Fade To Grey  (3:50)
-03. Duran Duran - Planet Earth  (3:53)(   Читать дальше...   )Релиз состоялся: 13 октября 2017 годаЖанр: 1980s, pop, rockПродолжительность: 03:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3F6C67E425F239535F6A810686A82B3B4DC3FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275639   (789786) от 12.01.2019
-
-Permute 3 v3.0.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 08.01.2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CB68A82D5B6F350EF11A7086ACDECBEF980AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275595   (789785) от 12.01.2019
-
-Smith and Winston (2019) [En] [macOS Native game]
-
->>Игры для macOS
->>Action, FPS для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведите Смита и Уинстона, двух несчастных авантюристов, которые исследуют разрушенный кольцевой мир и раскрывают его секреты, сражаются с вторгающимися инопланетянами и предотвращают надвигающуюся гибель звездной системы.
-
-Только вы можете спасти мир от зла, которое приближается и, возможно, в конечном счете, всю галактику.
-(   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: Execution Unit LtdПоддерживаемая ОС: 10.9+Жанр: Экшены, ИндиЯзык озвучки: английскийЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86086BB871E14BEA1CEE8278B26AAFFCF6C74019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275579   (789784) от 12.01.2019
-
-Шрифты - Creative Market - Worthy Roman&Cyrillic Script - 684788 [TTF, OTF, WOFF, EOT]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы ищете кисть ручной работы со смелыми, но стильными символами, Worthy - это то, что вам нужно! Он включает в себя основные знаки препинания, цифры, римский и кириллический шрифт.Формат: TTF, OTF, WOFF, EOT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B45EF073D9654FBD3AA9D4765BDB2E37A61EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275608   (789783) от 12.01.2019
-
-3D модели - Daz 3D - Lee 8 Pro Bundle - 55069 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Lee 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBD487FE9C37DE6F0B1E568B5004BB5652A1A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275524   (789782) от 12.01.2019
-
-И.М. Мазиров | Газон. Создание и уход (2019) [PDF, RTF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789782.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге я хочу поделиться своим опытом. Работая в сфере ландшафтного дизайна и озеленения частных участков, сложно не заметить, какие изменения происходят на них. Люди перестают воспринимать свой участок как продовольственная базу. Наконец-то люди в России всё больше и больше задумываются об эстетической стороне своей дачи.
-Главным компонентом эстетичности и (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF2D2CD32CD4D53B550302FCAB1ACF3088BC7DF
+magnet:?xt=urn:btih:967B7CC533A689DC4E66503AA89580DEA712543F
 ```
 
 https://mybot314.ru/tekegram_catalog/

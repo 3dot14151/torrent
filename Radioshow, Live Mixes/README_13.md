@@ -1,3 +1,90 @@
+###  Публикация: 1164787   (439692) от 10.09.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 512 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kamilo Sanclemente - Another Earth (Original Mix)
+02. Orsen - Cloudspotting (Original Mix)
+03. Havoc & Lawn Anderblast - Genesi (Original Mix)
+04. Kidnap Kid - Where The Sea Swings In Like An Iron Gate (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE2756BB1B973190B8A09357800B0894C440AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410239   (438336) от 20.09.2020
+
+VA - Armin van Buuren - A State Of Trance Episode 982 (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elysian - Water
+02. Kyau & Albert - What It Takes (Maywave Remix)
+03. Super8 & Tab - Cova
+04. Ando - Vega(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2004A176295C8B81C39C48298B7E3DC22B9B0B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165780   (430788) от 14.09.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 513 (Beyond The Lights Album Special) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Matan Caspi - Shiny Coral Reefs (Alex Vidal Remix)
+02.Fat Sushi - Metropolis (Original Mix)
+03.Stan Kolev & Matan Caspi - Eternity (Original Mix)
+04.Dominic Manns - Lucid Dream (Vocal Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A8D22B5409B290B18E26158EF3735F1F0633DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411459   (427461) от 25.09.2020
 
 VA - Armin van Buuren & Rodg - A State of Trance ASOT 983 (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -658,93 +745,6 @@ Neptune Project - Live @ Intricacy Albuquerque, New Mexico, United States 2019-0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:537F5F72055E6A0A898D8BC8A8FF9D13E377B19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329541   (352262) от 05.10.2019
-
-Paul van Dyk - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk pres. Shine - SHINE Ibiza Anthem 2018 (Intro Edit)
-02. UDM - World Of Illusion
-03. Paul van Dyk & Steve Dekay - Aurora
-04. System F - Out Of The Blue (Giuseppe Ottaviani 2010 Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1A29A369EB4F27F68D5A7C3CCAA90E46CDEB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330020   (347864) от 07.10.2019
-
-VA - Live @ Ultra Music Festival Croatia (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jeffrey Sutorius (Dash Berlin) @ Mainstage, Ultra Music Festival Europe, Croatia 2019-07-14:
-01. Martin Garrix - Pizza
-02. Alesso feat. Tove Lo – Heroes (Dash Berlin Rework)
-03. Laidback Luke & Marc Benjamin – We’re Forever (Dash Berlin Remix)(   Читать дальше...   )Жанр: Trance, Techno, HouseПродолжительность: 17:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2AA4E59566ECDFC3717C14E482900282BFB958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257376   (345800) от 26.10.2018
-
-VA - Markus Schulz - Global DJ Broadcast - Afterdark (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz presents Dakota vs. Arkham Knights - Something About You
-02. Carl Cox, Reinier Zonneveld & Christopher Coe - Inferno (Markus Schulz Afterdark Reconstruction)
-03. Sonate - Sequenced (Markus Schulz Afterdark Reconstruction)
-04. Arkham Knights vs. Jam El Mar - Wake Up(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B346E7807E6631A9561E8FEEA6D870948B878B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

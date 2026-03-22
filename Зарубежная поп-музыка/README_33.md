@@ -1,3 +1,119 @@
+###  Публикация: 1141986   (646510) от 12.06.2017
+
+Chromatics - Just Like You (2016) Vinyl, EP [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can Never Be Myself When You're Around
+02. Just Like You
+03. Hands In The Dark
+04. Lady Night Drive(   Читать дальше...   )Жанр: Electronic, Alternative Pop, SynthpopПродолжительность: 00:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE578E0A4924F25757519A0A02AE607621B47B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142014   (646326) от 12.06.2017
+
+Chromatics - Cherry (2016) [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry
+02. Candy
+03. Headlight's Glare
+04. Ceremony(   Читать дальше...   )Жанр: Electronic, Alternative Pop, SynthpopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002CFD4E2097D02E4FA2DD1769D068F63EFBEDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906310   (645655) от 08.06.2015
+
+Izia - La Vague (2015) [OGG|497-517 кб/с]<Alternative, French Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey (03:59)
+02. La vague (03:55)
+03. You (03:48)
+04. Les ennuis (03:02)(   Читать дальше...   )Жанр: Alternative, French Pop RockПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D518EF25155C7EB387FDB205E9B9B1B4A9AC73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906414   (645530) от 08.06.2015
+
+James Blunt - All The Lost Souls (2007) [MP3|320 кб/с]<Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1973 (04:40)
+02. One Of The Brightest Stars (03:12)
+03. I'll Take Everything (03:05)
+04. Same Mistake (04:59)(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D60DC90ECC2EBD942B058CFB8C0E291B6341F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905803   (645527) от 08.06.2015
 
 Sister Crayon - Devoted (2015) [MP3|320 кб/с]<Trip-Hop, Dream Pop, Indie>
@@ -626,122 +742,6 @@ VA - Pop Remixes Mixed By Christian Bartasek (2018) [MP3|320 Kbps] <Dancecore, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7765ED87907BAC2DD6DC2682D362EDA4DE6BA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033406   (638232) от 11.07.2016
-
-Cellars - Phases (2016) [MP3|320 Kbps] <80's Retro Pop, Synth Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stircrazy
-02. Do You Miss Me?
-03. Real Good Day
-04. Still in Love(   Читать дальше...   )Жанр: 80's Retro Pop, Synth Pop, Female VocalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECD544BAE06B47D9BA9C06D2C55C53C4529B0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033535   (638231) от 11.07.2016
-
-Susan Wong - Woman In Love (2014) [MP3|320 Kbps] <Pop, Easy Listening, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Woman In Love    03:41
-02.  I Honestly Love You    03:26
-03.  Chain Reaction    03:39
-04.  Can't You See (I'm Falling In Love)    03:39(   Читать дальше...   )Жанр: Pop, Easy Listening, VocalПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5CB0E51F87A91F13F880E6CB72026A58ADFD1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907603   (638193) от 12.06.2015
-
-Sally Dige - Hard To Please (2015) [MP3|320 кб/с]<Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638193.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hard To Please
-2. Immaculate Deception
-3. So Far Away
-4. Doppelganger(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB2E882A4983D6AC5DDE3CC055E164290CB57DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907623   (638191) от 12.06.2015
-
-Nate Ruess - Grand Romantic (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grand Romantic (Intro) (0:42)
-2. AhHa (4:23)
-3. Nothing Without Love (3:56)
-4. Take It Back (4:23)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DD3CD62BC93AEA8CD476307BAC26C013BE5BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

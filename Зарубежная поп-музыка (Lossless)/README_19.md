@@ -1,3 +1,206 @@
+###  Публикация: 999596   (863043) от 23.03.2016
+
+HorrorPops - Bring It On! (2005) [FLAC|Lossless|tracks] <Pop-Rock, Alternative, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freaks In Uniforms   02:45
+02. Hit 'N' Run   03:34
+03. Bring It On!   02:17
+04. It's Been So Long   03:27(   Читать дальше...   )Жанр: Pop-Rock, Alternative, Indie RockПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A3B4C82ED5070ADB72D4620B150B48E59EF994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497932   (861365) от 24.09.2021
+
+Adolescent's Orquestra - Millenium Hits (1999) [FLAC|Lossless|image + .cue] <Salsa>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anhelo
+02. Hoy Aprendi
+03. Persona Ideal
+04. Arrepentida(   Читать дальше...   )Жанр: SalsaПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1717408DC43C8DF257310AF68812DDD227BC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497783   (861177) от 24.09.2021
+
+Natalie Imbruglia - Firebird (2021) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Build It Better (03:24)
+ 02. Nothing Missing (03:14)
+ 03. What It Feels Like(03:54)
+ 04. On My Way (03:37)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A96CFFD8C5AF402711F997ADEE1BA795D4058BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109094   (860750) от 26.02.2017
+
+Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiroshima (6:52)
+ 02. ( Life may be ) A big insanity (4:30)
+ 03. Johnny wanna live (4:29)
+ 04. Lovelight in your eyes (5:29)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000136   (860648) от 24.03.2016
+
+AURORA (Aksnes) - All My Demons Greeting Me As A Friend (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Art Pop, Indie Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway
+02. Conqueror
+03. Running with the Wolves
+04. Lucky(   Читать дальше...   )Жанр: Alternative Art Pop, Indie Pop, SynthpopПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B514FA7E571CC8D1979F2723C9710A2112FF918B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376261   (860489) от 17.04.2020
+
+Лили Иванова - 2 Albums (1999 - 2001) [FLAC|Lossless|tracks + .cue]<Pop, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовта е по-силна от всичко
+02. Без радио не мога
+03. Море на младостта
+04. Равносметка(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB897686650483DFA1D61C1266AAE8E1962A2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000210   (859279) от 25.03.2016
+
+Solomon Grey - Solomon Grey (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Now
+02. Epitaph
+03. Sweet 84
+04. Last Century Man(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Synth PopПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD444EFD94FBCAD71F6818FA6A0AAAD733D0999E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000098   (859198) от 25.03.2016
 
 Demis Roussos - The Universal Masters Collection (2000) [FLAC|Lossless|tracks] <Pop>
@@ -545,209 +748,6 @@ Sony Music в очередном своем сборнике собрала тр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF25B4E6929A19D40692FEF8C5BF26523A58E39D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110875   (850248) от 04.03.2017
-
-Tokio Hotel - Dream Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something New (5:22)
- 02. Boy Don't Cry (3:33)
- 03. Easy (4:25)
- 04. What If (3:32)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47969E33E5B4F553CD9D46526371368992C6F1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377929   (850170) от 23.04.2020
-
-Sixtine - Sweet Sixteen (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Alternative Pop, Disco, Dancefloor>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:35)
- 02. The Love Disease (5:12)
- 03. Private Inter-Com (4:04)
- 04. Raincheck (4:29)(   Читать дальше...   )Жанр: Electronic, Alternative Pop, Disco, DancefloorПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F434E40D20262CB236A2EB0A167F8C718475C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378022   (850001) от 23.04.2020
-
-Banoffee - Look at Us Now Dad (2020) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, Alternative Rock, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tennis Fan (2:50)
-02. I Lied (Interlude) (0:35)
-03. Fuckwit (3:45)
-04. One Night Stand (3:10)(   Читать дальше...   )Производство: CascineЖанр: Indie Pop, Alternative Rock, Trip HopПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DB6D2786E3F9ADE48E18C5D5A1E547D466A43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110867   (849787) от 04.03.2017
-
-Ed Sheeran - Divide (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eraser (3:48)
-02.  Castle On The Hill (4:21)
-03.  Dive (3:58)
-04.  Shape Of You (3:54)(   Читать дальше...   )Производство: Asylum Records, Atlantic – 0190295859008Жанр: PopПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED16100CA8A52FDE69556D8388C8A5C30F392C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002467   (848994) от 31.03.2016
-
-Lexi Strate - Waves (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Eyes
-02. Out Of My Head
-03. Tattoo
-04. Miss Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A144A4B30714CFC7063142DE7091C2591DF4A3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002581   (847104) от 01.04.2016
-
-Aurora & The Betrayers - Vudu (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul-Jazz Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey, Hey!
-02. Voodoo
-03. Pay Me Back
-04. You Can Come Back(   Читать дальше...   )Жанр: Pop, Rock, Soul-Jazz Female VocalПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2085F7708D493BCA58D7BAE2076A6AEC60CCA0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002652   (846931) от 01.04.2016
-
-VA - Super Sanremo (2015) Compilation, 2 CD [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846931.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-01. Il Volo - Grande Amore    03:46
-02. Chiara - Straordinario    03:09(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4944804B7A174002CE69318F50A6DBA1A1DF7F01
 ```
 
 https://mybot314.ru/tekegram_catalog/

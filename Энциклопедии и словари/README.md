@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1859715   (1061487) от 
+
+Е.Н. Антонова (сост.) | Русско-цыганский словарь (2025) [PDF, FB2, RTF, TXT, EPUB, MOBI] [RU, RM]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это новая редакция словаря, с большим дополнением и исправлениями.  «Русско-цыганский словарь. Диалект русска рома» можно назвать словарём-разговорником. Это один из наиболее полных современных ресурсов по диалекту русских цыган. Издание включает тысячи слов, выражения, грамматические пояснения, ориентировано на сохранение языка и традиций, а также на понимание песенной (   Читать дальше...   )Жанр: Справочная литератураЯзык: Русский. ЦыганскийИздательство: Самиздат в системе RideroФормат: PDF, FB2, RTF, TXT, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A8C47E288B94A922A5BEA8444B438FA77AC151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858802   (1060739) от 13.03.2026
+
+Ольга Бортник | Все алкогольные напитки и коктейли мира (2015) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060739.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге представлены основные виды спиртных напитков: виски, водка, джин, коньяк, ликер, вино и др. Рассказывается об истории их появления, регионах и технологических особенностях производства. Информация о ведущих производителях и марках, а также дегустационные заметки (аромат, вкус), приведенные на страницах этого издания, несомненно, помогут вам лучше разобраться (   Читать дальше...   )Жанр: ЭнциклопедииИздательство: ХарвестФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CEAC4E7581B0D9BFD7F31D8CC5BCB32BB702B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858262   (1060320) от 10.03.2026
 
 О.В. Михайлова (ред.) | Словарь синонимов русского языка. Словарь антонимов русского языка (2016) [PDF]
@@ -636,60 +688,6 @@ Emphasizes (   Читать дальше...   )Жанр: Энциклопеди
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849415   (1053777) от 23.01.2026
-
-Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Places, Things (and Foods) Every Jew Should Know (2022) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celebrate Jewish culture with this fun collection of facts and stories!
-
-Jewish traditions aren't just something they sing about in Fiddler on the Roof. Explore them all with this delightful book of essential Jewish foods, philosophers, pop culture, and more. It's sure to be way more satisfying than the typical encyclopedia—but probably not as exciting as finding (   Читать дальше...   )Жанр: Энциклопедии, Традиции народовЯзык: АнглийскийИздательство: CallistoФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023E9339C39F1EBCD5A28480C9050ECA8F69A217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849414   (1053776) от 23.01.2026
-
-I. McNeil | An Encyclopedia of the History of Technology (2002) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dr Johnson wrote, ‘A man may turn over half a library to make one book’. In the present case around a score of writers have turned over about as many libraries to make this Encyclopaedia. The Book of Proverbs states, ‘God hath made man upright; but they have sought out many inventions’. Whatever one may think about Charles Darwin’s ‘Descent of Man’, it is a fact (   Читать дальше...   )Жанр: Энциклопедии, История, ТехнологииЯзык: АнглийскийИздательство: Taylor & Francis e-LibraryФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756C5842B25BA20B1EF3F6ACDBC879D4BDAAF1DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

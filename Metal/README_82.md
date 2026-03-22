@@ -1,3 +1,119 @@
+###  Публикация: 1078789   (298148) от 02.12.2016
+
+Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories of Tomorrow
+02. Burn It All
+03. A New Dawn
+04. Rise Again(   Читать дальше...   )Жанр: Gothic, Melodic Death MetalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2369C80FCF2C8C15A98EF872245C0AB8EE6019DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423816   (298072) от 14.11.2020
+
+Light Field Reverie - Another World (2020) [MP3|320 Kbps] <Progressive Metal, Doom Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultraviolet (06:52)
+ 02. The Oldest House (06:08)
+ 03. Ghost Bird (08:44)
+ 04. Another World (05:47)(   Читать дальше...   )Жанр: Progressive Metal, Doom Metal, Female VocalПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006A7DE2BCB01FFBC52487F0C9DD7C795A18F2AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079053   (298053) от 02.12.2016
+
+Amorphis - His Story - Best Of (2016) [MP3|320 Kbps] <Progressive, Doom, Folk, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karelia
+02. The Gathering
+03. Exile of the Sons of Uisliu
+04. Into Hiding(   Читать дальше...   )Жанр: Progressive, Doom, Folk, Melodic MetalПродолжительность: 02:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF057E84821597F21CCFFD49B25313EEB4D59D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185063   (296945) от 19.11.2017
+
+Helloween - Sweet Seductions (2017) 3CD Compilation [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296945.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Walls of Jericho
+02. Ride the Sky
+03. Starlight(   Читать дальше...   )Жанр: Power MetalПродолжительность: 03:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C613DE34D8E560FCB97DEED7D5000CF74F55DB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962031   (296800) от 03.12.2015
 
 Megaherz - Erdwarts (2015) EP [MP3|320 кб/с]<Industrial Metal, NDH>
@@ -623,128 +739,6 @@ Edenbridge - 10 альбомов (2000-2013) [MP3|320 кб/с]<Symphonic Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93B6AEB3F09A013D2CB58C85798D6545D15C447C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264258   (282663) от 22.11.2018
-
-Accept - Symphonic Terror (Live at Wacken 2017) (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die by the Sword
-02. Restless and Wild
-03. Koolaid
-04. Pandemic(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E07F833FD7F811520C5683602E140E4D36935B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264358   (281155) от 23.11.2018
-
-In The Woods... - Cease The Day (2018) [MP3|320 Kbps] <Doom Metal, Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281155.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Empty Streets
-2. Substance Vortex
-3. Respect My Solitude
-4. Cloud Seeder(   Читать дальше...   )Жанр: Doom Metal, Atmospheric Black MetalПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75202CC3C05BDE4808E0961FFC470929C414A4BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964481   (281058) от 12.12.2015
-
-Overdoze - Supreme Dosage (2015) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dosed Back To Reality
-02. Way Of The North
-03. Abyssus
-04. Asylum Of Madness(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BE11DEEDA6F500C86AF8A4B5CCFB463A26560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272671   (279214) от 19.12.2010
-
-Arwen - Memories of a dream (2002) [MP3|320 kbps]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279214.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Transcendental Overture
-2. Dreamland
-3. Between Love And Pain
-4. Time's Gate
-5. Alone
-6. So High
-7. Woodheart
-8. Once Upon A Time
-9. Eternally
-10. At The End(   Читать дальше...)Жанр: Symphonic Power MetalПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8596B2DD7DFB489862CB99E5D67B53750FAA5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

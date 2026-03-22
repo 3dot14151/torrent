@@ -1,3 +1,61 @@
+###  Публикация: 1522677   (756329) от 08.01.2022
+
+VA - Наше Радио. Лучшее '2021 (2022) MP3 от DON Music [MP3|320 Kbps] <Русский Рок>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_756329.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J-МОРС - Здравствуй
+002. Сурганова и Оркестр - Волчица
+003. СерьГа - Своим чередом
+004. Майк Привалов - Пароль(   Читать дальше...   )Жанр: Русский РокПродолжительность: 12:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F897216B48B9AA2A78B8455D33E549B77F9205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018342   (755685) от 20.05.2016
+
+VA - Русский Популярный Хит Формат (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755685.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Темникова - Ревность
+002. Блокбастер - Девушка-Печаль
+003. N.A.O.M.I. (Наоми) - Надо Бы
+004. Tiger Family - Доза Витамина(   Читать дальше...   )Жанр: PopПродолжительность: 11:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FA99678CC1FF0B716E0B6A59F9A0A45FFED797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522860   (755313) от 09.01.2022
 
 VA - Beatport Hardstyle: Electro Sound Pack #392 (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Core Dance>
@@ -78,6 +136,35 @@ VA - The Winter Pop Kaleidoscope (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8F867AF58BE9955598C0EED357E380116117FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522870   (755179) от 09.01.2022
+
+VA - Beatport Hard Dance: Electro Sound Pack #394 (2022) [MP3|320 Kbps] <Hard Electro Dance, Hardstyle, Core Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_755179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это активная, бодрящая, воодушевляющая музыка, ведомая силой и духом. 125 композиций станут отличным дополнением к любой тренировке, будь то фитнес или бодибилдинг, и помогут стать быстрее, здоровее, выносливее, и конечно же красивее!001. T-Ty & Kullerй - Turn Around
+002. Al Storm & Darren Tyler - Crazy 'bout Your Love
+003. System Of Loudness - Problems
+004. Clockartz - Falling To Pieces(   Читать дальше...   )Жанр: Hard Electro Dance, Hardstyle, Core DanceПродолжительность: 08:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E241C2498FB6EF9ABE7F3740BC404EAF497E1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,93 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 3 (2016) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F654E57E8B6AFFFF53F4652E143E4FBB315AC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019616   (748198) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 10 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - Diamonds Never Made A Lady ( 1985 )
-02. Grant Miller - Doctor For My Heart ( 1986 )
-03. Les McKeown - It' A Game ( 1989 )
-04. Trans X - Living On Video ( Radio Mix 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5D1E4CA183C4CC1D06CC9F25C601858B72010F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019564   (747865) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 1 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - The Loco-Motion ( 1988 )
-02. Modern Talking - You're My Heart, You're My Soul ( 1984 )
-03. Bad Boys Blue - Pretty Young Girl ( 1985 )
-04. Silent Circle - Sib Dub Dua ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF11C526BBEE87A06A512455B6198E26CB2C260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396498   (746839) от 15.07.2020
-
-VA - Modern Disco Fever (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746839.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sunner Soul - The Mystery Of Loops
-002. Tj Edit - Xfunk (Original Mix)
-003. Cavego - Rask Gange (Extended Mix)
-004. The Familys Ja - Throught The Night(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 11:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4370AB5CF5466AEE59A0B86978338A24E0CB63F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

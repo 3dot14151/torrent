@@ -1,3 +1,56 @@
+###  Публикация: 950882   (367136) от 27.10.2015
+
+Проекты - TEMPLATE TRANSITION LED 02 For Sony Vegas Pro [VEG]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в SVP Pro 11,12,13.Формат: VEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D118B861A734908B39ED5CC2CCDBA88EF76624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070383   (366410) от 07.11.2016
+
+Проекты - VideoHive - Colorful Opener - 17727616 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный и динамичный проект для создания слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111BF1750CBB8F107707CE04AC8917846D7D47E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070557   (366293) от 07.11.2016
 
 Проекты - VideoHive - Inspired Slideshow [AEP]
@@ -631,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6755BAC3B07D89A6E07F1234203B4CCFC668C969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952518   (355443) от 01.11.2015
-
-Проекты - VideoHive - Funky and Grunge Vintage Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания винтажного слайд-шоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DD0889EED605DCAAE2841B53B4875CFED0B133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951848   (355360) от 01.11.2015
-
-Проекты - VideoHive - Glass Shard [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C24F34DD7EABDC579E49E05D4109D733FE2D85
 ```
 
 https://mybot314.ru/tekegram_catalog/

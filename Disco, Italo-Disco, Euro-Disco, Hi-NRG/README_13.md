@@ -1,3 +1,32 @@
+###  Публикация: 1129189   (724362) от 27.04.2017
+
+Fun Fun - 2 Albums (1984, 1987) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девичий Italo-Disco дуэт "Fun Fun"  был образован в 1983 году, и в его первоначальный состав вошли две симпатичные девушки-модели: Франческа Мерола (Francesca Merola) и Роберта Сервелли (Roberta Servelli), которую позже заменила Элена (Elena). Однако реальными же вокалистками проекта были Antonelle Pepe, Angela Parisi и популярная певица Ivana Spagna, позднее (   Читать дальше...   )01. Give Me Your Love (5:32)
+02. Sing Another Song (5:06)
+03. Tell Me (4:57)
+04. Living In Japan (5:18)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3795E5F28A7FAD6C7E19047AC121A90B1192515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104482   (723978) от 14.02.2022
 
 Cerrone - 32 Albums (1976-2021) Collection [MP3|320 Kbps] <Electronic, Funk-Soul, House, Disco>
@@ -714,35 +743,6 @@ Giorgio and Chris - Loves In You, Loves In Me (1978) [MP3|320 кб/с] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4492FE88A2780A2C13B4165F3E250316E45F8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025470   (709930) от 12.06.2016
-
-Giorgio Moroder - Midnight Express (1978) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chase (8:25)
-02. Love's Theme (5:33)
-03. (Theme from) Midnight Express (4:39)
-04. Istanbul Blues (3:22)(   Читать дальше...   )Жанр: Electronic, Disco, SoundtrackПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286CBBF8A7B6F7B7133DC96D64CE9FD116F9385E
 ```
 
 https://mybot314.ru/tekegram_catalog/

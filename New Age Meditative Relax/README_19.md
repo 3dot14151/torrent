@@ -1,3 +1,32 @@
+###  Публикация: 1568851   (453497) от 12.08.2022
+
+Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Spirits               	3:30
+02. Close To Heaven            	3:49
+03. Can You Heal Me?         	4:18
+04. Believe In Your Dreams!	4:04(   Читать дальше...   )Жанр: New Age, TribalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574A3FFC11787C1B88272D3338BBD23369621442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569198   (453494) от 12.08.2022
 
 Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
@@ -743,35 +772,6 @@ Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [MP3|320 кб/с]<Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FF51425921B8C9EADDC285A483D5E4B00A369CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946683   (425156) от 14.10.2015
-
-Hans Christian - Nanda Devi (2015) [MP3|320 кб/с]<New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Light
-02. Majestic Mountain
-03. My Inner Ascent
-04. Eternal Spring(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EC0F410A5E4671E9157F52B419038F967B31DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

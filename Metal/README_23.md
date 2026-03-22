@@ -1,3 +1,32 @@
+###  Публикация: 1376272   (860702) от 17.04.2020
+
+Vermicide Violence - The Praxis of Prophylaxis (2020) [MP3|320 Kbps] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exuberant Sputum [00:03:17]
+02. A Dyspneic Frenzy [00:02:58]
+03. Coronaviscerated (feat. Jared Dines) [00:03:38]
+04. West of the Nile [00:02:52](   Читать дальше...   )Производство: Chodezilla RecordsЖанр: DeathcoreПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2C62E2EF54AE8BEF7B88069AD52608011AB187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376340   (860693) от 17.04.2020
 
 Jarrod Alonge - Beating a Dead Horse (2015) Deluxe Edition [MP3|320 Kbps] <Metalcore, Post-Hardcore, Electronic>
@@ -716,35 +745,6 @@ Within The Ruins - Halfway Human (2017) [MP3|320 Kbps] <Progressive Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F400BA8BA6E9749EBFC6674F97054519D06FA7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110491   (852023) от 03.03.2017
-
-Emmure - Look At Yourself (2017) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Asked for It (01:32)
-02. Shinjuku Masterlord (03:09)
-03. Smokey (02:01)
-04. Natural Born Killer (02:38)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA1E61A1CD018E9D0CB984A9628183A72CBBDF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1218514   (721399) от 10.04.2018
+
+Fancy - 30 Years - The New Best Of (2018) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames of Love (Radio Version) (3:28)
+02. Slice Me Nice (4:06)
+03. Come Back and Break My Heart (Radio Mix) (4:01)
+04. We Can Move a Mountain (Single Version) (3:48)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D562C87715EA9C2DE62F48ADD9760EFECF1D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218622   (721272) от 10.04.2018
+
+VA - 100 Hits - The Best Love Album (2017) [MP3|320 Kbps] <Pop, R&B, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721272.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Eric Carmen - All By Myself 4:30
+02. The Bangles - Eternal Flame 3:56
+03. Harry Nilsson - Without You 3:17(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 06:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928DD55CD5D335EEE9D75505CB0D47B375BA0E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400402   (721188) от 04.08.2020
+
+Herbie Mann - 2 Albums (1976, 1978) [MP3|320 Kbps] <Funk Soul, Jazz, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герберт Джей Соломон (англ. Herbert Jay Solomon), более известен как Херби Мэнн (англ. Herbie Mann) (1930-2003) - американский джазовый музыкант, флейтист, композитор, бэнд-лидер. Один из первых джазовых музыкантов, специализировавшихся на флейте. Особенно известен своими экспериментами в области соединения этнической (бразильской, афрокубинской и т.п.) музыки и (   Читать дальше...   )01. Bird In A Silver Cage (12:45)
+02. Aria (4:50)
+03. Fly, Robin, Fly (1:09)
+04. Birdwalk (7:31)(   Читать дальше...   )Жанр: Funk Soul, Jazz, Pop, DiscoПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0545C190EC899FA12E9CCA474EAC79F42B31A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129508   (720776) от 29.04.2017
+
+VA - Spring Break Party 2017 Powered By Xtreme Sound (2017) [MP3|320 Kbps] <Deutscher Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Wackel – Die Nacht von Freitag auf Montag (Party Mix)[2:58]
+02. Lorenz Buffel – Johnny Dapp (Harris & Ford Remix Edit)[3:54]
+03. Tobee – 3 Promille (Doch da geht noch was)[2:59]
+04. Mia Julia – Hey Mr. DJ[3:36](   Читать дальше...   )Жанр: Deutscher PopПродолжительность: 02:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABAFD16FF19411151F014CD55FED8FD59CA79AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218782   (719383) от 11.04.2018
 
 VA - Ministry Of Sound I Love Acoustic (2018) 3CD [MP3|320 Kbps] <Pop>
@@ -627,123 +743,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC91B377F0BE34E8D39193B3540DB8E4D6854535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131012   (710667) от 04.05.2017
-
-VA - Move on Up – Dance Music (2017) [MP3|320 Kbps] <RnB, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curtis Mayfield – Move on Up (02:46)
-02. Bloodstone – Stand Up, Let’s Party (05:52)
-03. Norma Jean Wright – Sorcerer (05:01)
-04. Randy Crawford – Street Life (Edit) (04:49)(   Читать дальше...   )Жанр: RnB, Soul, DiscoПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97EC72C71E7B1A10318BC451BD92193EB5853A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131073   (710517) от 04.05.2017
-
-Gina T. - 3 Albums (1991-2011) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джина (Gina Tielman) родилась в 1960 году в голландском городке Bussom. С детства она пела и писала стихи, окончила музыкальную школу и подрабатывала сессионной бэк-вокалисткой в том числе и в группе "Rising Sun".
-В конце 80-х продюсер Адам Шайрер с лейбла Bellaphon, ставший некоторое время спустя её супругом, предложил Джине записать сольный сингл. Композиция (   Читать дальше...   )Список альбомов:
-1991 - You Really Got Me
-1992 - The Window Of My Heart
-2011 - Love Will Survive(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro HouseПродолжительность: 02:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6D1C63199EF786396DF142FFC6E89928F80168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219958   (709950) от 16.04.2018
-
-VA - Radio Italia Spring (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709950.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 Non mi avete fatto niente - Ermal Meta & Fabrizio Moro
-02 Nessuno vuole essere Robin - Cesare Cremonini
-03 Da sola / In the night (feat. Tommaso Paradiso e Elisa) - Takagi & Ketra(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD47C2485C4850F61B8D27FBEC1382CFB681BAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532827   (708985) от 22.02.2022
-
-VA - Top Easy Listening Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved
-02. Gracie Abrams - Stay
-03. Maroon 5 - Girls Like You
-04. Xavier Rudd - Follow The Sun(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592232322A02333447878573D330EA85EDD6D38B
 ```
 
 https://mybot314.ru/tekegram_catalog/

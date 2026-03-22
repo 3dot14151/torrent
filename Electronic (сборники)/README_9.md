@@ -1,3 +1,61 @@
+###  Публикация: 1466941   (1018078) от 02.05.2021
+
+VA - Record Super Chart 01.05.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eneli, Monoir - 3 to 1 (3:39)
+02. Tiesto - The Business (2:44)
+03. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)
+04. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3785AA5CFAAF6961B8250D0A0A59B971BDA0C3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468950   (1016781) от 10.05.2021
+
+VA - Beatport Deep House: Sound Pack #280 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелодичность, индивидуальный формат в аранжировке, классические струнные, душевный и виртуозный вокал, кристально возвышенное, отшлифованное до идеала, звучание – всё это охарактеризовывает композиции апрельского 280-го микса Deep House музыки от известного лейбла.001. Librium Project - Ghetto Blessing
+002. Benjamin Bryan - Zonero
+003. Martinoresi - Put Me Out
+004. Controlwerk & Matter - Onyx(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9999EF9FE9FFF955BE13AC41118C9DED6E87C70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468895   (1016768) от 10.05.2021
 
 VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Beatport Electro House: Sound Pack #287 (2021) [MP3|320 Kbps] <House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C17F8ECFE9A7EF2BB2A65C23F0F035B10F55D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473679   (1013536) от 30.05.2021
-
-VA - Record Super Chart 29.05.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna - Flashbacks (2:57)
-02. Tiesto - The Business (2:44)
-03. Nessa Barrett feat. jxdn - la di die (3:15)
-04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D95F2F678528B99CF24318F34850C84D41C749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473992   (1013403) от 31.05.2021
-
-VA - Synergetic Nightclub (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013403.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Folklore & Vacce - Krater
-002. Caox & Chris Fielding - Enemy
-003. Andrew Fields - Secret Place
-004. Maph - Ridin Dirty(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 986432   (930122) от 14.02.2016
+
+Pink Floyd - A Momentary Lapse Of Reason (1987) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signs Of Life (4:23)
+02. Learning To Fly (4:53)
+03. The Dogs Of War (6:11)
+04. One Slip (5:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EBBE28EFC232D3F71D3DFED971BA8A074DF652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755041   (929782) от 09.02.2014
+
+Indica - Shine (2014) Limeted Digipack [FLAC|Lossless]<Symphonic Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain made of stone
+02. Uncovered
+03. A definite maybe
+04. Goodbye to Berlin(   Читать дальше...   )Жанр: Symphonic Rock, Pop-RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5E2D78EC8B4AA0D4BB69E8352EAF3E28A5F45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986930   (928929) от 15.02.2016
+
+Eagles - Their Greatest Hits 1971-1975 (1976) Compilation, Reissue, 1990, Asylum Records [FLAC|Lossless|image + .cue] <Classic Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take It Easy - 3:29
+02. Witchy Woman - 4:10
+03. Lyin' Eyes - 6:23
+04. Already Gone - 4:12(   Читать дальше...   )Жанр: Classic Rock, Country RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233433C035804AC877934B4EAFF6B30D0E861E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987257   (927968) от 16.02.2016
+
+Marty Walsh - The Total Plan (2014) [FLAC|Lossless|tracks] <Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like a Rock  03:58
+02. Feeling Free  04:48
+03. Groove Mechanics  05:11
+04. Fuel  04:59(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFCFF7122E7E529A69D3E3EF8BEAFB786E18FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987270   (927914) от 16.02.2016
 
 Doobie Brothers - Siblings Rivalry (2000) [FLAC|Lossless|tracks] <Rock, Pop>
@@ -625,128 +741,6 @@ Lacrimarum - My Never Fading Star (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E19AE9D92A70954128F0BD6312DA365D84EC05B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288982   (919853) от 30.01.2011
-
-Chris Isaak - 14 альбомов (1987-2009) [FLAC|Lossless]<Rock'n'Roll, Roots Rock, Rockabilly, Surf Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cheater's Town
-02 - We Let Her Down
-03 - You Don't Cry Like I Do
-04 - We've Got Tomorrow
-05 - Breaking Apart (Duet With Trisha Yearwood)
-06 - Baby Baby
-07 - Mr. Lonely Man
-08 - I Lose My Heart (With Michelle Branch)
-09 - Summer Holiday
-10 - Best I Ever Had(   Читать дальше...)Жанр: Rock'n'Roll, Roots Rock, Rockabilly, Surf RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096363   (919404) от 24.01.2017
-
-Paradigm Shift - Becoming Aware (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Revolutionary Cure (14:49)
-2. An Easy Lie.(8:47)
-3. The Void.(3:19)
-4. The Shift (4:33)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8242085E42269AEC062CA44154E0EA229DE4E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096517   (919291) от 24.01.2017
-
-Serj Tankian - Orca (Symphony No. 1) (2012) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Act I - Victorious Orcinus (08:45)
-02. Act II - Oceanic Subterfuge (08:05)
-03. Act III - Delphinus Capensis (07:58)
-04. Act IV - Lamentation Of The Beached (08:53)Жанр: Alt. Rock, ExperimentalПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAA46A7B3FE6C9C336DA5CB613FC793B6178BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096510   (919207) от 24.01.2017
-
-Marillion - Marbles In The Park (2017) 2CD [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Hurt Yourself (5:40)
-2. You're Gone (6:59)
-3. Angelina (10:42)
-4. Drilling Holes (5:06)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8F7050785DF6F6A5FB8DA7883B12D8961D9426
 ```
 
 https://mybot314.ru/tekegram_catalog/

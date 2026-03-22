@@ -1,3 +1,61 @@
+###  Публикация: 1566172   (486388) от 27.07.2022
+
+VA - Oriental Beauty: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prana Tones - Eastern Voices (Original Mix) (3:44)
+02. J. R. Haim - Wanderlust (4:47)
+03. Michael E - The Fourth Element (Original Mix) (5:49)
+04. Marga Sol - Je T'aime (Original Mix) (5:17)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED80184AAE4BFDB3AC4170FE1C3CEAC885B7A5D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937890   (486046) от 16.09.2015
+
+VA - Relax Zone Vol 1 (2015) [FLAC|tracks]<Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baffle - Inside Out... (03:22)
+02. Breex - Somewhere in My Dreams (04:57)
+03. Dave Harrigan - Sunset Avenue (04:22)
+04. CJ Ferrum - Free Flight (03:49)(   Читать дальше...   )Производство: Easy Summer LimitedЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A968D29EF641911841342FF3354BF230689C7797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319249   (484728) от 11.08.2019
 
 Emiliana Torrini - Tookah (2013) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
@@ -685,64 +743,6 @@ Blank & Jones - Relax Edition Nine (2015) [FLAC|tracks+.cue]<Chill Out, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBC99DF29DF4089F20D0C1825928C55DA33FDC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248573   (442239) от 20.09.2018
-
-V.A. - Buddha-Bar XX (2018) 2CD [FLAC|Lossless|tracks + .cue] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Danit - Naturaleza (Mose Edit)
-02. Tim Schaufert - Fallin
-03. Steen Thottrup - Something To Say feat. Lunamila(   Читать дальше...   )Жанр: Lounge, Chillout |Продолжительность: 02:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482A7A66EF0FF4F1B3522A8EBE860CF3F2D4F028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410062   (440595) от 19.09.2020
-
-VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco, Tenor Turner - Atlantis (Original Mix)
-02. Schwarz & Funk - La Otra Cara (Remastered)
-03. Marco Moli - A Piano and a Trumpet (Original Mix)
-04. The Soul Crusaders - When the Night Falls(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAF16B91DEB0793C931CECED06E33BDD373741A
 ```
 
 https://mybot314.ru/tekegram_catalog/

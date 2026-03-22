@@ -1,3 +1,61 @@
+###  Публикация: 1212057   (776430) от 10.03.2018
+
+Жабъ - Гимны Болотному Троллю (2017) [MP3|320 Kbps] <folk,metal,rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пробуждения Жабъа (2:02)
+02. Жабъ и Крот (2:39)
+03. На Битву (3:55)
+04. Уж Следит За Хомяком (2:57)(   Читать дальше...   )Жанр: folk,metal,rockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501FCE0AE24F73DD6691F51DC5E4AE2635A8AA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014420   (776414) от 07.05.2016
+
+Cyndi Lauper - Detour (2016) [FLAC|Lossless|WEB-DL|tracks] <Country, Country Blues, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funnel Of Love (3:15)
+02. Detour (feat. Emmylou Harris) (2:55)
+03. Misty Blue (3:19)
+04. Walkin' After Midnight (2:16)(   Читать дальше...   )Жанр: Country, Country Blues, FolkПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2AFFE368A7BBE0611DF5C196BECFB947B418096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212168   (776390) от 10.03.2018
 
 Sade - Flower of the Universe (From Disney's "A Wrinkle in Time") (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
@@ -685,64 +743,6 @@ Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213013   (773092) от 15.03.2018
-
-Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soon Its Gonna Rain (from The Fantasticks)
-02. Dream, Dream, Dream
-03. Moonlight in Vermont
-04. Moon River (From Breakfast at Tiffanys)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2278F06D8E41251186F5AB935FC1D3F129F3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213214   (773084) от 15.03.2018
-
-Paul Mauriat - Piano Ballade & Remember (2016) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Ballade (1984)
-01. Hello
-02. A Chance for Heaven
-03. Only You(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327ABDE9B798A4B27D93B2EF7FE9F61B6B1D9957
 ```
 
 https://mybot314.ru/tekegram_catalog/

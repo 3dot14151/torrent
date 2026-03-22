@@ -1,3 +1,119 @@
+###  Публикация: 1289946   (682164) от 18.03.2019
+
+Fever Feel - Fever Feel (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spitting Silver (3:57)
+02. Lose Your Mind (3:53)
+03. Far Beyond the Path You See (5:23)
+04. Who Are You? (1:48)(   Читать дальше...   )Жанр: Rock, Indie, PopПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E910B1C71D47255D82497AAF85EFA15C8F1FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289666   (682087) от 18.03.2019
+
+The Fall - Bend Sinister | The Domesday Pay-Off Triad Plus! (2019) RM. [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/18. R.O.D. (Remastered) (4:33)
+ 02/18. DKTR. Faustus (Remastered) (5:34)
+ 03/18. Shoulder Pads 1# (Remastered) (2:56)
+ 04/18. Mr. Pharmacist (Remastered) (2:20)(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FDF635675A3F98F4BC26BE4C8B805B95671930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289938   (682078) от 18.03.2019
+
+Le Butcherettes - bi/MENTAL (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. spider/WAVES (feat. Jello Biafra) (05:47)
+02. give/UP (03:40)
+03. strong/ENOUGH (04:20)
+04. father/ELOHIM (02:19)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCFBC3490B4BAECDC1D467587FFCA6E89E0FD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289679   (682075) от 18.03.2019
+
+The Young Gods - Data Mirage Tangram (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682075.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Entre En Matière (07:11)
+2. Tear up the Red Sky (07:28)
+3. Figure Sans Nom (06:08)
+4. Moon Above (06:01)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndustrialПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758D5299BDD7440BE22C6A8A2109614D3156F0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290144   (682074) от 18.03.2019
 
 Elysian Fields - The Afterlife (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Dark Jazz, Noir Rock>
@@ -638,122 +754,6 @@ Lucy's Drive - Pair Of Sounds (Blue) (2019) [FLAC|Lossless|tracks + .cue] <Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:931FBA00886C5DAD2A75022A682E49D839A5D133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291433   (668909) от 25.03.2019
-
-Swans - What Is This? (2019) Demo [FLAC|Lossless|tracks + .cue] <Industrial, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving Meaning
-02. Hanging Man
-03. Amnesia
-04. The Nub(   Читать дальше...   )Жанр: Industrial, PunkПродолжительность: 01:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146D66CEE81A5572E73471708E699E31239DD1E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290866   (668903) от 25.03.2019
-
-The Brian Jonestown Massacre - The Brian Jonestown Massacre (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668903.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Drained (03:43)
-2. Tombes Oubliées (04:26)
-3. My Mind Is Filled with Stuff (03:35)
-4. Cannot Be Saved (03:58)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE72363A10956DB4371B2EDB0B7FF93AFBE5311E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290852   (668899) от 25.03.2019
-
-Nilufer Yanya - Miss Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie, Soulful>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WWAY HEALTH
-02. In Your Head
-03. Paralysed
-04. Angels(   Читать дальше...   )Жанр: Alternative, Indie, SoulfulПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C14D39C87E02C2175E37B6BF274AE9413964D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290861   (668591) от 25.03.2019
-
-Stephen Malkmus - Groove Denied (2019) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belziger Faceplant
-02. A Bit Wilder
-03. Viktor Borgia
-04. Come Get Me(   Читать дальше...   )Жанр: Rock, Indie Rock, ElectronicПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7710B2487F6002BF24712EA915E596D822B40A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

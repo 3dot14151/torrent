@@ -1,3 +1,118 @@
+###  Публикация: 921900   (573752) от 26.07.2015
+
+Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaohsiung Christmas
+02. Hey, Can We Go Back?
+03. HidupЖанр: Electronic, Indie PopПродолжительность: 00:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90B7051FD880D5FA735BC95E1F8F001D7C8FE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921808   (573643) от 26.07.2015
+
+Inna - Body and the Sun (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Sexy
+ 02. Bop Bop (feat. Eric Turner)
+ 03. Rendez Vous
+ 04. Salina Skies(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7436CF580E6BA61A6BBE7A3B154173BAE2525E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303531   (573085) от 21.05.2019
+
+Elohim - Elohim (2018) Deluxe Edition [Explicit] [MP3|320 Kbps] <Synthpop, Electropop, Indie-Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Am I Like This? (01:50)
+02. The Wave (03:10)
+03. Sleepy Eyes (With Whethan) (03:22)
+04. Skinny Legs (05:10)(   Читать дальше...   )Жанр: Synthpop, Electropop, Indie-DanceПродолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08010C92837674A959E5F5D4C620B07EF636D5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303549   (572887) от 21.05.2019
+
+VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mabel - Don't Call Me Up
+02. Shawn Mendes - If I Can't Have You
+03. Mark Ronson - Nothing Breaks Like a Heart
+04. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA71C2463BA22C9C87FFB9085BCB13D0C9242C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151533   (572441) от 19.07.2017
 
 VA - 80's Chillout. The Ultimate Collection of Chilled 80's Music (2017) [MP3|320 Kbps] <Pop, Chillout, Lounge>
@@ -659,122 +774,6 @@ Men at Work - австралийская поп-рок группа, основ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41156E491CF6248D6D9750FEF32E3127EC0FC969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923870   (561030) от 02.08.2015
-
-Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girly
-02. Sizzlin’
-03. Don’t Even Wanna Teach Me
-04. Liberation(   Читать дальше...   )Жанр: Euro PopПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF7C019229965BAAB257F2C7689DBCC8F0A1446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923910   (560919) от 02.08.2015
-
-VA - Ibiza Lounge Deluxe (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Tokeo - Riva (Restart the Game) (03:00)
-02. Vibe2Vibe - Cheerleader (03:05)
-03. Vibe2Vibe - Lean On (02:57)
-04. DJ Tokeo - Ain't Nobody (Loves Me Better) (03:06)(   Читать дальше...   )Производство: Sugar & Lime RecordsЖанр: Pop, DanceПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396E7C242D15BF324B52FD39A103BFB763E9BBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923921   (560908) от 02.08.2015
-
-Natalie Imbruglia - Male (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instant Crush
- 02. Cannonball
- 03. The Summer
- 04. I'll Follow You Into The Dark(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA2D37683855EA2FA6D025309845166CD768AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235294   (560373) от 11.07.2018
-
-Donna Summer - Summer: The Original Hits (2018) [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Love 03:46
-02. Love To Love You Baby 03:21
-03. I Remember Yesterday 04:42
-04. On My Honor 03:31(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BC717A6E37D8D16F3F303D12F1A748EF38DF76
 ```
 
 https://mybot314.ru/tekegram_catalog/

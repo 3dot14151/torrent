@@ -1,3 +1,32 @@
+###  Публикация: 1394854   (760607) от 07.07.2020
+
+The Last Renegades - Valley of the Kings (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colonel Kill (07:56)
+ 02. Mr Smile (04:18)
+ 03. 300 Strong (05:49)
+ 04. Valley of the Kings (06:34)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35BF227D348E9624E14D8274550ECB38B2F0496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394676   (760606) от 07.07.2020
 
 Operus - Score Of Nightmares (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal>
@@ -716,35 +745,6 @@ Iron Savior - Titancraft (2016) [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC6706B6B17E15990C9CFBCC9B1104C9F2717F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395283   (755662) от 10.07.2020
-
-Hammerhedd - Grand Currents (2020) [MP3|320 Kbps] <Progressive Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gift of Fire (07:59)
- 02. Sediment (05:15)
- 03. Drone (09:27)
- 04. ~Hypnocurrents~ (00:50)(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A8005368F4DDC1D9061439955767F6DC50FCB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

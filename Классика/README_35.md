@@ -1,3 +1,129 @@
+###  Публикация: 563536   (403387) от 22.10.2012
+
+Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403387.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:41) 01. Magyar tAncok No. 5
+(1:55) 02. Monti csardas (intro)
+(3:06) 03. Monti csardas
+(3:47) 04. Torok indulo
+(3:16) 05. Magyar tancok No. 1
+(3:19) 06. Carmen nyitany
+(3:30) 07. Kan-kan
+(3:14) 08. Hegykiraly barlangjaban
+(4:29) 09. Que rico el mambo 'mambo - jambo'
+(3:07) 10. Palotas (a Hunyadi Laszlo c. operabol)(   Читать дальше...   )Жанр: Classical crossover, ViolinПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF38242FFB5C60ABA347AD74C9A82CEFAF66F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563887   (402791) от 23.10.2012
+
+VA - Kopfbezogene Stereophonie "Klassik 1" (1988) 2 Binaural CD[FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_402791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бинауральная запись - это техника записи, при которой микрофоны помещаются в слуховые каналы «искуственной головы» (манекена). Бинауральная запись содержит пространственные детали, определяемые физической структурой искусственной головы. При прослушивании бинауральной записи через головные телефоны с потрясающим реализмом воссоздается исходное трехмерное акустическое пространство.
+(   Читать дальше...   )Johannes Brahms (1833-1897)
+01. Sinfonie Nr. 1-I. Allegro [14:13]
+02. Sinfonie Nr. 1-II. Andante [10:55]
+03. Sinfonie Nr. 1-III. Un poco allegretto e grazioso [04:52]
+04. Sinfonie Nr. 1-IV. Adagio-Allegro non troppo, ma con brio [18:20]
+Domenico Gaetano Maria Donizetti (1797-1848)
+05. Concertino fur Englisch Horn und Orchester-Andante [07:27]
+06. Concertino fur Englisch Horn und Orchester-Allegro [03:48]
+Christoph Willibald Ritter von Gluck (1714-1787)
+07. Ouverture zur Oper 'Iphigenie in Aulis' [13:12]Жанр: ClassicalПродолжительность: 02:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D157070AF8005E340E9C8256609BDC0AFFA50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564043   (402745) от 23.10.2012
+
+J.S. Bach - Goldberg Variations BWW 988 on organ (Elena Barshai) (2007) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_402745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E90E2244693E2223F47A23BE781F8DD850C758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565004   (400789) от 25.10.2012
+
+Mozart, Beethoven, Schumann, Schubert, Grieg - Piano Concertos: Svjatoslav Richter (1990) [FLAC|Lossless]<Classical Period, Concerto, Sonata, Fantasy>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical Period, Concerto, Sonata, FantasyПродолжительность: 00:58:50 - CD1
+01:12:02 - CD2
+01:07:23 - CD3
+01:06:28 - CD4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830FFE0C9B0D0BA2F60CC255BC2586F94D54882E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566870   (394862) от 31.10.2012
 
 Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Romantic Period, Opera>
@@ -695,130 +821,6 @@ J.S.Bach - Ouvertures (The 4 Orchestral Suites) (Bach Collegium Japan, Masaaki S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30F038AC468370CAD92602EC0865498059EC4EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414341   (383167) от 09.10.2020
-
-Charles de Wolff - J.S.Bach. Grote Orgelmis: Schnitger-orgel Grote - of St. Michaëlskerk - Zwolle (2007) [FLAC|Lossless|image + .cue] <Classical, Organ>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Charles de Wolff - голландский органист и дирижер, родился 19 июня 1932 года в Mussel, Onstwedde, Нидерланды, умер 23 ноября 2011 года в Zwolle, Нидерланды.
-Изучал фортепиано и орган в консерваториях Амстердама и Утрехта (в том числе у Anthon van der Horst), затем учился в Париже у Jeanne Demessieux.
-Директор хора Netherlands Bach Society с 1965 по 1983 год. В 1983 (   Читать дальше...   )01. Praeludium pro Organo pleno, E flat major, BWV 552, 1 (09:13)
-02. Kyrie, Gott Vater in Ewigkeit, BWV 669 (03:59)
-03. Christe, aller Welt Trost, BWV 670 (04:26)
-04. Kyrie, Gott heiliger Geist, BWV 671 (04:52)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F252473FDC8B66F85E2AC8F8BAE40E0C7D00D018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174999   (382999) от 16.10.2017
-
-Benny Andersson - Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый фортепианный альбом участника группы ABBA. В альбом вошли композиции, написанные музыкантом на протяжении всей карьеры. Нестареющие хиты одного из лидеров ABBA Бенни Андерссона любимы миллионами меломанов по всему миру. Как демонстрирует этот альбом, выпущенный лейблом Deutsche Grammophon, в должном прочтении свободно льющиеся мелодии хитов поп-квартета превращаются (   Читать дальше...   )01. I Let The Music Speak (3:33)
-02. You And I (6:43)
-03. Aldrig (4:04)
-04. Thank You For The Music (3:43)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA800CA1E2A9F8FB2E5CF6E6FF77D912D68BD8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572878   (382753) от 09.11.2012
-
-Academia Bizantina: A. Vivaldi - Il Cimento dell'Armonia e dell'Inventione op. 8 (2007 (1999)) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in Mi maggiore op. 8 No. 1 - RV 269 - La Primavera
-1. Allegro
-2. Allegro e pianissimo sempre
-3. Danza pastorale. Allegro
-Concerto in sol minore op. 8 No. 2 - RV 315 - L'Estate
-4. Allegro non molto
-5. Adagio-Presto
-6. Presto
-Concerto in Fa maggiore op. 8 No. 3 - RV 293 - L'Autunno
-7. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:45 + 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D650DEA05E1C9A9BF0C6FA0B5DE739993C8C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326710   (380785) от 22.09.2019
-
-Ludovico Einaudi - Seven Days Walking (Day 7) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Campfire Var. 1 (Day 7) (6:05)
- 02. Ascent (Day 7) (5:25)
- 03. A Sense Of Symmetry (Day 7) (3:23)
- 04. Cold Wind Var. 1 (Day 7) (3:03)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3520B867C0DC040DBFBACAD284F1B6D87F596594
 ```
 
 https://mybot314.ru/tekegram_catalog/

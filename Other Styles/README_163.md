@@ -1,3 +1,154 @@
+###  Публикация: 1680665   (133344) от 01.12.2023
+
+James Last - Non Stop Dancing Box (2023) 20 CD, Polydor [ACC|360 Kbps] <Instrumental, Pop, Easy listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133344.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01 - Non Stop Dancing 65-66 - 01:20:37
+CD 02 - Non Stop Dancing 66-67 - 01:15:34
+CD 03 - Non Stop Dancing 67-68 - 01:14:36
+CD 04 - Non Stop Dancing 1968 - 01:11:17(   Читать дальше...   )Жанр: Instrumental, Pop, Easy listeningПродолжительность: 25:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14E263208539F9CAE1C8C7115C5C5A52EB8B1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681758   (132372) от 04.12.2023
+
+Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Brighter Dawn (8:00)
+02. The Gift of Life (6:56)
+03. The Voice Inside (9:28)
+04. Tomorrow's Dream (10:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681768   (132348) от 04.12.2023
+
+Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dendera (11:05)
+02. Pillars of Eternity (9:28)
+03. Of Lapis and Gold (11:36)
+04. Hieroglyphs and Mysteries (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682058   (132055) от 05.12.2023
+
+Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet
+02. Estrella
+03. Fairy of Water
+04. The Field(   Читать дальше...   )Жанр: Score, New AgeПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523B88FD73EB8E988AFE0B878D9D8818D050C599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595456   (131948) от 29.12.2012
+
+Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Preliator
+02 - Mighty Rivers Run
+03 - Prelude (On Earth As In Heaven)
+04 - Spiritus Khayyam
+05 - La Coronacion
+06 - Europa
+07 - Diem Ex Dei
+08 - Orchard of Mines
+09 - Crusaders of the Light
+10 - Madre Terra(   Читать дальше...   )Жанр: New Age, Epic MusicПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682245   (131718) от 06.12.2023
 
 Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
@@ -606,151 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692774   (122196) от 18.01.2024
-
-Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  'Til the End of Time
-02.  Daydreamer
-03.  Walk of Life
-04.  Aisha(   Читать дальше...   )Жанр: New Age/Meditative/RelaxПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECDC6273B67419CEC173F907D737ACFC8CB891A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692580   (122188) от 18.01.2024
-
-VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kindrid Souls - End of Time (6:25)
-02. Marga Sol - Aido (4:38)
-03. Noam Garcia - Main Force (10:56)
-04. Tibetania - Pai Gardens (5:54)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 02:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C02F2196589DA00E9F17225C652A83BF26119F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692718   (122164) от 18.01.2024
-
-Dancing Fantasy - California Grooves (1991) [OGG Vorbis|480 Kbps] <New Age/Meditative/Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Good Morning America
-02.  Get Things Straight
-03.  Streethoppin'
-04.  Are You Ready(   Читать дальше...   )Жанр: New Age/Meditative/RelaxПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771541EE4C80CC6BB8D46D58061A131E93C6CFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693600   (121727) от 21.01.2024
-
-Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 2005, Beat Records Company [OGG Vorbis|480 Kbps] <Stage & Screen, Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Il grande silenzio (Restless)
-02.  Passaggi nel tempo
-03.  E l'amore verra
-04.  Barbara e tagliente(   Читать дальше...   )Жанр: Stage & Screen, Soundtrack, ScoreПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9098AE8F3F85C9B93609265AE862FC237C795575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693046   (121723) от 21.01.2024
-
-Dj Eroticamila, Ibiza Sexy Chill Beats - Deep Sexual Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Shades of Love (5:17)
-02. Aromatherapy Essential Oils (Jazz Guitar) (6:18)
-03. Best Sex Music (Chill) (5:42)
-04. Erotic Massage (5:42)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFAF2856CC5815CF8C8F4D259CEFA9D5F3AD07E
 ```
 
 https://mybot314.ru/tekegram_catalog/

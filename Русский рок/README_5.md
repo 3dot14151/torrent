@@ -1,3 +1,119 @@
+###  Публикация: 1616620   (1036158) от 03.03.2023
+
+Хроноп - Между никогда и всегда (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Люди, в общем-то, не так плохи [00:04:34]
+02 - Крылья, что режут сталь [00:05:19]
+03 - Через поле пронести свечу [00:05:51]
+04 - Молодые как нефть [00:04:12](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06092FFAC4959D3D89DCA866E3142A34B173C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443289   (1035754) от 28.01.2021
+
+April Rain - Mirror of Ether (2021) [MP3|320 Kbps] <Progressive Rock, Post Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince Rupert's Drop (05:57)
+ 02. Tin Woodsman (06:59)
+ 03. Chiral Allergy (06:51)
+ 04. Towards the Native Uvalas (07:49)(   Читать дальше...   )Жанр: Progressive Rock, Post Rock, InstrumentalПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BA874FB49FF45D82B67416BF1130D9EA281BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443477   (1035444) от 29.01.2021
+
+Танцы Минус - 8 (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035444.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мне б уснуть в твоих руках
+2. Девочка
+3. Лыжи
+4. Скриншот(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04191DC8D42A6EE1E150398F258774683B10485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443543   (1035435) от 29.01.2021
+
+Мумий Тролль - Ecosystem (2021) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035435.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мумий Тролль - Экосистема
+2. Lucius - Ecosystem
+3. K7 - Ewigkeit
+4. Mustii - What about Ecosystem?Жанр: RockПродолжительность: 00:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BB82708ACEE38DC31111C3A57875F372A6C90D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616915   (1035373) от 06.03.2023
 
 Sound of Soma - Экосистема (2023) [MP3|320 Kbps] <Rock>
@@ -622,119 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1071F6A582238394862804B9A3C435FD0A5BEC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447384   (1031845) от 13.02.2021
-
-Ёк-Макарёк - Домашний лад (2020) [MP3|320 Kbps] <Ethno Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031845.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тихий Островок
-2. Вечерняя Тишь
-3. Ладога
-4. Мир в Дому(   Читать дальше...   )Жанр: Ethno PunkПродолжительность: 00:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81682A3397980E46A4A1D177DE4824E2B4A5AE45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448848   (1030478) от 19.02.2021
-
-Земфира - остин (2021) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030478.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. остинЖанр: RockПродолжительность: 00:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701BEEF82881F3B06F2C95FBDD276257D6BC168C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448784   (1030449) от 19.02.2021
-
-Вася Обломов - The Best (2021) [MP3|320 Kbps] <Rock, Rap, Alternative Сhanson>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Магадан (TV Version)
-2. Начальник
-3. С чего начинается Родина
-4. Кто хочет стать милиционером?(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 02:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E698F63DC63B848445E4BF499EAFC51E1E3654C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449203   (1030239) от 20.02.2021
-
-Кровавый Риф - Африказия (2021) EP [MP3|320 Kbps] <Folk Punk, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Горилла [00:04:40]
-02 - Нххххх стать [00:04:42]
-03 - Перехунда Септулай [00:03:39]
-04 - 8 бит [00:04:46]Жанр: Folk Punk, Art PunkПродолжительность: 00:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89348920BE773AD6E4607350FFA8688407A05F29
 ```
 
 https://mybot314.ru/tekegram_catalog/

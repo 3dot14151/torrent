@@ -1,3 +1,32 @@
+###  Публикация: 988257   (922455) от 19.02.2016
+
+VA - Музыка Хорошего Настроения (2016) [MP3|256 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922455.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elton John - Blue Wonderful
+002. Ольга Романовская - Держи Меня Крепче
+003. Bloc Cu Doddy Si Ela Rose - Daca Tu Ai Pleca
+004. Макsим - Хорошо(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216264893EEAFA0192E14C4BF5F798759FF791EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288507   (922426) от 29.01.2011
 
 VA - Танцевальная тусовка (2011) [MP3|256 kbps]<Pop>
@@ -704,35 +733,6 @@ VA - Radio DFM: Top D-Chart [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F35AA85FB97ED5E083391B91FDC51AFE952D647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096699   (916676) от 25.01.2017
-
-VA - Танцевальная зима. Снежная 100-ка. Версия № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michael Buble Feat. Meghan Trainor - Someday 3:24
-002. Илья Гуров - Геолокация 3:14
-003. Глаза - Это Он Мама 3:29
-004. Sons Of Maria Feat. Angelika Vee - Sweet Madness 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECDEAD8C172F71862EC83FBB703D3DDC1792E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

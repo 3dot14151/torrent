@@ -1,3 +1,119 @@
+###  Публикация: 1068289   (383362) от 31.10.2016
+
+Death Fetishist - Clandestine Sacrament (2016) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gifted Medium 03:20
+02. Astral Darkness 06:56
+03. Voidtripper 04:44
+04. Netherrealm 04:51(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236645C7B622F4EA2F0C4A62C571BAB10FE2B6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068217   (383361) от 31.10.2016
+
+Hellfrost - Pagan Son (2016) [MP3|320 Kbps] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ghost Withing 03:54
+02. Vermin Lord 03:45
+03. Torrents of Bellial 04:28
+04. The New Pagan Son 09:55(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE1B6D06C7097CE5D5C3DB1A431D909DE871496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067963   (383360) от 31.10.2016
+
+A Hero For The World - The Other Side (2016) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Other Side (Power Version) 05:14
+02. Unforgiven in Rio Bravo 03:36
+03. The Other Side 05:18
+04. Unforgiven in Rio Bravo (Acoustic Version) 03:48(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0825F9CC62494008241C057EDF4089868EF6D936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068218   (383359) от 31.10.2016
+
+Blackning - Alienation (2016) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Justice 03:09
+02. Thru the Eyes 03:28
+03. Mechanical Minds 03:02
+04. Dark Days 04:37(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F1DAFC5D91C2A80B80164F5B0D80EDEBEE3988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068003   (383358) от 31.10.2016
 
 Straightout - Phobia (2016) [MP3|320 Kbps] <Melodic Death, Black Metal, Metalcore>
@@ -635,122 +751,6 @@ Devin Townsend - Iceland (2016) EP [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5DFEFAB8FE9F6C0EC7C272C41262248206D4E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253899   (379520) от 11.10.2018
-
-Kreator - Coma Of Souls (1990) 2CD, Remastered, 2018, Noise [MP3|320 Kbps] <Thrash metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379520.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. When the Sun Burns Red (Live in Fürth, Germany)
-  2. Betrayer (Live in Fürth, Germany)
-  3. Terrible Certainty (Live in Fürth, Germany)
-  4. Extreme Aggression (Live in Fürth, Germany)(   Читать дальше...   )Жанр: Thrash metalПродолжительность: 02:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EBE692B0993819CC7F261B1E70A370EF241C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575150   (379418) от 08.09.2022
-
-October Thorns - Circle Game (2022) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Page One
-02. Circle Game
-03. Soul Forge
-04. No Idle Phrase(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F12563461081F1881654D674DA47FF6086193BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575155   (379398) от 08.09.2022
-
-Bloodbath - Survival Of The Sickest (2022) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie Inferno (04:07)
-02. Putrefying Corpse (feat. Barney Greenway of Napalm Death) (03:52)
-03. Dead Parade (04:39)
-04. Malignant Maggot Therapy (03:05)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFE50C177B853757E7BC74CA234BD52C60AAD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575143   (379354) от 08.09.2022
-
-Parkway Drive - Darker Still (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ground Zero (04:09)
-02. Like Napalm (03:44)
-03. Glitch (04:21)
-04. The Greatest Fear (05:28)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC0579447EFA231E3F8DE999C35E9AF4DAFC7C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1682341   (131821) от 06.12.2023
+
+Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131821.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+(1)-(3) Sonata I in A minor
+(4)-(6) Sonata II in A flat major(   Читать дальше...   )Жанр: Classical, FortepianoПродолжительность: 01:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53021E948485FD6A416FD948FC6E36777B87ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596594   (131408) от 30.12.2012
 
 Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Romantic Period, Recital>
@@ -710,35 +739,6 @@ VA - Deep Sleep Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2660FCFC3C276C20577A10608585237A067A26FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730364   (53193) от 15.06.2024
-
-VA - Mozart: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice - I. Allegro (3:08)
-02. Katya Kramer-Lapin - 2 Transcriptions on Themes from Mozart's Requiem, S. 550 - No. 2, Lacrymosa (3:36)
-03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331╱300i - I. Andante grazioso (2:15)
-04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7239D9197A716CA7CDE730CEC9CCFC2995485A67
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,172 +1,25 @@
-###  Публикация: 154835   (357064) от 25.11.2009
+###  Публикация: 1255852   (361794) от 19.10.2018
 
-Простой английский для ОЧЕНЬ занятых / Easy English For Busy People [2008] [MP3]
-
->>Обучающие аудиоматериалы
->>Иностранные языки (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный аудиокурс для тех, кому необходимо быстро выучить английский язык, но нет времени ходить на курсы или сидеть за учебниками.
-
-Все слова, выражения и диалоги даются с переводом на русский язык и в сопровождении специально подобранной музыки, которая способствует быстрому и прочному запоминанию изучаемого материала. К аудиокурсу прилагаются буклеты с содержанием курса.
-
-Вы можете слушать этот курс в автомобиле, в очереди, во время глажки одежды или при выполнении другой домашней работы - в любое время, когда у вас есть 5-10 минут свободного времени. Даже очень занятые люди всегда могут найти 5-10 минут в день. Все что вам надо - плеер или другое звуковоспроизводящее устройство.
-
-Уровни курса имеют следующую структуру:
-Level 1: Housing - Registering with doctor - Opening a bank account - Transport - Greetings
-Level 2: Renting a house - NI number/job centre/employment agency - TV licence - Job interview - Mobile phone shopЖанр: Аудиокурс
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154944   (357059) от 25.11.2009
-
-Волчок (2009) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестилетняя девочка никогда в жизни не видела свою мать. Но, однажды появившись, чтобы скоро снова уйти, мать подарила девочке маленькую нелепую игрушку — волчок. Это имя как нельзя лучше подошло и самой девочке… Девочка могла бы вырасти настоящим волком, если бы не преданная, глубокая любовь к матери, живущая в детском сердце. А мать снова и снова бежит от дочери (   Читать дальше...   )Жанр: ДрамаРежиссер: Василий СигаревАктеры: Полина Плучек, Яна Троянова, Вероника ЛысаковаСубтитры: ОтсутствуютПродолжительность: 01:25:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256410   (357054) от 21.10.2018
-
-Carpathian - Carpathian (2005) EP [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mosh (0:16)
- 02. Don't Have My Back (2:48)
- 03. Holding Hands Is For Girls (3:23)
- 04. If Looks Could Kill (3:14)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226A5258344FF12E66B4996BEC59616514CC7E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255799   (357053) от 21.10.2018
-
-Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 4. 3-й тур. Ирландия — Дания (13.10.2018) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357053.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 октября 2018 года, суббота. 21:45 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига B. Группа 4. 3-й тур.
-Ирландия — Дания(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38766EF52265C3EAA62E3B1D0B81CD7EC4BACB47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255834   (357052) от 21.10.2018
-
-Футбол. Лига Наций УЕФА 2018-2019. Лига A. Группа 3. 4-й тур. Польша — Италия (14.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357052.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 октября 2018 года, воскресенье. 21:45 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига A. Группа 3. 4-й тур.
-Польша — Италия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F62DEA389F8D437979FD58AD75708A4C5A3967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256382   (357051) от 21.10.2018
-
-Carpathian - Nothing To Lose (2006) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
+Fires of Waco - Old Ghosts Never Sleep (2011) [FLAC|Lossless|tracks + .cue] <Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357051.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. End Of The 1980's (2:18)
- 02. Drop It Like It's Hot (2:05)
- 03. Who The Fuck Taught You Snaps? (2:31)
- 04. Six Months (2:26)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:24:59
+01. No Man's Land (1:29)
+ 02. Terra Nullius (3:01)
+ 03. Sometimes You Just Know (2:31)
+ 04. Validity (3:16)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:411E56CC4BD1866A6173E5403C34810441CFFD37
+magnet:?xt=urn:btih:7956061B4C6426EC179AFC050B98DA51F626F928
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -174,57 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256276   (357050) от 21.10.2018
+###  Публикация: 1576807   (361792) от 16.09.2022
 
-VA - Clubbers Culture: Language Of Trance Vol.5 (2018) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airosource - Diving (Original Mix)
-02. Sherif Wanis - Mystery of Sinai (Original Mix)
-03. David Surok - Endless Summer (Fredd Moz Remix)
-04. Jean Clemence - Falling (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9697DF307A0DFF6BABA42E52AE379B1B74F93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256403   (357049) от 21.10.2018
-
-Carpathian - Isolation (2008) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
+Clutch - Sunrise on Slaughter Beach (2022) [MP3|320 Kbps] <Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357049.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Isolation (1:43)
- 02. Cursed (3:03)
- 03. Spirals (2:00)
- 05. The Cold Front (2:58)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:23:23
+01 - Red Alert (Boss Metal Zone) [00:02:45]
+02 - Slaughter Beach [00:03:41]
+03 - Mountain of Bone [00:04:23]
+04 - Nosferatu Madre [00:03:27](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:33:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78D318D19CCA54112AA582C210B53E17774B0F3C
+magnet:?xt=urn:btih:F807E8B4EB3B7A719D2D0DC45C401942F672E582
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,86 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256273   (357048) от 21.10.2018
+###  Публикация: 1255803   (361791) от 19.10.2018
 
-VA - Suanda Amsterdam (2018) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Extended Mix)
-02. Ahmed Helmy - Spectaculum (Original Mix)
-03. Cari - Every Goodbye (Extended Mix)
-04. Escea - The Future (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534070707BD16FA790579795EDDDC1D1A4335979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256437   (357047) от 21.10.2018
-
-Camille Jones - Difficult Guys (2008) [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Difficult Guys (Radio Edit) (3:55)
-02. Difficult Guys (Beatchuggers & Sidelmann Radio) (3:21)
-03. Difficult Guys (Extended Mix) (6:24)
-04. Difficult Guys (Beatchuggers & Sidelmann Club Mix) (6:41)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BBB9094067F397A73D6B15ABCC6E1C8D7FA8D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256314   (357046) от 21.10.2018
-
-Футбол. Лига Наций 2018-2019. 4-й тур. Обзор матчей. 3-й День (16.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 3-й День (13.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357046.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 октября 2018 года, вторник
-Обзор матчей Лиги Наций УЕФА 2018-2019. 4-й тур.
+13 октября 2018 года, суббота.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
 3-й День:
-Лига D. Группа 1 — Казахстан – Андорра(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:30:47
+Лига B. Группа 1 — Словакия – Чехия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:28:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EBF7DED770D2D2121D962512966A7E039D72DFF
+magnet:?xt=urn:btih:31BC9E0D839E4B09BC7D45726D504B7E34ECF2D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,141 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256479   (357045) от 21.10.2018
+###  Публикация: 1577019   (361789) от 16.09.2022
 
-VA - Rock Sound: Sound Check No. 129 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall of Troy - Panic Attack! (03:34)
-02. A Skylit Drive - Those Cannons Could Sink a Ship (03:30)
-03. Strike Anywhere - Your Opposite Number (02:15)
-04. Lions - Gimme Riot (03:28)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F5B3EB66FA4A10E2B1F9931EB81C2C4F488E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577217   (357044) от 18.09.2022
-
-Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue
-02 - Behind The Shades
-03 - Dreammaster
-04 - Living The Dream(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26EB2889ED77FEF23F096CC76A73D29C5748C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577430   (357043) от 18.09.2022
-
-Демократизатор (Demokratizator) - Пусть будет Пи### (2016) Remastered, 2022, Zymotic Productions [MP3|320 Kbps] <Hardcore Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Бухай за рулём! [00:02:31]
-02-Пи### бабу! [00:02:38]
-03-Водка.Е###.Драка.. [00:03:07]
-04-Глоток [00:02:27](   Читать дальше...   )Жанр: Hardcore Punk RockПродолжительность: 00:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A004BB8BCE91E1908996E89A6369D3DFB14DD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577298   (357042) от 18.09.2022
-
-Dreamtide - Drama Dust Dream (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Being Deep (4:23)
-02. Spin (5:32)
-03. Around (5:08)
-04. Ni Dos Ni Agua (2:47)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43168051FB153127D82EB193D3429ABBF6B2821F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577353   (357041) от 18.09.2022
-
-Чудо техники с Сергеем Малозёмовым (18.09.2022) SATRip [H.264]
+Внутри отеля Риц / Inside The Ritz Hotel London (2019) WEBRip [H.264/720p] (сезон 1, серии 1-2 из 4)
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357041.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Передача расскажет о том, как создаются угли для мангала и почему они могут быть опасны для здоровья. Проверяем робота-мойщика окон на продуктивность. А также — прибор для измерения сердцебиения ребенка в утробе матери.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:54
+Люди всё реже останавливаются в роскошных отелях. Как обстоят дела в одном из самых традиционных отелей мира, пятизвездочном лондонском "Рице"? Отель распахнет перед нами двери, и мы увидим, как устроен один из лучших отелей мира. Как здесь готовят знаменитый послеполуденный чай? Какие рецепты таит уникальная кулинарная книга отеля? Чем поделится главный (   Читать дальше...   )Производство: Великобритания, Maverick Television, ITV - Independent TelevisionЖанр: документальный, история, путешествияРежиссер: Джим КартерПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55EDF5459E533C547F081DC9C3DBB92675FD206F
+magnet:?xt=urn:btih:A0667E89894FCF5EF54635598F22B7CA669F0E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,26 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577122   (357040) от 18.09.2022
+###  Публикация: 1255743   (361788) от 19.10.2018
 
-Alexander Korolev - Cyber Attack (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop, Pop>
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 2. 3-й тур. Россия — Швеция (11.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Electronic
->>Synthpop, New Wave
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357040.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cyber World
-02. History of StarЖанр: Electronic, Synth-pop, PopПродолжительность: 00:11:36
+11 октября 2018 года, четверг. 22:45 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 2. 3-й тур.
+Россия — Швеция(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E49889F4498B4140696CF3A439AFA46F05565D4
+magnet:?xt=urn:btih:D7E682366B544191AC4FE870342F8CB64EBE61CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,57 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577129   (357039) от 18.09.2022
+###  Публикация: 1576793   (361786) от 16.09.2022
 
-House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saints And Sinners
-02. House Of The Lord
-03. Take It All
-04. Road Warrior(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246F156E56E2000E2D155182B7FF47EEA7C5D1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577152   (357038) от 18.09.2022
-
-Creedence Clearwater Revival - At The Royal Albert Hall (London, UK, April 14, 1970) (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Classic Rock>
+Ringo Starr - Back to the Good Times Music (Richard Starkey) (2022) Scene [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357038.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Born On The Bayou (At The Royal Albert Hall / London, UK / April 14, 1970) [00:05:12]
-02. Green River (At The Royal Albert Hall / London, UK / April 14, 1970) [00:02:57]
-03. Tombstone Shadow (At The Royal Albert Hall / London, UK / April 14, 1970) [00:03:38]
-04. Travelin' Band (At The Royal Albert Hall / London, UK / April 14, 1970) [00:02:10](   Читать дальше...   )Жанр: Southern Rock, Classic RockПродолжительность: 00:42:38
+01. Blue Turning Grey Over You [00:03:19]
+02. Hey Baby [00:03:07]
+03. Only You (And You Alone) [00:03:26]
+04. Dream [00:02:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:17:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26F9C55C01B03AAAD18A8B28638C0D04D4398201
+magnet:?xt=urn:btih:2BFE37092CDF4B4C4CB23235DD0ECCEA5EB7C600
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,54 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577313   (357037) от 18.09.2022
+###  Публикация: 1255836   (361785) от 19.10.2018
 
-Невеста Хампти Шармы / Humpty Sharma Ki Dulhania (2014) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кавья Пратап Сингх, девушка из Амбалы, через месяц выходит замуж. Мечтая о дизайнерском свадебном платье, она едет в Дели. Там она знакомится с Ракешем «Хампти» Шармой, весёлым и беззаботным парнем. Она ему нравится с первого взгляда. Вскоре Кавья отвечает ему взаимностью, но героиня вынуждена вернуться в родной город, чтобы вступить в брак с человеком, которого (   Читать дальше...   )Производство: Индия, Dharma ProductionsЖанр: драма, мелодрама, комедияРежиссер: Шашанк КхайтанВ ролях: Варун Дхаван, Алия Бхатт, Ашутош Рана, Сиддхартх Шукла, Сахил, Гурав Пандей, Дипика Эмин, Махназ Дамания, Джасвант Даман, Кенет ДесаиПеревод: профессиональный многоголосый (SDI Media), профессиональный двухголосый (Ульпаней Эльром), любительский многоголосый (ICG)Субтитры: русские (тексты песен и полные, два варианта), английскиеПродолжительность: 02:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA19384AD56EE843DFED6BAADFF59D0F4864C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577323   (357036) от 18.09.2022
-
-The Black Angels - Wilderness of Mirrors (2022) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Psychedelic Rock>
+Defeater - Travels (2008) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357036.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Without a Trace (4:07)
-02. History of the Future (3:45)
-03. Empires Falling (3:31)
-04. El Jardín (3:45)(   Читать дальше...   )Жанр: Alternative Rock, Psychedelic RockПродолжительность: 00:54:12
+01. Blessed Burden (3:04)
+ 02. Everything Went Quiet (2:41)
+ 03. Nameless Streets (3:05)
+ 04. Forgiver Forgetter (2:32)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 00:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:909EC80C639AFE2D9BC86C93C16E7E20B0F3B775
+magnet:?xt=urn:btih:966465C709D36C5C54C74BF77F2C98103403D6D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577417   (357035) от 18.09.2022
+###  Публикация: 1576890   (361783) от 16.09.2022
 
-Невеста Хампти Шармы / Humpty Sharma Ki Dulhania (2014) BDRip [H.264/720p] [MVO]
+Julian Lennon - Jude (2022) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 
->>Зарубежное кино
->>Индийское кино
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357035.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кавья Пратап Сингх, девушка из Амбалы, через месяц выходит замуж. Мечтая о дизайнерском свадебном платье, она едет в Дели. Там она знакомится с Ракешем «Хампти» Шармой, весёлым и беззаботным парнем. Она ему нравится с первого взгляда. Вскоре Кавья отвечает ему взаимностью, но героиня вынуждена вернуться в родной город, чтобы вступить в брак с человеком, которого (   Читать дальше...   )Производство: Индия, Dharma ProductionsЖанр: драма, мелодрама, комедияРежиссер: Шашанк КхайтанВ ролях: Варун Дхаван, Алия Бхатт, Ашутош Рана, Сиддхартх Шукла, Сахил, Гурав Пандей, Дипика Эмин, Махназ Дамания, Джасвант Даман, Кенет ДесаиПеревод: профессиональный многоголосый (SDI Media), профессиональный двухголосый (Ульпаней Эльром), любительский многоголосый (ICG)Субтитры: русские (тексты песен и полные, два варианта), английскиеПродолжительность: 02:12:18
+01. Save Me (03:03)
+02. Freedom (04:07)
+03. Every Little Moment (03:42)
+04. Not One Night (03:52)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:137D12AAF4BED539D6EB8E36D0EF5F29B524B1C0
+magnet:?xt=urn:btih:E3A52D665880424FAB385C2D6B0F2B35921FE1B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,25 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577468   (357034) от 18.09.2022
+###  Публикация: 1255753   (361782) от 19.10.2018
 
-PrivaZer (Donors) 4.0.52 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Футбол. Лига Наций УЕФА 2018-2019. Лига A. Группа 4. 3-й тур. Хорватия — Англия (12.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357034.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+12 октября 2018 года, пятница. 21:45 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига A. Группа 4. 3-й тур.
+Хорватия — Англия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C51B9ED65DF4FCA11A96B18ED261BE5B58165F0
+magnet:?xt=urn:btih:E0AEFB3F9F0B6E558A77BFF7501FC4E680A22409
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,26 +256,89 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577484   (357033) от 18.09.2022
+###  Публикация: 836597   (361781) от 01.11.2014
 
-File Juicer 4.97 [Multi/Ru]
+Silverstein - 9 альбомов (2002-2011) [FLAC|Lossless]<Post-hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silverstein  — группа из Бёрлингтона, Онтарио. Группа была названа в честь поэта, автора книг для детей, Шела Сильверстина. Играют в таких жанрах как Пост-хардкор, Поп-панк, Металкор.
+Wiki01. Medication [00:04:29]
+02. Sacrifice [00:02:34]
+03. Forget Your Heart [00:03:42]
+04. Intervention [00:03:04]
+05. Good Luck With Your Lives [00:03:22]
+06. Texas Mickey (Feat. Anthony Raneri) [00:02:39]
+07. The Artist (Feat. Brendan Murphy) [00:03:04]
+08. Burning Hearts [00:03:02]
+09. Darling Harbour [00:02:51]
+10. Live to Kill [00:02:33](   Читать дальше...   )Жанр: Post-hardcoreПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777AC5E13EF684C32F1C1AC839401EEDD4B58661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577023   (361780) от 16.09.2022
+
+Водно-болотные угодья. Наследие Люка Хофмана / Wetlands, the legacy of Luc Hoffmann (2019) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361780.jpg" />
+</div>
+
+
+###  Подробнее
+
+С начала XX века почти две трети водно-болотных угодий планеты исчезли. В попытке обуздать это явление швейцарский орнитолог Люк Хофман (1923-2016), предшественник устойчивого развития, провел защитные мероприятия в Средиземноморском бассейне и в Западной Африке.Производство: Швейцария, ORCA ProductionЖанр: документальный, природа, флора, фаунаРежиссер: Стефан РицПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18BC3FCB62096EB2DA05696D765D7749A6C20AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255605   (361779) от 19.10.2018
+
+MacX MediaTrans 6.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357033.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-File Juicer - уникальная утилита, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
-File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.09.2022Разработчик: © 2005-2022 Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+MediaTrans – это iOS-менеджер. С помощью Программы возможно быстро переносить различные медиафайлы между iOS девайсами и компьютером. Отличительная функция Программы - это перенос медиа с возможностью удаления DRM-защиты iTunes.
+
+MediaTrans фокусируется на одном простом деле, и делает это очень хорошо — она позволяет импортировать и экспортировать музыку, видео, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2018Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EA1D1E8A464E1ACA31D3C15CB36E4B974B8581A
+magnet:?xt=urn:btih:5990117C3E0BB7C9326AD7527F2B483CDB2FB702
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,26 +346,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577334   (357032) от 18.09.2022
+###  Публикация: 1576954   (361777) от 16.09.2022
 
-Сергей Лазарев | Человек будущего (Книга 7). Воспитание родителей. (Часть 5) (2022) [MP3, Сергей Лазарев]
+SRWare Iron 104.0.5300.0 + Portable [Multi/Ru]
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357032.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый человек хочет быть счастливым. В на­шем подсознании, в глубине души понятие счастья неразрывно связано с таким понятием как лю­бовь. А любовь проявляется как забота, сострада­ние, жертвенность, воспитание, помощь. Одним словом, любовь — это отдача душевных, духов­ных и физических сил.
-Для выживания на физическом уровне прихо­дится в основном потреблять и получать, (   Читать дальше...   )Жанр: Психология, эзотерикаПродолжительность: 30:26:23
+Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3C7567E61107A79F9AE44445F6FA10351388592
+magnet:?xt=urn:btih:55CEEA186B503C8F009F04C6E80C538D63CEFF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -707,28 +372,364 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577271   (357031) от 18.09.2022
+###  Публикация: 1255745   (361776) от 19.10.2018
 
-Kula Shaker - 4 Releases (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Britpop>
+Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 1-й День (11.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361776.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 октября 2018 года, четверг.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
+1-й День:
+Лига A. Группа 3 — Польша – Португалия(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D981AF481CCD047B46D59303424BCCCBC6B6EB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255846   (361774) от 19.10.2018
+
+Футбол. Лига Наций 2018-2019. 4-й тур. Обзор матчей. 1-й День (14.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361774.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2018 года, воскресенье.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 4-й тур.
+1-й День:
+Лига C. Группа 4 — Румыния – Сербия(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D1E9B712854CA74683CEAE2EEDF68C78902713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836686   (361772) от 01.11.2014
+
+Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Small Steps
+02. This Little Life of Mine (Feat. Veronika Harcsa)
+03. Anticipation
+04. One Hand Clapping (Feat. Veronika Harcsa)(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AB7A29F1C9D366A6E8E7764C84FC4BD24FB325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255840   (361771) от 19.10.2018
+
+Defeater - Empty Days & Sleepless Nights (2011) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357031.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Альбомы:
-2016 - K 2.0
-2021 - Kula Christmas Wrap Up (EP)
-2022 - 1st Congregational Church of Eternal Love (And Free Hugs)(   Читать дальше...   )Жанр: Psychedelic Rock, BritpopПродолжительность: 01:54:57
+01. Warm Blood Rush (2:28)
+ 02. Dear Father (2:51)
+ 03. Waves Crash, Clouds Roll (2:39)
+ 04. Empty Glass (3:32)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 01:00:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21F473D5228068A21E09F73B92695F0B969F7C11
+magnet:?xt=urn:btih:4BF2AD8E934AF68A955AE42CC229ACABC0D32B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576867   (361770) от 16.09.2022
+
+Opera 91.0.4516.16 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3CB13CF8D0ACE6CB2748CD9CB276DDBDB0643D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255829   (361769) от 19.10.2018
+
+Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361769.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Group Activity [2:34]
+02. Excursion [3:42]
+03. Polka Dots And Moonbeams [3:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, West Coast JazzПродолжительность: 03:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7548A3DE7E2D47BB3C661373C1C9B0EE41C4468A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576951   (361767) от 16.09.2022
+
+Brave Browser 1.43.93 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F768AD1184F03F5339A3E0979705EBDCBA2F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255763   (361766) от 19.10.2018
+
+Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 2-й День (12.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361766.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 октября 2018 года, пятница.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
+2-й День:
+Лига A. Группа 2 — Бельгия – Швейцария(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643F47E3A0089DA360E5E0CACBC463BF8156F720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576905   (361764) от 16.09.2022
+
+Всё, что я люблю / Vsetko co mam rad (1993) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Томасу около сорока, и он хочет изменить свою жизнь. В этом ему активно «помогает» молодая англичанка, зовущая его жить за границу. Но, оказывается, не так-то просто это сделать, если у тебя уже почти взрослый сын, немолодые родители да ещё бывшая взбалмошная, и всё-таки дорогая, жена...Производство: Словакия, Charlie's Bratislava, In Film Praha, Slovenska TeleviziaЖанр: драмаРежиссер: Мартин ШуликАктеры: Юрай Нвота, Джина Беллман, Здена Студенкова, Иржи Мензель, Якуб Урсини, Рудольф Слобода, Антон Шулик, Виктор БлагоПеревод: авторский (Антон Алексеев), любительский одноголосый (Олег Воротилин)Субтитры: русские, английскиеПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3C96C7B66704C75FDF1E03A1CF3A4FD0A99F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576916   (361762) от 16.09.2022
+
+Всё, что я люблю / Vsetko co mam rad (1993) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Томасу около сорока, и он хочет изменить свою жизнь. В этом ему активно «помогает» молодая англичанка, зовущая его жить за границу. Но, оказывается, не так-то просто это сделать, если у тебя уже почти взрослый сын, немолодые родители да ещё бывшая взбалмошная, и всё-таки дорогая, жена...Производство: Словакия, Charlie's Bratislava, In Film Praha, Slovenska TeleviziaЖанр: драмаРежиссер: Мартин ШуликАктеры: Юрай Нвота, Джина Беллман, Здена Студенкова, Иржи Мензель, Якуб Урсини, Рудольф Слобода, Антон Шулик, Виктор БлагоПеревод: авторский (Антон Алексеев), любительский одноголосый (Олег Воротилин)Субтитры: русские, английскиеПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B707181E9C1A834CB8BF2A4D4CA5B86D5CB1F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575521   (361758) от 18.11.2012
+
+Nature Wallpapers (13.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D832225C269B25F031450A197E0750B5DCDA5415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577319   (361757) от 18.11.2012
+
+[Wallpapers] [природа] #1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361757.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 обоев для мониторов разрешением 1360x768.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485A0A675361D8B0BF4714786BD4E286A36502AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577120   (361755) от 18.11.2012
+
+VA - Музыкальный Paradise Хитовый (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Настя Любимова - Снег
+02. Света - Лондон-Москва
+03. Яжевика - От Тебя До Москвы
+04. David - Я люблю тебя за это
+05. Павла - Будь со мной
+06. J.S.T. - Электронный Вальс (Radio Mix 2012)
+07. Даша Суворова - Девочка
+08. Тамерлан и Алена Омаргалиева feat. Ray Horton - Я Верю (Eugene Star Remix)
+09. Оксана Ковалевская - Рай
+10..NK (Эн-Кей) - Ты И Я(   Читать дальше...   )Жанр: PopПродолжительность: 06:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC705F1A70298E061AF2976329432C8CAE8A15E
 ```
 
 https://mybot314.ru/tekegram_catalog/

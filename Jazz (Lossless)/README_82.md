@@ -1,3 +1,32 @@
+###  Публикация: 1211902   (776900) от 09.03.2018
+
+The New Stan Getz Quartet featuring Astrud Gilberto - Getz Au Go Go (1964) 2007, Verve [FLAC|Lossless|tracks + .cue] <Cool, Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corcovado [02:52]
+02. It Might As Well Be Spring [04:29]
+03. Eu E Voce [02:33]
+04. Summertime [08:12](   Читать дальше...   )Жанр: Cool, Bossa Nova, Vocal JazzПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BC49B0504BA60EAE2F7F29038D4D1B81745E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211905   (776873) от 09.03.2018
 
 Michael Musillami - Groove Teacher (1999) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
@@ -716,35 +745,6 @@ Eric Alexander & Vincent Herring - The Battle: Live At Smoke (2005) HighNote [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5FF4E7906C420F846C0ABF2A1A286FE0006036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124693   (773608) от 13.04.2017
-
-Valery Ponomarev - Live At Sweet Basil (1994) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Announcement [00:44]
- 02.Valery'S Changes [13:16]
- 03.Be Careful Of Dreams [10:16]
- 04.Friend Or Foe [14:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27430D3AE9483E9A15CAFD7B38C27BB2A9F14064
 ```
 
 https://mybot314.ru/tekegram_catalog/

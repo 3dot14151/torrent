@@ -1,3 +1,119 @@
+###  Публикация: 960542   (302748) от 30.11.2015
+
+Бетховен - Гении классической музыки (2011) [FLAC|image+.cue]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Симфония No. 5 - Allegro con brio
+02. Эроика - Scherzo
+03. К Элизе
+04. Увертюра «Эгмонт»(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A6D14BF4A8FBE9666D06705D17631A6ACD505D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960537   (302713) от 30.11.2015
+
+Бетховен - Гении классической музыки (2011) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Симфония No. 5 - Allegro con brio
+02. Эроика - Scherzo
+03. К Элизе
+04. Увертюра «Эгмонт»(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6E9943D17A296C2548B6048CB84112EA4C81BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078024   (302629) от 30.11.2016
+
+Carlo Bergonzi - Carlo Bergonzi - Grandi Voci (1958-1967) 1994 Decca Records [FLAC|Lossless|image + .cue] <Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Se quel guerrier - Aida - Verdi (5:07)
+02.  Oh! fede negar potessi - Luisa Miller - Verdi (4:59)
+03.  La vita e un inferno - la forza del destino - verdi (6:02)
+04.  Ah si, ben mio - il trovatore - verdi (3:03)(   Читать дальше...   )Жанр: OperaПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C222755990F13C297BF2E0925534A575078E1224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077436   (302462) от 30.11.2016
+
+Handel;  Academy of St. Martin in the Fields Chorus, Sir Neville Marriner - Messiah (1992) Philips Classics [FLAC|Lossless|image + .cue] <Oratorio in 3 parts>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part II: No. 25. Accompagnato (Tenor) 'All they that see Him' (0:41)
+ Part II: No. 26. Chorus 'He trusted in God' (2:02)
+ Part II: No. 27. Accompagnato (Tenor) 'Thy rebuke hath broken His he... (1:33)
+ Part II: No. 28. Arioso (Tenor) 'Behold, and see' (1:17)(   Читать дальше...   )Жанр: Oratorio in 3 partsПродолжительность: 02:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F682E4925E8805D25256F4B97F9FF13933ADD2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078000   (302406) от 30.11.2016
 
 Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richter - Weihnachtsoratorium - Arien und Chore (1965) 1994 Deutshe Grammophon [FLAC|Lossless|im
@@ -626,122 +742,6 @@ Symphony No. 2 in F Minor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9672723CBF96365989C5D195DF8D70C7F9029E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079189   (294015) от 04.12.2016
-
-Jackie Evancho - Someday at Christmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical, Pop>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someday at Christmas 4:21
-02. Do You Hear What I Hear? 4:10
-03. Guardian Angels (Bonus Track) 3:49
-04. Little Drummer Boy 3:12(   Читать дальше...   )Жанр: Classical, PopПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31B2CA6881E4CF16D8864C7DDC9597264FDB391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334678   (292916) от 30.10.2019
-
-Vadim Brodsky ( Вадим Бродский ) - Beatles Symphony (1986) Reissue, 2000, ADA Sound LTD [FLAC|Lossless|image + .cue]<Instrumental, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обработка бессмертных песен The Beatles в классическом стиле в исполнении известного скрипача Вадима Бродского.01. Yesterday 2:33
-02. Because 3:19
-03. The Fool On The Hill 2:20
-04. Lucy In The Sky With Diamonds 1:44(   Читать дальше...   )Жанр: Instrumental, Classical CrossoverПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D392D5CF1C21BDC33CAC533E087B4C9CE5EC8388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079485   (291706) от 05.12.2016
-
-Vivaldi - Anne-Sophie Mutter, Herbert Von Karajan, Wiener Philharmoniker ‎– Le Quattro Stagio (1984) 1998 EMI Records [FLAC|Lossless|image + .cue] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antonio Vivaldi - The Four Seasons: Concerto in E major, op. 8 no. 1-4
-
-"La primavera"
-  I. Allegro (3:20)(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD1EDDBB83A134D8557C19D887E5A1FF84A49F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080072   (290140) от 06.12.2016
-
-Joshua Bell - For the Love of Brahms (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Concerto in A Minor, Op. 102 for Violin, Cello and Orchestra: I. Allegro [00:16:50]
-02. Double Concerto in A Minor, Op. 102 for Violin, Cello and Orchestra: II. Andante [00:07:34]
-03. Double Concerto in A Minor, Op. 102 for Violin, Cello and Orchestra: III. Vivace non troppo [00:08:39]
-04. Violin Concerto in D Minor, WoO 23: II. Langsam (coda by Benjamin (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212671FD5F31F6E9DD666D5FE2A82EA901189F8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

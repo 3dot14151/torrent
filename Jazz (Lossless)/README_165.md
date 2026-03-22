@@ -1,3 +1,180 @@
+###  Публикация: 934157   (503758) от 04.09.2015
+
+Anat Cohen - Luminosa (2015) /Anzic Records/[FLAC|tracks+.cue]<Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lilia [06:01]
+02. Putty Boy Strut [04:40]
+03. Ima [04:04]
+04. Bachiao [03:36](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245E80C11961154DBE35F763C23434F7569186A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563649   (503726) от 15.07.2022
+
+Bireli Lagrene - 15 (1982) Antilles [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Douce ambiance [3:07]
+02. Dark Eyes [3:12]
+03. Valse d'Alsace [2:58]
+04. Sweet Georgia Brown [3:37](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7652C1AC4B0CA00B2A918288E2766E56C93150AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563831   (503517) от 15.07.2022
+
+Paul Brown - Promised Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Sauce
+02. Hey Dude
+03. Wolfpack
+04. Elegance(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D71599818E3225C25E5BD4E439619FE0D41854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316980   (503371) от 29.07.2019
+
+Chick Corea - The Spanish Heart Band: Antidote (2019) Concord Jazz [FLAC|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antidote [9:15]
+02. Duende [10:13]
+03. The Yellow Nimbus - Part 1 [5:48]
+04. The Yellow Nimbus - Part 2 [5:57](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B14F03BFC00AEB167CD01FED2D013B6EA11E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540795   (503317) от 29.08.2012
+
+The Cinematic Orchestra - Presents In Motion #1 (2012) [FLAC (tracks+cue)|Lossless]<Contemporary Jazz, Future Jazz, Downtempo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necrology
+02. Lapis (ft. Austin Peralta)
+03. Outer Space (ft. Dorian Concept & Tom Chant)
+04. Dream Work (ft. Dorian Concept & Tom Chant)
+05. Entr'acte
+06. Regen (ft. Grey Reverend)
+07. ManhattaЖанр: Contemporary Jazz, Future Jazz, DowntempoПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934574   (502635) от 05.09.2015
+
+Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebration [07:52]
+02. One For All - All For One [07:46]
+03. Angola [07:27]
+04. Blues For Afrika [06:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DCB397A82E5D3A300F63198E2CBD4425BD3ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317201   (502622) от 30.07.2019
 
 Jean-Loup Longnon & His New York Orchestra (1988) Atlantic Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Big Band>
@@ -577,177 +754,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD808768F2A4F84FC8CC42B57A43D36E9AF6D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317700   (499630) от 02.08.2019
-
-Oliver Jones Trio - Just Friends (1989) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for Helene [5:17]
-02. Just Friends [4:06]
-03. In My Solitude [4:49]
-04. Last Night in Rio [5:54](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B95C0B88032F8D9C69E1942D1BC4342304C72BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541942   (499109) от 02.09.2012
-
-Incognito - Surreal (2012) [FLAC|Lossless]<Acid Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acid Jazz, Soul, FunkПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317912   (498629) от 03.08.2019
-
-Eddie "Lockjaw" Davis - Lock, The Fox / The Fox & the Hounds (1966) 2001, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Never Knew [2:35]
-02. Speak Low [4:01]
-03. Midnight Sun [3:51]
-04. On Green Dolphin Street [3:42](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D8D643FCB365D25E50A2DDB10F4E0F273A8514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317911   (498628) от 03.08.2019
-
-Bill Watrous - Bone-ified (1992) GNP Crescendo [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day In, Day Out [7:04]
-02. Unforgettable [5:51]
-03. Indian Summer [8:18]
-04. Change Partners [10:54](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA30DF01CA782299D23AE3F72D2DEC1037EFEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317913   (498627) от 03.08.2019
-
-Benny Goodman Trio & Orchestra - Dance & Sing with the Swinging Band of Benny Goodman (1930-e) 1995, Sarabandas [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's a Small Hotel [2:33]
-02. I Can't Give You Anything But Love, Baby [3:36]
-03. You Turned the Tables on Me [2:53]
-04. Loch Lomond [2:36](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5F21A1C1BBAE285827E83A1A15C264BD337343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564699   (498583) от 20.07.2022
-
-Bireli Lagrene - Acoustic Moments (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Made in France [3:23]
-02. Rhythm Thing [3:36]
-03. Claire Marie [4:48]
-04. All the Things You Are [5:40](   Читать дальше...   )Жанр: Jazz Fusion, GypsyПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B7441F2590A143795793E59430E2F9FBDE7598
 ```
 
 https://mybot314.ru/tekegram_catalog/

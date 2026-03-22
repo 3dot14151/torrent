@@ -1,3 +1,119 @@
+###  Публикация: 1468789   (1016940) от 09.05.2021
+
+Jordsjo - Pastoralia (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog, Prog Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prolog (02:17)
+02. Skumring i Karesuando (07:37)
+03. Mellom Mjdurt, Marisko og Sstermarihnd (06:30)
+04. Pastoralia (06:05)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, Prog FolkПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41556C82AD23E61FF944D4CE24DCC9B1D90A066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468827   (1016936) от 09.05.2021
+
+Work Force - Work Force (1989) Japanese Edition [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A Mess
+02. Hold On Tight
+03. Restless
+04. Memory Of You(   Читать дальше...   )Жанр: AORПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887F2DFC6C63F4425808ECFB79B0FA06205F16AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468798   (1016928) от 09.05.2021
+
+It Bites - Map Of The Past (2012) Bonus Tracks Edition, Remastered, 2021, Inside Out Music [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man in the Photograph (2021 Remaster) [00:03:43]
+02. Wallflower (2021 Remaster) [00:04:50]
+03. Map of the Past (2021 Remaster) [00:04:36]
+04. Clocks (2021 Remaster) [00:05:43](   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBD73BBB96B9343F3BCCA5564DB59DAEEE4C145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468807   (1016914) от 09.05.2021
+
+Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engagements 1969-70 [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blue Suede Shoes (International Hotel August 1969) [00:02:17]
+02 - I Got a Woman (International Hotel August 1969) [00:02:38]
+03 - All Shook Up (International Hotel August 1969) [00:02:47]
+04 - Love Me Tender (International Hotel August 1969) [00:03:29](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 03:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70185D2D7B95C7B7BCD278213E7CC7B30D90A30C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468534   (1016912) от 09.05.2021
 
 VA - Classic Old Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -629,122 +745,6 @@ Tuple - Welcome To Hell (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A9F372C5602E3435B95E4BCEE93027050B924F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473231   (1013721) от 29.05.2021
-
-Helium Station - Sanctuary (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Life (06:36)
-02. One Night Pain (06:55)
-03. Heaven's In Your Eyes (07:23)
-04. Moon Shine (07:59)(   Читать дальше...   )Жанр: Progressive Rock, Female VocalsПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032C4A35B0A1ACAB7FEA54ADC1EB654084F6ABF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473560   (1013672) от 29.05.2021
-
-Blackberry Smoke - You Hear Georgia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live It Down (4:07)
-02. You Hear Georgia (4:06)
-03. Hey Delilah (3:54)
-04. Ain't the Same (4:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75041CE9BE48BD4A7B3CC166E0637C3490CE0CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473520   (1013568) от 30.05.2021
-
-Pennies by the Pound - Heat Death Of The Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Waters 06:49
-02. Strange Matter 01:18
-03. Strange Stars (Lies Closer To Truth Than Beauty) 05:32
-04. 139 04:13(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1550CD1D66FB88593305ED26DB2D56710B62CADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473525   (1013566) от 30.05.2021
-
-Crack The Sky - Tribes (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribes (04:37)
-02. Another Civil War (05:22)
-03. Dear Leaders (05:02)
-04. Blowing Up Detroit (04:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366319AA535A741D2B027A2FC03911659D5E18DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

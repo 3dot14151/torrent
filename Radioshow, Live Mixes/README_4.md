@@ -1,3 +1,61 @@
+###  Публикация: 1498631   (852733) от 29.09.2021
+
+Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Andersen - A Storm Is Coming
+02. Luca Agnelli - Blow
+03. Other Form - Further Still
+04. Mattia Saviolo - Sentinella Meccania(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E625205F294B43E0FA01AC89662FFD178F58AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183593   (843920) от 04.10.2021
+
+Third Party - Release Radio (01-54) (2016-2021) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Third Party - Release Radio 001:
+1. Third Party X Sentinel - Real Sound w/ Chemical Brothers - Galavanize
+2. Axwell Ingrosso vs Third Party - Dream Everyday Of My Life
+3. Corey James & Joakim Molitor – Morning Sun(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 52:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFBC161CDAD54D03A061C92E2AEE354680FD5D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500988   (839693) от 07.10.2021
 
 VA - Live @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republic (2021-09-11) [MP3|192-320 Kbps] <Trance>
@@ -690,61 +748,6 @@ Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506964   (799093) от 02.11.2021
-
-Charlotte de Witte - DJ Mag Alternative Top 100 DJs Winner Set (2021-10-27) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. ID - ID
-03. Quisan - Cumulos
-04. ID - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C75864C5735C451108FB489D18C0968728E010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506469   (799087) от 02.11.2021
-
-Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, tech house, disco house, electronic, funky house, edm>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: house, tech house, disco house, electronic, funky house, edmПродолжительность: 11:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
 ```
 
 https://mybot314.ru/tekegram_catalog/

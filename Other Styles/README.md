@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1859699   (1061238) от 
+
+Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-classical, New Age, Nordic Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daughters Of Erin (2:35)
+02. The Rap (2:34)
+03. Flow (3:29)
+04. Fantasia (4:40)(   Читать дальше...   )Жанр: Celtic, Neo-classical, New Age, Nordic FolkПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136FE356C7D81B39A356E944295B67B8B090D293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858146   (1060164) от 08.03.2026
 
 Franck Pourcel And His Orchestra - Pourcel Himself (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
@@ -715,35 +744,6 @@ Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F9E07AAEC25E5D1E683F5A964A5D87B0C7AF149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604093   (1045285) от 14.01.2023
-
-Ted Hammond Orchestra - Hammond Evergreens (2022) Vol. 1, 2 [MP3|320 Kbps] <Hammond, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stayin' Alive (Original Mix) [02:53]
-02. Summer Nights (Original Mix) [03:39]
-03. Kiss You All Over (Original Mix) [03:15]
-04. The Devil Sent You To Lorado (Original Mix) [03:09](   Читать дальше...   )Жанр: Hammond, InstrumentalПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB6EC5F84FD07AC93F30E5578607A324BB12561
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1211883   (549569) от 26.07.2018
+
+Nightwish - Decades (2018) 2CD Compilation [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549569.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. The Greatest Show on Earth (Remastered)
+02. Élan (Remastered)
+03. My Walden (Remastered)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 02:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E8E60873004404A1696431DC2A9DC7CADDD21A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047978   (548354) от 31.08.2016
+
+My Regime - Dogmas (2016) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Black Stone
+02. A.A.
+03. Mind the Gap
+04. Darkness Will Arise(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B83EB12A8C11BF59638925CD0020BB344CE71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547421   (547610) от 28.08.2014
+
+Dio - Singles Box Set (2012) Anthology [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of Rock 'N' Roll (Live at Intermission, 1986)
+02. Rainbow In The Dark (Live at Intermission, 1986)
+03. Sacred Heart (Live at Intermission, 1986)
+04. Time To Burn (Live at Intermission, 1986)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 03:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95304DB8B9EA957FD2DD3042D2C26B5BB38FD9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048337   (547425) от 01.09.2016
+
+Vicious Rumors - Concussion Protocol (2016) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская метал-группа VICIOUS RUMORS, основанная в 1979 г. Джеффом Торпом, выпустила новую работу, получившую название "Concussion Protocol" на SPV/Steamhammer. Продюсером материала был гитарист коллектива, Geoff Thorpe и звукорежиссер Juan Urteaga, работы проходили в студии Trident (MACHINE HEAD, TESTAMENT, HEATHEN, EXODUS, DRAGONLORD). В качестве (   Читать дальше...   )01. Concussion Protocol (04:56)
+02. Chemical Slave (05:51)
+03. Victims Of A Digital World (04:13)
+04. Chasing The Priest (04:14)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5A17A164DEEF7F1220A92F01F7FE7126DD3D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048370   (547418) от 01.09.2016
 
 Kuolemanlaakso - M. Laakso - Vol. 1: The Gothic Tapes (2016) [MP3|320 Kbps] <Gothic Metal>
@@ -635,122 +751,6 @@ Stormzone - Seven Sins (2015) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA79F6A50CC634B2D1EBC8278B1B17852CD50621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926331   (535470) от 09.08.2015
-
-The Black Dahlia Murder - Abysmal (2015) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Receipt
-02. Vlad, Son Of The Dragon
-03. Abysmal
-04. Re-Faced(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5452F76B77EFA3853918E0163F58410C125B425B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239879   (533153) от 08.08.2018
-
-Primal Fear - Apocalypse (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse
-02. New Rise
-03. The Ritual
-04. King of Madness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA2E038E79B182AC341C5B323CD6A5D6E7FDF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155412   (533042) от 03.08.2017
-
-Accept - The Rise Of Chaos (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die by the Sword
-02. Hole in the Head
-03. The Rise of Chaos
-04. Koolaid(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03ADF2F25C3A166D995FF00B45A833E0C3DC911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051539   (532684) от 11.09.2016
-
-Breakdown Of Sanity - Coexistence (2016) [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532684.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:01] 01. Bulletproof
-[03:08] 02. Restless
-[03:47] 03. Back To Zero (feat. Ryo Kinoshita from 'Crystal Lake')
-[03:44] 04. Dear Diary(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D75493797F5FBC9CB0A2FCA6CDE090D9FA6BC4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

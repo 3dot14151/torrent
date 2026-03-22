@@ -1,3 +1,247 @@
+###  Публикация: 494276   (250653) от 09.05.2012
+
+Ночные снайперы - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250653.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 31-я весна
+2. Рубеж
+3. Блины по-снайперски
+4. Кошка московская
+5. Бонни & Клайд
+6. Стань моей птицей
+7. Морячок
+8. Гонщик
+9. День рождения
+10. Цунами(   Читать дальше...   )2012Жанр: RockПродолжительность: 02:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833996   (250603) от 04.11.2025
+
+VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <Alternative, Screamo>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Austerlitz - Я помню солнечные дни (04:11)
+02. Somnambula - Вой (03:42)
+03. Летние войны - Москва (Ты знала много) (03:56)
+04. The Bride Of Changes - Чтоб ты научилась слышать (06:42)(   Читать дальше...   )Жанр: Alternative, ScreamoПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564548   (249622) от 20.07.2022
+
+Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелодичный и очень объёмный хард-рок. Обладатели хороших аудиосистем будут в восторге. Баллады Брайана Адамса - это вообще отдельное направление в искусстве. Одна только Do I Have To Say The Words чего стоит. К сожалению, начиная с 1996 года в творчество музыканта прокралась альтернатива и отравила фирменное звучание, объём умер, а гитарный драйв сильно похудел. (   Читать дальше...   )01. Is Your Mama Gonna Miss Ya
+02. Hey Honey, I'm Packing You In
+03. Can't Stop This Thing We Started
+04. Thought I'd Died And Gone To Heaven(   Читать дальше...   )Жанр: RockПродолжительность: 04:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF6EA0B48CE4674477554C6E2E734AD468B8595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494445   (249280) от 09.05.2012
+
+Мастер - Лучшая Коллекция (2012) [MP3|320 кб/с]<Thrash Metal, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интродукция
+02. Лабиринт
+03. С кем ты?
+04. Берегись
+05. Руки прочь
+06. Кто кого
+07. Тореро
+08. Щит и меч
+09. 2000 лет (Иуда)
+10. Мастер(   Читать дальше...   )2012Жанр: Thrash Metal, Heavy MetalПродолжительность: 02:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494D487599C1A256AC3C77CE622808B842752E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565802   (245764) от 25.07.2022
+
+Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звучание этой группы невозможно перепутать ни с какой другой. А вокал Тома Кейфера сразу залетает в память и остается там навсегда. Всегда считал что все альбомы Cinderella сведены и записаны идеально и японские оригиналы звучат великолепно, пока не услышал данный ремастер. Звук просто улётный, детальный, мощный, чистый и уделает многие современные записи. Целостность (   Читать дальше...   )01. Night Songs
+02. Shake Me
+03. Nobody's Fool
+04. Nothin' For Nothin'(   Читать дальше...   )Жанр: RockПродолжительность: 03:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566549   (244896) от 29.07.2022
+
+Europe - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная Europe. Эту команду я знаю с самого раннего детства, когда о рок-музыке еще понятия не имел и букву «р» невыговаривал, но Final Countdown знал наизусть) В сборник вошли 3 классических и самых лучших альбома группы, их целостность полностью сохранил. Материал взят с удачно ремастированных изданий, в них звучание богаче и насыщенее чем в оригиналах. После (   Читать дальше...   )01. The Final Countdown
+02. Rock The Night
+03. Carrie
+04. Danger On The Track(   Читать дальше...   )Жанр: RockПродолжительность: 04:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658849567290F4A0E609FDBA276B1A8E2BE789B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567594   (243938) от 03.08.2022
+
+Kingdom Come - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243938.jpg" />
+</div>
+
+
+###  Подробнее
+
+За свою историю, группа Kingdom Come и её лидер, вокалист Lenny Wolf, создали 6 крутейших альбомов. Дальнейшее творчество присело отдохнуть. Целостность классических альбомов почти полностью сохранил и дополнил лучшими песнями с остальных изданий. Качество записи так себе. Детализация низкая, звук зернистый и какой то связанный, словно пленник. Но другого уже не (   Читать дальше...   )01. Living Out Of Touch
+02. Pushin' Hard
+03. What Love Can Be
+04. 17(   Читать дальше...   )Жанр: RockПродолжительность: 05:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA9422CA3CD2E39A87BC8174E1EFEBC41CC28E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567612   (243867) от 03.08.2022
+
+VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аракс, Геннадий Трофимов, Феликс Иванов - Эпилог (из мюзикла Звезда и смерть Хоакина Мурьеты (01:48)
+02. Поющие Гитары - Вечерний город (01:35)
+03. Нина Урбано, Тайфуны - Циганерия (04:08)
+04. Оркестр Госкино СССР - Модный танец (из к ф Служебный роман) (02:25)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543449   (242491) от 11.04.2022
 
 VA - Fest Rebel Rock Radio, Vol.02 (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
@@ -513,238 +757,6 @@ Rory Gallagher - I'm Not Awake Yet (2023) 2CD Compilation  [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE06296D448A1E974758B6B9D0B10FAE9F366DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634264   (233310) от 21.05.2023
-
-Tas Cru - Compilation (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heal My Soul
-02. A Month Of Somedays
-03. Memphis Song
-04. Feel I'm Falling(   Читать дальше...   )Жанр: RockПродолжительность: 01:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204D2290527F70710DDD609AE5106FB4838D0B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634441   (233024) от 22.05.2023
-
-Tinsley Ellis - Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Front Street Freeze
-02. Hell or High Water
-03. Seven Years
-04. Still In The Game(   Читать дальше...   )Жанр: Rock. Ballads, BluesПродолжительность: 03:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24ED7F8AC7861B056F98098CC617890243586E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635272   (231970) от 28.05.2023
-
-VA - The Magical Ride (2023) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231970.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Demtones - Sleep [02:18]
-002. Deus - Must Have Been New [03:47]
-003. The Jaggerz - Forever Together Forever [02:29]
-004. Blink - What's My Age Again? [02:28](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 07:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C381EC4152DD9EA562B47D2F4AAC52331C738C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341600   (228812) от 29.11.2019
-
-VA - Workout I Get Back In Shape (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228812.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Motley Crue - Kickstart My Heart (5:42)
-2.Nirvana - Smells Like Teen Spirit (5:03)
-3.Switchfoot - NATIVE TONGUE (4:38)
-4.3 Doors Down - Kryptonite (4:02)(   Читать дальше...   )Жанр: Hard Rock, Rock, OtherПродолжительность: 04:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A364760C1D2CC59B673ED024FFCCAE226A0A775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424300   (227815) от 17.11.2020
-
-VA - Welkome To New World (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227815.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Motion City Soundtrack - Crooked Ways
-002. Royal Green - Baby You're A Rich Man
-003. Garrison - The Only One
-004. Matthew Sweet & Susanna Hoffs - Gimme Some Truth(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623D2BEA8CC55099A58FE20AE74B019140E675DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512950   (227391) от 27.11.2021
-
-VA - Raise Your Flag Rock World's Fest (CD 01) (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227391.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jakethehawk - Ochre And Umber
-002. Jxdn - Angels & Demons
-003. Home Brewed Universe - Gallifrey Funk
-004. Rostam - Kinney(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 09:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F142280A84EA8487855715E3248A025ED5EC3698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342203   (225531) от 01.12.2019
-
-VA - Something In My Heart (2019) [MP3|320 Kbps] <Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225531.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tоо Slim - Timе Hаs Cоmе Tоdау
-002. Bеttу Blасkmаil Bаnd - Murkу Wаtеrs
-003. Trish Kеrr - Clоvеr
-004. Rustу Mссаrthу - Mеssin' With Thе Bluеs(   Читать дальше...   )Жанр: Blues RockПродолжительность: 06:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C457A935B91A007F5D40887144A7F89EA1211E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494303   (223595) от 12.12.2018
-
-Ария - Лучшая Коллекция (2012) [MP3|320 кб/с]<Heavy Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колизей
- 02. Волонтёр
- 03. Тореро
- 04. Воля И Разум(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 03:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A893801B9B9C3507623D316A537B05B25254FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

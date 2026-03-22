@@ -1,3 +1,90 @@
+###  Публикация: 1280756   (758647) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 9 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758647.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Painful Pride - Visions (2016)(4:08)
+02. Dee Snider - American Made (2018)(3:34)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D74C7FE2EDF3269F2D0D32329F98F124B88EAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280753   (758644) от 04.02.2019
+
+VA - Heavy Metal Collections vol. 6 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758644.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Nemesea - Time To Make It (2016) (3:16)
+02. Pentakill - Blade of the Ruined King (2017) (7:00)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E247FB065ED2D24B86B80D4C10C8DACA4F5E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280761   (758631) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 11 (3CD + 1CD LIVE) (2019) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758631.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Beast In Black - Blood Of A Lion (2017) (5:04)
+02. Thobbe Englund - Sold My Soul (2017) (2:34)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 04:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6B71943DCAE6475A1692883D51C2828C7A33F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280759   (758626) от 04.02.2019
 
 VA - Heavy Metal Collections Vol. 10 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
@@ -107,6 +194,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215615   (757801) от 26.03.2018
+
+VA - 100 Hits Rock Vol.2 (2018) [MP3|256-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хелависа - Кракатук
+02. Звери - Я – молодец
+03. Хелависа - Шей
+04. Звери - Белое Красное(   Читать дальше...   )Жанр: RockПродолжительность: 06:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D66AF0CA83A0B543FCB1F085669A30723CEC9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018091   (757322) от 19.05.2016
+
+Bonnie Tyler - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Pop, Rock, Soul>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Holding On For A Hero 1986 (04:25)
+02 Total Eclipse Of The Heart 1983 (03:51)
+03 It's A Heartache 1978 (03:19)
+04 If You Were A Woman (And I Was A Man) 1986 (04:02)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 01:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BE0AE3CB0B8DC90E67B61A5CF99E9AD73731A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018092   (757321) от 19.05.2016
+
+Bryan Ferry - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Glam Rock, Art Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 I Put A Spell On You 1993 (05:24)
+02 Don't Stop The Dance 1985 (04:19)
+03 Kiss And Tell 1987 (04:53)
+04 I'm In The Mood For Love 1999 (04:18)(   Читать дальше...   )Жанр: Glam Rock, Art RockПродолжительность: 01:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8AE024D0D112A75319E1DDE5A8D212246EF299C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,181 +742,6 @@ VA - All New Rock (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC12A3C01EBCEEDB67E919FBCE0C5C2E6E0EAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526205   (738123) от 25.01.2022
-
-VA - Music For You vol. 22 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738123.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Accept - The Undertaker (05:38)
- 002. Accept - Too Mean To Die (04:21)
- 003. Acid Mammoth - Ivory Towers (06:18)
- 004. ADS - Nights Wolf (05:22)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 08:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C469DC038F31DA64BAC1DCC81A7DE5808306C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787851   (736062) от 18.05.2014
-
-50 Cent & Linkin Park - Hustlers Ambition One Step Closer (2008) [MP3|256 кб/с]<Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hustlers Ambition & One Step Closer
-02.Hustlers Ambition & One Step Closer (HTR mix)
-03.HAOSC
-04.Hustlers Ambition & One Step Closer (Extreme mix)
-05.Hustlers Ambition & One Step Closer (full version)Жанр: AlternativeПродолжительность: 00:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9784AC290FDA46E16F6ECBCA08BAE6100C1FE034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527927   (735288) от 31.01.2022
-
-VA - Best Rock Ballads (2021) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rolling Stones - Out Of Tears (05:31)
- 02. Queen - The Show Muts Go On (04:25)
- 03. Dio - All The Fools Sailed Away (07:13)
- 04. Roxette - It Must Have Been Love (04:20)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 02:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11820BDC814C97B907DC7B0E58D0A899B75140F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398736   (735254) от 27.07.2020
-
-VA - Morphine Bride (2020) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735254.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alluvion - Preemptive Ascension
-002. Daniel Gren - Opening B
-003. Stages In Faith - Out Of Turn
-004. Hawkwind - Flesh Fondue(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 13:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039C3E06CBC7AD0FC50A0AFCE7EE5A88D85D28D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399521   (732907) от 01.08.2020
-
-The Dead Daisies - From Yesterday To Tomorrow (2020) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mainline
-02. Angel in Your Eyes
-03. Your Karma
-04. Long Way to Go(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2379D9B5A44BFEE10778D71D6361F8E4FFFE6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399590   (732836) от 01.08.2020
-
-VA - Glam, Heavy Metal Ballads (2020) 5CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helloween - Forever and One (Neverland)
-02. Bon Jovi - Runaway
-03. Twisted Sister - We’re Not Gonna Take It
-04. Vision Divine - The Sin Is You(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 15:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3666035BE8260D7C09BF03470F276B4A5987750
 ```
 
 https://mybot314.ru/tekegram_catalog/

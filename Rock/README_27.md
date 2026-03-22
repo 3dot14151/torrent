@@ -1,3 +1,61 @@
+###  Публикация: 1395153   (757261) от 09.07.2020
+
+Ars Pro Vita - Peace (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog.>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Is Peace (13:04)
+ 02. Shut up and Shoot!!! (06:37)
+ 03. On Bibles and Cannons (05:04)
+ 04. The Yellow Cloud (06:19)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog.Продолжительность: 02:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FDB235BE991D25CFA876C758D0FE4AC0959B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018121   (756963) от 19.05.2016
+
+Океан Ельзи - Без меж (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_756963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Віддай мені (свою любов)
+02. Не йди
+03. Джерело
+04. Сонце(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F34A1423ED9DFFCE4E7E65C66D8AB6D066B9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215766   (756608) от 27.03.2018
 
 Resonance - The Time Machine (1976) LP [MP3|320 Kbps] <Electronic, Rock, Funk-Soul, Pop>
@@ -20,6 +78,35 @@ Resonance - The Time Machine (1976) LP [MP3|320 Kbps] <Electronic, Rock, Funk-So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BAA813B221166777520326F43C23A1D20F59942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395420   (755659) от 10.07.2020
+
+Nocona - Los Dos (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_755659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stabby Mike (03:33)
+ 02. Chasing Your Shadow (03:34)
+ 03. Free Throw (04:05)
+ 04. Chester (02:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59B0122951B05C0D6896FF95F6A568E2D07729F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,93 +742,6 @@ Kinetic Element - Live From New York (2020) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE29AA8EEE034C074E2FC7B8E01830FCDB39EBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282805   (742333) от 14.02.2019
-
-The Animals - The House Of The Rising Sun: Best Of The Animals (2019) [MP3|320 Kbps] <Rock, Blues, Folk, World, & Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The House Of The Rising Sun
-02. Don't Let Me Be Misunderstood
-03. We've Gotta Get Out Of This Place
-04. It's My Life(   Читать дальше...   )Жанр: Rock, Blues, Folk, World, & CountryПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C09AE4E227B722DEAA3D22AABA2F0C5389B5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282905   (741992) от 14.02.2019
-
-Avril Lavigne - Head Above Water (2019) [MP3|320 Kbps] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Head Above Water
-2. Birdie
-3. I Fell In Love With The Devil
-4. Tell Me It's Over(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1646C785638FEC8663B9E1E7C95333C62DA0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217691   (741933) от 05.04.2018
-
-Rainbow (Ritchie Blackmore's Rainbow) - Memories In Rock II (2018) Live [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the Rainbow (Live)
-02. Spotlight Kid (Live)
-03. I Surrender (Live)
-04. Mistreated (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7BD8D74E0861BE4C4681F13CCE90A96BA708A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

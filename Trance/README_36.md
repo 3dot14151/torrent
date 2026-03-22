@@ -1,3 +1,235 @@
+###  Публикация: 1582743   (318800) от 11.10.2022
+
+VA - Trance Vol.9 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaimo K & Tiff Lacey - Linger (Original Mix)
+02. THIRDWAVE & Stine Grove - Electric Love (Original Mix)
+03. 1st In Line & Cris von X - The Light (Original Mix)
+04. Costa & Neev Kennedy - My Own Way (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F9AB3F804AB1997B6A947A61B7228037425557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582767   (318793) от 11.10.2022
+
+Paul van Dyk & Alex M.O.R.P.H. - Hawkins Square (EP) (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk & Alex M.O.R.P.H. - Hawkins Square (Album Mix)
+02. Paul van Dyk & Alex M.O.R.P.H. - Hawkins Square (Original Mix)
+03. Paul van Dyk & Alex M.O.R.P.H. - Hawkins Square (Album Extended)
+04. Paul van Dyk & Alex M.O.R.P.H. - Hawkins Square (Extended)Жанр: TranceПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9066730DD81D8787F0116251816A45628B563A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582757   (318785) от 11.10.2022
+
+VA - Trance Summer (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Sand - Gaia (Original Mix)
+02. Glassman - Memories Of Love (Original Mix)
+03. Roman Sand - White Sands (Original Mix)
+04. Synthetic Fantasy - Burning Sky (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3BA44DFA9E061D5A0C69950AA1F22E8E4E7965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182333   (317254) от 10.11.2017
+
+VA - Total Trance Selections Vol. 07 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farid - Vibranium (Extended Mix)
+02. Abhishek Y2V - The Goddess (Extended Mix) (feat. Amy Kirkpatrick)
+03. Bigtopo - Jano (Original Mix)
+04. Ula - Tender Feeling (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177BAFBDEAAA2245890DA53141FC20B9F5A6F17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182362   (317163) от 10.11.2017
+
+VA - Grotesque Reworked & Remixed - (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES – People Will Go (M.I.K.E. Push Remix)
+02. DJ Ton T.B. – Dream Machine (Factor B's Back To The Future Remix)
+03. Salt Tank – Eugina (Ciaran McAuley Remix)
+04. Mr. Sam – Lyteo (Stoneface & Terminal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D570BF4253731BC811A05CA7F5152A479A5E4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182237   (317063) от 10.11.2017
+
+VA - Vocal Trance Classics Top 40 (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Markus Schulz - Nothing Without Me (feat. Ana Diaz) (Beat Service Radio Edit)  3:56
+02.  Cosmic Gate & Emma Hewitt - Calm Down (Omnia Radio Edit)  4:31
+03.  Ronski Speed & Sir Adrian - The Space We Are (John O'Callaghan Radio Edit)  3:42
+04.  Sarah Lynn - At The End Of Every Journey (Jorn van Deynhoven Radio Edit)  3:34(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0055F61CE21BE597D8ED85BAFE7741FBD3DB38E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182313   (317058) от 10.11.2017
+
+Basil O'Glue - Depth Of Field (2017) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echoic Memories (Original Mix)
+02. Everyone Has A Story (Original Mix)
+03. Astarte (Original Mix)
+04. Hoax (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064B4DACAE528F0088E5AF5F279142281F923997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332196   (316662) от 19.10.2019
+
+VA - Black Hole Trance Music 10-19 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciaran McAuley feat. Clare Stagg - All I Want (Extended Mix)
+02. Cosmic Gate - Light Years (Extended Mix)
+03. Late Night Alumni - Empty Streets (ALPHA 9 Extended Remix)
+04. Ferry Corsten & Johnny B - Hear It Now (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D549D6DE46869BADB66BBD670350B0A0976B8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182534   (315106) от 11.11.2017
 
 VA - Global DJ Broadcast: Top 20 November (2017) [MP3|320 Kbps] <Trance>
@@ -511,238 +743,6 @@ VA - Magic Island - Music For Balearic People Vol. 9 (Mixed  by Roger Shah) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27D3C0F4C5121A470F87BA43F1EEA1E4196BDA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185231   (295223) от 20.11.2017
-
-VA - Achromania - A Journey Through White Label Trance Vol. 8 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highforcer - Defender of Gotham (Original Mix)
-02. Andy Cain - Brain Damage (Original Mix)
-03. Vita - The Prophecy (Original Mix)
-04. Darkwinder - Sorceress Heart (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAEF599B893F92C9111A32CAAFC565A28D374DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184644   (295216) от 20.11.2017
-
-VA - Trancemission Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daniel Rusher - Aquarius (Original Mix)  8:17
-02.  Johan Gielen & James Haydon - Give Me Some More (Original Mix)  5:50
-03.  Gabriel West & Ricardo Piedra - Empire (Original Mix)  6:38
-04.  Stealth Elements - Stealth Illusion (Myk Bee Remix)  7:50(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9758C647BC46DE1B50B30CEFC480151A99E669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185214   (295205) от 20.11.2017
-
-VA - Recoverworld Radio 016 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Skyfield - Feel It (Original Mix)
-02 Vertical State - Angel's Hospital (Original Mix)
-03 Ciro Visone - Vendetta (Original Mix)
-04 Neal Scarborough - Stung On The River (Corin Bayley Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D283DD8F7964AF61BD7291911FA1693A0B5D4DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184572   (295192) от 20.11.2017
-
-VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deathmind - Inside (Original Mix)  7:46
-02.  Precious Affliction - Castle Of Glass (Original Mix)  7:54
-03.  Paul Denton - Zombie (Original Mix)  6:59
-04.  Shane Infinity - Heaven's Gate (Original Mix)  6:44(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0647FF64178819477377B3096DC065164274ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185436   (293744) от 21.11.2017
-
-VA - The Best Of Deepsink Digital Trance Vol 2 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4Joann - Connected For Eternity (Original Mix)
-02. Dan Delaforce - Falling Rocks (Theølogy) & Jon Fast Remix
-03. DJ Da Dominator - Enlightenment (DJ Da Dominator Remix)
-04. DjjhonnyVergel - One Way (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFE26EB7DD917105877953C744C6CA96B0D0E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185381   (293743) от 21.11.2017
-
-VA - Best of Trance 2017, Vol. 06 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura And Rnx - Oregon (Rnx Mix)
-02. Vintage And Morelli - Aurora (Original Mix)
-03. Eleven.Five And Arielle Maren - Remember (Blood Groove & Kikis Remix)
-04. Ltn And Attila Syah - Fata Morgana (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4C55713201BFB14196F2AD027DF0D7343CA8AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185426   (293740) от 21.11.2017
-
-VA - Recoverworld Trance Sessions 17.06 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ex-Driver - Kylie (original mix)
-02. Peter Hulsmans - Edge Of Sanity (original)
-03. Robert Reazon - See The Sun (original mix)
-04. Dream State - Patagonia (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09BCC9220CA361A3572F5703B7FA6C2A70BEA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262790   (293516) от 16.11.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Driftmoon & Robert Nickson Pres. Astrosphere - Fire Which Burns Us All (Extended Mix)
-02.Daxson - Blackcard (Extended Mix)
-03.Markus Schulz & JES - Calling for Love (Hazem Beltagui Extended Remix)
-04.Fisherman - The Mission (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07499CE6C3EAE8DD6182836319B06A15442B5AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

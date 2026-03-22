@@ -1,3 +1,148 @@
+###  Публикация: 1314693   (516956) от 16.07.2019
+
+Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Electonic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Of Worlds
+02. Listening To A Rain
+03. Dreamland Express
+04. Return(   Читать дальше...   )Жанр: Electonic, New AgeПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE3BA3C107A6673FEA3B126E376B3B45D3B2547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314748   (516955) от 16.07.2019
+
+Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
+02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
+03. Wilbert Roget, II - Netherrealm Incursion (03:43)
+04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847D57A3360499193E561267777E218ADC0B15B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314749   (516948) от 16.07.2019
+
+Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
+02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
+03. Wilbert Roget, II - Netherrealm Incursion (03:43)
+04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9BD7D9600DB23B7E3B08F3BA949936330DD6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187817   (516886) от 20.08.2018
+
+Українські стрілецькі та повстанські пісні (Ukrains'ki strilec'ki ta povstans'ki pisni) (2008) [MP3|192-320 kbps]<Folk, ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой, у лузі червона калина (Етнографічний хор "Гомін")
+02. Вже бубон грає (Квартет бандуристів "Рось")
+03. Ой, видно село (Національна заслужена капела бандуристів України ім. Г. І. Майбороди)
+04. Зажурились галичанки (Держ. засл. Буковинський анс. пісні і танцю)(   Читать дальше...   )Жанр: Folk, ethnicПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099D921663F18F6676FA835188AC7B52CD300186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241857   (516174) от 21.08.2018
+
+Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What is a Man (3:44)
+02. Icarus (3:28)
+03. Made to Love You (3:18)
+04. Fall Like a Feather (3:22)(   Читать дальше...   )Жанр: Folk-Rock, Pop, Soul, Singer/SongwriterПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12822CB589729E7D0042D312C8175414D8D2A1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242108   (516112) от 21.08.2018
 
 Cyril Baranov - Rosa (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
@@ -619,151 +764,6 @@ Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2393BFC6D6C726E4521FF4F32942889D6AAB3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562420   (509024) от 09.07.2022
-
-Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New Age, Native>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of the Golden Age  (06:44)
- 02. Whispers from Heaven  (07:24)
- 03. The Seven Sisters  (07:12)
- 04. Shadowlands  (06:48)(   Читать дальше...   )Жанр: New Age, NativeПродолжительность: 07:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B188FD2F09BE35ADF8402C89B88D46BBD3719CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932652   (509018) от 29.08.2015
-
-Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 2
-02. Arpegiateur (Live)
-03. Oxygene, Pt. 4
-04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DACC7786D6885A4F5A8938E997C5EFC94DC0C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316079   (508825) от 23.07.2019
-
-Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score, Alternative Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balance, Not Symmetry
-02. All Singing And All Dancing
-03. Different Kind Of Love
-04. Sunrise(   Читать дальше...   )Жанр: Score, Alternative RockПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B178A9A365DEEA4B4CCFF1741971FA8B25200D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316128   (508795) от 23.07.2019
-
-Luis Berra - Before Chaos (2019) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508795.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Birds (2:34)
-2.Breath (3:36)
-3.Don't Mess With the Melody (2:43)
-4.Drops (2:11)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52F51A489DB00B6E035FF82B65C42486F9AF51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316085   (508736) от 23.07.2019
-
-Alkualat - Space Journey (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeludium
-02. Heliosphere
-03. Jansky
-04. Event Horizon(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CD75EDF0D507DA466C7C28ACC46B072FE33C34
 ```
 
 https://mybot314.ru/tekegram_catalog/

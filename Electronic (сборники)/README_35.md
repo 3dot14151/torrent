@@ -1,3 +1,61 @@
+###  Публикация: 1494633   (887831) от 08.09.2021
+
+VA - Maniac Hard Dance (2021) [MP3|320 Kbps] <Club, Hard Dance, Hardstyle, Core Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Agressive Noize - Show Me The Way
+002. Dance House Project - Can't Stop Me
+003. Axray - Sahnekapsel
+004. Ezkill - Hands In The Air(   Читать дальше...   )Жанр: Club, Hard Dance, Hardstyle, Core DanceПродолжительность: 08:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7600603AA2F24BB12CDDC6A1BF1C73545353CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494589   (887819) от 08.09.2021
+
+VA - Beatport Electronic: Sound Pack #343 (2021) [MP3|320 Kbps] <Electronic, synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887819.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Trees Speak - Transforming
+002. Mmyylo - Venamy
+003. Darkside - Liberty Bell
+004. Fairtone - Riviera(   Читать дальше...   )Жанр: Electronic, syntheticПродолжительность: 12:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753BE5CD414D63A2DFD6A445773E15A4C79AF7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494614   (887746) от 08.09.2021
 
 VA - Clubbing Dance House: Energy Playlist (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
@@ -686,64 +744,6 @@ VA - Sunrise Lovers Vol.3: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6B13F2D5EEF37595A5E6BC3589D3237672B6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995909   (883092) от 12.03.2016
-
-VA - Club Dance Ambience vol 58 (2016) [MP3|320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883092.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 50 Cent vs. DJ KUBA & NEITAN - Disco Inferno Party On! (Aquila Mash-Up).mp3
-002. Aceaxe feat. Jonny Rose & Sicklead - Heartfire (Original Mix).mp3
-003. Acim - All My Life (Original Mix).mp3
-004. Adam Lambert vs Adam Aesalon & Murat Salman - Ghost Town (Max Maikon Mash-Up).mp3(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15723D1D084E8B4498D5E5972A0FF75B43C6B6EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995927   (882965) от 12.03.2016
-
-VA - Trance Desire Volume 63 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proyal feat. Ai Takekawa - The Orbit (Hazem Beltagui Remix) (05:45)
-02. A. Shine - Tango (Spark7 Remix) (04:31)
-03. Morvan - Spartacus (06:17)
-04. Sneijder feat. Jess Morgan - Sky Is On Fire (Radio Edit) (04:12)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7920B254C32B9F6C5399BE947994E161F0E812F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

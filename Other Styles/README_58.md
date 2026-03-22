@@ -1,3 +1,119 @@
+###  Публикация: 1127723   (730358) от 22.04.2017
+
+Дидюля & Chris Wonderful - Аквамарин (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730358.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Свадебное путешествие
+2. Страна дураков
+3. Белый месяц
+4. Посох шамана(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FC5E40E806650361036B41874E60F4C3BECC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283973   (730045) от 20.02.2019
+
+DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <Folk-rock, Gypsy Punk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Shot (05:22)
+02. Let Me Sleep (04:39)
+03. Lose You In the Crowd (04:41)
+04. Love Letters (04:25)(   Читать дальше...   )Жанр: Folk-rock, Gypsy PunkПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F96A47E36880F951A7002E0116062B0941EE433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128003   (730039) от 23.04.2017
+
+VA - India Experience (Vol. 1) (2015) [MP3|320 Kbps] <Downtempo, Lounge, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brass - Indian Landscape
+02. Brass - Delhi Nights
+03. Brass - Sun After Rain
+04. Brass - Calcutta Groove(   Читать дальше...   )Жанр: Downtempo, Lounge, New Age, WorldПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4BC0CF84AA8FCF50A03AE073C3C4AC4772B875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283905   (730015) от 20.02.2019
+
+VA - Не грози Южному Централу, попивая сок у себя в квартале / Don't Be A Menace To South Central While Drinking Your Juice In The Hood (1996) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730015.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winter Warz (Cappadonna)
+2. Renee (Lost Boyz)
+3. Funky Sounds (Lil Bud & Tizone)
+4. Give It Up (Jodeci)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5269F424AB3102D1CC116336A735EA2852B46330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283977   (730012) от 20.02.2019
 
 Justin Hurwitz - First Man (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Score>
@@ -634,122 +750,6 @@ Yanni - The Dream Concert Live from the Great Pyramids of Egypt (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D25D2BD15EE53E5FBC8336526B9F2B839C4C4F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128428   (727189) от 25.04.2017
-
-Stive Morgan - Eclipse Of The Moon (2017) [MP3|320 Kbps] <Ambient, Chillout, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Solar Wind part 1 (3:52)
-02.  Solar Wind part 2 (5:14)
-03.  Eclipse Of The Moon (5:01)
-04.  Child Of War (4:21)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F2C804604A90C3191EC0A275FED4D79003CCC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022982   (726688) от 04.06.2016
-
-Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy's Silver Lining [00:04:12]
-02. Time to Say Goodbye [00:04:29]
-03. Unconditional Love [00:03:57]
-04. Christy Kay's Theme [00:04:12](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B232C1C16FAEB5FBEB85B581182EE2B70C393715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530943   (726652) от 13.02.2022
-
-Piano Pianissimo - Breathe In, Breathe Out and Relax (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road from Ruin (1:53)
-02. From the Rooftops (1:48)
-03. Like Singing Seas (1:50)
-04. Clouds of Gray (2:02)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680B497979580998F26E9BE955E8E05D0FA194FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128793   (726554) от 26.04.2017
-
-Rajendra Teredesai - Moksha - The Path to Inner Peace (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726554.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yog Uday : Dawn Ritual
- 2. Yog Prabhat : Morning Ritual
- 3. Yog Nyas : Noon Ritual
- 4. Yog Sandhya : Sunset Ritual(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C95A939B0C33AD9B7FE982C13A7BEE7107E18A
 ```
 
 https://mybot314.ru/tekegram_catalog/

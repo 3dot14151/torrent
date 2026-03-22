@@ -1,3 +1,380 @@
+###  Публикация: 1504818   (236700) от 26.10.2021
+
+Glacier - 2 Albums (2001-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Isle Of Glass [00:07:16]
+02. Union [00:05:22]
+03. Our Children [00:05:44]
+04. The Icing On The Wake [00:10:58](   Читать дальше...   )Жанр: Progressive Rock, Neo Prog, Symphonic ProgПродолжительность: 2CD, 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E01145ABA5886E4BE7427FE9E8EAB07426986E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505248   (236678) от 26.10.2021
+
+Plaindrifter - Echo Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M.N.S.N. 05:37
+02. New World 07:46
+03. Proto Surfer Boy 08:13
+04. Prisma 12:10(   Читать дальше...   )Жанр: Progressive Stoner RockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D06009E5592714ABE8DE6DE5850E5595F073F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639808   (236675) от 15.06.2023
+
+Eloy - Ocean (1977) Remastered, 2019, Vertigo Berlin [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poseidon's Creation [00:11:41]
+02. Incarnation Of Logos [00:08:25]
+03. Decay Of Logos [00:08:17]
+04. Atlantis' Agony At June 5th, 8498, 13 p.m. Gregorian Earthtime [00:15:37]Жанр: Progressive Rock, Space Rock, Psychedelic RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D983EFD2C1461691D5A8C43F79D28263CBEFF69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628290   (236670) от 22.04.2023
+
+VA - Summer Hits 2023 - Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons -- Believer (3:24)
+02. Glass Animals -- Heat Waves (3:59)
+03. The Killers -- Mr. Brightside (3:44)
+04. Tame Impala -- The Less I Know The Better (3:36)(   Читать дальше...   )Жанр: RockПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59C05485D7058468629A536E836AD1F31E18FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505088   (236663) от 26.10.2021
+
+Kesem - Post-Terra (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - No Future (00:05:54)
+02 - We Will Be Ready (00:04:30)
+03 - Let Go (00:06:54)
+04 - When The Stars Cave In (00:04:04)(   Читать дальше...   )Жанр: Psychedelic, Space-RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D3E6FF8475815A97BB13D3ABEA5E45A10E80C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505186   (236640) от 26.10.2021
+
+Ordeal & Plight - Her Bones In Whispers (2021) [FLAC|Lossless|image + .cue] <Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Seriously Not Over It
+02. Extra Pain Medication
+03. In The Desert I Prefer You Over Water
+04. A Hole In The Ocean(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925C839372BF309381E754D0351A6ACC827CB89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505090   (236606) от 26.10.2021
+
+Real Loud - Real Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forbidden Subjects (00:10:43)
+02 - Codependence (00:07:44)
+03 - Double Double (00:15:05)
+04 - Go in Secret (00:08:21)Жанр: Experimental RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967A8B6B340B2089AE12D891189E53F9C55C7E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608915   (236585) от 01.02.2023
+
+Arcana Collective - Atlas Lost, Act 1: The Long Sleep (2023) [FLAC 2.0|44/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:39)
+02. The Dream (4:42)
+03. The Launch (8:28)
+04. The Long Sleep (4:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690E18EB901F5341A7FC0CAACC900DC01081701D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505478   (236571) от 28.10.2021
+
+Fredrick John Pugsley - Live with Your Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Across the Rio Grande (00:05:31)
+02 - The Ballad of the Lonesome Farmer (00:06:11)
+03 - Forevermore (00:03:52)
+04 - I Hide It Well (00:03:07)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9ADBE5DB524F85BCDD9EB64F616FC3913A67FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628493   (236562) от 23.04.2023
+
+Bruce Gaitsch - How Fragile We Are (2023) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain My Heart (7:26)
+02. Fools Cry (5:41)
+03. Aphasia (5:00)
+04. Illinois (2:32)(   Читать дальше...   )Жанр: AOR, Soft RockПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAAAEF1302E888EF46160273393B84C6CAEF6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628487   (236476) от 23.04.2023
+
+Issa - Lights of Japan (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Again (3:55)
+02. Lights Of Japan (4:17)
+03. Seize The Day (4:46)
+04. Stop The Rain (4:36)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61775B47F689965464D0F035DE9C7CA154B64B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505709   (236448) от 28.10.2021
+
+Burnt Belief - Emergent (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Bubble Bursts (00:05:58)
+02 - More Snow (00:06:07)
+03 - The Confidence of Ignorance (00:05:05)
+04 - Emergent (00:09:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDE25F00B0B1BCA90598D80B38F5A18B25BE31D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609490   (236414) от 03.02.2023
+
+DeWolff - Love, Death & In Between (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Train (4:12)
+02. Heart Stopping Kinda Show (4:07)
+03. Will o' the Wisp (3:23)
+04. Jacky Go To Sleep (5:05)(   Читать дальше...   )Жанр: Psych Southern RockПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE5A1A998D0F776F12C58B2CF98860F8CB24BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629897   (236411) от 28.04.2023
 
 Twisted Illusion - Upstairs To Optimism (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, AOR, Hard Rock>
@@ -368,383 +745,6 @@ Eddie B - I'm Holding On (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:144A9741FC07B6DC28E2CFE61FA80AB3B5DE1986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615390   (235805) от 25.02.2023
-
-Tritop - Rise of Kassandra (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise of Kassandra [00:13:00]
-02. Delighted Insanity [00:05:46]
-03. Island of Servitude [00:05:11]
-04. The Sacret Law of Retribution [00:23:46]Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773BEF390584E4E84836461506E9E7C583D73A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458260   (235769) от 28.03.2021
-
-Hillward - Alternate Timelines (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire and Brimstone (5:58)
-02. Vapor Trails (4:09)
-03. Deafen the Void (4:56)
-04. Waiting (5:21)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0045B51D8A9C968B7F1DDDE5BFE429ACAB9F848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615335   (235752) от 25.02.2023
-
-French, Frith, Kaiser, Thompson - Live, Love, Larf & Loaf  (1987) [FLAC|Lossless|tracks + .cue]<Eclectic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wings A La Mode 2:38
-02. Killerman Gold Posse 1:42
-03. Where's The Money ? 3:48
-04. Hai Sai Oji-San 3:37(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C01A7C33D5BF433B3119C255B0FD6363BD22E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640974   (235733) от 20.06.2023
-
-Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SR Prelude
-02. The Glamattack
-03. Golden Age Of Music
-04. The Rise Of The Starman(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B90BC679978E4EE7F5FC2BC8F5D927D7858E073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642037   (235732) от 26.06.2023
-
-The Flower Kings - The Sum Of No Evil (2007) Remaster, 2023, InsideOutMusic [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Time (2023 Remaster) [00:13:05]
-02. Love Is the Only Answer (2023 Remaster) [00:24:26]
-03. Trading My Soul (2023 Remaster) [00:06:22]
-04. The Sum of No Reason (2023 Remaster) [00:13:33](   Читать дальше...   )Жанр: Prog RockПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CE5ED9A541E71A4441D3239DF163C5B3BBE856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636055   (235719) от 28.05.2023
-
-Magnus Rosen Band - It's Time to Rock the World Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World and Times (4:08)
-02. Glitter and Blood (3:58)
-03. Something (2:57)
-04. Circus (3:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18F55F83589F4DA964F2F497B54A679D29E5277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458245   (235607) от 28.03.2021
-
-Byron - The Omega Evangelion (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Post Rock, Heavy Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:12]
-02. Through the Eye of the Nightingale [00:05:03]
-03. Amalthea [00:06:42]
-04. Corn, Drought and the Lord [00:05:15](   Читать дальше...   )Жанр: Stoner Rock, Post Rock, Heavy Doom MetalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB726871293F0149EFC03EA45D8A0B09C7E18A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636061   (235582) от 29.05.2023
-
-Molly & The Heymakers - Live Wires (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Bit About Love (2:38)
-02. Wound Tight (3:59)
-03. Billy Goes Through the World (4:11)
-04. Your Company (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E5EC4163D1CAF5D2D3DA0BEDE74890CFBDD55E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636316   (235554) от 29.05.2023
-
-Elvis Costello – Live At The El Mocambo (1993) [FLAC|Lossless|tracks + .cue] <New Wave, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystery Dance 2:16
-02. Waiting For The End Of The World 3:48
-03. Welcome To The Working Week 1:26
-04. Less Than Zero 4:24(   Читать дальше...   )Жанр: New Wave, Rock & RollПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC59C0356521BACB10A4C6F8B842BA1AF4E0FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458823   (235515) от 30.03.2021
-
-March - In This Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Riverside (8:11)
-02. For Freedom (4:12)
-03. 40 Oceans (3:31)
-04. Believer (3:14)(   Читать дальше...   )Жанр: Progressive Rock, Pop RockПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CD9AE369213E036CF70573CB3794D17C728C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618630   (235435) от 12.03.2023
-
-LaMarca - LaMarca (1985) Reissue, Remastered, 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <AOR, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change My Rules (4:30)
-02. Dear Diane (3:51)
-03. Second Chance (3:34)
-04. You (3:41)(   Читать дальше...   )Жанр: AOR, RockПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1004D3B0F5752C01D76EEFDCC9E48173F63C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459684   (235410) от 03.04.2021
-
-Il Paradiso Degli Orchi - Samir (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, RPI>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introinduzione (5:54)
-02. Slowgun (4:33)
-03. Samir (10:21)
-04. Mente (11:22)(   Читать дальше...   )Жанр: Progressive Rock, RPIПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2593C6B46FA6D7B017015983265AD37DD1E16ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618529   (235409) от 12.03.2023
-
-HamaSaari - Ineffable (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Different Time [00:05:12]
-02. Crumbs [00:06:44]
-03. Lords [00:05:51]
-04. Bleak [00:06:26](   Читать дальше...   )Жанр: Progressive Rock, Post RockПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0111BEABF8690A3436BE8BEF36C654A2B237DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

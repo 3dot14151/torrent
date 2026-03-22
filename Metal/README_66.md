@@ -1,3 +1,119 @@
+###  Публикация: 1060084   (457253) от 06.10.2016
+
+Meshuggah - The Violent Sleep of Reason (2016) [MP3|320 Kbps] <Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clockworks
+02. Born In Dissonance
+03. Monstrocity
+04. By The Ton(   Читать дальше...   )Жанр: Math MetalПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D56EC580D4045D3EC2935FB8C83F257F63B931A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246666   (456939) от 13.09.2018
+
+Rammstein - Verbrannte Erde (Der Arena, Berlin-Treptow - 27.09.1996) Live Bootleg [MP3|320 кб/с]<Industrial Metal, NDH>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456939.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:39] 01. Intro + Rammstein
+[04:22] 02. Herzeleid
+[03:42] 03. Bestrafe Mich
+[04:37] 04. Der Meister(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E193D92CFBB18181FC5509645D17CB4F99640F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408389   (456132) от 12.09.2020
+
+Skyborne Reveries - Utterly Away (2020) [MP3|320 Kbps] <Atmospheric Black Metal, Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ikameshiki (06:08)
+02. The Moon Viewers (04:28)
+03. In Windy Moors of Memory (07:19)
+04. Snowy Mor﻿row (07:45)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post-Black MetalПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A837267E4C64E508E7A33A4FA7D3FDD3B49BA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408506   (456125) от 12.09.2020
+
+Dephosphorus - Sublimation (2020) [MP3|320 Kbps] <Dea﻿th Metal, Black M﻿etal, Grin﻿d>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Βορά Των Αιώνων (Devoured By Aeons) (03:!9)
+0﻿2. Ψυχοϊστορία (Psychohistory)(02:15)
+03. Εξύψωση (Sublimation) (03:45)
+04. Προς Το Απόκοσμο (   Читать дальше...   )Жанр: Dea﻿th Metal, Black M﻿etal, Grin﻿dПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC45414CC39CA708E3DBD28EFBE4F2193CE6A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408390   (456119) от 12.09.2020
 
 Frowning - Death Requiem (2020) [MP3|320 Kbps] <Funeral Doom Metal>
@@ -627,128 +743,6 @@ Snakeskin - Tunes For My Santimea (2016) [MP3|320 Kbps] <Gothic Metal, EBM, Indu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B2749E5E5C7C94B8633B8AA668563C00703EB26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552457   (448155) от 26.09.2012
-
-Heart Of A Coward - Hope And Hindrance (2012) [MP3|320 кб/с]<Progressive Metalcore / Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Fields
-02. All Eyes To The Sky
-03. Around A Girl (In 80 Days)
-04. We Stand As One
-05. Light
-06. Shade
-07. Nightmare
-08. Hope And Hindrance
-09. And Only Time Will Tell
-10. Break These ChainsЖанр: Progressive Metalcore / Math MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D93347368CB102ECE73B9342FC4EAB7E5E3E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409148   (447588) от 16.09.2020
-
-Ensepulchre - Desolation (2020) [MP3|320 Kbps] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prolegomenon [00:00:50]
-02. The Mountain [00:04:37]
-03. Anthropogenesis [00:05:03]
-04. Transcend [00:05:16](   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FE92C8EE79C046F82A6852CBC3487467093C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409184   (447586) от 16.09.2020
-
-Heat Affected Zone - Limbo Bar (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Something In (00:02:23)
-02 - Mad Town (00:05:40)
-03 - Empty Cup (00:03:43)
-04 - Thoughtless One (00:03:22)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07021EEF998AD2C450D04E8DD50782A9242DB75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409353   (447489) от 16.09.2020
-
-Raven - Metal City (2020) [MP3|320 Kbps] <Speed, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power (03:54)
- 02. Top of the Mountain (03:36)
- 03. Human Race (04:00)
- 04. Metal City (03:28)(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAF1CD61DD2232E13447A373729CEA4F1784103
 ```
 
 https://mybot314.ru/tekegram_catalog/

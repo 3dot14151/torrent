@@ -1,3 +1,177 @@
+###  Публикация: 1087268   (145247) от 28.12.2016
+
+VA - Музыкальные новинки mp3. Сборник № 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Галина Боб - Только С Тобой 3:48
+002.Breathe Carolina & Inukshuk - Nights 4:00
+003.Xana - Красивыи Мужчина 4:00
+004.Jojo - Mad Love 4:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C199099F92D032D4D6B1A7FDF6BA122864850142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087265   (145238) от 28.12.2016
+
+VA - Сотка модных хитов. Сборник № 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Анна Боронина - Уходи 3:30
+002.Мулат - Включила Заднюю 3:08
+003.Lyuba Almann - Делай Мне Хорошо 3:47
+004.Dan Balan - Funny Love 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446D5497AF181A29B7AA73925771D30FA4629419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087295   (145168) от 28.12.2016
+
+VA - Танцевальная пурга от хит fm. Русский выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Отто Нотман - За Руку Держи Меня 4:02
+002.Atesh - Самая Сильная 3:07
+003.Weel - Раздевать Тебя 3:48
+004.Джулия & Игорь Шаров - Ты Только Мой 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724A3C3FDEC202CB520E3FB2A9AD8B17D5211D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087300   (145139) от 28.12.2016
+
+VA - Звездная вечеринка. Зарядись хитами. Сборник № 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145139.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Данко - Старый Друг 2:34
+002.Scarlet White - Memory Finds You 4:07
+003.Din-Go - Я Скучал По Тебе 3:44
+004.Little Mix - Omg 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E26D9191C7B132810A0B07C27A3BBF582C9AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087266   (145107) от 28.12.2016
+
+VA - Стопудовые зимние хиты от Европы Плюс (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Akon - Hey Mama 3:50
+002.Emin - Ты Же Не Знаешь 3:42
+003.Great Good Fine Ok - Get Away 3:27
+004.Женя Вилль - Ветренная Любовь 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70EE612616B1F4516ABA027C45A5E306778DE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087301   (144958) от 28.12.2016
+
+VA - Полный отрыв. Зимние хиты (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144958.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Edx - High On You 5:01
+002.Анжелика Варум - Голос 4:43
+003.Елена Яловик - Лодочка 3:32
+004.Onerepublic - All These Things 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A57B7C1F4C888BB30DBD97D58AE3ECF9E3EBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087304   (144946) от 28.12.2016
 
 VA - Зимний топ 100. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
@@ -571,186 +745,6 @@ VA - Новая Русская Дискотека (Лучшие 3) (2016) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54E3065FFC9B51A8313493EF08E7538CDC1DE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272529   (142584) от 28.12.2018
-
-VA - Best 50 New Year 2019 Edition (2018) Compiled by mCITY [MP3|320 Kbps] <Eurodance, Eurohouse>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery & Emma Hewitt - Take Everything (Extended Mix) (4:29)
-02. Alan Walker - Faded (Dash Berlin Remix) (3:36)
-03. Brisby & Jingles - Surrender (4.Boyz Remix) (4:15)
-04. Alan Walker - All Falls Down (3:19)(   Читать дальше...   )Жанр: Eurodance, EurohouseПродолжительность: 03:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844B0BA6F832EB6945AC335227C2E1F0D6CF0B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195362   (142443) от 29.12.2017
-
-VA - German Top 100 Single Charts 29.12.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142443.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Eminem - River (feat. Ed Sheeran)
-004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C85ED72959ED28B98AC7CCFE6DC815B5BDFD22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195391   (142400) от 29.12.2017
-
-VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142400.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. George Mccrae - Rock Your Baby (3:18)
-002. Rubettes - Sugar Baby Love (3:26)
-003. Cats - Be My Day (2:59)
-004. Mud - Dyna-Mite (2:58)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881A0617FD51D796D4265E63DA6379526830E4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087935   (142240) от 29.12.2016
-
-VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intimate Strangers - Let Go - 1986
-02. Strange Advance - She Controls Me - 1982
-03. Pete Shelley - Telephone Operator - 1983
-04. Picnic At The Whitehouse - Human - 1987(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E0F6F232DB6497DBC2C3C5DD5E0499F4395533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087999   (142120) от 29.12.2016
-
-VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Careless Whisper 05:02
-02 Fastlove 05:27
-03 Freedom! '90 06:28
-04 Killer/Papa Was A Rollin' Stone 04:15(   Читать дальше...   )Жанр: PopПродолжительность: 03:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC2F54D78BBE8488ED5A392023312BFECD16781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590466   (142007) от 17.12.2012
-
-VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akces - Hypnotize (Radio Edit)
-02. JuicyTrax feat. Stilet - Queen Of Hearts
-03. Artik pres. Asti - Сладкий Сон (DJ Denis Rublev & DJ Anton Remix)
-04. Taio Cruz - Fast Car (Popkong Remix)
-05. Shami и Дима Карташов - Любовь На Расстоянии (DJ Elnur Remix)
-06. Wisin & Yandel ft. Daddy Yankee - Hipnotizame (Remix)
-07. Adrian Sina - Painted Love (Radio Edit)
-08. Алена Локшина - Зимняя Сказка
-09. Edgar & Алёна Высотская - В Двух Сердцах
-10. Within Temptation - Skyfall(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38319654B8A2E6B694182F2C2FA9B13B1CE7BB93
 ```
 
 https://mybot314.ru/tekegram_catalog/

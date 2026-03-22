@@ -1,3 +1,148 @@
+###  Публикация: 1398835   (734803) от 28.07.2020
+
+Vince Guaraldi - The Complete Warner Bros.-Seven Arts Recordings (1968 - 1969) 2018, 2CD, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734803.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Linus and Lucy [2:59]
+02. You're in Love, Charlie Brown [3:09]
+03. Peppermint Patty [2:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185C7A77E9226F7B6C0EC107FA213598A64D914D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528488   (734467) от 02.02.2022
+
+Count Basie - Live At The Savoy (1954) 1989, LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One O' Clock Jump [4:14]
+02. Dance Of The Gremlins [4:19]
+03. Basie Talk [3:59]
+04. Blee Blop Blues [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A1828CA1F0527C2A642A124666B442F8A93F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528703   (734028) от 03.02.2022
+
+Artie Shaw - 1945 - 1946 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One But You [3:03]
+02. They Didn't Believe Me [2:56]
+03. Dancing On The Ceiling [3:10]
+04. I Can't Get Started [3:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F095A6EBDC256AF9A995F33C3BFFCEF72EBC0195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528980   (733586) от 04.02.2022
+
+Count Basie And His Orchestra - Swingin' At The Chatterbox (1937) 2001, Stardust Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoe Shine Boy [3:58]
+02. Oh, Lady Be Good [4:43]
+03. St. Louis Blues [5:26]
+04. Tattersfield Stomp [2:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5C9C15EF6CABEF95DF53B154ECD2258635F4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529130   (733178) от 05.02.2022
+
+Artie Shaw - 1951 - 1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Kinda Love [2:53]
+02. Dancing On The Ceiling [2:58]
+03. I Waited A Little Too Long [2:55]
+04. I May Hate Myself In The Morning [2:38](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F66BD436F62144E5A8F8AD99FDC8FC89A51FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399627   (732970) от 01.08.2020
 
 Kenny Barron & Mark Sherman - Interplay (2015) Chesky Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -600,151 +745,6 @@ Pat Flowers - 1945 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5918154C2CE914F2BD30710D77DFA4B08F4CF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284024   (731103) от 19.02.2019
-
-Charly Antolini - Drum Beat (1966) 2003, MPS Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah Man [7:51]
-02. The Preacher [4:32]
-03. Drum-Organ [3:54]
-04. Cheers [6:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44522A2653CECAFCD3F948EAECE3237E30AC66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283900   (731024) от 19.02.2019
-
-Bohren & Der Club Of Gore - Bohren For Beginners (2016) Compilation [FLAC|Lossless|tracks] <Doom Jazz, Dark Jazz, Dark Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Bohren for Beginners
-01. Karin (3:38)
-02. Prowler (5:06)
-03. Constant Fear (6:29)(   Читать дальше...   )Производство: PIAS Recordings – PIASD5016Жанр: Doom Jazz, Dark Jazz, Jazz Noir, Dark AmbientПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713737286408BEA181025A421DD8BA189CE2A2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530014   (730902) от 09.02.2022
-
-Makoto Ozone - Pandora (2000) Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Never Tell Me Anything! [5:16]
-02. Lullaby for Rabbit [5:24]
-03. Reunion [5:47]
-04. Sofi [5:10](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0AECC3FE67E6E7AC50A969C7679ED033098E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530000   (730895) от 09.02.2022
-
-Dave Liebman Expansions - Selflessness: The Music Of John Coltrane (2021) Dot Time Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Day [7:46]
-02. Compassion [5:37]
-03. My Favorite Things [8:40]
-04. Ole [7:52](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A809C062D6CAED087042325915E786C604BE502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127987   (730108) от 23.04.2017
-
-Walter Bishop, Jr. - Old Folks (1977) 2003, Mercury Music [APE|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manha Do Carnaval [06:02]
-02. Old Folks [07:40]
-03. Up Jumped Spring [04:36]
-04. Straight, No Chaser [04:16](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5DB0529A436875B2ABC36393FC158A1B3999A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

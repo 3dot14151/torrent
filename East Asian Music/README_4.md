@@ -116,6 +116,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 325621   (727264) от 20.04.2011
+
+Boom Boom Satellites - To The Loveless (2010) [MP3|320 kbps]<JRock/Electronic, Big Beat>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_727264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 BACK ON MY FEET
+02 DRAIN
+03 LOCK ME OUT
+04 THE HARDER THEY COME.THE HARDER THEY FALL
+05 UNDERTAKER
+06 ALL IN A DAY
+07 TO THE LOVELESS
+08 VAPOUR
+09 SPELLBOUND
+10 STAY(   Читать дальше...)Жанр: JRock/Electronic, Big BeatПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DC7E0B771B3EDAF8FC0CB16A5B65B36DD10589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022719   (727115) от 03.06.2016
 
 Tadaaki Otaka - Takemitsu: How Slow the Wind (2001) [FLAC|Lossless|image + .cue] <Classical>
@@ -759,35 +794,6 @@ VA - Band Dream Garden I-III (2009) [MP3|320 кб/с]<Instrumental, Ethnic, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3942710AD0A082A551514B504AE8E0AB7C436A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938324   (656636) от 19.05.2018
-
-SawanoHiroyuki[nZk] - 2 альбома + 7 синглов (2014-2018) (FLAC|tracks] <J-Rock, J-Pop, Electronic>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(170628) gravityWall／shØut (Re：CREATORS OP1&OP2 Single)
-(170920) 2V-ALK
-(180425) Binary Star／Cage (Ginga Eiyuu Densetsu：Die Neue These - Kaikou OP Single)Жанр: J-Rock, J-Pop, ElectronicПродолжительность: 00:05:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10517A4C1BC5041049A7E0D2B2B6B992636D03B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1632563   (243737) от 12.05.2023
+
+VA - Best Of Deep House 2023 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_243737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Corbalan - Invisible (Extended Mix) (4:34)
+02. Audioboy - Fall Apart (Extended Mix) (4:02)
+03. Rinat Bibikov & DJ Safiter - Beautiful Life (Original Mix) (3:09)
+04. Lorenz Koin - A Million Times (Extended Mix) (3:13)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB1A0408A95D8873C1BE669FEF6BBBCAF9F399F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076691   (243673) от 26.11.2016
+
+VA - Armada Deep House Selection Vol.15 (The Finest Deep House Tunes) (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tube & Berger feat. Richard Judge - Ruckus 3:20
+02. Robbie Rivera - Come Back To Me 2:58
+03. Lushington - You Got Me Baby 2:59
+04. Erick Morillo vs Eddie Thoneick - Lost In You (Erick Morillo & Harry Romero Remix) 3:52(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132E069B67700532DA4B87709C235682BD63C988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613276   (243475) от 18.02.2023
+
+VA - Paul Sawyer: 30 Years A DJ (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Sawyer - Stay Around (Extended Mix) [4:46]
+02. Paul Sawyer - Zeus (Tripswitch Remix) [7:33]
+03. Sunscreem & Paul Sawyer - Perfect Motion (Extended Mix) [8:53]
+04. Paul Sawyer - Nemesis (Nick Muir Remix) [8:27](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A293ACA20E82DDAA124852C1F2D190E779232D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613438   (243454) от 18.02.2023
+
+VA - 20 Years Sprout Music (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Underground - Shaharit (Original Mix) [7:37]
+02. D-Nox & Felipe Novaes - Space Talk (Original Mix) [7:34]
+03. Gai Barone & Felipe Novaes - Daybreak (Original Mix) [8:00]
+04. Cream (PL) - Lunar (Original Mix) [8:00](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7044B7C43A792FF2950045191060C483690D33A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634011   (243031) от 18.05.2023
+
+VA - EDM Deejay Compilation 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_243031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teknova - Weekend 2K23 (Extended Mix) [2:45]
+02. Turbotronic - Rave (Extended Mix) [3:42]
+03. Stephan F & Tony T - Party (Extended Mix) [3:36]
+04. Rene Rodrigezz & Stupid Goldfish - Feel Good (Extended Mix) [2:59](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB670C8C6F3CA8784124F75046036AC0D9EEFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634054   (243012) от 18.05.2023
 
 VA - Summer Mood 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -600,151 +745,6 @@ VA - Sirup Miami 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C175DC85A38CCAE3F0F9DE5356830BADCB1429EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637082   (240087) от 03.06.2023
-
-VA - Ibiza Deep House Megamix (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - One Two Step [2:10]
-02. Hight & Basti M & Blaikz feat. Hannah Jane Lewis - I'm With You [2:56]
-03. Shaun Baker & NDEE & ROOMS feat. Jessica Jean - Do It All Night [2:29]
-04. El Mukuka feat. Mumba Yachi - The Harvest [2:35](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 03:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84650FA7D9B5FFD9B1AE79465EDE24DC2E319DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628018   (239027) от 21.04.2023
-
-VA - Total EDM Invasion 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filtercut - Feel Me Now (Driver Mix) [03:41]
-02. RFR - Alone (Audio Shiner Remix) [03:42]
-03. DIONYMUSIC - Your Eyes [02:39]
-04. John David - Break of Dawn [03:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58118AF1D8E0AC40F500A6CB7BE9B22BEB98495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622860   (239014) от 30.03.2023
-
-VA - Sola Presents: Miami (2023) [MP3|320 Kbps] <House, Funky House, Tech House, Soulful>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ki Creighton, Nico Balducci - Loose (Original Mix)
-02. Dmitri Saidi, Sinner & James - El Nacimiento (Extended Mix)
-03. Volaris - Purple Skies (Extended Mix)
-04. Bluey - Pressure (Original Mix)(   Читать дальше...   )Жанр: House, Funky House, Tech House, SoulfulПродолжительность: 03:04:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F680618A49D6D4B9036C0124AC6CB1D61B83D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638952   (238766) от 10.06.2023
-
-VA - Beach Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mant Deep - How Will I Know [05:14]
-02. Captain Junior - I Want to Forget [04:11]
-03. FLY - Call You [05:14]
-04. Trezz - Got You [02:58](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7517978189194052C3E81ABC673D29A1434DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628205   (238563) от 23.04.2023
-
-Tiesto - DRIVE (2023) EXPLICIT [MP3|320 Kbps] <House, Electropop, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - All Nighter (2:14)
-02. Tiesto, Ava Max - The Motto (2:44)
-03. Tiesto, Tate McRae - 1035 (2:52)
-04. Tiesto - The Business (2:44)(   Читать дальше...   )Жанр: House, Electropop, Progressive HouseПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242192C9527D7F9518F7FDD59B640DDEB7F94C98
 ```
 
 https://mybot314.ru/tekegram_catalog/

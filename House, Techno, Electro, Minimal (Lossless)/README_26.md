@@ -1,3 +1,119 @@
+###  Публикация: 1396601   (745579) от 16.07.2020
+
+Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax - Vanishing (1:16)
+02. Matt Fax & LEVV - Always You (4:17)
+03. Matt Fax - Light On (4:29)
+04. Matt Fax - Abenaki (3:20)(   Читать дальше...   )Жанр: Progressive House, Tech House, ElectroПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FA38206333A3C74635312A330C576C6FB98EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282422   (745407) от 12.02.2019
+
+Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of The Highway (05:55)
+ 02. Sonar Conversation (08:15)
+ 03. Robotic Arm Wrestle (07:32)
+ 04. Love Hate (08:10)(   Читать дальше...   )Жанр: Techno, Electro, Dub TechnoПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282490   (745406) от 12.02.2019
+
+Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teryan 1 (08:02)
+ 02. Arpa River (07:03)
+ 03. Opposition Crowd (07:17)
+ 04. Teryan 1 (Saphileaum's Second Sky) (05:51)Жанр: TechnoПродолжительность: 00:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4A50F897DB3EAA446E378A12054A61413B7008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282338   (745401) от 12.02.2019
+
+David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Narciso (08:40)
+02. D'Angelo (06:28)
+03. 33Chants (05:34)
+04. Florence (01:40)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A08D5F951836D29675927AA1881A7FB112C27A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217508   (742403) от 05.04.2018
 
 Substak - Deeper Walk (2018) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
@@ -281,6 +397,35 @@ VA - Summerhits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D34DB3C64BC37FAB5B8808C54A3B5027BEF7D025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529125   (733132) от 05.02.2022
+
+Kaskade - Fire & Ice v3 (2022) [FLAC|Lossless|WEB|tracks] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaskade & Ella Vos - Eyes v3 (4:30)
+02. Kaskade & Cop Kid - Turn It Down v3 (4:52)
+03. Kaskade & Cayson Renshaw - Lessons In Love v3 (4:00)
+04. Kaskade - Lick It v3 (4:23)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F328224D34D0AC442033DDBB38F203F2C18CAE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,150 +745,6 @@ Poppy Ackroyd - Resolve Reimagined (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7964DDD88803EFF195529599737F7728185321B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023457   (724656) от 05.06.2016
-
-Modern Eleven - Under The Bright Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under the Bright Light (7:36)
-02. Hall of Ice (4:56)
-03. Masked (8:58)
-04. An Ethereal Path (3:25)(   Читать дальше...   )Жанр: Ambient, Dub Techno, TechnoПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9DB6938EF32D836A3D54E5F40A67C290DBE9EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023860   (722467) от 06.06.2016
-
-Plastikman - Disconnect (2003) [FLAC|Lossless|tracks+.cue] <Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disconnect (Edit) (03:13)
- 02. Headcase (10:19)
- 03. Digital / Divide (10:28)Жанр: Techno, MinimalПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D52554B0AE3BCB43EA342E24516A23EC4ECBDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129029   (722155) от 28.04.2017
-
-Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Nu Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Burning Spider (feat. Lightnin' Hopkins) (04:14)
-02. Step Two (feat. Lilja Bloom) (02:54)
-03. Soul Fever Blues (feat. Muddy Waters) (03:04)
-04. Everything Of My Heart (03:07)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6F37452C2CDABC9BBCCE4365E74AABE5D221D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218733   (721739) от 10.04.2018
-
-Cløtur (Clotur) - Levels of Consciousness (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connecting With The Spirit (06:21)
-02. The Healing Energy (08:49)
-03. Mindfulness (07:30)
-04. Clarity (05:50)Жанр: TechnoПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EEECABD4FD37FCF7AD1E4DA5372EDC503F3717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023885   (720690) от 07.06.2016
-
-Von Grall - Stemplot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Bodies (7:12)
-02. Surd (6:10)
-03. Octants (7:33)
-04. Stemplot (6:27)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DCD174ACF11802B00880D42228F9C84E97CD22
 ```
 
 https://mybot314.ru/tekegram_catalog/

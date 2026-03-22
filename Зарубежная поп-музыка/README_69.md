@@ -1,3 +1,119 @@
+###  Публикация: 1635377   (241880) от 25.05.2023
+
+VA - NOW: 80s Alternative (2023) 4CD, Compilation, Special Edition [MP3|320 Kbps] <New Wave, Synth-pop, Alternative, Britpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_241880.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. New Order - Thieves like Us
+02. Eurythmics - Beethoven (I Love To Listen)
+03. Joy Division - Love Will Tear Us Apart(   Читать дальше...   )Жанр: New Wave, Synth-pop, Alternative, BritpopПродолжительность: 01:19:17 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C8A629766C3AE4237CE43C8AC17F5195DD1F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546501   (241686) от 24.04.2022
+
+VA - DMC Dance Mixes 291 Ibiza (2021) [MP3|320 Kbps] <House, Dance-pop, Tech House, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessio Viggiano - Flowerchild (Sakros Deepverse Remix)
+02. Ben Gerrans - Burn (Extended)
+03. Craig & Grant Gordon - Drums & The Bass (Original)
+04. Dan Savidge & Byron Stingily - Summer Nights (Extended)(   Читать дальше...   )Жанр: House, Dance-pop, Tech House, Nu-DiscoПродолжительность: 01:19:49 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91379929DE0F22F9DF4CF1323C48B86C15AC69E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546492   (241669) от 24.04.2022
+
+VA - DMC Dance Mixes 291 (2021) [MP3|320 Kbps] <House, Dance-pop, Tech House, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack X Lucas & Steve & Dubvision - Anywhere With You (Extended)
+02. Alesso X Marshmello & James Bay - Chasing Stars (Vip Mix)
+03. D.N.A - Deja Vu (Extended)
+04. Diplo X Paul Woolford & Kareen Lomax - Promises (Extended)(   Читать дальше...   )Жанр: House, Dance-pop, Tech House, Nu-DiscoПродолжительность: 01:19:55 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0486DC9D3B56C6141BE515067CA808B8320202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625524   (241552) от 10.04.2023
+
+VA - 80s Gold (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaka Khan - Ain't Nobody
+02. Michael McDonald - I Keep Forgettin (Every Time You're Near)
+03. Tina Turner - The Best
+04. Fleetwood Mac - Little Lies (2018 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19710803C75B29A3B15F4B57381214A41427CB69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625783   (241430) от 11.04.2023
 
 VA - 50 Hits Spring (2023) [MP3|320 Kbps] <Latin Dance, Reggae, Dancehall, Synthpop>
@@ -628,122 +744,6 @@ VA - Mega Hits 2011 (2023) [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7541CD692A85A5BC4AFDA8B748041C4592CC6D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623463   (238576) от 01.04.2023
-
-VA - Mega Hits 2012 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Teló - Ai Se Eu Te Pego (Ao Vivo)
-02. PSY - Gangnam Style (강남스타일)
-03. Of Monsters and Men - Little Talks
-04. Swedish House Mafia - Don't You Worry Child (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC646306285D17119A928C3642FCF4B251940B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623419   (238566) от 01.04.2023
-
-VA - Disco Modern (2023) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funksoul Brothers - Sexy Thang (Radio Mix) (3:12)
-02. House Of Prayers & Crazibiza - Everybody Ain't Nobody (Original Mix) (5:08)
-03. Soulpainters - Funky Saturday (Original Mix) (4:29)
-04. Max Millan & SWS & Wild Joker - Going Back To My Roots (Original Mix) (4:38)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D617358F38055EFCE45346E49E3476F52FFBCCAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628863   (238505) от 24.04.2023
-
-VA - 1977 - Best of (2023) [MP3|320 Kbps] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stevie Wonder - Sir Duke
-02. ABBA - Knowing Me, Knowing You
-03. Commodores - Easy
-04. Bee Gees - How Deep Is Your Love(   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 04:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FEA0E4DF77383991DA2631D753FDFCB87B1EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623902   (238324) от 03.04.2023
-
-VA - Bravo Hits 106 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Señorita (3:12)
-02. Sarah Connor - Vincent (4:43)
-03. Pedro Capó & Farruko - Calma (Remix) (3:59)
-04. Alvaro Soler - La Libertad (3:13)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA173EB79ED47F73F3E34213F79D54979526BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1380230   (831564) от 04.05.2020
+
+Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831564.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Camelot 05:06
+2. Reflejos de luna 05:14
+3. El ritmo de la luna 05:48
+4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380759   (831453) от 04.05.2020
 
 Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC|Lossless|WEB-DL|tracks] <Field Recording>
@@ -714,35 +743,6 @@ Terry Scott Taylor - The Music of Armikrog. (2015) [FLAC|Lossless|tracks] <Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E6A334F2DF1EE29AA96DC0DF4C56F8730B572AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381318   (824693) от 08.05.2020
-
-Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divine Healing 04:30
-2. Yoga Exercises 02:56
-3. Art of Meditation 02:56
-4. Sacred Prayers 03:05(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EC54587855C90A3F9F762B91B6DFDB815CF731
 ```
 
 https://mybot314.ru/tekegram_catalog/

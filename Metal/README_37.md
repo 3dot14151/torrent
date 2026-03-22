@@ -1,3 +1,119 @@
+###  Публикация: 1284509   (728774) от 21.02.2019
+
+Delain - Hunter's Moon (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masters Of Destiny
+02. Hunter's Moon
+03. This Silence Is Mine
+04. Art Kills(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8F2510CAF96355B3716EA694B0F79AC2AB9FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284507   (728767) от 21.02.2019
+
+Rhapsody Of Fire - The Eighth Mountain (2019) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss of Pain
+02. Seven Heroic Deeds
+03. Master of Peace
+04. Rain of Fury(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA20FBD85574A73D2F02F4F39E8A8D4DFF3BD06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284511   (728650) от 21.02.2019
+
+Dream Theater - Distance Over Time (2019) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728650.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Untethered Angel
+2. Paralyzed
+3. Fall Into The Light
+4. Barstool Warrior(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B8D1592BC070680031595051CBFC70A5292F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022662   (728472) от 02.06.2016
+
+Tarja - The Brightest Void (2016) [MP3|320 кб/с] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Bitter End (Video version)
+02. Your Heaven And Your Hell (with Michael Monroe)
+03. Eagle Eye (with Chad Smith on drums)
+04. An Empty Dream(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2966C4C6131E861D7EFE9D0C6ED709D79377B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022758   (727852) от 03.06.2016
 
 Paradox - Pangea (2016) [MP3|320 кб/с] <Thrash Metal, Power Metal>
@@ -629,122 +745,6 @@ Until Rain - Inure (2017) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E5957FAA6CB24DFEB659AF484FBD2E7CD02124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129961   (718834) от 30.04.2017
-
-Hideous Divinity - Adveniens (2017) [MP3|320 Kbps] <Technical/Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ages Die 06:47
-02. Sub Specie Aeternitatis 04:21
-03. Passages 07:29
-04. Angel Of Revolution 05:52(   Читать дальше...   )Жанр: Technical/Brutal Death MetalПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68B375EF840BF7752E323E15BF61AD3B385C736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130001   (718704) от 30.04.2017
-
-Metal Church - Classic Live (2017) [MP3|320 Kbps] <Heavy, Power, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond The Black (Live) 06:54
-02. Date With Poverty (Live) 05:39
-03. Gods Of A Second Chance (Live) 05:48
-04. In Mourning (Live) 06:15(   Читать дальше...   )Жанр: Heavy, Power, Thrash MetalПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AC48C940E924EF57007CDD8A6231C58CF10D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129818   (718617) от 30.04.2017
-
-Astral Doors - Black Eyed Children (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Cry Out
-02. Walls
-03. God Is the Devil
-04. Die on Stage(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0F4F6C5207B38654A6340438ECCA52667CA066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129983   (718517) от 30.04.2017
-
-Tormentor - Morbid Realization (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope 02:04
-02. Kill With No Excuse 04:17
-03. Morbid Realization 06:57
-04. Comprehension Failed 02:17(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180C7393115A068C0DC54A32196E8BA36CC7E71F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1459345   (1023321) от 01.04.2021
+
+Odyssey Desperado - Don't Miss The Sunset (2018) Reissue, 2020, Lions Pride Music [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush Of The Wave
+02. You And Me Against The World
+03. Cruisin
+04. Dreams Die hard(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DF0B1297E257766C1D4AD5D7FEDE000B20B1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459451   (1023140) от 02.04.2021
+
+Sunstorm - 7 Studio Albums (2006-2021) 7xCD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023140.jpg" />
+</div>
+
+
+###  Подробнее
+
+SUNSTORM появился на свет в 2006 году, когда президент Frontiers Serafino Perugino захотел выпустить неизданные песни, сочиненные Joe Lynn Turner в конце 80-х и начале 90-х. Хорошие рецензии и теплый прием дебютного альбома SUNSTORM одного с проектом названия привели к тому, что идея получила продолжение, и было записано еще два альбома под этим названием. Однако (   Читать дальше...   )2006 - Sunstorm
+2009 - House Of Dreams
+2012 - Emotional Fire
+2014 - Rated X(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B530FD93C59C91A0510257B851DC2E207FB2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459504   (1023076) от 02.04.2021
+
+Whitesnake - The Blues Album (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steal Your Heart Away
+02. Good To Be Bad
+03. Give Me All Your Love
+04. Take Me Back Again(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2EC93075BD7B34758755E73421AA16AA166852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460393   (1022604) от 05.04.2021
 
 Chez Kane - Chez Kane (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -658,93 +745,6 @@ The Treatment - Waiting For Good Luck (2021) [FLAC|Lossless|image + .cue] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFC2808227301B59943EFF81ED8F6C39E21557E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464505   (1019801) от 22.04.2021
-
-Cactus - Tightrope (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cactus — американская рок-группа, образовавшаяся в 1970 году в Нью-Йорке и исполнявшая жёсткий хард-рок с элементами блюз-рока. Пять альбомов Cactus входили в Billboard 200; наивысшей позиции (#54, 1972) достиг дебютный альбом. Группа первоначально задумывалась, как результат слияния ритм-секции Vanilla Fudge (Тим Богерт, Кармайн Эппис) c ядром The Jeff Beck Group, (   Читать дальше...   )01. Tightrope
-02. Papa Was A Rolling Stone
-03. All Shook Up
-04. Poison In Paradise(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC92E119770D77206DE0A736383A504DD41D58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464819   (1019661) от 23.04.2021
-
-Gilby Clarke - The Gospel Truth (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gospel Truth (00:03:56)
-02. Wayfarer (00:02:58)
-03. Tightwad (00:03:15)
-04. Rock N' Roll Is Getting Louder (00:03:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C34B99AF205FACAA494137CF34E6398552D2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465031   (1019349) от 25.04.2021
-
-Three Seasons - 4 albums (2011-2017) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Retro Prog, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плодовитые шведы словно нарошно рождают на свет новые хардовые команды. "Three Seasons" - ещё одно чудесное трио молодых музыкантов. Группа образована в 2009 году, насквозь пропитана духом марихуаны и саундом 60-х и ранних 70-х. Банда, в которую вошли экс-вокалист и гитарист Siena Root Сартез Фарадж, бас-гитарист Олле Рисберг, клавишник Маттиас Рисберг (   Читать дальше...   )--------------------------
-
-01. Been Gone (4:16)
-02. Something You Can't Have (5:30)(   Читать дальше...   )Жанр: Hard Rock, Heavy Retro Prog, Psychedelic Rock |Продолжительность: 03:28:37 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1006B4D4AACE811419930B1846DE374FFD444C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1207182   (780915) от 17.02.2018
+
+Jonah  Jones - 1936 - 1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_780915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Thing [02:52]
+02. (I'd Like To See Grandpa) Swingin' To A Swing Tune [02:27]
+03. Swing Boy Swing [02:43]
+04. May I Have The Next Romance With You? [02:27](   Читать дальше...   )Жанр: SwingПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBFF4F94C69BB015EFEBB154EE8908FC07C1E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207178   (780905) от 17.02.2018
 
 Eddie Bert - Encore (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -715,35 +744,6 @@ Louisiana Rhythm Kings - 1929 - 1930 (2003) Classics [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A68D697687874BD1FEC1B8F1913E3E9B0A121673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208442   (779999) от 22.02.2018
-
-Harold Vick - Steppin' Out! (1963) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Miss Brooks [07:30]
-02. Trimmed In Blue [06:13]
-03. Laura [04:42]
-04. Dotty's Dream [06:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC02A82CE2D5145BE005BFB8DEC7934CCBEB22E
 ```
 
 https://mybot314.ru/tekegram_catalog/

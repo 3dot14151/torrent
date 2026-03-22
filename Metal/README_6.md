@@ -1,3 +1,32 @@
+###  Публикация: 1466613   (1018302) от 01.05.2021
+
+Ironbound - The Lightbringer (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away (01:06)
+ 02. The Witch Hunt (04:38)
+ 03. When Eagles Fly (05:31)
+ 04. Smoke and Mirrors (06:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7671B659F17C80F39EBDD506DABF32B63270497B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467669   (1017776) от 04.05.2021
 
 Mystic Storm - From The Ancient Chaos (2021) [MP3|320 Kbps] <Thrash Metal>
@@ -716,34 +745,6 @@ Metal Invaders - To The Gods (2021) [MP3|320 Kbps] <Heavy Metal, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BD582351BA46903EF301B61BB40900322D4783A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475281   (1012412) от 06.06.2021
-
-Till Lindemann - Ich hasse Kinder (2021) Single [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012412.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ich hasse Kinder
-2. Ich hasse Kinder (AlterBoyz Remix)
-3. Ich hasse Kinder (Ship Her Son Remix)Жанр: Industrial MetalПродолжительность: 00:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E2A76481B2A38FC714FB6DB573BACD3AB49C6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

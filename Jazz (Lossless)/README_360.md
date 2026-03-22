@@ -1,3 +1,177 @@
+###  Публикация: 1744372   (46078) от 21.08.2024
+
+VA - Refreshing Soothing Easy Listening Tunes for Rest, Study or Travel (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Time Will Tell (3:58)
+02. eJazz Artistry - Beautiful (4:26)
+03. Chillaxing Jazz Kollektion - Anywhere with You (4:06)
+04. Chillaxonic - Together We Fly (4:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED7F2C2E04A556A22BC6502E657F6326E8B4141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744370   (46075) от 21.08.2024
+
+VA - Magnificent Soothing Tunes for Relaxed and Happy Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Every Now & Then (3:29)
+02. eJazz Artistry - Sweet Love (4:01)
+03. eJazz Artistry - No Rhyme, No Reason (3:48)
+04. Love Suggestions - Life Is Love (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02849A4A9CAA71FBE7D7141B346934FC26955C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744369   (46073) от 21.08.2024
+
+VA - Luxurious Instrumentals for Relaxed and Happy Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Memories of Us (4:32)
+02. Kool&Klean - Every Now & Then (3:29)
+03. eJazz Artistry - Story of My Life (5:06)
+04. Chillaxonic - Oasis (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF89FC7851AA4D8C839E401085993850C74A599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750052   (43252) от 17.09.2024
+
+The Lao Tizer Band - Amplify (2024) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down (5:42)
+02. Boulevard of Stars (6:21)
+03. Kat's Groove (8:21)
+04. Why (7:19)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF91F6246EFCB5AAA170EB4C2B95152ABFCB448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750169   (43148) от 18.09.2024
+
+Stan Getz - Compact Jazz: Stan Getz & Friends (1988) Verve [WavPack|Lossless|image + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean a Thing (If It Ain't Got That Swing) [6:40]
+02. Con Alma [8:07]
+03. Lover Man [4:40]
+04. Night and Day [6:39](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3562125C9B308D68611957D27B43EE5B968FEDE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751024   (42618) от 23.09.2024
+
+Frank Sinatra - Night And Day (1996) Golden Stars [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night And Day [2:30]
+02. You Make Me Feel So Young [2:57]
+03. Begin The Beguine [3:09]
+04. Blue Skies [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBBFF035E7B207D3709D4C30034FCEC6B2D39D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751159   (42615) от 23.09.2024
 
 Frank Sinatra - On The Air! - Love Me Or Leave Me (1997) QED Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
@@ -571,180 +745,6 @@ VA - Harmonic and Melodic Laid-Back Ambiance Lounge Tunes (2024) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48E02737E3C64713EE3DE821228B998031190648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755547   (40168) от 16.10.2024
-
-VA - Travel and Leisure Vacations at Exotic Locations Smooth Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Home (5:42)
-02. Kool&Klean - I Smile (4:41)
-03. Chillaxonic - Iridescent (5:10)
-04. Chillaxing Jazz Kollektion - Return to Innocence (4:18)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F428EF90EF7D047D909B861D209959B7A7353F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755542   (40167) от 16.10.2024
-
-VA - Melodic and Harmonic Laid-Back Ambiance Smooth Intrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Aurora (5:13)
-02. Chillaxing Jazz Kollektion - It Dews (4:26)
-03. Kool&Klean - I Smile (4:41)
-04. Love Suggestions - Clarity (4:36)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA2B81E3FB253C69F7ED322250214E80B62A458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755550   (40166) от 16.10.2024
-
-VA - Vacation Travel and Leisure at Exotic Locations Lounge Sweet Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Desire (4:20)
-02. Chillaxonic - Iridescent (5:10)
-03. Chillaxing Jazz Kollektion - Home (5:42)
-04. Kool&Klean - I Smile (4:41)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C244FD32BB7D64B5327F4311F594AB84918D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755544   (40165) от 16.10.2024
-
-VA - Relaxed & Luxurious Sophisticated Atmosphere Smooth Chilly Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Lost (4:20)
-02. Chillaxing Jazz Kollektion - Touch (3:52)
-03. Chillaxonic - Mellifluous (4:27)
-04. Chillaxing Jazz Kollektion - Evening Sun (4:35)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C658CBC898C4F80634363C9C9BCEDB197918481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755545   (40164) от 16.10.2024
-
-VA - Soft and Soothing Jazzy Playlist to Unwind and Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Sail (4:49)
-02. eJazz Artistry - Come Share My Love (4:31)
-03. Love Suggestions - Counting Stars (5:09)
-04. Chillaxing Jazz Kollektion - Evening Sun (4:35)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A4FE5A01835C0155B356BA4516D42F3DE57C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755548   (40161) от 16.10.2024
-
-VA - Ultimate Chillout Ambient Lounge III (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Creation Sings (3:56)
-02. Kool&Klean - Kiss & Dance (4:44)
-03. Chillaxing Jazz Kollektion - New Sunrise Every Day (4:19)
-04. Love Suggestions - Clarity (4:36)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9FEB110125614643BB90E4333B4BB843AE9BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,120 @@
+###  Публикация: 1348602   (143330) от 28.12.2019
+
+Helene Fischer - Best Of  (Shop24direct 2019 Edition) 4CD (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143330.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Atemlos durch die Nacht
+02. Die Holle morgen fruh
+03. Mit keinem Andern(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4038963EC72324604EF14C494864AB76E59C85FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348630   (143110) от 28.12.2019
+
+VA - 100 Greatest 10s: The Best Songs of Last Decade (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Coldplay - A Sky Full of Stars
+002. Dua Lipa - Be the One
+003. Tones and I - Dance Monkey
+004. Jason Derulo - Want to Want Me(   Читать дальше...   )Жанр: PopПродолжительность: 08:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBD909CF57B9836519C1CEFBF535E5376162BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272484   (143015) от 28.12.2018
+
+VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Wow
+02. All Saints - Lady Marmalade (Remix)
+03. Donna Lewis - I Love You Always Forever
+04. Hard-Fi - Hard To Beat (Radio Edit)(   Читать дальше...   )Жанр: Pop, RnB, Alternative, IndieПродолжительность: 01:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B034BEC12706C71BF9CDEFCE178E95C45866456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087632   (142737) от 29.12.2016
+
+Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stamp Your Feet 3:37
+02. Mr. Music 	3:14
+03. Crayons 3:20
+04. The Queen Is Back 3:30(   Читать дальше...   )Жанр: Soul, PopФормат: CD, Album, Reissue
+2хCD, Compilation, RemasteredПродолжительность: 03:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F31CCF6C1464D4EC7C74EE22619D40BB9E5418A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435129   (141838) от 29.12.2020
 
 NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
@@ -641,122 +758,6 @@ VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8CEACCC3F335BC6AACC12CB0B172FF021150BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686876   (126271) от 24.12.2023
-
-VA - The Best Of Hit News Vol.4 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fun Fuctory - Don't Go Away (Radio Walk)
-02. Zhi-Vago - Celebrate (The Love) (Radio Version)
-03. N-Trance - Stayin' Alive
-04. 2 Brothers On The 4th Floor feat. Des'Ray & D-Rock - Fairytales (Radio Version)(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700B376BAF29EA9D57492E5F5BAD5E1C95098CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686979   (126264) от 24.12.2023
-
-VA - Bravo Hits 18 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - Fire
-02. A.K. - S.W.I.F.T. - Light In Me
-03. Nana - Lonely
-04. R.N.G. - Rhythm Of My Heart(   Читать дальше...   )Жанр: Electronic, Hip Hop, RockПродолжительность: 02:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82F06B42DF670D858C0A5545C33398FB3F540CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686733   (126242) от 24.12.2023
-
-VA - The Best Of Hit News Vol.3 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Dream Collective - Oh, Baby All
-02. Fun Factory - Celebration
-03. DJ Bobo - Freedom
-04. Caught In The Act - You Know(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F517D1327F8F1C8837BB2F4ED28B34E53C989D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686679   (126199) от 24.12.2023
-
-TV Girl - Death of a Party Girl (2018) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pretty Boys (02:46)
-02.7 Days til Sunday (03:35)
-03.Blue Hair (03:37)
-04.Lonely Girls (02:55)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B5AD1E45B0D7E6DE05336C12C4961E019D0905
 ```
 
 https://mybot314.ru/tekegram_catalog/

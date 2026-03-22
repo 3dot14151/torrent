@@ -1,3 +1,177 @@
+###  Публикация: 1260468   (312176) от 07.11.2018
+
+The Oscar Peterson Trio - Affinity (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waltz For Debbie
+02. Tangerine
+03. Gravy Waltz
+04. This Could Be The Start Of Something Big(   Читать дальше...   )Жанр: JazzПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EEF78030D93BCF73A275CB3E69309E9A8E1DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076575   (312021) от 26.11.2016
+
+Peter Cincotti - Metropolis (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop, Alternative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metropolis
+02. My Religion
+03. Do Or Die
+04. Take A Good Look(   Читать дальше...   )Жанр: Vocal Jazz, Pop, AlternativeПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77714C36484AA7F7F06CCEE52F2A15641357DA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076577   (311900) от 26.11.2016
+
+Peter Cincotti - Peter Cincotti (2003) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Changed The Rules
+02. Comes Love
+03. Are You The One?
+04. Sway(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114335BFEC33769B195A46EBD16AFFCD196B04ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332659   (311829) от 21.10.2019
+
+Gordon Brisker Quintet - About Charlie (1986) Discovery Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday Matinee [6:38]
+02. Maui [8:03]
+03. The Ability to Love [7:15]
+04. Lithuania [5:55](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6789B9CA914EE4D56BC480370B626714A8E25A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422331   (310917) от 08.11.2020
+
+Sammy Davis, Jr. - Sings Just For Lovers (1955) 2006, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Do Something to Me [2:19]
+02. You're My Girl [3:32]
+03. Come Rain or Come Shine [3:45]
+04. Body and Soul [3:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23DB02673130917E9CEF7841FF41C62BBB88439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422333   (310914) от 08.11.2020
+
+Wild Bill Davison & Eddie Condon's All Stars - Live! 1955 Miami Beach (2004) Storyville Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beale Street Blues [5:26]
+02. Ballad Medley [9:07]
+03. I Ain't Gonna Give Nobody None of My Jelly Roll [4:52]
+04. Struttin' with Some Barbecue [4:46](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4C29023517D83AA767A89D11D8DA7BEE469E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422329   (310908) от 08.11.2020
 
 Terence Blanchard - Simply Stated (1992) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -571,186 +745,6 @@ Christine Pedi - Good To Mama (2015) [FLAC|image+.cue]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56C10312B97167341BE028B8D07BDFB0E4D14BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960407   (307985) от 28.11.2015
-
-Barbara Fasano - Busy Being Free (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Little We Know
-02. Cactus Tree
-03. Remind Me
-04. Dancing in the Dark(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655796A78533A789C81DFACD603CF57746E5F0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584493   (307900) от 04.12.2012
-
-Peggy Lee - 2 Compilations (1996) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_307900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JazzПродолжительность: 01:15:11
-01. Why Don't You Do Right (Get Me Some Money Too) [02:28]
- 02. I Don't Know Enough About You [03:04]
- 03. 'Deed I Do [03:03]
- 04. I'm Glad There Is You (In This World Of Ordinary People) [03:03]
- 05. It's A Good Day [02:50]
- 06. Don't Smoke In Bed [03:07]
- 07. Them There Eyes [03:00]
- 08. Fever [03:21]
- 09. Sugar (That Sugar Baby Of Mine) [02:36](   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183382   (307875) от 14.11.2017
-
-Roland Guerin Sextet - Live At The Blue Note (1999) Half Note [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Blues [13:05]
-02. Brandy [05:11]
-03. That Moment [14:48]
-04. A Small Still Voice [07:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291F52C274DBFE03A6D08CEDFA43E54117B206B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183651   (307865) от 14.11.2017
-
-Tom Harrell - Upswing (1993) Chesky Records [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upswing [08:59]
-02. Angela [07:03]
-03. Train Shuffle [10:27]
-04. Emergence [10:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF60478BE99A4B5D15C45FB9AD4C4BF92866062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183650   (307864) от 14.11.2017
-
-Chuck Mangione - Save Tonight For Me (1986) CBS [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Tonight For Me [04:42]
-02. Machu Picchu [04:22]
-03. Take It To Church [05:25]
-04. Secret Of Love [06:05](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F33C730877B88BE9F37A6D2A7EB00EB172645BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261015   (307796) от 09.11.2018
-
-Buck Clayton - Jam Session: How Hi The Fi (1953, 1954) 2005, Membran Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Hi The Fi [13:50]
-02. Blue Moon [14:13]
-03. Sentimental Journey [13:52]
-04. Moten Swing [12:44]Жанр: Swing, Big BandПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E271ADA1B017EE30F1A1BFE6BC15A0E214EB00
 ```
 
 https://mybot314.ru/tekegram_catalog/

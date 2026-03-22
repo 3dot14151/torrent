@@ -1,3 +1,55 @@
+###  Публикация: 486120   (90674) от 25.04.2012
+
+VA - Инструментальная музыка (2012) vol. № 18 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5288B7B0FF39ACC4784210430FDCBF26D8BE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486936   (90654) от 25.04.2012
+
+VA - Инструментальная музыка (2012) vol. № 20 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACA435AF88B743695AAA4195580EF44DC326B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485958   (89857) от 21.04.2012
 
 VA - Инструментальная музыка (2012) vol. № 16 [MP3|320 кб/с]<Instrumental>
@@ -669,64 +721,6 @@ VA - compilation  part 106 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD524BF2E29B396EE172B3A13FEA50E1748FE6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739819   (48191) от 01.08.2024
-
-VA - compilation  part 108 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instrumental, Saxophone>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jk Sax - Knockin' on Heaven's Door
-02. Alexandra Ilieva - Just the Two of Us
-03. Alexandra Ilieva - What a Wonderful World
-04. Jk Sax - Moi... Lolita(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB2820C60389EBC100C8FA88A8E545D891F22BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740351   (48055) от 02.08.2024
-
-VA - compilation  part 109 Instrumental electronic (2024) [MP3|320 Kbps] <Instrumental, electronic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artur Venis - Titanic
-02. Artur Venis - Forever, Forever
-03. Dj Lava - In Memory of Your Love
-04. Artur Venis - Autumn Park(   Читать дальше...   )Жанр: Instrumental, electronicПродолжительность: 02:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8250A435DC7EAE00598E3A0E63BCF671A9F45C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

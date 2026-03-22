@@ -1,3 +1,61 @@
+###  Публикация: 1019882   (748200) от 24.05.2016
+
+Stratovarius - Best Of (2016) 2CD, Remastered [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until the End of Days (3:44)
+02. My Eternal Dream (Remastered 2016) (6:05)
+03. Eagleheart (Remastered 2016) (3:50)
+04. Speed of Light (Remastered 2016) (3:06)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53010A352BCC5182D0A7451B9314FAA366E0CCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019661   (747961) от 24.05.2016
+
+Architects - All Our Gods Have Abandoned Us (2016) [MP3|320 кб/с] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nihilist
+02. Deathwish
+03. Phantom Fear
+04. Downfall(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE461DDB86171F8401C8AE9C537D3509E7B4757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216756   (747927) от 01.04.2018
 
 Realms Of Vision - Through All Unknown (2018) [MP3|320 кб/с]<Stoner Metal, Progressive Metal>
@@ -342,6 +400,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396639   (745356) от 16.07.2020
+
+U.D.O. and Das Musikkorps Der Bundeswehr - We Are One (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_745356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandemonium (5:27)
+02. We Are One (4:43)
+03. Love and Sin (7:12)
+04. Future Is the Reason Why (5:03)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7EF88DBBE64A5FA3B937FF1700E9F9F06EDB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282357   (745328) от 12.02.2019
+
+Flotsam and Jetsam - The End of Chaos (2019) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_745328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisoner of Time
+02. Control
+03. Recover
+04. Prepare for Chaos(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FBB2D1A9D08461AB52C4E36441E7B88507A4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020603   (745128) от 26.05.2016
 
 Lacuna Coil - Delirium (2016) [MP3|320 кб/с] <Gothic Metal, Alternative Metal>
@@ -622,120 +738,6 @@ Omminous - Immensity (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8709A5E923E9BDA5BD1C26C1A2FD0C8D23605B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282952   (741160) от 15.02.2019
-
-Kaunis Kuolematon - Elama Ei Tarvitse Minua (2019) EP [MP3|320 Kbps] <Doom Metal, Gothic Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elämä Ei Tarvitse Minua
-2. Porteilla
-3. Yön Tunteina
-4. Aseista RiisuttuЖанр: Doom Metal, Gothic Metal, Melodic Death MetalПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920071372DCC6AC5F07696CD72C75E7BC7523DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282636   (741055) от 15.02.2019
-
-Rotting Christ - The Heretics (2019) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 In the Name of God
-02 Vetry ZlyeЖанр: Black MetalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6F932561D9D8B685FF2520C2DCAD947177FE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217884   (740941) от 06.04.2018
-
-Kalmah - Palo (2018) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740941.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blood Ran Cold
-2. The Evil Kin
-3. The World Of Rage
-4. Into The Black Marsh(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F379EA6140F30AA9D5F79C3E276E918DE12397A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217910   (740246) от 07.04.2018
-
-Kroda - Selbstwelt (2018) [MP3|320 Kbps] <Black Metal, Folk Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740246.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Selbstwelt I - Credo
-2. Selbstwelt II - Ритуал На Порозі Вічності
-3. Selbstwelt III - Довгий-Довгий Самотній Шлях
-4. Selbstwelt IV - За Гранню Буття І Небуття(   Читать дальше...   )Жанр: Black Metal, Folk Metal, Pagan MetalПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826191C3EC6CBF4BDAD8AABE27075E5FBAE032A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

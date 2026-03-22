@@ -1,3 +1,36 @@
+###  Публикация: 604708   (996242) от 18.01.2013
+
+Fen - Dustwalker (2012) [MP3|320 kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consequence (07:56)
+02. Hands Of Dust (11:38)
+03. Spectre (10:21)
+04. Reflections (01:49)
+05. Wolf Sun (07:10)
+06. The Black Sound (10:08)
+07. Walking The Crowpath (13:16)
+08. Epilogue (Bonus Track) (04:22)Жанр: Black MetalПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4BC166FAA4F97FB00F26B75E9B3ACCC22B9000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604512   (996229) от 18.01.2013
 
 Dreams After Death - 2 альбома (2011-2012) Дискография [MP3|320 кб/с]<Atmospheric Funeral Doom Metal>
@@ -798,32 +831,6 @@ Pyogenesis - A Silent Soul Screams Loud (2020) [MP3|320 Kbps] <Gothic Metal, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3C5AFD996E10B2024DD042803C67AF6D122FA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162503   (986549) от 07.01.2010
-
-Vicious Crusade - Freedom Comes (2009) [MP3|320 kbps]<Melodic Thrash>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic ThrashПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

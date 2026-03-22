@@ -1,3 +1,61 @@
+###  Публикация: 1498462   (857922) от 26.09.2021
+
+VA - Fabulous Night: Electro House Mixtape (2021) [MP3|320 Kbps] <Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857922.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dampé - Pash
+002. Ira - Laneiro
+003. Dex Wilson - Perfume
+004. Nico Cabeza - Ansiolin(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 12:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD75A1363DB2B625E171479ACE7CDE6123DDA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498464   (857912) от 26.09.2021
+
+VA - Blow The Speakers: EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857912.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eezy Inc - Do It With The Lights On
+002. Dave Defender - Walk Away
+003. DJ Benz & Masterplus - Push It
+004. Avicii - Levels(   Читать дальше...   )Жанр: Dance, Electro, Club HouseПродолжительность: 07:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C74B5F905350BD9097F11DEDAFE285DF053312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498456   (857807) от 26.09.2021
 
 VA - Try The Better World (2021) [MP3|320 Kbps] <Ambient, Meditation, Relax, New Age>
@@ -682,63 +740,6 @@ VA - Electro Story Grounds (2017) [MP3|320 Kbps] <House, Trance, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3622A340FA909B4533CD98EFF33B811E515B71B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002056   (850655) от 30.03.2016
-
-VA - Sunset Lounge, Vol. 1  (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Sweet Summer Days [02:20]
-02. Elisha La'Verne - Love It When We Do (The Antidotes Instrumental Mix) [06:07]
-03. Cool Million - Running Around (Roberto Di Carlo Remix)Жанр: House, Tech House, Deep HouseПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8CFEE52D5016439F1CCE3E662EC201CA084421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001893   (850573) от 30.03.2016
-
-VA - Vocal Energy Stages (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ben Gold Ft. Christina Novelli-All Or Nothing (Allen Watts Ex 05:31
-02 Martin Roth & Alex Bartlett-Off The World (Eddie Bitar Remix) 07:08
-03 Gareth Emery feat. Wayward Daughter-Reckless (Standerwick Extended Remix) 06:33
-04 RAM Feat. Kim Kiona-Miss You (Original Mix) 07:40(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5286D2000E0066FE73208F57B9AE8EF8560843D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1023129   (726724) от 04.06.2016
+
+Hillbilly Hellcats - Rev it up with Taz (2000) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hillbillies On Speed (02:33)
+02. White Trash (02:04)
+03. I Like Whiskey (02:17)
+04. Ol' Bobcat (02:36)(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0696B8742D3BB5B717E949D67F8054700373711E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023110   (726713) от 04.06.2016
+
+Beth Lee and the Breakups - Keep Your Mouth Shut (2016) [MP3|320 кб/с] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only a Dream (02:05)
+02. Bellville County Line (02:53)
+03. Keep Your Mouth Shut (03:39)
+04. Bad Elevator (02:56)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54160A7B4834BF05E7E277855C73A0463A02D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023305   (726202) от 04.06.2016
+
+The Rolling Stones - Totally Stripped (2016) Live [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Fade Away - Amsterdam (3:12)
+02. Honkey Tonk Woman - Paris (4:54)
+03. Dead Flowers - Amsterdam (4:00)
+04. Faraway Eyes - London (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C88B16FF340835FA1DA268BCF96C3B8EE0D4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399866   (725216) от 02.08.2020
+
+Green Seagull - Cloud Cover (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aerosol (03:20)
+ 02. Made To be Loved (03:43)
+ 03. In The Morning Time (02:39)
+ 04. Little Lady (In The Amplifier) (03:55)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0B29DD77CDB1F2FA0EC14FE2135B25E4670261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218288   (724890) от 08.04.2018
 
 VA - Rock Legends: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Classic Rock, Hard Rock>
@@ -517,6 +633,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209118   (711089) от 11.06.2010
+
+The Police - Дискография (5 альбомов) (1978-1983) [MP3|320 kbps]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_711089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop-Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025618   (710191) от 12.06.2016
 
 Frame - Frame Of Mind (1972) [MP3|320 кб/с] <Rock, Prog Rock>
@@ -597,154 +739,6 @@ Blackball Bandits - The Lost Mission (2018) [MP3|320 Kbps] <60's Surf Rock, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E8ECC5361FBF6177E9C34873C789930F5DA98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209440   (707726) от 13.06.2010
-
-Russ Ballard - 13 альбомов (1974-2006) [MP3|128-320 kbps] <Classic Rock / Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 1974-2006Жанр: Classic Rock / Progressive RockПродолжительность: 01:08:12
-
-01 | It's My Life (Stand In My Shoes) | 02:38
-02 | Crazy World | 04:33
-03 | In The Dark | 03:27
-04 | When You Sleep | 03:09
-05 | Love Works In Strange Ways | 03:00
-06 | Like Father Like Son | 04:12
-07 | Is There Anybody Out There | 05:06
-08 | I'm Just Not Made For This World | 04:45(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209097   (707449) от 13.06.2010
-
-Roy Orbison - Discography (1960 - 2008)[MP3|192-320 kbps]<Rockabilly, Rock’n Roll, Rock, Ballads, Country, Pop>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанры: Rockabilly, Rock’n Roll, Rock, Ballads, Country, PopПродолжительность: 01:14:33 + 01:15:38 + 01:15:55 + 01:18:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532833   (707213) от 23.02.2022
-
-Velvet Volume - Nest (2022) [MP3|320 Kbps] <Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Look Like Your Father (03:27)
- 02. In The End (03:49)
- 03. Mother And Man (04:35)
- 04. Remedy (03:06)(   Читать дальше...   )Жанр: Rock, Female VocalПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4540F38F40FF4ECE4FC004F0F60AF55EA9D52DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220316   (706184) от 18.04.2018
-
-Roland Nipp - In the Cool of the Dawn (2017) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, Electric Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Cool of the Dawn
-02. Beauty and Demons
-03. Sand
-04. It's Time(   Читать дальше...   )Жанр: Roots Rock, Instrumental Rock, Electric GuitarПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BC61679541FAE59B34FDA4618E32FFAF79F7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220284   (706183) от 18.04.2018
-
-Roland Nipp - Better Days (2018) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, Electric Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake These Blues
-02. Better Days
-03. In a Lifetime
-04. Echoes(   Читать дальше...   )Жанр: Roots Rock, Instrumental Rock, Electric GuitarПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33CEFC20A41D131E33FA5E498E600017C65517A
 ```
 
 https://mybot314.ru/tekegram_catalog/

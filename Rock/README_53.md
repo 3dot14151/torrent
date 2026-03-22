@@ -1,3 +1,148 @@
+###  Публикация: 1160487   (473919) от 25.08.2017
+
+VA - American Road Trip (2017) [MP3|~241-291Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473919.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01- Livin On A Prayer - Bon Jovi
+02- Go Your Own Way - Fleetwood Mac
+03- More Than A Feeling - Boston(   Читать дальше...   )Жанр: RockПродолжительность: 03:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07FAC9A773EF2756306629050E5855214BD5692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057765   (473294) от 29.09.2016
+
+Stage - Stage (2003) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World Has Come Between Us (4:04)
+02. An Angel Screams From Outer Space (3:34)
+03. I Will Be Something (4:00)
+04. I Don't Know (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B1B5993F9CA71A249F9DFF312DAB4CDB19F0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406558   (473070) от 04.09.2020
+
+Killer Deal - First One's Free (2020) [MP3|320 Kbps] <Blues Rock, Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. It Could Be Better (3:27)
+2. Four Before the Train (3:18)
+3. Heavy Road (5:54)
+4. Stay Too Long (3:50)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic Rock, Hard RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D5344BDBAE4FFFAAB1FEB97C1C97DE96DB5840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406568   (473069) от 04.09.2020
+
+Faro - Luminance (2020) [MP3|320 Kbps] <Alternative Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pure (4:08)
+2. Fragment (4:10)
+3. December (4:19)
+4. Lucas (4:﻿11)(   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Progressive RockПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA66D08E1D70F3093E543C29AE16DDD9A1A4099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057879   (473043) от 29.09.2016
+
+Van Der Graaf Generator - Do Not Disturb (2016) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473043.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aloft
+2. Alfa Berlina
+3. Room 1210
+4. Forever Falling(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C145995CD58C4EAAE1AFF6FB36E086C6EBD6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406363   (472938) от 04.09.2020
 
 Simon Collins - Becoming Human (2020) [MP3|320 Kbps] <Progressive Rock, Melodic Rock>
@@ -615,169 +760,6 @@ Psychlona - Mojo Rising / Venus Skytrip (2018-2020) 2CD [MP3|320 Kbps] <Psychede
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB4877B48DDFAE0B586B5E081DC06B0D22B4EBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407806   (460233) от 10.09.2020
-
-JD Simo (Simo) - JD Simo (2020) [MP3|320 Kbps] <Blues Rock, Psychodelic, Jam Band>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Movement 03:58
-02. Love 03:38
-03. Out Of Sight 02:24
-04. Higher Plane 05:02(   Читать дальше...   )Жанр: Blues Rock, Psychodelic, Jam BandПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29AF71C098AE3E3480B9247B51CEE88590991D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241069   (460219) от 01.10.2010
-
-Cliff Richard & The Shadows - Reunited (50th Anniversary) (2009) [MP3|128-192 kbps]<Pop-Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460219.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. I Could Easily Fall (In Love With You)
-02. The Young Ones
-03. Move It
-04. Living Doll
-05. Bachelor Boy
-06. Nine Times Out Ten
-07. C'mon Everybody
-08. Travellin' Llight
-09. It'll Be Me(   Читать дальше...   )Жанр: Pop-Rock, Rock & RollПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549925   (460149) от 21.09.2012
-
-Bob Dylan - Bob Dylan's Greastest Hits (1967 [2012]) [MP3|320 кб/с]<Folk Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460149.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rainy Day Women #12 & 35 (4:38)
- 2. Blowin' In The Wind (2:47)
- 3. The Times They Are A Changin' (3:13)
- 4. It Ain't Me Babe (3:34)
- 5. Like A Rolling Stone (6:13)
- 6. Mr. Tambourine Man (5:28)
- 7. Subterranean Homesick Blues (2:19)
- 8. I Want You (3:06)
- 9. Positively 4th Street (4:09)
- 10. Just Like A Woman (4:53)Жанр: Folk Rock, Blues RockПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A82A5BA348A46D1AEF1338BA78875CFDE0B944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550588   (458521) от 22.09.2012
-
-Hostsonaten - Summereve (2011) [MP3|320 кб/с]<Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Seasons's Overture (10:51)
-I.  Rite Of Summer
-II. In The Rising Sun
-III. The Last Shades Of Winter
-IV. A Church Beyond The Lake
-V. La Route Pour Finistére
-VI. Springtheme
-2. Glares Of Light (07:25)
-3. Evening Dance  (04:13)
-4. On The Sea (04:20)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8458AEB98A4816965D5F6B735F427D12293F0436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408220   (458307) от 11.09.2020
-
-Toehider - I LIKE IT! (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Full Bore! (04:05)
- 02. Wellgivit (04:38)
- 03. Rancorous Heart (05:02)
- 04. Moon And Moron (06:20)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0CFEFCECA64F7DC54FCBEB25667EB11F41CE17
 ```
 
 https://mybot314.ru/tekegram_catalog/

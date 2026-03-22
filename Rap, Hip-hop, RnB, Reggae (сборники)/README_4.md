@@ -1,3 +1,61 @@
+###  Публикация: 1403586   (688464) от 21.08.2020
+
+VA - Honey Baby (2020) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688464.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aaryan Shah - Still Alive
+002. Xavier Omär - Say It
+003. Chloe X Halle - Do It
+004. Roy Woods - Cool J(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 10:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CABD92811B7A9A1B34F021D3C9A2FCD8AD96F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222380   (686883) от 28.04.2018
+
+VA - Самые Вкусные Треки c Сочным Вокалом (Sound Clinic - R B Edition) (2018) [MP3|320 Kbps] <R&B, Rap, Hip-Hop, Other>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9 Theory, Eligh - Just A Piece
+02. 88Glam - 12
+03. 808Ink - Top Flow
+04. A.Chal - Bedroom Riots(   Читать дальше...   )Жанр: R&B, Rap, Hip-Hop, OtherПродолжительность: 24:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05151D6AC76F2C9D25A2B03E6C7B898358E5D5B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222820   (680787) от 01.05.2018
 
 VA - All Day Breack Fast: Respect Collection April (2018) [MP3|320 Kbps] <Rap, Hip-Hop, RnB>
@@ -681,64 +739,6 @@ VA - Rap & Hip Beats (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46DCAFF712AC2862B585879FBDA56CFC72AFD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300624   (588033) от 08.05.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 11) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хас - Дикий Кач (3:13)
-02. Alyona Alyona - Відчиняй (2:37)
-03. Freel - Спалах (3:23)
-04. Артем Лоік - Суд Лінча (3:58)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB38825BBB277BA9EE51F547B0266870710D0278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302126   (582182) от 14.05.2019
-
-VA - R&B Universe: Soul Collection (2019) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Johnny C - Body Shook
-002. Cool Company - Be More Mad
-003. Curtis Roach - Spectacular
-004. Judis La Jiji - Je Ne Sais Pas(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25598E08FADCD5BFD3DCF8ED420F57935F00B5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

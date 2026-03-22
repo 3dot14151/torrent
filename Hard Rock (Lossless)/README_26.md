@@ -1,3 +1,90 @@
+###  Публикация: 1276679   (787503) от 17.01.2019
+
+AC/DC - AC/DC (2006) 17CD Box Set - Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jailbreak
+02. You Ain't Got a Hold on Me
+03. Show Business
+04. Soul Stripper(   Читать дальше...   )Жанр: Hard RockПродолжительность: 12:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475307C377CA129FB7E6EA5BEE40FBF07C9A3A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124539   (785645) от 12.04.2017
+
+Piledriver - Brothers In Boogie (2015) [FLAC|Lossless|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way To Rock  (03:42) 
+02. Together  (03:46) 
+03. Rock In A Crossfire-Hurricane  (04:35) 
+04. Good Times  (04:47) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AD641C95DC70F15D058651BE5E2CAF81197AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277410   (785015) от 21.01.2019
+
+Helix - Rock It Science (2016) Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785015.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:23] 01 - Billy Oxygen
+[05:40] 02 - You're A Woman Now
+[02:59] 03 - Heavy Metal Love
+[02:51] 04 - Rock You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2839343B70D1D9E56E36FD9654A730638E52E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277456   (785003) от 21.01.2019
 
 R.E.O. Speedwagon - The Early Years 1971-1977 (2018) 8 CD Box Set [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
@@ -657,93 +744,6 @@ Railway - Railway II (1985) Remastered, 1997, High Vaultage [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E7248A3AA97446D8B426E9852975C4F74258AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014183   (776925) от 06.05.2016
-
-Rich Robinson - Paper (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Know Me
-02. Enemy
-03. Stand Up
-04. Leave It Alone(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFC14C1D4C81DBDEC272C02DF2B212F935AE521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212256   (776095) от 11.03.2018
-
-Fastway - Fastway + All Fired Up! (1991) Remastered, 2000, guitar Fast Eddie Clarke (ex - Motorhead) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Easy Livin'
-02 Feel Me, Touch Me (Do Anything That You Want)
-03 All I Need Is Your Love
-04 Another Day(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FD2982F6FA5198413BFDAB5B4A2C0615B27958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015602   (774170) от 11.05.2016
-
-Sunstorm (Joe Lynn Turner) - Edge Of Tomorrow (2016) Japan [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wak Away From A Goodbye
-02. Edge Of Tomorrow
-03. Nothing Left To Say
-04. Heart Of The Storm(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6B1A07A3259D901931CC9A85C7E528BCD36097
 ```
 
 https://mybot314.ru/tekegram_catalog/

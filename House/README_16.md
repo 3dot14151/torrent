@@ -1,3 +1,145 @@
+###  Публикация: 1119472   (807494) от 28.03.2017
+
+VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vintage & Morelli - Desire (Dezza Remix)  5:42
+02.  LTN - Whispers In The Night (Original Mix)  6:44
+03.  Sam Davies - Cosmos (Sundriver Remix)  8:22
+04.  Eskai - Tides (Original Mix)  5:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1062A07EDB3649F9A469AF0136B1BBCBFCA16FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119436   (807110) от 28.03.2017
+
+Shingo Nakamura - Best of Shingo Nakamura (2017) [MP3|320 Kbps] <House,Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artist Retrospective (Continuous Mix)Жанр: House,Progressive HouseПродолжительность: 02:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804373691C5308362687EBE031DB403E902FBBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009939   (806213) от 23.04.2016
+
+VA - Bigtime EDM Vol.8 (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Bale - The One (feat. Aybewan) 06:19
+02. Sl Curtiz & Domovnik - Timeline (Teo Moss Remix) 05:46
+03. Dion Mavath - B52 06:19
+04. Teo Moss - Activation 05:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE8C9290F601983860450F9F25499F685045E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119797   (805618) от 29.03.2017
+
+VA - OTB-EDM Records Miami (WMC) (2017) [MP3|320 Kbps] <House, Progressive, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Antonio Miccoli - Close Your Eyes  5:08
+02.  Dave Noise & Andeejay - Fire  5:31
+03.  i52DJ - Dream  5:09
+04.  Tosch - Windjammer  4:19(   Читать дальше...   )Жанр: House, Progressive, FunkyПродолжительность: 03:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D8C8CAAF7245B658E296746ADC2CC1CA916743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010342   (804394) от 24.04.2016
+
+VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Decyno - Trip 07:51
+02. A. Chagochkin - Give Me Key 04:59
+03. Chemical Poison - Skyward 07:01
+04. Creatique - Talskaf 05:34(   Читать дальше...   )Жанр: House, Tech House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337D7EA374467BD850AA72B1B8E96A3B2EA7A1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010247   (804391) от 24.04.2016
 
 VA - Vocal EDM Party (2016) [MP3|320 кб/с] <House, Electro House, Vocal House >
@@ -600,151 +742,6 @@ Third Party - Hope (2017) [MP3|320 Kbps] <Big Room, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB6464FF597223832B60A8A9345044F813E7363D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122297   (798863) от 05.04.2017
-
-VA - Deep House April 2017 Top 10 Best of Collections (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CJ RcM - My Love
-02. Macrolev - Deeper
-03. Anton Ishutin - Sunrise
-04. Muxxo - The Calm of the Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1CEBE83034D07958844625FE35C0D412012FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122327   (798829) от 05.04.2017
-
-VA - Ibiza Session 2017: For DJs Only (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
-02.  Wolkenlos - You Can (Vocal Deep House Mix)  7:35
-03.  Cheap Sunglasses - Till The End (Million Colours Remix)  4:55
-04.  Filtercut - Time Won't Wait (Club Mix)  6:52(   Читать дальше...   )Жанр: HouseПродолжительность: 05:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478703FA1A320890F7F6EFBB2C48D8F9A2F319CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273865   (798780) от 04.01.2019
-
-VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Adams, Sabrina Joy-Yourself (Sean McCabe Main Vocal Mix)
-02. Zepherin Saint, Miranda Nicole-Butterflies (Live Mix)
-03. Vanco, Zano-Ms Jailer (feat. Zano)
-04. Gino Brown, Nonny D - Time No Dey (feat. Nonny D)(   Читать дальше...   )Жанр: Soulful HouseПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011052   (797701) от 26.04.2016
-
-VA - Progressive Guide Vol.1 (2016) [MP3|320 кб/с] <House, Progressve House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darmon -  Reaper  6:00
-02. Leventina -  Cameltoe  5:23
-03. Marco V -  We Will Be (O.B Remix)  5:16
-04. Anero -  Gigeri  4:56(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D03CAEBF3F3A0B2308C1BEA3CA5DEC051650F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011007   (797660) от 26.04.2016
-
-VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Termite & Mikky Clap -  Insomnia (Alex Fresh Remix)  5:51
-02. Soulstatic -  Bang, Bang, Bang! (feat. Wendy Lewis) (Lypocodium & Helen Brown Remix)  7:36
-03. Pot4ss -  Get The Fuck (Original mix)  5:19
-04. Twosid3s -  Out Of The Ground (Original mix)  6:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB11C879F0AA78A7370F2A1F85C9039502ECD9CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1127396   (732173) от 21.04.2017
+
+Al Caiola - Bonanza! 1960-1969 (2002) CD [MP3|320 Kbps] <Instrumental, Easy Listening, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alexander Emil Caiola (1920 - 2016) - американский гитарист, композитор и аранжировщик, охвативший множество музыкальных жанров, включая джаз, кантри, вестерн, рок  и поп. Известен как студийный музыкант и актер. Записал более пятидесяти альбомов, работал с некоторыми из самых больших звезд 20-го века. Гастролировал на регулярной основе со Стивом Лоуренсом.01. The Magnificent Seven (1:58)
+02. Bonanza! (2:20)
+03. The Lonely Rebel (2:37)
+04. The Bounty Hunter (2:25)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, PopПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FD1B7DAAEEA4B15199E6CCEAFC4709F824A18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021812   (732097) от 30.05.2016
+
+Mads Langer - Reckless Twin (2016) [MP3|320 кб/с] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight (04:02)
+02. Amy (04:37)
+03. Blondie (05:19)
+04. 3AM (03:22)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93265CD1D8228F741968725A91569B4F4966B93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021753   (732087) от 30.05.2016
+
+CLAVVS - Feel It All (2015) [MP3|320 кб/с] <Indie Pop, Soul, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gold
+02. Give Up
+03. Body Parts
+04. Kill Me Soft(   Читать дальше...   )Жанр: Indie Pop, Soul, Trip HopПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C111F1BE2EA675BBC6A459B503EAB30A6673C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529776   (731980) от 08.02.2022
+
+VA - Inner Light - Retrowave Sounds (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Moses - Inner Light (4:18)
+02. Michelle - THE BOTTOM (3:39)
+03. Coldplay - Adventure of a Lifetime (4:23)
+04. Little Boots - Earthquake (4:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7171F612825E710E2EE7B420FD6F3746D30782A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283741   (731950) от 18.02.2019
 
 VA - Car Songs: The 70s (2019) 4CD [MP3|320 Kbps] <Pop Rock, Disco, Jazz>
@@ -630,122 +746,6 @@ Brad Paisley (Брэд Пейсли) - Who Needs Pictures (1999) Arista Nashvill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D361916F5F173CFF3E17ECD7E8852F6C32F0843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218514   (721399) от 10.04.2018
-
-Fancy - 30 Years - The New Best Of (2018) [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames of Love (Radio Version) (3:28)
-02. Slice Me Nice (4:06)
-03. Come Back and Break My Heart (Radio Mix) (4:01)
-04. We Can Move a Mountain (Single Version) (3:48)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D562C87715EA9C2DE62F48ADD9760EFECF1D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218622   (721272) от 10.04.2018
-
-VA - 100 Hits - The Best Love Album (2017) [MP3|320 Kbps] <Pop, R&B, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721272.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Eric Carmen - All By Myself 4:30
-02. The Bangles - Eternal Flame 3:56
-03. Harry Nilsson - Without You 3:17(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 06:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928DD55CD5D335EEE9D75505CB0D47B375BA0E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400402   (721188) от 04.08.2020
-
-Herbie Mann - 2 Albums (1976, 1978) [MP3|320 Kbps] <Funk Soul, Jazz, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герберт Джей Соломон (англ. Herbert Jay Solomon), более известен как Херби Мэнн (англ. Herbie Mann) (1930-2003) - американский джазовый музыкант, флейтист, композитор, бэнд-лидер. Один из первых джазовых музыкантов, специализировавшихся на флейте. Особенно известен своими экспериментами в области соединения этнической (бразильской, афрокубинской и т.п.) музыки и (   Читать дальше...   )01. Bird In A Silver Cage (12:45)
-02. Aria (4:50)
-03. Fly, Robin, Fly (1:09)
-04. Birdwalk (7:31)(   Читать дальше...   )Жанр: Funk Soul, Jazz, Pop, DiscoПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0545C190EC899FA12E9CCA474EAC79F42B31A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129508   (720776) от 29.04.2017
-
-VA - Spring Break Party 2017 Powered By Xtreme Sound (2017) [MP3|320 Kbps] <Deutscher Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Wackel – Die Nacht von Freitag auf Montag (Party Mix)[2:58]
-02. Lorenz Buffel – Johnny Dapp (Harris & Ford Remix Edit)[3:54]
-03. Tobee – 3 Promille (Doch da geht noch was)[2:59]
-04. Mia Julia – Hey Mr. DJ[3:36](   Читать дальше...   )Жанр: Deutscher PopПродолжительность: 02:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABAFD16FF19411151F014CD55FED8FD59CA79AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1032047   (647498) от 06.07.2016
+
+VA - Radio Record TOP 33 — июнь (4) (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carla's Dreams - Sub Pielea Mea (Midi Culture Remix) (5:08)
+ 02. Kungs & Cookin' On 3 Burners - This Girl (Extended) (4:02)
+ 03. The Chainsmokers feat. Daya - Don't Let Me Down (Original Mix) (3:28)
+ 04. Alan Walker & Mikis - Sing Me To Sleep (Remix) (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38649206046FAB0F4AD11AB3F172AAB069901DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516919   (647495) от 01.07.2012
+
+VA - Сводный Чарт Европы Плюс 50x50 (2012) [MP3|256 кб/с]<Pop, Dance, Rock, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, Rock, RapПродолжительность: 06:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B26B49457613D201829215BBAB1C49833E0E020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517357   (647399) от 01.07.2012
+
+VA - На Природу Пикничёк (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647399.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Дядя Жора - Пикничек
+002 Заза Наполи - Давайте Выпьем
+003 Валерий Курас - Песенка
+004 Татьяна Буланова и Афина - Женская Дружба
+005 Фоксы и Бурановские бабушки - Европати по-мордовски
+006 Киевэлектро - Пить-Гулять
+007 Блестящие и Герои - Из чего же
+008 Виктор Королев - Братишка
+009 Ксения Малинка - Влюблен
+010 Юрий Шатунов - А лето цвета(   Читать дальше...   )Жанр: PopПродолжительность: 11:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC50F5331610EDE1B7FE319E1D6BE60C288DC721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905913   (647316) от 07.06.2015
+
+VA - Золотая Песня Года (2015) [MP3|128-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.А. Варум - Настоящий ты
+02.Гр. "Пропаганда" - Подруга
+03.Emin и Ани Лорак - Зови Меня
+04.Нюша - Только(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCA8429B5AB201BED7CFA005CC00C6AFCB5250B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517364   (647285) от 01.07.2012
+
+VA - XXXL Русское Радио. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647285.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Иван Дорн - Бигуди
+002 Елка - Около тебя (DJ Nejtrino & DJ Stranger remix)
+003 Винтаж feat. Bobina - На-на-на
+004 Иракли - Я Тебя Люблю
+005 Инь-Ян - Инопланетянин
+006 Горячие Головы - Мы Встретимся Вновь
+007 ELIA - Последние слова (DJ Nejtrino & DJ Kirill Clash remix)
+008 Баnzай - Ради Тебя
+009 Братья Грим & Чи-Ли - Ира, Ира
+010 Pobeda - Лето Любви(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 06:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5737BC38C45112C76755E382614F2B4D5FBAE30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516916   (647283) от 01.07.2012
+
+VA - Летний ливень хитов в ремиксах (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 10:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02CAFC4897767A98A570AD4E7F28BBA63039BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517489   (647032) от 01.07.2012
 
 VA - ЕвроХит Топ-40 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
@@ -595,201 +775,6 @@ VA - Летний Кураж Европы Плюс (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:161F2775A4B6FFD9A643DE5161E38A48CBF189C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517820   (645464) от 02.07.2012
-
-VA - Прилив хитов русский (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645464.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-001. А.Р.М.И.Я Feat. Dj Mendez - Сладкий Плен
-002. Филипп Киркоров - Дискобой
-003. Турбомода - Маленький Секрет
-004. Слава - Люди Любят
-005. Нюша - Выбирать Чудо
-006. Митя Фомин И Кристина Орса - Не Манекен
-007. Маша Собко - Гроза
-008. Вирус - Просто Рядом Иди (Электроники Club Mix 2011 Radio Edit)
-009. Арина И Размер Project - My Moscow Love(   Читать дальше...   )Жанр: PopПродолжительность: 12:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FEE756DD475AFA92D0854361FE1546DF02A8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032242   (645347) от 07.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 80 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - In The Mix ( 1988 )
-02. Desireless - Animal ( 1989 )
-03. Bryan Adams - One Night Love Affair ( 1984 )
-04. Chilly - Johnny Loves Jenny ( 1981 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73671C1F25CB5CA290183BEBA8B84CF4691D585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905942   (645229) от 08.06.2015
-
-VA - Дискотека забытых хитов (зарубежная) - 11 (2015) [MP3|320 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boytronic - You (04:18)
-02. Susy B - I Can't Get Enough (04:31)
-03. Babalo - Teenager Melodie (Part. I) (04:55)
-04. Cary On - Next To Me (05:39)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251F9C8A0A08527B47B9AEF64EF020DA8C4298EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517962   (644820) от 02.07.2012
-
-VA - MAXI. Лучшие медленные хиты 3CD (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Rea - As Long As I Have Your Love
-02. Avril Lavigne - I'm With You
-03. Whitney Houston - I Will Always Love You
-04. The Style Council - You're The Best Thing
-05. Sandra - Loreen
-06. Modern Talking - Cinderella Girl
-07. Metisse - Boom Boom Ba
-08. Jason Donovan - Sealed With A Kiss
-09. Falco - Out Of The Dark
-10. Cranberies - ZombieЖанр: PopПродолжительность: 05:01:28
-
-01. HIM - In Joy And Sorrow
-02. Groove Coverage - God Is A Girl
-03. Another Level - From The Heart
-04. All-4-One - I Swear
-05. The Eagles - Love Will Keep Us Alive
-06. Scorpions - Daddy's Girl
-07. Ronan Keating - Brighter Days
-08. Pink - Family Portrait(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4753ECCEB95CE2A0924CDE9034BEAFC3F4A1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142088   (644474) от 13.06.2017
-
-VA - Summer All Stars NRJ Mix (2017) [MP3|241-320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Charlie Puth - Dangerously
-002. Clean Bandit feat. Sean Paul & Anne Marie - Rockabye
-003. James Arthur - Say You Won't Let Go
-004. Maroon 5 - Don't Wanna Know feat. Kendrick Lamar(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 07:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C96343504B101CD630CC185ED7E1F2D83760FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142187   (644466) от 13.06.2017
-
-VA - Первый молниеносный (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serebro - Между нами любовь
-02. Вера Брежнева - Близкие люди
-03. Бьянка - Феншуй
-04. Елена Темникова - Давай улетим(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E2606E03ACD2D185D0F6C4CC62C4D5FC7F0D84
 ```
 
 https://mybot314.ru/tekegram_catalog/

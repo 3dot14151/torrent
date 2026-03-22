@@ -1,3 +1,148 @@
+###  Публикация: 1022807   (727787) от 03.06.2016
+
+Paolo Fresu - Around Tuk (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Zoom [07:25]
+ 02.Desertico [05:28]
+ 03.Rimanere Grande [06:38]
+ 04.Chiaro [05:50](   Читать дальше...   )Жанр: Contemporary Jazz, Crossover JazzПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF9971A58CDB7D27A89EA474CE6819441615B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128536   (727767) от 25.04.2017
+
+Ruben Reeves - The Complete Vocalions 1928-1933 (1997) [FLAC|Lossless|tracks + .cue] <Early jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727767.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fess Williams And His Joy Boys – Dixie Stomp (02:44)
+2. Fess Williams And His Joy Boys – Drifting And Dreaming (Sweet Paradise) (02:58)
+3. Ruben "River" Reeves and His Tributaries – River Blues (03:15)
+4. Reuben "River" Reeves & His River Boys – Parson Blues (02:32)(   Читать дальше...   )Жанр: Early jazzПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E7E10027063F201C9650173B8050824B182ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128546   (727758) от 25.04.2017
+
+McCoy Tyner - Blue Bossa (1991) 2001, LRC Ltd. [APE|Lossless|image + .cue] <Post-Bop, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Bossa [09:58]
+02. Recife's Blues [05:50]
+03. I'll Take Romance [07:46]
+04. Rotunda [06:50](   Читать дальше...   )Жанр: Post-Bop, Latin JazzПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB144B75B48506BC19B2A182EFEACF25430D8F44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128545   (727662) от 25.04.2017
+
+The Monty Alexander Trio - Full Steam Ahead (1985) 2000, ООО "Галактис" [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddie Freeloader [05:17]
+02. Once I Loved [06:25]
+03. Ray's Idea [04:17]
+04. Because You're Mine [02:59](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DF05AED776702091AF06252BB8A6DA7E373ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530925   (726668) от 13.02.2022
+
+Harold Mabern - Mabern Plays Coltrane (2021) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dahomey Dance [7:14]
+02. Blue Train [10:42]
+03. Impressions [9:42]
+04. Dear Lord [5:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD8FCE4BCF95D1ADA300D2A98F3480E8E23A220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284832   (726582) от 23.02.2019
 
 Putney  Dandridge  And  His  Orchestra - 1935 - 1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -600,151 +745,6 @@ Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Another Monday Night At Bir
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B34F53611ED0C33431EED961F2D3C5D308BEB686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400016   (723166) от 03.08.2020
-
-Chet Baker Quartet featuring Phil Markowitz - Live at Nick's (1989) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Thing for You Is Me [9:44]
-02. Broken Wing [9:56]
-03. This Is Always [8:27]
-04. Beautiful Black Eyes [17:11](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242D1CC7ACD2970E7404573EB595981419862EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400014   (723163) от 03.08.2020
-
-Bebop & Beyond - Plays Thelonious Monk (1990) Bluemoon [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Francisco Holiday [7:12]
-02. Brilliant Corners [7:02]
-03. Think of One [7:30]
-04. Crepescule with Nellie [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953EAE00F23D1EC8A7C5077BB71C98C09D849FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400018   (723153) от 03.08.2020
-
-Chet Baker - Peace (1982) 1989, Enja Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 + 1 = 5 [7:38]
-02. Peace [4:10]
-03. Lament for Thelonious [10:12]
-04. The Song Is You [7:08](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDA9E6C7F63CD8B6DB8B8570568DCD94276599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285267   (722874) от 25.02.2019
-
-Jack Sheldon - The Quartet & The Quintet (1954, 1955) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contour [5:36]
-02. It's Only a Paper Moon [7:21]
-03. Leroy's Blues [5:58]
-04. Cheek to Cheek [3:33](   Читать дальше...   )Жанр: Cool, Bop, Mainstream JazzПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AAC108D21DB3C3D072410EE1483316EA334304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129455   (722718) от 28.04.2017
-
-Slide Hampton - Jazz With A Twist & Explosion! (1962) 2001, Atlantic [FLAC|Lossless|image + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jazz Twist [02:35]
-02. Mack The Knife [03:05]
-03. Gorgeous George [02:11]
-04. Strollin' [03:59](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49827E5F097245189AFC8798FB8B054A7E9DF39
 ```
 
 https://mybot314.ru/tekegram_catalog/

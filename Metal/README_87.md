@@ -1,3 +1,117 @@
+###  Публикация: 1635165   (242113) от 24.05.2023
+
+Carpe Diem - In Nomine Honoris (2023) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242113.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 – Horrida Bella
+2 – Batallas De Leyenda
+3 – El Libertador
+4 – El Vengador(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6486B6EC1610AA92E42B1221D07FC1F02B2A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374550   (241941) от 10.04.2020
+
+Breakdowns At Tiffany's - Eternal Lords (2020) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrones
+02. Collapse
+03. Animals
+04. Tremors(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6A9C7773DED8FB434876376FEC5EE932442DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374522   (241933) от 10.04.2020
+
+Vengeance - Retaliation (2020) EP [MP3|320 Kbps] <Metallic Hardcore, Beatdown Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bone Marrow , [03:17]
+02. Rattle Snake (Featuring Shaun and Liam of Daybreak) , [02:18]
+03. Retaliation (featuring Lochie Keogh of Alpha Wolf) , [03:25]
+04. Vultures , [03:53](   Читать дальше...   )Жанр: Metallic Hardcore, Beatdown HardcoreПродолжительность: 00:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D78F27032DA0B1D5B57A79B10A00A9CDACE548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374528   (241896) от 10.04.2020
+
+Solar Eruption - The End Is Near (Limited Edition) / Bloody Mary (2019-2020) [MP3|320 Kbps] <Technical Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241896.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 - The End Is Near (Limited Edition) (2CD)
+2020 - Bloody Mary (Maxi Single)Жанр: Technical DeathcoreПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFE95EDC96270485C35C5D83E1FE21EDAB00D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376192   (241854) от 17.04.2020
 
 Graveyhard - 2 Albums (2018-2020) [MP3|320 Kbps] <Stoner, Sludge Metal>
@@ -628,122 +742,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B4DB7CD58130AA65DD8D8FFC712B8E2E757ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411621   (240270) от 26.09.2020
-
-Just Before Dawn - An Army at Dawn (2020) [MP3|320 Kbps] <Old School Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Paths of Armor  To the Last Tiger [00:06:18]
-02. The Guns at Last Light [00:05:20]
-03. An Army at Dawn [00:05:33]
-04. Goliath Revived [00:04:41](   Читать дальше...   )Жанр: Old School Death MetalПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69861605E6703C237EEA3EB349F386F6615BCB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466144   (240076) от 29.04.2021
-
-Lankester Merrin - Upon the Forgotten (2021) [MP3|320 Kbps] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sword of the Ocean [00:04:12]
-02 - Who Goes There [00:03:23]
-03 - In Dark Memory [00:03:14]
-04 - Dying [00:04:25](   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1481359C47479B4976214E7548F1A954220D147D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565138   (239860) от 23.07.2022
-
-Resistance - Skulls Of My Enemy (2022) [MP3|320 Kbps] <Power, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Call to Arms (Intro)	00:52
-2.	Valhalla Has Locked It's Doors	04:05
-3.	On Dragon Wings	04:48
-4.	Earthshaker	05:06(   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F0D6AD79F33BA2AD7521F4A02103C634673414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565451   (239804) от 23.07.2022
-
-Shadow of Everest - Where Giants Die (2022) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verse 26 00:30
-02. They Came from the Sky 04:38
-03. Cyclops Eye 06:22
-04. Cull the Herd 05:02(   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 01:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485964B0F26BA954B0117CF507938E56ACF8B033
 ```
 
 https://mybot314.ru/tekegram_catalog/

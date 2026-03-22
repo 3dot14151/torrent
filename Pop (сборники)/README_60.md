@@ -1,3 +1,177 @@
+###  Публикация: 1295878   (616484) от 14.04.2019
+
+VA - Club Dance Ambience Vol.174 (2019) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soprasound - Don't Stop (Extended Mix)
+002. Nervo Feat. Ryann - Emotional  (Denis First Remix)
+003. Block & Crown - Black Blood  (Original Mix)
+004. John Newman - Love Me Again  (Dj Bong Mash Up)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F68469931800C69DD90796D258E70DDC93AE535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911517   (615841) от 23.06.2015
+
+VA - 100 хитов Москва FM (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Триада - Третье Дыхание
+002. Пицца - Лифт
+003. Mband - Она Вернется
+004. Аш'ъ Ft. Dmc Style (2345) - В Твоих Ладонях(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50EFA53494DBF50690CB4D37B55A5655D9F44DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230449   (615624) от 12.06.2018
+
+VA - Dance Club 2018.01 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axwell & Ingrosso - Dreamer (4:10)
+02. Lost Frequencies, Zonderling - Crazy (2:32)
+03. Selena Gomez & Marshmello - Wolves (3:17)
+04. DJ Snake & Lauv - A Different Way (3:17)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED217D808424C1A74A4D6B67CCBED9CF694C71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230395   (615509) от 12.06.2018
+
+VA - Pop Dance Top Selection (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Axwell & Ingrosso - Dreamer
+002. Miley Cyrus - Younger Now
+003. Devin Dawson - All On Me
+004. Natasha Barnes - You Don't Mean It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231B90569F399AAD04E16F628D1365BFD2AEC438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230468   (615415) от 12.06.2018
+
+Ebony - The Singles Collection (2018) [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собраны все синглы этой интересной диско группы, которые были выпущены авторами и продюсерами известных диско-поп исполнителей европы.01.  Don't Boogie Mr. Tango (1976) (4:34)
+02.  Slacker (1976) (4:22)
+03.  You Driving Me Crazy (1977) (4:03)
+04.  Move On Up (1977) (3:39)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78576EACF648D17923F955639B01BCF2BEB5AB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296115   (615238) от 15.04.2019
+
+VA - German Top 50 Party Schlager Charts 15.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532ADFAD8A3165D9E5994C94E8F71C898B99E2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295994   (615141) от 15.04.2019
 
 VA - Popular European Mix (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -589,180 +763,6 @@ VA - Дискотека забытых хитов (зарубежная) - 13 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3437F3E34DDBB9E2E7087BC4A8332EEBD49137CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296787   (608397) от 19.04.2019
-
-VA - This Merry Planet: Instrumental Disco Hits Vol.2 (2019) [MP3|320 Kbps] <Disco, Instrumental>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-
-01.Neil Cloud - Reflections (The good, the bad & the ugly) of my life & Finale (18:42)
-02.Astor And The Potentials - Give Me What I Want (Part II) (03:21)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 02:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF28AECA09F64B1BB017200F461030302227DBC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038179   (608373) от 27.07.2016
-
-VA - Europa Plus. Самые сливки дискотек №2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Chainsmokers Feat. Daya - Don't Let Me Down
-002. Reflex - Говори Со Мной
-003. Nickelback - She Keeps Me Up
-004. Miike Snow - The Heart Of Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F715DA73FAEF2436FDFBA4CA3EBC3C23AD8B8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545559   (607829) от 23.04.2022
-
-VA - National Pop Dance Music Vol.34 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс-сборник популярной народной музыки с  наименованием "National Pop Dance Music" 34-го выпуска, скрасит ваши серые будни и подарит немного праздника. Треки лонгплея выделяются нестандартным подходом к исполнению, широкой гаммой национального колорита и великолепным настроением.001. Kevin Bock - Schoen Dass Es Bier Gibt
-002. Gordon & Doyle - Stand By Me
-003. Hannes Wader - Im Garten
-004. Angélique Kidjo - Choose Love(   Читать дальше...   )Жанр: Pop, Dance, Schlager, FolkПродолжительность: 08:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549D76D973C89057E185B2B1F682EC1419B4713B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545778   (607687) от 23.04.2022
-
-VA - Relax Mix (2022) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SITHEA - Right My Wrongs (2:00)
-02. Rudimental, Major Lazer, Anne-Marie - Let Me Live - Banx & Ranx Remix (2:57)
-03. The Weeknd - A Lonely Night (3:40)
-04. Ed Sheeran - Afterglow (3:18)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C085758C8313016312EDD5E4C937B9503CF3B3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545564   (607460) от 23.04.2022
-
-VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите окунуться в ретро-атмосферу и на несколько десятков лет перенестись назад в прошлое? В этом вам прекрасно поможет подборка популярнейших песен 70-80х годов. Истерики фанаток и восторженные крики толпы. До отказа заполненные стадионы и концертные залы. Миллионы поклонников по всему миру. Беспрерывные гастроли и несмолкающие овации.001. Patsy Gallant - From New York To L.A.
-002. Soft Cell - Tainted Love
-003. Andrea True Connection - What's Your Name
-004. Siouxsie And The Banshees - The Staircase(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297032   (606687) от 20.04.2019
-
-VA - Magic Lights: European Pop Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pia Magnet - Ich Will Sex
-002. Flash And Thunder - Don't Get Tired
-003. Dj Kajjin Feat. Mimi - Take My Hand
-004. Soundstylers - Shake It Daby (Club Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD5D7EA57728B204DA1608FEB89204FC1C49AA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

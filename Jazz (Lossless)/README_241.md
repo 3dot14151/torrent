@@ -1,3 +1,177 @@
+###  Публикация: 1072170   (244337) от 12.11.2016
+
+Laurent Coq Trio - Spinnin' (2005) Cristal Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Claude Sait [01:40]
+ 02.C.H.W [08:16]
+ 03.South Ferry [06:22]
+ 04.Toulouse [05:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1479FDF9D676D65400BC9BF455AB2BA3B232ABA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294560   (244336) от 08.04.2019
+
+Thelonious Monk - The Best of Thelonious Monk (1955 - 1960) 2004, Riverside Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Round Midnight [6:43]
+02. Off Minor (take 5) [5:10]
+03. Jackie-ing [6:09]
+04. Well, You Needn't [11:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF87B471D89333E8DDFE569CFD9E594E06E8EF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072089   (244330) от 12.11.2016
+
+The Tony Kofi Quartet - The Silent Truth (2008) Specific Jazz[FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Giants [05:28]
+ 02.Dante [04:12]
+ 03.Cicada [04:54]
+ 04.First Breath [05:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9E435184E980AA453C90E2F3205E8CBD3E9335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072123   (244313) от 12.11.2016
+
+Guido Manusardi Trio - No More No Less (2006) SoundHills Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Softy As In A Morning Sunrise [05:49]
+ 02.Like Sonny [05:22]
+ 03.You Stepeed Out Of A Dream [06:30]
+ 04.Ice Drops [05:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EA4C671A3590E42F713C4F54AD63A0D3577340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072093   (244307) от 12.11.2016
+
+Count Basie & Joe Williams - Count Basie Swings, Joe Williams Sings (1955) 1993, Verve[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Every Day I Have The Blues [05:30]
+ 02.The Comeback [05:29]
+ 03.All Right, OK, You Win [03:06]
+ 04.In The Evening (When The Sun Goes Down) [03:40](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379DAF41702D3C48B03C3180E14BC5A326071101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632167   (244304) от 09.05.2023
+
+Louie Bellson And His Big Band - Live From New York (1994) Telarc [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soar Like An Eagle [5:32]
+02. The Louie Shuffle [5:12]
+03. Blow Your Horn [6:44]
+04. L.A. Suite (I. Vine Street Waltz/II. Beverly And The Beach/III.(Studio City) Gathering) [16:04](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Big BandПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6EED7920B1806231042B0C4BDF340E612C566F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072099   (244300) от 12.11.2016
 
 Nancy Wilson - Hollywood-My Way (1963) 2006, Capitol Jazz[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D34CC9C8597CC228D40EE89A48A65D995A230854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632683   (243935) от 11.05.2023
-
-Kenny Dorham - Una Mas (1963) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Una Mas (One More Time) [15:19]
-02. Straight Ahead [8:59]
-03. Sao Paulo [7:20]
-04. If Ever I Would Leave You [5:08]Жанр: Hard BopПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3067D1EB6D974BD2BAE56C513C8930E8F00FA713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074455   (243907) от 19.11.2016
-
-Luciana Souza - Speaking In Tongues (2015) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the Fair
-02. Hymn
-03. Straw Hat
-04. Split(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C5D41E0871CE06A519C41728BD0464939C0200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611557   (243841) от 12.02.2023
-
-Abdullah Ibrahim - Cape Town Songs: The Very Best Of Abdullah Ibrahim (1979- 1997) 2000, Nascente [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imam [6:10]
-02. Zikr [5:28]
-03. For Monk [4:40]
-04. Zimbabwe [4:18](   Читать дальше...   )Жанр: Post-Bop, World Fusion, Piano JazzПродолжительность: 01:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DD4222C54C62FFEC5FE161DA3DFCD40C505771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074789   (243838) от 20.11.2016
-
-Larry Bartley - Along This Way (2003) [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Djinn (Intro) [00:58]
- 02.The Djinn [05:34]
- 03.Along This Way [09:00]
- 04.Justice (...Just Us) [10:12](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BAE0A71A1AE488286B2AFF3E009E459009D1F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455499   (243837) от 19.03.2021
-
-Charles Davis - For The Love Of Lori (2014) Reade Street Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begues [7:54]
-02. What'll Do? [9:12]
-03. Juliano [5:31]
-04. KD [7:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2CB7E51A1DB94751914BC612A9C889676A1377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626398   (243835) от 14.04.2023
-
-Eric Reed - Black, Brown, and Blue (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black, Brown, and Blue [2:18]
-02. Lean on Me [4:02]
-03. I Got It Bad (And That Ain't Good) [3:15]
-04. Peace [4:58](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D300412CB471876C7CC83A8690CD13E5F02F01
 ```
 
 https://mybot314.ru/tekegram_catalog/

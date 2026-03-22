@@ -1,3 +1,61 @@
+###  Публикация: 1366049   (925528) от 10.03.2020
+
+VA - Cosmic House (2020) [MP3|320 Kbps] <House, Future, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925528.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elphasoul - Pluto To Earth
+002. Djscifi - Hot Wired Tensions
+003. Mataio - The Darkness
+004. Frans Vander Hoek - Not Today(   Читать дальше...   )Жанр: House, Future, Progressive HouseПродолжительность: 09:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C645FA9F3DA7DF622212023E144B30CD29DBC703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366102   (924913) от 10.03.2020
+
+VA - Elite NME Dance Club (2020) [MP3|320 Kbps] <Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924913.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J Gabriel - It Comes And Goes
+002. Mohjah - Zion Gates (Dub)
+003. Marcelo Diaz - Big Enough
+004. Dj Plur - I Turn To You (Radio Edit)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 11:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5D326AB3BE3FC5B2CBD12E1D34AE70E50587A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987760   (924499) от 18.02.2016
 
 VA - Sports Music For A Better Life (2016) [MP3|320 kbps] <Tech House>
@@ -699,66 +757,6 @@ VA - New Street Music One (2013) [MP3|320 кб/с]<Glitchhop, Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E55B26CB000339D6F0D980A1D9BBB7DC9FCDF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632499   (919817) от 20.03.2013
-
-VA - Electro Life 23 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2-4 Grooves - Rockset 2012 (Extended Club Mix)
-02. Carly Rae Jepsen - Call Me Maybe (FuzzDead Remix)
-03. DB Pure - Fire & Passion (Original Extended Mix)
-04. Diego Logic & Carlo Dall Anese & Glasgo - Arms Wide Open (Ready2Go Remix)
-05. DJane HouseKat ft. Rameez - All The Time (Bodybangers Remix)
-06. DJ M.E.G & N.E.R.A.K ft. Karina Koks - На краю земли (Original Mix) -Жанр: Electro House, Progressive House, Electro Progressive, HouseПродолжительность: 02:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AE3AEA64FE2B2EA0EBB76E050AFD2519CA6470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988919   (919196) от 21.02.2016
-
-VA - House Nation Volume 3 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Dumont feat. AME - Need U (100%) (05:53)
-02. Hard Rock Sofa - Quasar Noch breathe (Antony Rolls & Gladunov Mash Up) (06:26)
-03. Jacob Plant - Fire (04:17)
-04. Kronic & Krunk! - 3 Percent (04:51)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

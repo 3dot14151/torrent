@@ -1,3 +1,32 @@
+###  Публикация: 1092709   (938642) от 12.01.2017
+
+Grave Digger - Healed By Metal (2017) Deluxe Edition [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healed By Metal
+02. When Night Falls
+03. Lawbreaker
+04. Free Forever(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B8415DA3AC272D5B5912DB2A9F561016B7DEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092722   (938394) от 12.01.2017
 
 Accept - Restless ­And Live (2017) 2CD [MP3|320 Kbps] <Heavy Metal>
@@ -715,35 +744,6 @@ Crystal Coffin - The Transformation Room (2020) [MP3|320 Kbps] <Melodic Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B67805A243AA6EC7496261E991A28BFD744E3AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986868   (929277) от 15.02.2016
-
-Do Or Die - Crows (2015) [MP3|320 кб/с]<Groove Metal, Hardcore, Thrash Metal, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929277.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:08] 01. Crows
-[03:41] 02. Off With Their Heads
-[03:36] 03. Bella Famiglia Soldiers
-[03:52] 04. Bunker Hill Blues(   Читать дальше...   )Жанр: Groove Metal, Hardcore, Thrash Metal, DeathcoreПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BF503BE31B58DFD7E18759DC4CFF576E421C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

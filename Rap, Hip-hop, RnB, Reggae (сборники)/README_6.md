@@ -1,3 +1,61 @@
+###  Публикация: 945282   (432952) от 10.10.2015
+
+Каспийский Груз - Белый (2015) [MP3|192-320 кб/с]<Rap, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Табор уходит в небо
+02. Выдох, Выстрел
+03. Как у Буйнова
+04. На поражение(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D842B182D5CAA58EC8FD6AEF39B4430C73C7F7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324384   (425361) от 09.09.2019
+
+VA - My Whole Life: Hip-Hop Collection (2019) [MP3|320 Kbps] <Hip Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425361.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Foreign Beggars - Flashback
+002. P.R.Ism - Round
+003. John Jiggs - Deer Season
+004. Kraantje Pappie - Controle(   Читать дальше...   )Жанр: Hip HopПродолжительность: 10:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C4344881053EB98E4443580F7CEA1E8D2B7B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325136   (416721) от 13.09.2019
 
 VA - Team Dogz: 200 Rap Hits (Vol.01) (2019) [MP3|227-320 Kbps] <Rap, Hip-Hop>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD815613793AD411DF5AFEEE2F806E6BE6D34EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419897   (335805) от 30.10.2020
-
-VA - The Look Of Love (2020) [MP3|264-320 Kbps] <Dancehall, Reggaeton>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Posh Morris - Ambition
-02. Blakkamoore - Amazing Grace
-03. C. Jones - Sunshine Dub
-04. Laroz - Reparation(   Читать дальше...   )Жанр: Dancehall, ReggaetonПродолжительность: 05:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75F290ED282ABB5F194085006EB5F83C7D19FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331530   (322504) от 16.10.2019
-
-VA - Рэп для тренировки (2019) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322504.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Asap Ferg feat. Future - New Level (4:26)
-2.A$AP Rocky, A$AP Rocky feat. Skrillex & Birdy Nam - Wild for the Night (3:29)
-3.Bas feat. JID - Fried Rice (2:55)
-4.Beastie Boys - Brass Monkey (2:37)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4D025DB01E12E2F4CB073FAFCE92DE9A2E8D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

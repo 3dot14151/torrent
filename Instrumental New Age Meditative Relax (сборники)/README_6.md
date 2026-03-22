@@ -1,3 +1,61 @@
+###  Публикация: 1024340   (718047) от 08.06.2016
+
+VA - Pure Instrumental Music (2016) [MP3|320 кб/с] <Electronic,Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ac G - Summer Lawns (03:53)
+02. BGPONE - Introspektiv (04:33)
+03. Da Jungle - Mystical Fever (05:01)
+04. Christian Loeser - Sternenlied (03:07)(   Читать дальше...   )Жанр: Electronic,InstrumentalПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A964E716F2FCDBC1735E7F1BF298734334B5518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024449   (718041) от 08.06.2016
+
+VA - 10s Acoustic Covers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Josh Franklin - A Thousand Years
+02. Karizma Duo - One Last Time
+03. Max Tanner - The One
+04. Chelsea Hart - Papaoutai(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1558DE259C762690009B4E7BA754CF32DC5A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024484   (715956) от 09.06.2016
 
 VA - Tarjolla Tanaan - Rautalankaa (2013) [MP3|320 кб/с] <Instrumental, Guitar, Beat, Rautalanka, Surf>
@@ -723,64 +781,6 @@ VA - The Whisper Of The Ocean (2018) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE8D0723E5FA0E4A389DCCA24C208D46BA0F3598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537883   (663132) от 20.03.2022
-
-Ernesto Cortazar - Compilation part 3 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories of the Fall
-02. Delirio
-03. Mournful Seaside
-04. Cid(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 06:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFC6B744A68612502B720020CDAD95556CD50FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538640   (662198) от 21.03.2022
-
-Ernesto Cortazar - Compilation part 2 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I See the Sky
-02. Eternamente (Eternally)
-03. Y Volvere - El Triste - La Nave Del Olvido - Orfeo Negro
-04. One Voice Concerto(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 06:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2AF151D6C85AB777C70B14A7A1B20C8C5881F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

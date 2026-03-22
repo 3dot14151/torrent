@@ -1,3 +1,61 @@
+###  Публикация: 1120232   (803465) от 30.03.2017
+
+Plastic Angel - Hardwired (2001) [FLAC|Lossless|tracks] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastic Angel feat. Tommy Uncles - Be My Angel
+02. Plastic Angel - Afterglow
+03. Plastic Angel - Hardwired
+04. Plastic Angel - Chord Attack(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF745FECF67F2AB0C369CA84FFD4AE8998A59A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120386   (803456) от 30.03.2017
+
+Lyn 1.8.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - просмотрщик и браузер изображений
+Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
+
+Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 марта 2017Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.7.4 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E4BA2F2A181CC9404E336B0780BADA13FCE354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120335   (803451) от 30.03.2017
 
 Jamiroquai - Automaton (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Funk>
@@ -626,64 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEC1E1FFD09DDD4AC766BD56C85C08BE7FE1F048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120214   (803185) от 30.03.2017
-
-Black Sun Empire - The Wrong Room (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Veil
- 02. Swarm
- 03. Foundation
- 04. Scarif(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8552FFD45B1D510F2B7BDE8E318DF3755E702F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120119   (803182) от 30.03.2017
-
-Tayasui Sketches Pro 3.01 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасные инструменты — залог превосходных рисунков, поэтому мы создали приложение Sketches с еще более широким набором реалистичных инструментов.
-С удивительным набором инструментов и современным пользовательским интерфейсом  Sketches  является наиболее универсальным и удобным приложением для  создания рисунков.
-
-• Возможности(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 марта 2017Разработчик: TayasuПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FCADA03848865CADE61D5E0579BBDC16520E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

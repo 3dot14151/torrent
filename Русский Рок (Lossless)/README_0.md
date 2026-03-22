@@ -1,3 +1,32 @@
+###  Публикация: 1846113   (1051178) от 05.01.2026
+
+Ансамбль Христа Спасителя и Мать Сыра Земля (АХСиМСЗ) - Задорные танцы в намордниках (2021) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Храмы Твери, я иду! [00:04:25]
+02. Любимая Полиция Твери [00:05:25]
+03. На митинги [00:03:37]
+04. Вкусный и недорогой [00:02:44](   Читать дальше...   )Жанр: Hardcore Punk, DiscoПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46DF5893FD266AB41992FE84AB610E7C62A81D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845696   (1050930) от 02.01.2026
 
 Rubicon - Mental Monsters (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85059EF03309C17F3D9F19AB58CBE94C6646D0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607672   (1043955) от 27.01.2023
-
-Лич - Чувства Рэдо (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чувства Рэдо [00:02:42]
-02. Ворон [00:03:21]
-03. Вампирская (Acoustic Version) [00:02:46]
-04. Улыбка [00:03:12](   Читать дальше...   )Жанр: RockПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653A359466159158DF9A86E6A1989DF4288FC7E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

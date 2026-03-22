@@ -1,3 +1,32 @@
+###  Публикация: 1099714   (903278) от 02.02.2017
+
+Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Misty Morning Across the Water (05:48)
+02. Drifting (05:09)
+03. Lonely Shore (05:21)
+04. On a Mountain (05:49)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099710   (903264) от 02.02.2017
 
 Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
@@ -707,35 +736,6 @@ VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED0CB509EDDCC05C1303A4632CA9EEF3F5C1D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993172   (895189) от 05.03.2016
-
-Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apareka (2:38)
-02. Qrizantemebi (The chrysanthemums) (2:55)
-03. Dililme (2:46)
-04. Qalo (The Women) (2:38)(   Читать дальше...   )Жанр: Ethnic / Georgian FolkПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71B917F084ED4B35C7D4F35D5F3300DA7C53CD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

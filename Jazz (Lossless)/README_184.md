@@ -1,3 +1,177 @@
+###  Публикация: 1165086   (437389) от 11.09.2017
+
+One For All - Killer Joe (2005) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killer Joe [06:19]
+02. Island [06:49]
+03. Night Mist Blues [11:07]
+04. Mating Call [06:53](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A73F2AE558A44119522F46F709D6E5147E9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164977   (437388) от 11.09.2017
+
+Rossella Graziani 4Tet - My Favourite Songs (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Love Is Here to Stay
+02. Just One of Those Things (feat. Leo Carboni)
+03. Falling in Love with Love
+04. Cosa cambia(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15108782B19890E5EDD426EEF708062D96497EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164906   (437236) от 11.09.2017
+
+Pat Metheny - One Quiet Night (2009) [FLAC|Lossless|image + .cue] <Acoustic, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Quiet Night (5:02)
+ 02. Song For The Boys (4:32)
+ 03. Don't Know Why (3:09)
+ 04. Another Chance (6:54)(   Читать дальше...   )Жанр: Acoustic, Contemporary JazzПродолжительность: 01:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D082276328D3703D93B6260D7600AD26D952BF39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410502   (436232) от 21.09.2020
+
+Allen Farnham - 5th House (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fifth House [7:20]
+02. It's Not Always Where You Think It Is [6:38]
+03. You Stepped Out of a Dream [4:49]
+04. You Know I Care [5:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA624322DDEB4162B7507D0C5907FD7755D0B8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410500   (436230) от 21.09.2020
+
+Duke Ellington And His Orchestra - Early Ellington (1927 - 1934) 1989, BMG Music [APE|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black And Tan Fantasie [3:11]
+02. Washington Wabble [2:51]
+03. Creole Love Call [3:13]
+04. Blues I Love To Sing [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3409345A6233FF4968F2E5D826721493FCDCC00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945165   (436176) от 09.10.2015
+
+Clark Terry & Chris Woods - Swiss Radio Days Jazz Series: Lucerne 1978, vol.8 /1997, TCB/ [FLAC|image+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Hymn [06:28]
+02.The Silly Samba [05:29]
+03.I Want a Little Girl [05:03]
+04.Straight No Chaser [08:12](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD46000C0F5B14FEBB9F2C3D6F041F5713A7225F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571094   (436113) от 20.08.2022
 
 Tete Montoliu - Montoliu Plays Tete (1971 - 1997) 2CD, 2006, DiscMedi Blau [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -571,180 +745,6 @@ Louis Armstrong - The Essence of Louis Armstrong (1991) [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC78677A5BC95FBB842DFDFC9D928EA93B5DD584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410665   (434053) от 22.09.2020
-
-Louis Armstrong - Hello, Dolly! (1964) 1994, Kapp Records [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, Dolly! [2:27]
-02. It's Been a Long, Long Time [2:22]
-03. A Lot of Livin' to Do [2:37]
-04. A Kiss to Build a Dream On [4:31](   Читать дальше...   )Жанр: Swing, DixielandПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86BD640AF688C79A908F8FC0BB2A30B3CA3EE16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571304   (434047) от 21.08.2022
-
-Art Blakey And The Jazz Messengers - In My Prime I (1978) 1989, Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jody [10:22]
-02. 1978 [7:28]
-03. To See Here Face [6:24]
-04. Lift Every Voice And Sing [2:17](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562D5F1DAEE8B06D86EE478EF5C7B390FB88A714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945509   (433983) от 10.10.2015
-
-Oliver Gannon - Easy Sailing (2014) [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love for Sale (6:49)
-02. Easy Sailing (5:40)
-03. My One and Only Love (5:10)
-04. Chi Chi (4:56)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CA2F5772F0F340C42FCB6E64E7206C9B30B382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945513   (433982) от 10.10.2015
-
-Oliver Jones - From Lush (1995) [FLAC|image+.cue]<Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way You Look Tonight (5:36)
-02. Why Think About Tomorrow (5:43)
-03. Len's Den (4:34)
-04. We Will Love Again (4:48)(   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E63019D5F27084029BB79A2226FA6F5757D3197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945486   (433978) от 10.10.2015
-
-Ofer Shapiro Quintet - Two Views (2010) [FLAC|image+.cue]<Post-Bop, Ethnic Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Views (tribute to Wayne Shorter)
-02. Dancing Spirit
-03. The Sea
-04. Minor Blues(   Читать дальше...   )Жанр: Post-Bop, Ethnic FusionПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C533C86292D99FB66F5F661C90CA86F9664616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945482   (433977) от 10.10.2015
-
-Odyssey Trio - Pictures (2014) [FLAC|tracks+.cue]<Contemporary Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песнь Песни / The Song of a Song
-02. Доброе утро / Good Morning
-03. Карусель / Carousel
-04. Прощальная песня / Farewell Song(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD7CE14ED0169113A22A32F8485D210EDC1F67F
 ```
 
 https://mybot314.ru/tekegram_catalog/

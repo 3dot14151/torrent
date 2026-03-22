@@ -1,3 +1,158 @@
+###  Публикация: 543165   (497550) от 04.09.2012
+
+VA - Rome Chill House Night - Chilled Grooves Deluxe Selection (2012) [MP3|320 кб/с]<Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystique - Good Times (Aperitivo Lounge Edit)
+02. United Colors of House (Can You Feel It)
+03. Brett Sinclair - Roman Holiday (Via Condotti Remix)
+04. Debby Lopez - Vida Loca (Latin House Mix)
+05. Damon Everett - Soulful Night (Ritchie and Giuliani Dub)
+06. Calvin Adam - True (Cafe Roma Instrumental)
+07. Fashion Week - Right Here Right Now (Trevi's Remix)
+08. Chill Loungers - Let the Sunshine in (DJ Ducati House Mix)
+09. Merrick Lowell - 9 Pm (Qube Extended)
+10. Scott Simmons - Children (Mediterranean Mix)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281848096ED3902CF445F1705FE35789F79C27E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543418   (496335) от 05.09.2012
+
+Wolfgang Gartner - Back Story (2012) [MP3|320 кб/с]<House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfgang Gartner - Back Story (2012)
+
+Год: 2012
+Жанр: House, Electro House
+Продолжительность: 01:33:18Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Latin Fever (07:02)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B3A986ACB047A19C34469E5009C3C554B8F281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243015   (496203) от 25.08.2018
+
+VA - Progressive Daylight (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brett Gould - Reflections (Aibos Dark Dub) 7:24
+02. The Blax - Electriness (Tim Penner Remix) 8:16
+03. Stiven Rivic - Meltdown (Original Mix) 9:08
+04. Orquesm - Stop (Original Mix) 8:56(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A23F6973A5CA72465E199B6B4EF95F3CC430F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243022   (496114) от 25.08.2018
+
+VA - Progressive Cuts (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inkfish - Size One (Indepth Remix) 7:39
+02. Nicholas Bennison - Alter Rain (Original Mix) 8:01
+03. Ctrl Shift Defeat - Eternal Paradox (Original Mix) 7:36
+04. Igor Zaharov - Schatten (Original Mix) 7:14(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD899C27488861EF3D3A723AADDE170BA1F2DE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242897   (496106) от 25.08.2018
+
+VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Dreams - Blanche (Coco's Deep Mix)
+02. Mischa Miller - Black & White (Original Mix)
+03. Liam Day - Walk On The Beach (Mark's Deep Mix)
+04. Mandrágora - Playing With Fun (Sunset Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2B9B50E1375CE28E388BEEDC1F85934497A694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243012   (496094) от 25.08.2018
 
 VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
@@ -606,157 +761,6 @@ Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3597C24FBFB95994229FD673BB34829F5EA35E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406533   (472763) от 04.09.2020
-
-VA - Workout & Fitness 2020 Motivation Training Music [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dani Corbalan - Nobody Like You (Radio Edit) 02:55
-02. Andrw Madnss - Ibiza (Radio Edit) 03:11
-03. Nik Finn - Show Me (Original Mix) 03:48
-04. Mark Star - Freefall (Original Mix) 02:47(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A540D82362E1BD057CDD01C7359C0E91E4A15BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547049   (472288) от 16.09.2012
-
-VA - Kiss FM Dance Radio Chart 6 (4 Dance Years) (2006) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto feat. Maxi Jazz - Dance4life (Radio Edit) [03:29]
-02. Pakito - Moving On Stereo (Original Radio Edit) [03:09]
-03. Haji & Emanuel - Take Me Away (Haji & Emanuel Back To 91 Edit) [03:01]
-04. ATB - Let U Go (Airplay Master) [03:24]
-05. DJ Trefiloff - Summer Waves [05:39]
-06. Denis Naidanow - Ascension [05:54]
-07. Beatfreakz - Somebody's Watching Me (Hi Tack Edit) [02:45]
-08. Michael Gray feat. Shelly Poole - Borderline (Ian Carey Mix) [04:50]
-09. Ill Beat Hustlers - All I Need (Original Mix) [04:55]
-10. Pain & Rossini - Hands Up Everybody (Radio Edit) [03:39](   Читать дальше...   )Жанр: HouseПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DC8E939AC8F593752776EC45F8307426635BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320474   (471393) от 18.08.2019
-
-VA - Bikini Beach, Vol. 4 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Aco Rolando Martinez - Hey Dj 07:05
-02. Javier Devesa - Warning 04:30
-03. Lonely DJ - All The People 03:43
-04. Midnight Evolution - Dark Secrets 05:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B936F35B54C44E77093036EABDFDB5395BA3A69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940458   (468970) от 24.09.2015
-
-Kaskade - Automatic (2015) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Don't Stop
- 02. Us
- 03. Mercy
- 04. Tear Down These Walls (feat. Tamra Keenan)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAAD145AB73AADDFF5D0E2A261D482F5A380FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940481   (468668) от 24.09.2015
-
-Robin Schulz - Sugar (2015) [MP3|320 кб/с]<Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headlights (feat. Ilsey)
- 02. Sugar (feat. Francesco Yates)
- 03. Heatwave (feat. Akon)
- 04. Yellow(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DF1D0F2148B5E475FDD36501533B9FFE91D667
 ```
 
 https://mybot314.ru/tekegram_catalog/

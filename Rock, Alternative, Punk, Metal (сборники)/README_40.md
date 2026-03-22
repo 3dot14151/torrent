@@ -1,3 +1,235 @@
+###  Публикация: 1655840   (193000) от 02.09.2023
+
+VA - Death And The Labyrinth (folk metal) (2023) 2CD [MP3|320 Kbps] <Metal, Pagan Metal, Folk Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amon Amarth - Guardians Of Asgaard [04:23]
+02. Obscurity - V Legion [04:48]
+03. Wulfgar - Circle of Runes [04:10]
+04. Eluveitie - Luxtos [03:55](   Читать дальше...   )Жанр: Metal, Pagan Metal, Folk MetalПродолжительность: 15:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C453D5854BF75D2FE77B67AC5952C99AF1D6015F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587421   (192362) от 01.11.2022
+
+Colin James - Compilation (2022) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Carried Away
+02. I Will Remain
+03. Find My Home
+04. You Were Never Mine(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 03:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D9962B2F784828301606A59C5EF433CDBD0609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370643   (192021) от 05.09.2023
+
+Freddie Mercury - 100% Freddie Mercury (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddie Mercury - The Great Pretender
+02. Freddie Mercury; Montserrat Caballe - How Can I Go On
+03. Freddie Mercury - I Was Born to Love You
+04. Freddie Mercury - Living On My Own (No More Brothers Radio Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 02:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3E339B0C7B6D65C5DCC11455E129008111FE99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465110   (191998) от 05.09.2023
+
+Queen + Freddie Mercury - Best of [Compiled by Firstlast] (2021) [MP3|192-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddie Mercury - I Can Hear Music (1973) (3:30)
+02. Freddie Mercury - Goin' Back (1973) (3:35)
+03. Procession (1:13)
+04. Keep Yourself Alive (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 06:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A64823624E7A5D8B7CF3DE217813081D70E5E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657834   (191822) от 06.09.2023
+
+VA - Compilation rock, blues rock,  part 33 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleu Jackson - Women, Whiskey, Guns and Knives
+02. Bleu Jackson - Some Never Learn
+03. Bleu Jackson - Breakdown
+04. Jay Owens - Wishing Well(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A59D8D8A2D0E29027021788B24ED2E75D40C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657646   (191790) от 06.09.2023
+
+VA - Compilation  Assorted rock, blues rock part  32 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Wilson's Blues Band - I'd Rather Go Blind
+02. Cort Duggins - Blue and Lonesome Ramblin' Man
+03. Bernie Marsden - Help Me Through the Day
+04. Corey Stevens - Killer Blues(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9C988A7B8D82ED4BCF7E2DCB4093705E24E4E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662612   (187013) от 20.09.2023
+
+Gorky Park - Collection (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парк Горького, это единственные отечественные музыканты, создававшие творчество на английском языке, которых можно и приятно слушать. Эту команду впервые я услышал ещё до увлечения роком, в далёком 1990 году. По тв в какой то передаче показали клип Bang. И помню как мы с пацанами во дворе обсуждали дружбу с Америкой и думали ну теперь то мы заживём. Занавес железный (   Читать дальше...   )01. Moscow Calling
+02. All Roads
+03. Politics Of Love
+04. Tomorrow(   Читать дальше...   )Жанр: RockПродолжительность: 03:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9576F746B0E6DF3E3884E446FF00B8856444AB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427458   (183010) от 28.11.2020
+
+Jimi Hendrix - Greatest Hits (2CD) (2010) Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 01:19:38
+02-01. Stone Free (1967) (03:43)
+02-02. Freedom (1970) (03:27)
+02-03. Valleys of Neptune (1969) (03:57)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8E657B23BA9D2505810FF98F0023B0FF0117C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592331   (182941) от 23.11.2022
 
 VA - Music For You vol. 25 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
@@ -513,238 +745,6 @@ VA - Workout, Beast Mode, Aggressive (2023) [MP3|320 Kbps] <Rock, Hard Rock, Oth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A6B431827747D37A69A368E4BAAB5DC4B005C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670587   (171672) от 22.10.2023
-
-VA - Rock For All Times (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rage Against The Machine - Killing In The Name [05:14]
-02. Bachman - You Ain't Seen Nothing Yet [03:58]
-03. Linkin Park - Somewhere I Belong [03:34]
-04. Electric Light Orchestra - Do Ya [03:45](   Читать дальше...   )Жанр: RockПродолжительность: 03:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D669115F906F9DD95C1663FF1FEB4ECBFBACC51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596507   (169565) от 10.12.2022
-
-Guns N’ Roses - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169565.jpg" />
-</div>
-
-
-###  Подробнее
-
-С творчеством Guns N Roses я познакомился в 96 году. Услышал альбом 93 года The Spaghetti Incident и с первых нот он сразу залетел в душу. До этого слышал только песню Don’t Cry. Энергетика у музыкантов бешеная. К сожалению, Spaghetti Incident стал последним крутым детищем группы. Записаны и сведены альбомы в среднем качестве. Послушал ремастеры и звучание не понравилось. (   Читать дальше...   )01. Welcome To The Jungle
-02. It's So Easy
-03. Nightrain
-04. Out Ta Get Me(   Читать дальше...   )Жанр: RockПродолжительность: 04:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE225A931AEE27BB59C8CBD72A37D81F51C684F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595807   (169096) от 11.12.2022
-
-Doc Holliday - Compilation (2022) [MP3|320 Kbps] <Rock, Southern Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Cat
-02. City Night
-03. Last Ride
-04. Farmer's Tan(   Читать дальше...   )Жанр: Rock, Southern RockПродолжительность: 01:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76FCE2265F7C8775C19034698A24DE3ED870DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672353   (168966) от 28.10.2023
-
-VA - The Message Of The Dark Angel (2023) [MP3|320 Kbps] <Death, Black, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168966.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Whirlwind - Red September [04:51]
-002. Attest - No Sacred Blood [03:06]
-003. Ticinum - Bargniff [06:54]
-004. Dead Sun Rising - Slough [02:55](   Читать дальше...   )Жанр: Death, Black, Heavy MetalПродолжительность: 11:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F251A0EA60E2FC158886B3BE2448AFDBB4ECC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344896   (168209) от 13.12.2019
-
-VA - Mastiff: Hard Rock Music (2019) [MP3|320 Kbps] <Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168209.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. No Home - Separation
-002. It Prevails - Lair Hill
-003. Leeway - I'm Your Pusher
-004. Smeltz - Nemesis(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D47BE1E903CA59B8628A9C1BF2C8C97A0742C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515845   (167899) от 09.12.2021
-
-VA - Raise Your Flag: Rock Worlds Fest (Vol.02) (2021) [MP3|320 Kbps] <Progressive Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следует настроиться на позитивный лад во время прослушивания данного сборника. Правда, позитив этот будет немного заполитизированный, социально направленный и меланхоличный, что подстать состоянию природы за окном.001. White Moth Black Butterfly - Under The Stars
-002. Afi - Tied To A Tree
-003. 187 Strassenbande - Vielen Dank
-004. Professor Electric - Emerging Forth Into The Light(   Читать дальше...   )Жанр: Progressive Rock, Punk, AlternativeПродолжительность: 10:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC383F6AD4A019A3CE3BE0052CCF7E4E7DFE635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515999   (167888) от 09.12.2021
-
-VA - Rebel Rock Box: Punk & Progressive Mix (CD.02) (2021) [MP3|320 Kbps] <Rock Punk, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167888.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наше время панк-рок воспринимается зачастую как стиль, который уже давно пережил свои лучшие годы и музыкальная сцена этого жанра музыки изрядно поредела. Но в последнее время интерес к панк-року начал возрождаться и возможно, причина тому - ответ насилием на насилие, которое происходит в мире и сама обстановка, сложившаяся в мировой политике.001. Graduating Life - Fine
-002. Haexan - Skeletons
-003. Andrйs Calamaro - Jugar Con Fuego Con Raphael
-004. Faro - Down(   Читать дальше...   )Жанр: Rock Punk, Progressive RockПродолжительность: 08:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127A1053EF3B0AC9C6E3B0A64A25DC16AD47B130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515839   (167825) от 09.12.2021
-
-VA - Buste And Flow: Feery Compilation (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агрессивная музыка с философским подтекстом на треках сборника "Buste And Flow". Где каются грешники? Вопрос на который пытаются ответить исполнители песен лонгплея. И есть ли прощение в аду. Но ответа на эти вопросы мы так и не услышим.001. Hail The Sun - Misfire
-002. Dreamwell - Sayaka
-003. Flesh Worship - Anathema I. Solipsistic Stupor
-004. Hostages - No Justice(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 09:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9F62B133582FF40EF41320A07E53AACEA78454
 ```
 
 https://mybot314.ru/tekegram_catalog/

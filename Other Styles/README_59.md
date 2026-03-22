@@ -1,3 +1,119 @@
+###  Публикация: 1128428   (727189) от 25.04.2017
+
+Stive Morgan - Eclipse Of The Moon (2017) [MP3|320 Kbps] <Ambient, Chillout, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solar Wind part 1 (3:52)
+02.  Solar Wind part 2 (5:14)
+03.  Eclipse Of The Moon (5:01)
+04.  Child Of War (4:21)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F2C804604A90C3191EC0A275FED4D79003CCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022982   (726688) от 04.06.2016
+
+Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy's Silver Lining [00:04:12]
+02. Time to Say Goodbye [00:04:29]
+03. Unconditional Love [00:03:57]
+04. Christy Kay's Theme [00:04:12](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B232C1C16FAEB5FBEB85B581182EE2B70C393715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530943   (726652) от 13.02.2022
+
+Piano Pianissimo - Breathe In, Breathe Out and Relax (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road from Ruin (1:53)
+02. From the Rooftops (1:48)
+03. Like Singing Seas (1:50)
+04. Clouds of Gray (2:02)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680B497979580998F26E9BE955E8E05D0FA194FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128793   (726554) от 26.04.2017
+
+Rajendra Teredesai - Moksha - The Path to Inner Peace (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726554.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yog Uday : Dawn Ritual
+ 2. Yog Prabhat : Morning Ritual
+ 3. Yog Nyas : Noon Ritual
+ 4. Yog Sandhya : Sunset Ritual(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C95A939B0C33AD9B7FE982C13A7BEE7107E18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128619   (726456) от 26.04.2017
 
 Kari Rueslatten - To The North (2015) [FLAC|Lossless|image + .cue] <Folk, Nordic, World>
@@ -620,122 +736,6 @@ CD-1: Seven Lazy Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01ED1A91AF60617537E14DB897DC8EDBDC27669A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188994   (722736) от 03.08.2020
-
-VA - Cafe Chillout Ibiza Edition (2008) [MP3|167-233 kbps]<Lo-Fi>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armstrong - Future City 			(04:43)
-02. Orient Team - The Quest 			(04:06)
-03. Del Mar - Evening Cafe (Ibiza Dub) 		(05:28)
-04. Van Der Hayden - Hymn To Love 		(04:58)(   Читать дальше...   )Жанр: Lo-FiПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7286AFE461ABAF191E4E3AEFBB4567AAC074093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129237   (722501) от 28.04.2017
-
-VA - Los clasicos argentinos - Tango - Vol.17 - Francisco Canaro: El ritmo canyengue (1996) [MP3|192 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aromas
-02. Alma de loca
-03. Una cancion
-04. Preludio nochero(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9B3AFC2652620D44EFD06A8BB1D9AB69FB9990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129176   (722262) от 28.04.2017
-
-VA - Enigma & D-Emotion Project (2001) Bootleg [FLAC|Lossless|image + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial - Cang Ding 4:45
-02. Mythos - Planinata 3:24
-03. Delerium - Flatlands 6:57
-04. Mythos - June 4:58(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8209780D95BABBF0C589B2A61DE41240096DF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023776   (722248) от 06.06.2016
-
-Rebekah Long - Here I Am (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Life Sweet (3:55)
-02. The Fightin' Side of Me (3:17)
-03. Hairpin Hattie (3:52)
-04. Here I Am (3:14)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE14C443D2DFB7FA2CBA55C216438B34F7518605
 ```
 
 https://mybot314.ru/tekegram_catalog/

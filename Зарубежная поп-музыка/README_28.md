@@ -1,3 +1,120 @@
+###  Публикация: 1131012   (710667) от 04.05.2017
+
+VA - Move on Up – Dance Music (2017) [MP3|320 Kbps] <RnB, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curtis Mayfield – Move on Up (02:46)
+02. Bloodstone – Stand Up, Let’s Party (05:52)
+03. Norma Jean Wright – Sorcerer (05:01)
+04. Randy Crawford – Street Life (Edit) (04:49)(   Читать дальше...   )Жанр: RnB, Soul, DiscoПродолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97EC72C71E7B1A10318BC451BD92193EB5853A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131073   (710517) от 04.05.2017
+
+Gina T. - 3 Albums (1991-2011) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джина (Gina Tielman) родилась в 1960 году в голландском городке Bussom. С детства она пела и писала стихи, окончила музыкальную школу и подрабатывала сессионной бэк-вокалисткой в том числе и в группе "Rising Sun".
+В конце 80-х продюсер Адам Шайрер с лейбла Bellaphon, ставший некоторое время спустя её супругом, предложил Джине записать сольный сингл. Композиция (   Читать дальше...   )Список альбомов:
+1991 - You Really Got Me
+1992 - The Window Of My Heart
+2011 - Love Will Survive(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Europop, Hi NRG, Ballad, Euro HouseПродолжительность: 02:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6D1C63199EF786396DF142FFC6E89928F80168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219958   (709950) от 16.04.2018
+
+VA - Radio Italia Spring (2018) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709950.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 Non mi avete fatto niente - Ermal Meta & Fabrizio Moro
+02 Nessuno vuole essere Robin - Cesare Cremonini
+03 Da sola / In the night (feat. Tommaso Paradiso e Elisa) - Takagi & Ketra(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD47C2485C4850F61B8D27FBEC1382CFB681BAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532827   (708985) от 22.02.2022
+
+VA - Top Easy Listening Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved
+02. Gracie Abrams - Stay
+03. Maroon 5 - Girls Like You
+04. Xavier Rudd - Follow The Sun(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592232322A02333447878573D330EA85EDD6D38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286704   (708967) от 04.03.2019
 
 ABBA - Classic ABBA (2005) Compilation, Remastered [MP3|320 Kbps] <Pop, Europop>
@@ -629,122 +746,6 @@ Carrie Rodriguez & The Sacred Hearts - Lola (2016) [MP3|320 кб/с] <Pop, Folk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7343608023CB861CFE89BB765F537B49433B860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288631   (694312) от 12.03.2019
-
-VA - Ballermann Hutten Mix 2019 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Ballermann Hьtten Mix 2019, Pt.1
-02. DJ Mix - Ballermann Hьtten Mix 2019, Pt.2
-03. Almklausi & Specktakel - Mama Laudaaa (Aprиs Ski Edition)
-04. Tobee - Helikopter 117 (Mach den Hub Hub Hub) (Aprиs Ski Version)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 04:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8668F63282A4B4395CDF039E00E4DAA52117D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288680   (694305) от 12.03.2019
-
-Eugenio In Via Di Gioia - Natura Viva (2019) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lettera al prossimo (3:17)
-02. Inizia a respirare (3:14)
-03. Altrove (3:09)
-04. Albero (3:11)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDDB6F5683FB109ECD90A8D8A1EAB95A4AEB457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288605   (694195) от 12.03.2019
-
-Carmen - Più forti del ricordo (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabato subito (2:55)
-02. Più forti del ricordo (3:48)
-03. Non è amore (4:00)
-04. Punto a capo (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A795118D84AE176AC8E7E429C70916C5690A579E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403156   (694149) от 18.08.2020
-
-VA - Summer Acoustic (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Johnson - Better Together (3:28)
-02. Vanessa Carlton - A Thousand Miles (3:57)
-03. Corinne Bailey Rae - Put Your Records On (3:35)
-04. Maroon 5 - Sunday Morning (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5680869726E2932A27881340B8BFF172C231254E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1501314   (835193) от 10.10.2021
+
+Yes - The Quest (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835193.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Ice Bridge:
+a. Eyes East
+b. Race Against Time(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967442D8E478EFBABD47799E93468CDB18EFA712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113726   (835082) от 13.03.2017
+
+Bonnie Tyler - The Collection (2013) 2CD [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Total Eclipse Of The Heart (7:00)
+02. Holding Out For A Hero (4:23)
+03. Faster Than The Speed Of Night (4:42)
+04. Take Me Back (5:24)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0834612F555F64776B1D11F3DFB43F76230CD705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461526   (834867) от 10.10.2021
+
+Marillion + Fish - 17 Albums, 18 CD (1983 - 2003) [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Field
+02. Moving Targets
+03. The Rookie
+04. Zoo Class(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 15:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F787984C96C178A9D6CE678AC9F87ED1051D0C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114117   (833735) от 14.03.2017
+
+Thembi - Morning Melody (2009) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Melody (1:44)
+02. Casted Memories (5:53)
+03. Sad Time (4:32)
+04. Glamorous (4:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4EB382FD06CF48CC7A27828EEC549F03CEF69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380656   (833321) от 03.05.2020
 
 Lost Coast - Lost Coast (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Ambient, Post Metal, Drone, Instrumental>
@@ -631,119 +747,6 @@ Phil Collins - Hello, I Must Be Going! (1982) Remaster, 1998, WEA International 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:085E58DF494CFAAB7019AA58081996F68CDFE4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115325   (826451) от 18.03.2017
-
-Genesis - Abacab (1981) Remaster, 1984, Vertigo [FLAC|Lossless|image + .cue] <Pop Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abacab (06:57)
-02. No Reply At All (04:39)
-03. Me And Sarah Jane (05:59)
-04. Keep It Dark (04:31)(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5EA5D6CC624C4FAE668EC23BB21D7D006F30F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115327   (826450) от 18.03.2017
-
-Genesis - Duke (1980) Remaster, 1985, Charisma [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind The Lines (5:43)
-02. Duchess (6:25)
-03. Guide Vocal (1:21)
-04. Man Of Our Times (5:34)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Prog RockПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906041074A23927A8D3AC5A2EB38756134A0C8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115346   (826345) от 18.03.2017
-
-Genesis - Three Sides Live (1982) Box Set 2CD [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Three Sides Live (с англ. - «Три стороны живьём») - третий концертный альбом британской прогрок-группы Genesis, выпущенный 1 июня 1982 года.Жанр: Prog RockПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBFBE666D18D52CA39E01CAA7216590A17152AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115331   (826266) от 18.03.2017
-
-Genesis - Genesis (1983) Remaster, 1987, Vertigo [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama (6:47)
-02. That's All (4:24)
-03. Home By The Sea (5:07)
-04. Second Home By The Sea (6:08)(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, Prog RockПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7B7F292A9E3ACB51990A15831343E719320759
 ```
 
 https://mybot314.ru/tekegram_catalog/

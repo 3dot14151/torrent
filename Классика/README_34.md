@@ -1,3 +1,119 @@
+###  Публикация: 1325109   (416067) от 13.09.2019
+
+Lindsey Stirling - Artemis (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Underground
+02. Artemis
+03. Til the Light Goes Out
+04. Between Twilight(   Читать дальше...   )Жанр: Instrumental, Classical CrossoverПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2495A82F7A8A90F12DC11209678FB9CC397A4991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251501   (415494) от 02.10.2018
+
+The New London Chorale - Live In Concert (2012) A Tom Parker Project [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Say Goodbye
+2.	Stay With Me Till The Morning
+3.	In The Land Of Zion
+4.	Worthy Is The Lamb(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B896DE38450B3CBFD3B05D8589E311C1480AC07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251032   (415493) от 02.10.2018
+
+V.A. - Anita Meyer, Rob de Nijs, Amy Vanmeenen, Edward Reekers - The Commandments (1990) A Tom Parker Project [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad, Religious>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415493.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Overture	       –Tom Parker
+2.	Loving Only You	–Edward Reekers
+3.	All I Need	–Anita Meyer
+4.	Don't Take My Name	–Rob De Nijs(   Читать дальше...   )Жанр: Сrossover Classical, Pop, Ballad, ReligiousПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3049D6925782AA378B6F5294EAA39148B2EDDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250974   (415425) от 02.10.2018
+
+The New London Chorale - The New Amadeus Mozart (1997) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415425.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	My Love
+2.	Stay With Me 'Til The Morning
+3.	No. 39
+4.	A Plan Gone Astray(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301F9C0949DF704BE5486C60FE5886A04A54D7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412734   (413617) от 01.10.2020
 
 Dirk Maassen - An Evening at Wilhelmsburg (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, New Age>
@@ -647,132 +763,6 @@ VA - Reference Classics First Sampling (1990)[FLAC|Lossless]<Classical Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEBCF182E3F851C6237E5DEFAF9784C8A621744E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563536   (403387) от 22.10.2012
-
-Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403387.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:41) 01. Magyar tAncok No. 5
-(1:55) 02. Monti csardas (intro)
-(3:06) 03. Monti csardas
-(3:47) 04. Torok indulo
-(3:16) 05. Magyar tancok No. 1
-(3:19) 06. Carmen nyitany
-(3:30) 07. Kan-kan
-(3:14) 08. Hegykiraly barlangjaban
-(4:29) 09. Que rico el mambo 'mambo - jambo'
-(3:07) 10. Palotas (a Hunyadi Laszlo c. operabol)(   Читать дальше...   )Жанр: Classical crossover, ViolinПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF38242FFB5C60ABA347AD74C9A82CEFAF66F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563887   (402791) от 23.10.2012
-
-VA - Kopfbezogene Stereophonie "Klassik 1" (1988) 2 Binaural CD[FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бинауральная запись - это техника записи, при которой микрофоны помещаются в слуховые каналы «искуственной головы» (манекена). Бинауральная запись содержит пространственные детали, определяемые физической структурой искусственной головы. При прослушивании бинауральной записи через головные телефоны с потрясающим реализмом воссоздается исходное трехмерное акустическое пространство.
-(   Читать дальше...   )Johannes Brahms (1833-1897)
-01. Sinfonie Nr. 1-I. Allegro [14:13]
-02. Sinfonie Nr. 1-II. Andante [10:55]
-03. Sinfonie Nr. 1-III. Un poco allegretto e grazioso [04:52]
-04. Sinfonie Nr. 1-IV. Adagio-Allegro non troppo, ma con brio [18:20]
-Domenico Gaetano Maria Donizetti (1797-1848)
-05. Concertino fur Englisch Horn und Orchester-Andante [07:27]
-06. Concertino fur Englisch Horn und Orchester-Allegro [03:48]
-Christoph Willibald Ritter von Gluck (1714-1787)
-07. Ouverture zur Oper 'Iphigenie in Aulis' [13:12]Жанр: ClassicalПродолжительность: 02:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D157070AF8005E340E9C8256609BDC0AFFA50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564043   (402745) от 23.10.2012
-
-J.S. Bach - Goldberg Variations BWW 988 on organ (Elena Barshai) (2007) [FLAC|Lossless]<Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E90E2244693E2223F47A23BE781F8DD850C758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565004   (400789) от 25.10.2012
-
-Mozart, Beethoven, Schumann, Schubert, Grieg - Piano Concertos: Svjatoslav Richter (1990) [FLAC|Lossless]<Classical Period, Concerto, Sonata, Fantasy>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical Period, Concerto, Sonata, FantasyПродолжительность: 00:58:50 - CD1
-01:12:02 - CD2
-01:07:23 - CD3
-01:06:28 - CD4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830FFE0C9B0D0BA2F60CC255BC2586F94D54882E
 ```
 
 https://mybot314.ru/tekegram_catalog/

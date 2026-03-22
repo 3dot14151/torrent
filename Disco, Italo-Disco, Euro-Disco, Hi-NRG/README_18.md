@@ -1,3 +1,32 @@
+###  Публикация: 1542443   (637257) от 07.04.2022
+
+Atmosfear - Dancing In Outer Space (2000) Compilation [MP3|320 Kbps] <Electronic, Funk Soul, Jazzdance, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In Outer Space (9:36)
+02. Outer Space (6:07)
+03. Motivation (8:50)
+04. Extract (5:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Jazzdance, DiscoПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF74FFEB181A433FA2A8BB4908641944902D0BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228148   (635679) от 01.06.2018
 
 C.C. Catch - The Album - Remastered (2017) Limited Edition [MP3|320 Kbps] <Euro-Disco>
@@ -720,35 +749,6 @@ VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230538   (614059) от 13.06.2018
-
-Mystic - 4 Singles (1977) 7" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Disco Love Affair (3:59)
-02.  Disco Symphony (3:52)
-03.  In The Year 2525 (4:21)
-04.  Dance Tonight (2:56)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C634BD4FAF7A6820FA38194EF046CFCAC5DBBD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

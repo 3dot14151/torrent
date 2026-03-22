@@ -1,3 +1,61 @@
+###  Публикация: 1457980   (1024258) от 27.03.2021
+
+Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard Dance, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludwig van Beethoven - Moonlight Sonata (Blasterjaxx Remix)
+02. Danimal - Wolves
+03. Justin Prime & Vito Mendez - Rebirth Of Sound
+04. Darius & Finlay - Superbeast(   Читать дальше...   )Жанр: Hard Dance, Big RoomПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E39E889367E116784186A36CAA0BC2412AAF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457976   (1024254) от 27.03.2021
+
+David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cardi B ft. Megan Thee Stallion - WAP (David Guetta Bootleg)
+02. Cloverdale - Open Up
+03. David Guetta & MORTEN - Kill Me Slow
+04. Danny Avila ft. Ruby Prophet & PollyAnna - My Blood(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E494584251F792C1455EDBED5FDE0C21DA3974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460928   (1022302) от 07.04.2021
 
 The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ DJ S.I.D.R. - Keep It Ob'ecore Podcast # 1-20 (2013-2015) [MP3|320 кб/с]<Happ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCED436A21C0C87E465DBBB4ED5454FCE4B3CF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358808   (967433) от 09.02.2020
-
-VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daniel Skyver:
-01. Alex Di Stefano - Escape From The Past (Skyver intro edit)
-02. Cirez D - In The Reds
-03. Ruben de Ronde & PROFF feat Deirdre McLaughlin - Fade Away With Me (Key 4050 remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D292BBF66BDBEC29EA940EBD7AF6B47C6D17AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978165   (964584) от 22.01.2016
-
-Dj Sveta - My City (2016) [MP3|320 кб/с] <Progressive House, House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remcord - Saed (Original Mix)
-Lucas Rossi - No Expectations (Original Mix)
-Advent's Rising - Return (Matter Remix)
-PAX - Fated(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144C093246B57F71D73141FFCD54BEEC7FBD78B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

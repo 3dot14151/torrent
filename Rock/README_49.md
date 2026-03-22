@@ -1,3 +1,154 @@
+###  Публикация: 931633   (511752) от 26.08.2015
+
+Santana - Greatest Hits (2012) 3CD [MP3|320 кб/с]<Latin Rock, Blues Rock, Jazz Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Europa (Earth's Cry, Heaven's Smile)
+02. Let The Music Set You Free
+03. Well All Right
+04. Stormy(   Читать дальше...   )Жанр: Latin Rock, Blues Rock |Продолжительность: 02:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B171162317958C5B192C6E27F489B1F2A374E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536603   (510580) от 22.08.2012
+
+Protos - The Noble Pauper's Grave (2007) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born a Bit Blue (3:10)
+02. Pause for Thought (0:45)
+03. Travels (5:12)
+04. Gathering Dreams (0:20)
+05. The Rally (11:44)
+06. Long Dark Night (0:39)
+07. The Final Dawn (2:53)
+08. The Noble Pauper (0:58)
+09. Outcry (10:54)
+10. Turmoil (0:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEBEEC36EB39FB1568E6B9C11A176A2455B175A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932204   (510269) от 28.08.2015
+
+Introitus - Fantasy (2007) [MP3|320 кб/с]<Symphonic Rock, Progressive Rock,  Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis (7:17)
+02. Child (5:56)
+03. Ghost (9:12)
+04. Fantasy (26:02)(   Читать дальше...   )Жанр: Symphonic Rock, Progressive Rock,  ExperimentalПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE210A6EB87432ABED123AD147DF4E3453700B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932025   (510195) от 28.08.2015
+
+Fink - Fresh Produce (2000) [MP3|320 кб/с]<Electronic, Downtempo, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tubb Journey (6:36)
+02. Fink Vs DJ Alicat (6:49)
+03. We Are Ninja (6:01)
+04. Break N Enter (5:55)(   Читать дальше...   )Жанр: Electronic, Downtempo, Indie RockПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A0261BCA1D3F850AB7D700DE69DA30CC671D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932209   (510193) от 28.08.2015
+
+Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]<Progressive Rock,  Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tides Of Time (7:48)
+02. Minion (6:56)
+03. Hell's Not Enough (6:24)
+04. Bennett Built A Time Machine (6:56)(   Читать дальше...   )Жанр: Progressive Rock,  Symphonic RockПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C12C7B64995332AFEB356AF9CA51989CDFBEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932226   (509469) от 29.08.2015
 
 Edison's Children - Somewhere Between Here And There... (2015) [MP3|320 кб/с]<Progressive Rock>
@@ -636,157 +787,6 @@ Ian Gillan - Contractual Obligation #2 Live in Warsaw (2019) [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6C5822B07F1B52080079934F096CF30F00D51BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933964   (504501) от 03.09.2015
-
-Riverside - Love, Fear and the Time Machine (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost (Why Should I Be Frightened By A Hat?)
-02. Under The Pillow
-03. Addicted
-04. Caterpillar And The Barbed Wire(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57C693E96B3F39F8E5D291FEAEF5442AF5910C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540078   (504500) от 28.08.2012
-
-Creedence Clearwater Revival - The Best Of C.C.R. (Japanese Edition) (1985) [MP3|320 кб/с]<Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504500.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Suzie Q (4:40)
- 2. I Put A Spell On You (4:30)
- 3. Proud Mary (3:05)
- 4. Green River (2:34)
- 5. Bad Moon Rising (2:20)
- 6. Down On The Corner (2:46)
- 7. The Midnight Special (4:13)
- 8. Travellin' Band (2:08)
- 9. Up Around The Bend (2:41)
- 10. Who'll Stop The Rain (2:29)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22566A8844DFA8C2FC9F972425D698E2122078E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563514   (503714) от 15.07.2022
-
-Beth Hart - Livе Аt Тhе Rоуаl Аlbеrt Наll (2018) 2xCD [MP3|320 Kbps] <Rock, Blues Rock, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503714.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. As Long As I Have A Song (02:43)
- 02. For My Friends (04:21)
- 03. Lifts You Up (03:57)(   Читать дальше...   )Жанр: Rock, Blues Rock, SoulПродолжительность: 02:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF9CEB0CB04B6EAF34C4041DB262BA884EC425A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563849   (502765) от 16.07.2022
-
-Lucid Grave - Cosmic Mountain (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, Dark>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cosmic Mountain
-02 Old Spirit
-03 I'm Still High
-04 I Feel the Fire(   Читать дальше...   )Жанр: Heavy Psych, Stoner, Doom, DarkПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D98D8023038E196D2F48872C6999203A0A74C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563846   (502764) от 16.07.2022
-
-Josiah - We Lay On Cold Stone (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rats (To The Bitter End)
-02 Saltwater
-03 Let The Lambs See The Knife
-04 Cut Them Free(   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED94A9C42ABD02918758CC5EDA2814DA8BB45F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1027189   (698462) от 18.06.2016
+
+John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From "The Nice Guys" (02:01)
+02. Kids Today (03:23)
+03. Disco Party Fight (04:00)
+04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E90FB61B9FBCA93A4FBA5C3BE58FD75CE5989D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027190   (698242) от 18.06.2016
+
+John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From "The Nice Guys" (02:01)
+02. Kids Today (03:23)
+03. Disco Party Fight (04:00)
+04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C3E580776AB4719E290A3672AA33D9CA439196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027103   (698122) от 18.06.2016
+
+Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelpcake (00:46)
+02. Finding Dory (Main Title) (00:55)
+03. Lost at Sea (01:36)
+04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C728B895B0797A921083FB96EE41D8716E8B43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027169   (697914) от 18.06.2016
+
+Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен против Супермена: На заре справедливости (2016) [FLAC|24/44.1|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood of My Blood (04:31)
+02. Vigilante (04:02)
+03. May I Help You, Mr. Wayne?(03:34)
+04. They Were Hunters (02:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DE33AA3018E7306E791535A573B88BBE885392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288140   (697766) от 10.03.2019
 
 Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -78,6 +194,41 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332404   (697360) от 05.05.2011
+
+Хор Сретенского монастыря - Кто ны разлучит от любве Божия... (2001) [MP3|320 kbps]<Духовные песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_697360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Заупокойное поминовение
+ 02 - Предначинательный псалом
+ 03 - Блажен муж
+ 04 - Свете Тихий
+ 05 - Стихира русским святым
+ 06 - Земле Русская
+ 07 - О преславнаго чудесе
+ 08 - Ныне отпущаеши
+ 09 - Тропарь свщмч. Илариону
+ 10 - Богородице Дево, радуйся(   Читать дальше...)Жанр: Православные песнопенияПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,148 +757,6 @@ Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64F9FF2629F3FFFE68A67BC5FEAA8A22DD26F42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741387   (694165) от 20.06.2016
-
-Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat, Rautalanka>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Guitar, Beat, RautalankaПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF414FCD78CF4246A59D487924AB18710EE8BEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027678   (694052) от 20.06.2016
-
-Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture Soundtrack) (1984) (Remastered 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (02:40)
-02. Terminator Arrival / Reese Chased / Sarah On Motorbike (07:09)
-03. Terminator Gets Guns / Search For Sarah (01:13)
-04. Reese Dreams Of Future War (01:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F8C30A5FAEE09CDAB6B54ACD973506B981C43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221131   (692994) от 25.04.2018
-
-David Osborne - Best of David Osborne: Solo Piano Performances (2018) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listen to Your Heart
-02. On the Wings of Love
-03. When I Was Your Man
-04. To Where You Are(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D560EF3C1693AA3DB845E156C4E04E8F8D0CF9D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221154   (692993) от 25.04.2018
-
-George Toward - Red Fantasies - Rhythms of Pure Romance (2018) [MP3|256 Kbps] <Instrumental, Jazz, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Compilation (3:22)
-02. Open Your Heart (3:23)
-03. Slow Seduction (2:55)
-04. Champagne (3:25)(   Читать дальше...   )Жанр: Instrumental, Jazz, Easy ListeningПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD9C9D76DC0573E0F90404A1FE25CCFF4F2C1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027961   (692964) от 21.06.2016
-
-Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vietnam War IV (01:41)
-02. Trials of the Blood Dragon (03:37)
-03. Bullet Proof (01:51)
-04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

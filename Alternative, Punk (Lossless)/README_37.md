@@ -1,3 +1,120 @@
+###  Публикация: 1568994   (455809) от 11.08.2022
+
+Coal Chamber - The Complete Roadrunner Collection 1997–2003 (2013) box set [FLAC|Lossless|image + .cue] <Alternative, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Headstones And The Walking Dead
+02 - Big Truck (Hand-On-Wheel Mix)
+03 - Pig (Original Version)
+04 - Bradley (Going Postal Mix)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 01:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DF7B0918E8D9446E68166F5E03B18B0E9EEA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 825227   (455375) от 29.09.2014
+
+Ляпис Трубецкой - Капитал (2007) [FLAC|image + .cue]<Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Золотая Антилопа   (3:38)
+02.   Капитал   (3:16)
+03.  Гойко Митич   (3:37)
+04.  Керчь-2   (3:23)(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C78B79703C04E7B8A10A0EDB5F48ED4AAA9DA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247114   (454942) от 14.09.2018
+
+Zoot Woman - Redesigned (2018) Anthology [FLAC|Lossless|tracks + .cue] <Acoustic, Alternative Rock, Folk Rock >
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than Ever (03:12)
+02. Grey Day (02:49)
+03. Ordinary Face (02:52)
+04. Holiday Home (02:35)(   Читать дальше...   )Жанр: Acoustic, Alternative Rock, Folk RockПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB118798E377762F4E36206C4FB57742EE82EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247299   (454937) от 14.09.2018
+
+Frank Zappa - Finer Moments (2012) 2CD [FLAC|Lossless|tracks + .cue] <Avantgarde, Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454937.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Intro (1:20)
+ 02. Sleazette (3:33)
+ 03. Mozart Piano Sonata In B♭ (6:22)(   Читать дальше...   )Жанр: Avantgarde, Psychedelic Rock, Prog RockПродолжительность: CD1 - 00:41:54
+CD2 - 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D6D06A35C91A2EA5661D388C5ADFA373966A2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247110   (454545) от 14.09.2018
 
 Jungle - For Ever (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -628,122 +745,6 @@ Marilyn Manson - We Are Chaos (2020) Japan [FLAC|Lossless|tracks + .cue] <Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7A10636C4BEBAC43B6F8E1899BCD16CF8813A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062755   (439255) от 14.10.2016
-
-Alter Bridge - The Last Hero (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me A Leader
-02. The Writing On The Wall
-03. The Other Side
-04. My Champion(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7141B3B8571D32FA4D31D6EF9595E85E539588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164658   (439060) от 10.09.2017
-
-Tori Amos - Native Invader (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reindeer King
-02. Wings
-03. Broken Arrow
-04. Cloud Riders(   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC333F9FD07C7DBAFCCDA405DF9756F35B33FA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410274   (438436) от 20.09.2020
-
-Fall Out Boy - Believers Never Die (Greatest Hits) (2009) Limited Edition [FLAC|Lossless|tracks + .cue] <Punk, Emo, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead On Arrival (3:16)
- 02. Grand Theft Autumn/Where Is Your Boy (3:12)
- 03. Saturday (3:38)
- 04. Sugar, We're Goin Down (3:51)(   Читать дальше...   )Жанр: Punk, Emo, Power Pop, Pop RockПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2001C4FA550A4A53EF2B997B664EB5748B6592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164899   (437047) от 11.09.2017
-
-Katatonia - The Great Cold Distance (2006), Reissue, 2017, Peaceville, [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LEADERS (4:21)
- 02. DELIBERATION (4:00)
- 03. SOIL'S SONG (4:12)
- 04. MY TWIN (3:41)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4288CFBCB8D5628387BA7842E5F7F9A5B2B6DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

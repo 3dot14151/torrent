@@ -1,3 +1,92 @@
+###  Публикация: 1114087   (835289) от 13.03.2017
+
+Road To Ruin - Road To Ruin (2007) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда гитарист Ларс Крисс (Lion`s Share) и басист-клавишник Сампо Аксельссон (Glenn Hughes) встретились в 2005-м году, то решили основать команду, играющую классическиий хард-рок в духе Rainbow, Thin Lizzy, Whitesnake, Deep Purple, Led Zeppelin, Black Sabbath и так далее. Когда в 2006-м к ним присоединились барабанщик Томас Броман (Electric Boys, Glenn Hughes, Audiovision, (   Читать дальше...   )01. The Only One (3:53)
+02. Pale Rider (5:12)
+03. Face Of An Angel (4:28)
+04. Pleasure And Pain (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF4887FFC919578D7E19135DE6D9F753EBBF303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501457   (835194) от 10.10.2021
+
+Grinder Blues - El Dos (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа GRINDER BLUES, в состав которой входит легенда Doug Pinnick (KINGS'X), Jabo Bihlman на гитаре и вокале и Scot "Little" Bihlman на ударных, перкуссии и вокале, выпустили вторую работу, получившую название "El Dos", 24 сентября 2021 года на Metalville Records.
+
+«Grinder Blues» - это выброс адреналина в самое сердце. Их оригинальные высоковольтные (   Читать дальше...   )01. Another Way Round (04:54)
+02. Everybody (02:47)
+03. Gotta Get Me Some of That (04:21)
+04. Who Wants a Spankin (03:26)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C78908291214BDC022681BFFC31E6E5B3B08C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113603   (834976) от 13.03.2017
+
+Deep Purple - Limitless (2017) Compilation [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time For Bedlam (4:34)
+ 02. All I Got Is You (4:41)
+ 03. All The Time In The World (Radio Mix Version) (3:49)
+ 04. First Sign Of Madness (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5326E3A3062B906487F5B00B9C826243EAB8078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005309   (834566) от 08.04.2016
 
 BlackRain - Released (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
@@ -659,93 +748,6 @@ Hard Action - Hot Wired Beat (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95B5EF3440F64519053305C2714D2AE9852BE6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007966   (818009) от 17.04.2016
-
-Trancemission - Paranoia (2015) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Holle Rache Kocht In Meinem Herzen    00:31
-02. Queen Of The Night    03:24
-03. Killer    04:22
-04. Make My Day    03:33(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080EADCFFD16C341480C4C6210CB6D9F7154EFF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197240   (817724) от 06.01.2018
-
-Agent Cooper - Beginner's Mind (2005) [FLAC|Lossless|image + .cue] <Hard Rock,  Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East Indian Sun (5:35)
-02. Shallow Disease (4:01)
-03. ...In The Bottle (3:53)
-04. Taipei (3:52)(   Читать дальше...   )Жанр: Hard Rock,  Progressive RockПродолжительность: 00: 46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E091A67F129202124E97786C06DFACC99D50508F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117943   (815490) от 24.03.2017
-
-Derwood - Renegade (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Away (3:49)
-02. Cold Blooded (3:48)
-03. Did My Best (3:57)
-04. Reckless (3:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885750434AB4A157BEBAE7DCF1E04685952DFE19
 ```
 
 https://mybot314.ru/tekegram_catalog/

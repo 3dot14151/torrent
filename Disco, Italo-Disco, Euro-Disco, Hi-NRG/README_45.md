@@ -1,3 +1,32 @@
+###  Публикация: 1679570   (138030) от 25.11.2023
+
+The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings [MP3|320 Kbps] <Electronic, Disco, Nu-Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Giving Me Something Better (feat. Obi Franky) (Aeroplane Remix) [00:03:31]
+02 - Slippery People (feat. Ramona Renea & Fiorious) (Sophie Lloyd Remix) [00:03:31]
+03 - Tell Me It's Not Over (feat. Adi Oasis) (Cosmodelica Remix) [00:03:22]
+04 - You Ain't Love (feat. Teni Tinks) (Ray Mang Remix) [00:03:25](   Читать дальше...   )Жанр: Electronic, Disco, Nu-Disco, HouseПродолжительность: 02:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA446A81D63E76BB20C915DB4F090D39319D5AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679483   (137872) от 25.11.2023
 
 Klaus Wunderlich - Wunderlich Pops 7 (1978) LP [MP3|320 Kbps] <Easy Listening, Instrumental, Disco>
@@ -715,35 +744,6 @@ Edwin Starr - H.A.P.P.Y. Radio (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CA36F0682C492048B2808ECC246B8B4431E2E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749537   (104347) от 14.09.2024
-
-Barock Disco Band - Disco Classical Fever (1979) LP [MP3|320 Kbps] <Funk Soul, Classical, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Can Can (2:57)
-02. Toreador's Boogie (3:27)
-03. Sabre Dance Salsoul (2:59)
-04. Tonight We Love (2:38)(   Читать дальше...   )Жанр: Funk Soul, Classical, DiscoПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18B1D66F356E3133E1651C8C3C0FEC864230B9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

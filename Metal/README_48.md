@@ -1,3 +1,120 @@
+###  Публикация: 1143063   (637333) от 17.06.2017
+
+Black Sun - The Puppeteer (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Robert the Doll (5:20)
+2. Wasted Love (4:06)
+3. Let Me Be (feat. Netta Dahlberg) (4:26)
+4. The Puppeteer (4:00)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE68C9741B61449D62E093C424FDFB611227FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541414   (637263) от 07.04.2022
+
+PanzerkreuzeR - October (2022) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreadnought
+02. Isu-152 (Beast Killer)
+03. Immortal Victims
+04. The Battle Is Going Again(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F10C1433C3368FEA542A9489DDB3AF892BB5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907726   (636162) от 13.06.2015
+
+Diabolicum - Ia Pazuzu (The Abyss Of The Shadows) (2015) [MP3|320 кб/с]<Industrial Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baxxar Ehl Uhza (0:13)
+02. Void of Astaroth (4:00)
+03. Silent Spring (5:49)
+04. Genocide Bliss (5:49)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F86790F665510D9266CA87A4AC6BDE82F92266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908025   (635972) от 13.06.2015
+
+Dead of Night - The Dead Shall Rise (2015) [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом группы Dead Of Night — The Dead Shall Rise. Dead Of Night создает мощный, атмосферный и, прежде всего, симфо-метал. Удивительный вокал Кортни парит над ослепительно договоренностей композитора и клавишника Карла 'Маэстро' Eden, все время опирается на мощный гитарный работы Hadian Гейтса.
+Рекомендуется к прослушиванию поклонникам Nightwish, Epica или (   Читать дальше...   )01. Touched By The Hand Of God
+02. Black Lace And Roses
+03. Highwayman
+04. As I Am Now So Shall You Be(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9190247460F749727AD7C452A23D7635E0D0513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228615   (635826) от 01.06.2018
 
 Kataklysm - Meditations (2018) [MP3|320 Kbps] <Melodic Death Metal>
@@ -627,125 +744,6 @@ Whispered - Sakura Omen (2015) Single [MP3|320 кб/с]<Melodic Death Metal, Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:590E569D5EEEEB99638AA5F7B38732741CF3EB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543184   (627903) от 12.04.2022
-
-Voices Of Grief - Verses About Sin And The Guise Of Sorrow (2022) [MP3|320 Kbps] <Black, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purgatory [00:01:23]
-02. Whores (The Curse Is Exorbitant Pride) [00:06:47]
-03. In Ominous Reverie [00:09:33]
-04. Don't Blame Me For My Cold Skin [00:06:23](   Читать дальше...   )Жанр: Black, Doom MetalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0717B086F12040765BA3C52055635CE41E6F7208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521014   (627216) от 11.07.2012
-
-Power Theory - An Axe To Grind (2012) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627216.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Edge Of Knives (4:59)
-2. Deceiver (6:43)
-3. Puresteel (5:03)
-4. An Axe To Grind (5:29)
-5. A Fist In The Face Of God (3:59)
-6. The Seer (5:39)
-7. On The Inside (5:26)
-8. Colossus (3:54)
-9. The Hammer Strikes (Mjolnir's song) (7:28)Жанр: Heavy MetalПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0B7489D75EA22A52E4BCC438B0A4D5DE0BE4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035734   (626644) от 17.07.2016
-
-Despised Icon - Beast (2016) [MP3|320 Kbps] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aftermath (03:37)
-02. Inner Demons (03:12)
-03. Drapeau Noir (03:07)
-04. Bad Vibes (02:57)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B51D51784F842ECB5588260A7C242655D4E4036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909766   (626521) от 18.06.2015
-
-In Cauda Venenum - In Cauda Venenum (2015) [MP3|320 кб/с]<Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ωlpha (21:02)
-02. Θmega (21:06)Жанр: Post-Black MetalПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8AB3DF613EC5BE4A13AF5391CFF71112591A82
 ```
 
 https://mybot314.ru/tekegram_catalog/

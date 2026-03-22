@@ -1,3 +1,56 @@
+###  Публикация: 1354784   (986809) от 23.01.2020
+
+Проекты - VideoHive - The Underwater Short Intro - 25496190 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986809.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Underwater Short Intro - современный, стильный и эффектный проект от St_Denis. С помощью этого шаблона Вы сможете продемонстрировать свой логотип или бренд для своей аудитории.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F853BE4302DC6299F04AFFEF82EA56DDE545A6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974865   (975390) от 12.01.2016
+
+Проекты - VideoHive - Car Logo Opener - 9959555 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эффектного логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678B4F0ADB0B8B6BABDAFFDA507A94C680102E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975295   (972955) от 14.01.2016
 
 Проекты - VideoHive - Diamond Logo [AEP]
@@ -634,59 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F99C2B4806A66ABADE5C500DBE2B5C3FA464EFA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984454   (940082) от 08.02.2016
-
-Проекты - VideoBlocks - Groundbreaking [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания текстового логотипа.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CF29DE59F116CCF7835CD3DA72AFF62067DEA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092328   (939568) от 11.01.2017
-
-Проекты - Sony Vegas Pro - Minecraft Logo [VEG]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и стильный проект для демонстрации логотипа.Формат: VEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CE4AC7A0B8FAE8215065D6BE81F246E37F854B
 ```
 
 https://mybot314.ru/tekegram_catalog/

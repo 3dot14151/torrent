@@ -1,31 +1,25 @@
-###  Публикация: 477525   (98509) от 03.04.2012
+###  Публикация: 1762185   (102955) от 24.11.2024
 
-VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98509.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Adele - Set Fire To The Rain (The Perez Brothers Remix)
-02 Alexandra Burke feat. Erick Morillo - Elephant (Wideboys Club Mix)
-03 Alex M.O.R.P.H. feat. Sylvia Tousun vs. Gaia - An Angels Tuvan (Coleman Hamilton 'Stryker Memorial' Mashup)
-04 Armin Van Buuren - Orbion (Max Graham, Protoculture Remix)
-05 Betsie Larkin & Sied Van Riel - The Offering (Extended Mix)
-06 Betsie Larkin & Sied Van Riel - The Offering (Save The Robot Remix)
-07 Courtney Argue & J.Greene feat. Pitbull - Make It Rain (RLS & 2Frenchguys Extended Remix)
-08 Daddy's Groove & Little Nancy - It's Not Right, But It's Okay (Extended Mix)
-09 Damon Paul Feat Patricia Banks - Without You (Sven & Olav Mix)
-10 Deep Voices feat. Alexander K.G. Klaus - Because The Rain (Space RockerZ Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 5:43:58
+WoodScream - фолк-метал группа из Санкт-Петербурга, Россия, основана в 2006 году.2010 - Pentadrama (EP)
+2014 - Octastorium
+2020 - Варево
+2024 - Чёрные птицыЖанр: Folk MetalПродолжительность: 02:10:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
+magnet:?xt=urn:btih:F706457ED67CA3E25B467667BBE9EB07109DDA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477001   (98508) от 03.04.2012
+###  Публикация: 1762081   (102954) от 24.11.2024
 
-Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic Death,with Middle Eastern influences>
+VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98508.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Last Breath 05:36
-02. What Remains 03:45
-03. Voices From Within 05:28
-04. Fading 03:49
-05. A Soft Whisper 04:14
-06. Reveal My Path 03:41
-07. Escaping the Mind-Grid 06:03
-08. Obscure 03:24
-09. Theom 01:22
-10. Consistent Duality 05:22(   Читать дальше...   )Жанр: Gothic Metal,Melodic Death,with Middle Eastern influencesПродолжительность: 00:52:53
+01. AYUUB - Teemo (Extended Mix) [5:09]
+02. Adip Kiyoi - Queen Of Zee (Extended Mix) [7:26]
+03. Kaselia - Albatross (Extended Mix) [6:31]
+04. Christopher Corrigan - Vanishing Echoes (Extended Mix) [6:40](   Читать дальше...   )Жанр: TranceПродолжительность: 03:14:55
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4F095F0E97D3DF4C0CC5ECE3ADBC56AE27B598CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,182 +56,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477660   (98504) от 03.04.2012
+###  Публикация: 1762216   (102953) от 24.11.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (04.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854AD789E2035878F2D2C41AF4129E8C81A345C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477623   (98503) от 03.04.2012
-
-VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Contraband - Rocknrolla (Original Mix)
-02 Azari & Iii - Reckless (With Your Love)
-03 Bara Brost - Madame Mila
-04 Blue Foundation - Bonfires (Dubstep)
-05 Boris Brejcha - My Love
-06 Duck Sauce - Big Bad Wolf
-07 Maceo Plex - Ain't That Love
-08 Spektre - Get Together (Original Mix)
-09 Whitenoize - The Underground (Tjr Remix)
-10 Ticon - The Programmer (Spektre Remix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 10:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476231   (98501) от 03.04.2012
-
-VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Techno, Dubstep, Drum&bass, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcel Woods - Champagne Dreams ( Original Mix )
-02. David Forbes - Safety ( Original Mix )
-03. Toper & Andrian - Laziness ( Original Mix )
-04. Octane & DLR feat TST - Red Tape ( Original Mix )
-05. Cliff Coenraad - Modulate ( Original Mix )
-06. Pfirter - The Dub Track ( Len Faki Remix )
-07. Tommy Trash - Cascade ( Original Mix )
-08. Broken Note - War In The Making ( Original Mix )
-09. Schelmanoff - Roof Wanted ( Original Mix )
-10. Utopia - Scan Me ( Original Mix )(   Читать дальше...   )1997-2012Жанр: Progressive house, Electro, Techno, Dubstep, Drum&bass, ElectronicПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378AD882309B3DE5C8BF21E390989F44C591707E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477501   (98499) от 03.04.2012
-
-VA - Весенняя танцевальная вечеринка (2012) [MP3|160-256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Аника Далински - От Заката До Рассвета (3:15)
-2. Шахзода - Нереально без тебя (DJ Kirill Clash radio remix) (3:27)
-3. Джиган (Geegun) feat. Жанна Фриске - Ты Рядом (3:27)
-4. Milena & Denis Murzin - До Утра (Filipp Aniskin Remix) (3:22)
-5. Leyla - Ночной DJ (3:45)
-6. Глюкоза - Кошка (3:23)
-7. Mixi - Между Мной И Тобой (Dj Andy Wait Remix) (4:02)
-8. Слава - Люди любят (3:11)
-9. Нимфа - Доминикана (3:30)
-10. Глюк`oza - Хочу мужчину (DFM mix) (3:15)2012Жанр: PopПродолжительность: 06:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6E3F346F64A5DBA6DF89EE3BAE5276AFEEAFFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477662   (98497) от 03.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (04.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA409F92BB64958BF4C5B35D19CC7B722D34821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477683   (98496) от 03.04.2012
-
-Журнал | Дача и дачники №3 [апрель 2012] [PDF]
+Газета | Невыдуманные истории №45 (449) (ноябрь 2024) [PDF]
 
 >>Журналы
->>Домоводство (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98496.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале вы найдете советы опытных садоводов, цветоводов и огородников. А также большая часть издания посвящена развлекательным разделам. Два десятка сканвордов, грустные и смешные дачные байки, интересные истории из жизни дачников – после напряженного трудового дня есть с чем расслабиться. Оторваться от журнала в минуты отдыха просто невозможно: ведь большую его часть написали простые люди – дачники, которые умеют хорошо работать и хорошо отдыхать на своем любимом участке.апрель 2012Формат: PDF
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3913C6405DE1910A55FD84BFC56FFEB260B5B765
+magnet:?xt=urn:btih:3AC54FFE3A31957F7F6CEDC51A7914A325B8D5F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,29 +83,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477305   (98495) от 03.04.2012
+###  Публикация: 1762123   (102952) от 24.11.2024
 
-[Wallpapers] Desktop Wallpapers Pack 34
+Своя игра (23.11.2024) WEBRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98495.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 34 
-Название:  Desktop Wallpapers Pack 34 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1418х1065 - 4968х1572
-Расширение (тип) файлов: jpgСкриншоты::tongue:Время раздачи: 24/7 - круглосуточно
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
+magnet:?xt=urn:btih:7156B85E7A42E14962128B94AB9BC805CC8F6987
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,25 +109,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477468   (98492) от 03.04.2012
+###  Публикация: 1762213   (102951) от 24.11.2024
 
-Журнал | Stuff №4 [апрель 2012] [PDF]
+Газета | Невыдуманные истории №43 (447) (октябрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98492.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журналапрель 2012Формат: PDF
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
+magnet:?xt=urn:btih:6B68F861212769E4129C6324D994C1D5D5EFA5B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,185 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477180   (98491) от 03.04.2012
+###  Публикация: 1762048   (102950) от 24.11.2024
 
-Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive | Post-Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glasnost
- 02. Murdocracy
- 03. Division
- 04. ReconnectЖанр: Alternative Metal | Progressive | Post-MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477185   (98486) от 03.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (03.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7830E2EF543B8211CCD304D47D76A9481B57D7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477167   (98485) от 03.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (02.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476579   (98484) от 03.04.2012
-
-Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Grindcore / Goregrind / Death'Roll>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Nota Maron
- 02. Fecal Deluxe Party
- 03. El Modelo Shitman
- 04. Lord Of The Gas
- 05. Las Tías Buenas No Cagan
- 06. Cagando En Arguelles
- 07. Coprovoyeur
- 08. Vejado Por Gordas Deprvadas
- 09. Salcedo's Adventure
- 10. Coprosicion Incedente(   Читать дальше...   )2011Жанр: Grindcore / Goregrind / Death'RollПродолжительность: 00:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477392   (98483) от 03.04.2012
-
-VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Molla & Marquis - Self Control (Radio Edit)
-02. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri Feat. Mat Twice - Tell Me Waf
-03. Example - Changed The Way You Kiss Me (Mike Candys Remix)
-04. Armin Van Buuren Pres. Gaia - Stellar (Original Mix Edit)
-05. Scooter Feat. Vicky Leandros - C'est Bleu
-06. Lady Gaga - Marry The Night (David Jost Twin Remix)
-07. Basto! - Again And Again (Bassanova And Moradzo Remix)
-08. Dj Smash & Chinkong - Lifemission (Radio Edit)
-09. Dj Rynno And Sylvia - Feel In Love (Radio Edit)
-10. Alexandra Stan - Crazy (Nir Ozer Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB65284B810A5697469B4B5282DD1C29CEBBFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477672   (98482) от 03.04.2012
-
-New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
+Hidden - Dead Land Energy (2011) [FLAC|Lossless|image + .cue] <Progressive Black Doom Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98482.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anthem Of Hate (3:44)
-02. Flames For Hades (4:18)
-03. Brainless (5:27)
-04. The Not Self (4:36)
-05. Unsolved Aggressions (4:11)
-06. Life Not Death (4:53)
-07. Searching The Loss (4:20)
-08. Crawling Erect (3:15)
-09. Infecting The Lie (3:32)
-10. Watcher (4:34)(   Читать дальше...   )2012Жанр: Progressive Power MetalПродолжительность: 00:47:26
+01. Out of Control 02:38
+02. Dead Land Energy 03:26
+03. Humanjunk 03:04
+04. Archaic Wasteland 02:51(   Читать дальше...   )Жанр: Progressive Black Doom Death MetalПродолжительность: 00:43:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E7BB0A88F2706F522FEC9126FFA7E866F725A15
+magnet:?xt=urn:btih:2BD41E183159EBB9EA9F24B56E7E5157B5134446
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,25 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477701   (98481) от 03.04.2012
+###  Публикация: 1762045   (102949) от 24.11.2024
 
-Журнал | Академия домашней кухни №2 [март 2012] [PDF]
+Famishgod - Rotting Ceremony (2021) [FLAC|Lossless|image + .cue] <Doom Death Metal>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98481.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для тех, кто любит дом. В издании не только готовые рецепты блюд, но и разные кулинарные истории, советы по организации кухонного пространства, выбору посуды, кухонного оборудования, мебели и т.д., а также письма с вашими предложениями, рецептами, с вашим полезным опытом.март 2012Формат: PDF
+01. The Sun, The Death (6:40)
+02. Ascension (5:46)
+03. Fear Your Own Shadow (6:03)
+04. Deep Fall (6:28)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:47:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B88CC9956DD010F4FE5DFEB8AF2849ED7DF587CA
+magnet:?xt=urn:btih:E6A468F52D9076611943ACD9974A1308CA1C1081
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,34 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477646   (98480) от 03.04.2012
+###  Публикация: 1762319   (102948) от 24.11.2024
 
-VA - Граммофон Рекордс (2012) [MP3|256 kbps]<Pop | Dance>
+Carrioned - Echoes of Abomination (2013) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98480.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 ВИА Гра - Диско
-002 Dj Vengerov Feat. Слава - Одиночество-Сука (Extended Mix)
-003 Dj Masterhouse Feat. Dj Lady Nalan - Танцуй !
-004 Аня Шаркунова - Я Знаю Ее В Лицо
-005 Никита - Прости
-006 Иракли & Даша Суворова - Нелюбовь
-007 Яжевика - Город Тает
-008 Lilu - Слёзы Или Дождь
-009 Vanyashiz Feat. Diezz - Поверь Мне
-010 Sound Hackers Ft. Masta – Я Так Хочу (Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:12:51
+01. Dirge for the Forsaken (Descend into Oblivion) 05:01
+02. Liturgy for Dying Remains 05:31
+03. Shrouded in Agony 05:56
+04. Carrioned (Rotting Remnants) 04:22(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 01:00:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
+magnet:?xt=urn:btih:BD45BC3882B0FB8F7C030A88BE941BE2928F1753
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,34 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477116   (98478) от 03.04.2012
+###  Публикация: 1761937   (102947) от 24.11.2024
 
-VA - Танцевальный клубный поп хит vol.1 (2012) [MP3|256 kbps]<Pop | Club | Dance>
+Paradigm - Mainstream Epidemic (2005) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98478.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. A - Lika & Korol Lir - Любовь подставила (DJ Pomeha mix)
-002. A. Klimik - Blizhe
-003. Adrian Milena - Move Your Body (Original Mix)
-004. Alex Mica - Dalinda (Radio Edit)
-005. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
-006. A-Lika & Korol Lir Ft. DJ Pomeha - Любовь Подставила (Original Radio Mix)
-007. Anton Neumark & Crime-A - Maria (Neumark Edit)
-008. Anton Neumark & Re-Zone - Time (DJ Winn, Anton Neumark's Re-Remix)
-009. Anton Neumark vs Phunk Investigation, Aeronautics - Underground (Electrica Salsa Mash Up)
-010. Aqua - Come N' Get It(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 06:40:02
+01. The Truth Surround (2:42)
+02. Kamikaze (4:19)
+03. Kamikaze (5:32)
+04. Let It Breathe (5:30)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:29:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DFE5B3AA03947F403650CB52E702FB1472A2B03
+magnet:?xt=urn:btih:C18A3E5FCCAC360DD8E022DBAFA00E6068C5A357
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,25 +252,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477661   (98477) от 03.04.2012
+###  Публикация: 1762023   (102946) от 24.11.2024
 
-[Wallpapers] Best HD Wallpapers Pack (04.04.12)
+Zombie Death Stench - The Redeadening (2010) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98477.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Requiem 01:15
+02. The Redeadening 05:11
+03. Ally of Apocalypse 03:30
+04. Dead in the Water 04:53(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:55:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE600900D61CBCD8B061F9E2A392F109107F3196
+magnet:?xt=urn:btih:03A7C63F8E2FF8A46CCD39976DDEDB94934561D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,25 +281,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476999   (98475) от 02.04.2012
+###  Публикация: 1762063   (102945) от 24.11.2024
 
-Журнал | Автоцентр №14 [апрель 2012] [PDF]
+Pero Defformero - (Jer to lici na taj nacin?) Jer to liči na taj način? (2014) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 
->>Автомобили
->>Автомобильные журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98475.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Автоцентр" - еженедельный журнал полностью посвящен миру автомобилей. Основные рубрики: Автосалон, Автополигон, Концепции, Авторынок, Автобизнес, События и выставки, Практические технические и юридические советы, Спорт и другое.апрель 2012Формат: PDF
+01. Metal sviraću (3:21)
+02. Gotičarka 2 (6:50)
+03. Gastarbajter (3:44)
+04. Fejsbuk Stana (4:54)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E2EA1B76122CB61C861BAC6EE793BA94B503E51
+magnet:?xt=urn:btih:5A62F8751918BCACC788DAF83D1D5DC7D1272F32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,25 +310,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476968   (98474) от 02.04.2012
+###  Публикация: 1762116   (102944) от 24.11.2024
 
-Джонатан Кэрролл | Цикл "Рондуа" [2002-2009] [FB2]
+The Pursuit Of Happiness - Love Junk (1988) CD, Album, Club Edition, CRC [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легендарный цикл мастера магического реализма, достойного продолжателя традиций, как своего знаменитого однофамильца, так и Ричарда Баха; впрочем, Кэрролл не любит, когда его сравнивают с Воннегутом или Дугласом Адамсом, предпочитая сравнения с Гессе, Маркесом и прочими, по его выражению, авторами «сказок для взрослых».2002-2009Формат: FB2
+01. Hard to Laugh (2:40)
+02. Ten Fingers (2:53)
+03. I'm an Adult Now (4:30)
+04. She's So Young (3:37)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:43:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9710AEF87F6AD6C688424506FB65F4DB2190081D
+magnet:?xt=urn:btih:673F91A5232E3051B6366187748EDB573AE1F050
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,33 +339,260 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476490   (98472) от 02.04.2012
+###  Публикация: 1761898   (102943) от 24.11.2024
 
-Che Pazzo Band - Jean-Baptiste (2011) [MP3|320 кб/с]<jazz, swing>
+The Soup Dragons - Lovegod (1990) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soup Dragons feat. Junior Reid / I’m Free    [0:03:58.40]
+02. Mother Universe    [0:03:46.30]
+03. Backwards Dog    [0:02:20.15]
+04. Softly    [0:02:57.63](   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC29F54D66D3335A8CB49C1225263A5E04D4D2B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762072   (102942) от 24.11.2024
+
+Seven Tears - In Every Frozen Tear (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twist Of Fate
+02. Faded Memory
+03. Hollow Ground
+04. Reflections(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53C2EB5F98A035AEC5BD9C04134D955FCFD7492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762108   (102941) от 24.11.2024
+
+Fleshbomb - Reincarnated In Abomination (2014) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude to Demolition (Intro) instrumental 00:50
+02. Compulsive Clitoridectomy 03:34
+03. Reincarnated in Abomination 03:03
+04. Abdominal Self-Mutilation 03:07(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111984B0B436428D45DD014E6BB5522FBAFDD05C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762051   (102940) от 24.11.2024
+
+Master's Hammer - (Slagry) Šlágry (1995) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Šavlový tanec 03:28 instrumental
+02. Ach, synku, synku 07:54
+03. Půjdem spolu do Betléma 03:41
+04. Indiánská píseň hrůzy 05:17(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6595FEAB70050B34B6F0A9E9BA5CACE54F0A438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762074   (102939) от 24.11.2024
+
+Shardless - Fairytales... Out Of The Dark (2008) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrust
+02. Through the Stars
+03. Fairytales... Out of the Dark
+04. Black Empire(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13387DBF837EDF868D3C45A61C227710734190CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762329   (102938) от 24.11.2024
+
+Venduzor - Covered By The Blood (2010) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning in Hell 05:42
+02. Covered by the Blood 05:59
+03. Hidup Penuh Penindasan 04:59
+04. Rotten Dead Bodies 05:44(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA69C85A7C10B1A4419405E71D71B6585E985A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762109   (102937) от 24.11.2024
+
+Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quietus 01:26
+02. The Fog 03:43
+03. Death 1 04:56
+04. Dessicate 05:04(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F91F2190585CD62B44224C7A15FF0E9974E8B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762269   (102936) от 24.11.2024
+
+The End - Within Dividia (2004) Deluxe Edition, 2024, Relapse Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Math Rock, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Walls (2024 Remaster) [00:04:41]
+02. Fetesque (2024 Remaster) [00:03:55]
+03. The Sense of Reverence (2024 Remaster) [00:03:04]
+04. The Scent 0f Elegance (2024 Remaster) [00:03:13](   Читать дальше...   )Жанр: Math Rock, HardcoreПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76C9C16317C63D2D24897B29A395672887E23E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762059   (102935) от 24.11.2024
+
+Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98472.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bellevile
-02. Vendredi 13
-03. Troublant Bolero
-04. Minor Swing
-05. Manoir de Mes Reves
-06. Cavalerie
-07. Oiseaux des Iles
-08. Tears
-09. Zinedine Tzigane (Bonus Track - LES DOIGTS DE L'HOMME cover)Жанр: jazz, swing, manouche, button accordeonПродолжительность: 00:31:43
+01. The Sheik Of Araby [2:39]
+02. Limehouse Blues [2:54]
+03. After You've Gone [2:41]
+04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C60AD1DCFBC625788F0DC6987BED30A62CF89109
+magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,34 +600,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476891   (98471) от 02.04.2012
+###  Публикация: 1762169   (102934) от 24.11.2024
 
-VA - Дискотека Бездна Original Шансон vol. 3 (2012) [MP3|128-256 kbps]<Шансон>
+Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98471.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Григорий Лепс - Водопадом
-002. Нэлли Мотяева - Под Крылом Ветра
-003. Михаил Шуфутинский - Как Же Быть С Любовью
-004. Александр Буйнов - Москва, Бизнес-Ланч
-005. Олег Газманов - Одинокие Женщины
-006. Елена Ваенга - Я Тебя Поцеловала
-007. Анатолий Полотно - Счастья Вам
-008. Лера Массква - Про Тебя
-009. Нелли Мотяева - Шоколад
-010. Таисия Повалий - Я Помолюсь За Тебя(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 12:15:23
+01. The Lady Is a Tramp [4:16]
+02. Stu's Due Blues [5:42]
+03. The Things We Did Last Summer [2:52]
+04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4735EFD19D3C7BCC5AB53EE37CCECE7A4F2A83AE
+magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -736,28 +629,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476894   (98470) от 02.04.2012
+###  Публикация: 1761942   (102933) от 24.11.2024
 
-Всемирный путешественник - 1 / Globe Trekker - 1 (2005-2010) HDTV [1080i]
+Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98470.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Всемирный Путешественник" ("Globe Trekker") - это сериал о туристических приключениях, снятый британской студией Pilot Productions.
-Первоначально основывался на путеводителях "Lonely Planet" ("Уединенные уголки планеты"). Выходит с 1994 года, в настоящее время транслируется больше чем в сорока странах. В каждом эпизоде имеется свой ведущий (или несколько), которые путешествуют, каждый со своей съемочной командой, по выбранной стране - часто по сравнительно экзотическим её уголкам - и знакомят нас с видами, звуками и культурными достопримечательностями, которые эта страна предлагает. Кроме обычных эпизодов, есть несколько спецвыпусков, которые в общем виде раскрывают такие аспекты путешествия, как пляжный отдых, дайвинг, шопинг, знакомство с местной кухней, а так же посещение исторических реконструкций или фестивалей.
-Сериал часто предлагает отход от популярных туристических троп в погоне за получением более аутентичного взгляда на местную культуру.
-Ведущие часто принимают (   Читать дальше...   )Жанр: ДокументальныйТелекомпания: Travel Channel HDПеревод: Двуголосый закадровый, профессиональныйФормат: TSПродолжительность: 07:30:00(1серия ~00:44:20)
+01. Za (3:05)
+02. Rush Hour Soul (2:55)
+03. Seen the Light (2:26)
+04. Brecon Beacons (2:56)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:40:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3680E452B1C780BC15482CD09D80838DD772E054
+magnet:?xt=urn:btih:E9718C2F5986ED8A330F3E11208C29B0FD29EF8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -765,34 +658,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476381   (98468) от 02.04.2012
+###  Публикация: 1762322   (102932) от 24.11.2024
 
-VA - Русские Новинки 9 (2012) [MP3|256 kbps]<Pop>
+Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98468.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Елка - Знаки вопроса
-002 Глюкоза - Кошка
-003 Юрий Шатунов - Это лето
-004 Балаган Лимитед - Гуси-лебеди
-005 Валерия и Александр Буйнов - Сердце
-006 Григорий Лепс - Водопадом (new version)
-007 Наталья Подольская Интуиция
-008 Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov Remix)
-009 Юлия Савичева - Юлия
-010 Мистер Кредо и Олеся Слукина - Тебя я помню...(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:58:51
+01. The 7th Empire (4:50)
+02. The Emperor's Children (4:01)
+03. Alter Reality (7:07)
+04. Exposed (9:41)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
+magnet:?xt=urn:btih:338E7D3EC93FAA5D9DF0FD2FC14437BF7F21DB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762021   (102931) от 24.11.2024
+
+Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss of the Underworld (7:40)
+02. Bad Omen (9:18)
+03. Molested, Defiled, Disrupted (9:47)
+04. Chamber of Chaos (8:12)(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1294B14A5A48AEE134D37EC49F2B5A8D84EAD1AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762193   (102930) от 24.11.2024
+
+НХЛ 2024-2025. Нью-Джерси Дэвилз - Вашингтон Кэпиталз (23.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102930.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября 2024, воскресенье. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Дэн Келли (США); Линейный: Дерек Нансен (Оттава, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67731E1EC733D4136427609EE92646B8FCBEEB22
 ```
 
 https://mybot314.ru/tekegram_catalog/

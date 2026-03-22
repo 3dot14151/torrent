@@ -1,3 +1,61 @@
+###  Публикация: 1013026   (777642) от 04.05.2016
+
+VA - Strictly Pop Classics (2016) [MP3|320 кб/с] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MC5 - Kick Out The Jams
+02. Velvet Underground The - I'm Waiting For The Man
+03. Stooges The - No Fun
+04. Doors The - L.A. Woman(   Читать дальше...   )Жанр: RockПродолжительность: 03:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636ADFFBD29F0B3922EA498F539344781A93978D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013767   (777261) от 05.05.2016
+
+VA - Crazy Crazy Nights [2CD] (2016) [MP3|320 кб/с] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777261.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Пpодолжительность: 01:18:55
+
+01. Kiss - Crazy Crazy Nights(   Читать дальше...   )Жанр: RockПродолжительность: 2:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FE61AC018977C8B1CEFF041900774BC5E354BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211911   (776857) от 09.03.2018
 
 VA - Good Times Roll (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
@@ -406,6 +464,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016245   (771156) от 13.05.2016
+
+ZZ Top - We will shout you about the Blues (2016) [MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_771156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Blues
+02. Brown Sugar
+03. Jesus Just Left Chicago
+04. El Diablo(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D8598F0C48C4B1377074A62F7C98A9DD19DDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392041   (770672) от 23.06.2020
 
 VA - Soft Rock Cafe (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
@@ -660,93 +747,6 @@ VA - Chasing Sunrise: Heroes Of Modern Rock Vol.01 (2020) [MP3|320 Kbps] <Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA277762C45E035C0297491EAAADC7A1C714A92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393679   (766253) от 02.07.2020
-
-VA - Music for You vol.10 - Thrashers (2020) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heathen - The Blight (04:38)
- 02. Alen Weaponry - Kai Tangata (06:35)
- 03. Legion of the Damned - Legion of the Damned (03:12)
- 04. Exhorder - My Time (03:53)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 04:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042E711BE007CBB58A2EB5FFFD77C2B677B466A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279404   (765958) от 29.01.2019
-
-VA - Rock & Metal Collection от ALEXnROCK часть 11 (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765958.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 11я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK001 Sunstorm - Gutters Of Gold
-002 Cinderella - Take Me Back
-003 Winger - Pull Me Under
-004 The Wallflowers - Heros(   Читать дальше...   )Жанр: RockПродолжительность: 04:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78FFF3E5017467FB8B960C066C749F987315779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214186   (765755) от 20.03.2018
-
-VA - Black Aphrodite (2018) [MP3|320 Kbps] <Heavy, Power, Death Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765755.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Absolva - Harsh Reality
-002. Horrified - Allure Of The Fallen
-003. Avantasia - Seduction Of Decay
-004. Cromonic - Prophecy(   Читать дальше...   )Жанр: Heavy, Power, Death MetallПродолжительность: 08:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27D87A3A59BA9BDBDF2DCF0659C4AB59A6990E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

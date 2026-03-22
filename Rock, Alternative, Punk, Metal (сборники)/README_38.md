@@ -1,3 +1,235 @@
+###  Публикация: 1634264   (233310) от 21.05.2023
+
+Tas Cru - Compilation (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heal My Soul
+02. A Month Of Somedays
+03. Memphis Song
+04. Feel I'm Falling(   Читать дальше...   )Жанр: RockПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204D2290527F70710DDD609AE5106FB4838D0B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634441   (233024) от 22.05.2023
+
+Tinsley Ellis - Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Front Street Freeze
+02. Hell or High Water
+03. Seven Years
+04. Still In The Game(   Читать дальше...   )Жанр: Rock. Ballads, BluesПродолжительность: 03:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24ED7F8AC7861B056F98098CC617890243586E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635272   (231970) от 28.05.2023
+
+VA - The Magical Ride (2023) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_231970.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Demtones - Sleep [02:18]
+002. Deus - Must Have Been New [03:47]
+003. The Jaggerz - Forever Together Forever [02:29]
+004. Blink - What's My Age Again? [02:28](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 07:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C381EC4152DD9EA562B47D2F4AAC52331C738C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341600   (228812) от 29.11.2019
+
+VA - Workout I Get Back In Shape (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Motley Crue - Kickstart My Heart (5:42)
+2.Nirvana - Smells Like Teen Spirit (5:03)
+3.Switchfoot - NATIVE TONGUE (4:38)
+4.3 Doors Down - Kryptonite (4:02)(   Читать дальше...   )Жанр: Hard Rock, Rock, OtherПродолжительность: 04:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A364760C1D2CC59B673ED024FFCCAE226A0A775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424300   (227815) от 17.11.2020
+
+VA - Welkome To New World (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227815.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Motion City Soundtrack - Crooked Ways
+002. Royal Green - Baby You're A Rich Man
+003. Garrison - The Only One
+004. Matthew Sweet & Susanna Hoffs - Gimme Some Truth(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623D2BEA8CC55099A58FE20AE74B019140E675DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512950   (227391) от 27.11.2021
+
+VA - Raise Your Flag Rock World's Fest (CD 01) (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227391.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jakethehawk - Ochre And Umber
+002. Jxdn - Angels & Demons
+003. Home Brewed Universe - Gallifrey Funk
+004. Rostam - Kinney(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 09:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F142280A84EA8487855715E3248A025ED5EC3698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342203   (225531) от 01.12.2019
+
+VA - Something In My Heart (2019) [MP3|320 Kbps] <Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225531.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tоо Slim - Timе Hаs Cоmе Tоdау
+002. Bеttу Blасkmаil Bаnd - Murkу Wаtеrs
+003. Trish Kеrr - Clоvеr
+004. Rustу Mссаrthу - Mеssin' With Thе Bluеs(   Читать дальше...   )Жанр: Blues RockПродолжительность: 06:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C457A935B91A007F5D40887144A7F89EA1211E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494303   (223595) от 12.12.2018
+
+Ария - Лучшая Коллекция (2012) [MP3|320 кб/с]<Heavy Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колизей
+ 02. Волонтёр
+ 03. Тореро
+ 04. Воля И Разум(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 03:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A893801B9B9C3507623D316A537B05B25254FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342449   (222615) от 03.12.2019
 
 VA - Rock The Stage (2019) [MP3|320 Kbps] <Rock, Alternative>
@@ -513,238 +745,6 @@ VA - We Will Rock You (2022) [MP3|320 Kbps] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4AA515E374E1BB33AC1441D453AEDA8CAF38955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645907   (209168) от 12.07.2023
-
-Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Eighteen (Guitar Riff) [00:28]
-02. Layla (Guitar Riff) [00:27]
-03. Frankenstein (Guitar Riff) [00:51]
-04. American Woman (Guitar Riff) [00:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7B5D91BD53C30B30CC7C2118219B93FFE7D314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575465   (208282) от 12.09.2022
-
-Dire Straits & Mark Knopfler - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень атмосферный, спокойный и приятный рок. Альбомами слушать Dire Straits трудно, так как много тоски и тягомотины. Поэтому целостность альбомов не стал сохранять и выбрал самые лучшие песни. В сборник так же вошло сольное творчество Mark Knopfler. Весь материал взят с ремастированных американских CD изданий. В них звук самый грамотный. Приятного прослушивания. (   Читать дальше...   )01. Dire Straits - So Far Away
-02. Dire Straits - Money For Nothing
-03. Dire Straits - Walk Of Life
-04. Dire Straits - Your Latest Trick(   Читать дальше...   )Жанр: RockПродолжительность: 03:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD9DED6C23340A79CA841DA61E7E36759831466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650842   (207225) от 03.08.2023
-
-VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlanta Rhythm Section - So Into You (6:55)
-02. Al Stewart - Time Passages (6:43)
-03. Fleetwood Mac - Everywhere - 2017 Remaster (5:49)
-04. TOTO - Rosanna (5:31)(   Читать дальше...   )Жанр: RockПродолжительность: 04:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E208381CC1DE2951280044BA2F778CD50CED97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579678   (207117) от 28.09.2022
-
-VA - Русский Рок 3 (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ундервуд - Дым (3:54)
-02. Щенки - Я Выпил Я Покурил Я Танцую (4:16)
-03. ЮГ 404 & Фрик Пати - Химия (2:27)
-04. Ярик Бро - Свитерок (2:42)(   Читать дальше...   )Жанр: RockПродолжительность: 02:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF60AB9D17C7C440170FEB536BC935C739740C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582495   (206251) от 10.10.2022
-
-Nickelback - Compilation (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animals
-02. Kiss It Goodbye
-03. How You Remind Me
-04. Do This Anymore(   Читать дальше...   )Жанр: RockПродолжительность: 02:52:5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE11E152FB64BEDAAD8814A0F26F39F58079E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585690   (204846) от 24.10.2022
-
-VA - Сектор газа. Народный трибьют 1 часть (2022) [MP3|256 Kbps] <Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ARS-Русский мат [00:01:57]
-002 Забыл как дышать-Импотент [00:03:29]
-003 Руслан Ахтямов-Кума [00:02:37]
-004 Сергей Мельник-Тёща [00:03:42](   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3173799371E6FB2C34E3AA4B72B2DE45D464CB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654970   (204555) от 25.08.2023
-
-VA - Compilation Part 29 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stumble - All Over Again
-02. Standard Selection Blues Band - Back to Paradise
-03. Detroit Blues Band - Walkin Out the Door
-04. The Blues Infusion - Reconsider Baby(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C986A864B18D633E75FF036F1D240EB6A82E1C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654967   (204552) от 25.08.2023
-
-VA - Compilation Part 28 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bas Paardekooper & the Blew Crue - Broken Heart for Sale
-02. Mike Brookfield - Workin' on You Baby
-03. James Hinkle - Fall of a Lifetime
-04. Mike Brookfield - No Candle Burns in the Rain(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF571388CD22350EBF89174AF728978EA19D451C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1179068   (351520) от 30.10.2017
+
+Steps - Tears On The Dancefloor (Crying At The Disco Deluxe Edition) (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing With a Broken Heart 03:29
+02. Scared of the Dark 03:46
+03. September Sun 04:19
+04. Neon Blue 03:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9360852BD6AE095EC10CB84A7AE0F3D6C48F39F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953176   (351421) от 03.11.2015
+
+Kylie Minogue - Kylie Christmas (2015) [MP3|320 кб/с]<Pop, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s the Most Wonderful Time of the Year
+02. Santa Claus Is Coming to Town (with Frank Sinatra)
+03. Winter Wonderland
+04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74021EA244979EA2A25DF67C4412D3FF8DAC137B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953128   (351294) от 03.11.2015
+
+Eros Ramazzotti - 30 (2014) 3CD BoxSet [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terra promessa
+02. Una storia importante
+03. Adesso tu
+04. Musica è(   Читать дальше...   )Жанр: PopПродолжительность: 03:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454571D997337FFC514B2D781A6537B6FF33550B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179225   (350955) от 30.10.2017
+
+Charles Aznavour - Greatest Hits (All Tracks Remastered) (2017) [MP3|320 Kbps] <Pop, Variete Francaise>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Poker (Remastered 2016)
+02 Je m'voyais deja (Remastered 2016)
+03 Plus bleu que tes yeux (Remastered 2016)
+04 Il faut savoir (Remastered)(   Читать дальше...   )Жанр: Pop, Variete FrancaiseПродолжительность: 01:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D58DB080BE877FC8FDC2A5F7FF1EC88F26D54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578167   (350301) от 21.09.2022
 
 Brian Briggs - 2 Albums (1980, 1982) LP [MP3|320 Kbps] <Electronic, Power Pop, Rock, Synth-pop, New Wave>
@@ -635,122 +751,6 @@ VA - Now 100 Hits The Legends (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5FD9513941D5E59CED7C014922055E2B1A4C4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419533   (339991) от 28.10.2020
-
-Bogart - ...Again (1981) LP [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back On The Road  (3:46)
-02. Looking For A Good Thing  (3:46)
-03. Without You  (3:39)
-04. Susan And Me  (3:46)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B17473320719F0DB9A8F1A3A9628518C227B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954580   (339869) от 08.11.2015
-
-Anouk - Greatest Hits (2015) 2CD [MP3|320 кб/с]<Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern World
-02. If I Go
-03. Three Days In A Row
-04. Woman(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5877B2E1BA49B2A5A164C3C25CF7FB5D8CEED397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419427   (339695) от 28.10.2020
-
-VA - 90s Megamix Vol.1: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - 90s Megamix Vol. 1, Pt.1 [1:18:26]
-02. VA - 90s Megamix Vol. 1, Pt.2 [1:19:46]
-03. Robin S. - Luv 4 Luv (Stone's Radio Edit) [4:13]
-04. East Side Beat - Ride Like The Wind (Radio Editing) [3:49](   Читать дальше...   )Жанр: Eurodance, Euro-House, Electronic, DanceПродолжительность: 08:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E790B79C17EA9CC625081AEF2BF52B033DC3886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419431   (339580) от 28.10.2020
-
-VA - 90s Megamix Vol.2: Die Grossten Hits Der 90er (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - 90S Megamix Vol. 2, Pt. 1 [1:17:08]
-02. VA - 90S Megamix Vol. 2, Pt. 2 [1:19:43]
-03. MaxX - Get A Way (Airplay Mix) [3:45]
-04. Sash! - Encore Une Fois (Future Breeze Edit) [3:38](   Читать дальше...   )Жанр: Eurodance, Euro-House, Electronic, DanceПродолжительность: 08:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95210DC675E08B7E82FA02108998E0AEE1A01AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

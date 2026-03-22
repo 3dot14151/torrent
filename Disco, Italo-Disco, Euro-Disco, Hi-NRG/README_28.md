@@ -1,3 +1,32 @@
+###  Публикация: 1569327   (453504) от 12.08.2022
+
+Bad Boys Blue - Totally (1992) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have You Ever Had A Love Like This	3:35
+02. I Totally Miss You	3:57
+03. What A Feeling	3:52
+04. Who's That Man?	3:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB05C79010259496884F0C50D82D2A173B4BADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569371   (453499) от 12.08.2022
 
 Fancy - Flames Of Love (1988) [OGG|485 Kbps] <Disco>
@@ -721,35 +750,6 @@ Radiorama - Greatest Hits & Remixes Vol. 2 (2021) [OGG|485 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D8FD7055B9948E4553B45AD749A9D2740B0FD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322862   (444698) от 31.08.2019
-
-Peter Richard - Frozen Red (1983) [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For You, For Only You (4:31)
-02. Walking In The Neon (6:46)
-03. Marlene (4:30)
-04. Fly Away (4:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DFA8C26C51584B886D6F3A7064D88330F34FE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

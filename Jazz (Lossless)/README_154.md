@@ -1,3 +1,176 @@
+###  Публикация: 1050246   (540651) от 07.09.2016
+
+Charles Mingus - The Black Saint And The Sinner Lady & Mingus Mingus Mingus Mingus Mingus (1963, 1964) 2011, Un[FLAC|Lossless|tracks + .cue] <Post-Bop,  Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Track A - Solo Dancer [06:40]
+ 02.Track B - Duet Solo Dancers [06:46]
+ 03.Track C - Group Dancers [07:23]
+ 04.Mode D - Trio And Group Dancers, Mode E - Single Solos And Group Dance, Mode F - Group And Solo Dance [18:42](   Читать дальше...   )Жанр: Post-Bop,  Avant-Garde JazzПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2B4596EAC00A24C917F868295C3833EF0EE342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050214   (540642) от 07.09.2016
+
+VA - Jazzy Lounge, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Balearic, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Lovers - Analogamente [04:29]
+02. Mediterranean Soul - Imperat [03:52]
+03. Fusion Dee - Blues In Mirror [04:19]
+04. Second Groove - Load In Repetition [04:32](   Читать дальше...   )Жанр: Nu Jazz, Balearic, LoungeПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCB883715F2A85FF0FE97E68BE6AFCDEED87E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239324   (540630) от 04.08.2018
+
+Dorothy Donegan - Five Classic Albums (1942 - 1960) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540630.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. That Old Black Magic [3:43]
+02. Over The Rainbow [2:28]
+03. Sweet Georgia Brown [2:51](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 03:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E567C938E3D4217775E51300BC71A8E6CE4C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239335   (540629) от 04.08.2018
+
+Grant Green - The Main Attraction (1976) 2002, Epic -  EK 86145 [FLAC|Lossless|tracks + .cue] <Soul, Fusion, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Main Attraction (19:36)
+02. Future Feature (7:48)
+03. Creature (10:20)Жанр: Soul, Fusion, Smooth JazzПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F76F50A9BA2C7E7BE8E25E52FADD4AA6E236D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364977   (540296) от 21.07.2011
+
+Keiko Matsui - 24 альбома (1987 - 2007) [APE|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cтиль, в котором играет пианистка Keiko Matsui, обычно называют «современным джазом» или даже «современной музыкой для взрослых». Это отличный расслабляющий фон для любого времени суток и любой компании. При этом ее мелодии в достаточной мере оригинальны, а аранжировки с использованием большого количества инструментов (в том числе национальной японской флейты шакухачи, (   Читать дальше...   )01. Moyo (Heart And Soul) [00:03:44]
+02. A Great Romance [00:04:05]
+03. Into The Night [00:04:27]
+04. Garicias [00:05:33](   Читать дальше...   )Жанр: Jazz, Smooth Jazz |Формат: APE (image+cue)Продолжительность: 00:52:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311603   (540073) от 30.06.2019
+
+Al Foster - Inspirations & Dedications (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantaloupe Island [6:42]
+02. Ooh, What You Do to Me [5:39]
+03. Simone's Dance [5:01]
+04. Samba de Michelle [5:54](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C50E158FF7AA6B0C3AD86EB8CE157E193985B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311693   (540071) от 30.06.2019
 
 Ellery Eskelin with Andrea Parkins & Jim Black - The Secret Museum (2000) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
@@ -570,180 +743,6 @@ VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C79E328B90673884FC1C986D2D69A71E722D349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050760   (536746) от 09.09.2016
-
-Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.New Groove [06:47]
- 02.The Awakening [04:27]
- 03.White Lightnin' [05:23]
- 04.Sultry Serenade [07:14](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFC2CF5AF12D01C04A8DA6141BF6ECA455AD159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050736   (536738) от 09.09.2016
-
-Ella Fitzgerald - Sings Cole Porter & Rodgers and Hart Songbooks (1956) 3CD, 2008, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536738.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.All Through The Night [03:18]
-02.Anything Goes [03:23]
-03.Miss Otis Regrets [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D5187CA61F06360DF1A027D99D842390BDB84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050507   (536735) от 09.09.2016
-
-Bill Evans - Momentum, Vol. 2 (1972) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.My Romance [10:26]
- 02.Sugar Plum [11:34]
- 03.The Two Lonely People [08:13]
- 04.Who Can I Turn To [07:50](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7C9A4E7AB19B38DAEA81352AAE764FC7965557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312016   (536598) от 02.07.2019
-
-Cannonball Adderley - Jazz Profile (1960 - 1966) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One for Daddy-O [8:26]
-02. Au Privave [3:54]
-03. Sack O' Woe [10:35]
-04. Gemini [12:46](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D241C05829523972B146D144C9F9B058ADFFCFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312022   (536597) от 02.07.2019
-
-Stan Kenton - Jazz Profile (1945 - 1967) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Third Stream, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Scandal [3:07]
-02. Just A-Sittin' and A-Rockin' [2:51]
-03. Artistry in Bolero [3:06]
-04. Machito [2:29](   Читать дальше...   )Жанр: Bop, Third Stream, Big BandПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D559DBA45AD818B10334D9FDCA7F5F77567F964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312019   (536596) от 02.07.2019
-
-McCoy Tyner - Jazz Profile (1967 - 1989) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four by Five [6:36]
-02. The High Priest [6:07]
-03. Surrey with the Fringe on Top [5:11]
-04. Smitty's Place [5:21](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501332E204A19847C5C3BFA371659AD3B09DFE24
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1785047   (69394) от 14.03.2025
+
+VA - Armin van Buuren - A State Of Trance 1216 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Karen Overton - Your Loving Arms (BLR Remix)
+02.	Cosmic Gate & James French - I'm On Fire
+03.	John Grand presents ODYSSIUS – Moss
+04.	SOLOUR - Take Me(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768287CD9084280B19F4A0EC696C5EBC5521A0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785216   (69350) от 15.03.2025
+
+Sub Zero Project - Tomorrowland Friendship Mix (2025-03-13) [MP3|320 Kbps] <Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sub Zero Project ft. Bryant Powell - Refuse To Speak
+02. Brennan Heart & Wildstylez - Lose My Mind (Sub Zero Project Remix)
+03. Sub Zero Project & Rebelion - Save Me
+04. Max Enforcer - Lost In Paradise(   Читать дальше...   )Жанр: Hard DanceПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B592E1D0EAE6844597201E051F2DCF2E1A0E462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786546   (68985) от 21.03.2025
+
+VA - Armin van Buuren - A State Of Trance 1217 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Punctual ft. EVALINA - Angels (VIP Mix) (Tune Of The Week)
+02. Oliver Smith & Midnite Amity - Breathe
+03. Ørjan Nilsen - Babylon
+04. ARTBAT & Benny Benassi - Love Is Gonna Save Us (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B5777C0BC7649B6D9409CC9C3DD76537A2181B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786563   (68960) от 21.03.2025
 
 VA - Ori Uplift - Uplifting Only Episode 632 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Armin van Buuren - A State Of Trance 1225 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6EA74CDA0B990289094B2F36CF9CB738F5AE1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798647   (66602) от 23.05.2025
-
-VA - Armin van Buuren - A State Of Trance 1226 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gouryella ft. Saskia Lie-Atjam – Marama (Moon & Stars)
-02. Going Deeper & Judgemxnt ft. CVKES – Holy Fire
-03. Nicole Moudaber – Soul Brothers
-04. Laura van Dam – Deep Shadow (Future Favorite)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1FF4758AD13F2D1F8D384C99DFC97573521194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798679   (66589) от 23.05.2025
-
-VA - Ori Uplift - Uplifting Only Episode 641 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Fletcher & Ruslan Aschaulov & Juan Almiñana Obando – Unforgettable Memories (Intro Mix)
-02. Bryce Keuris X Henry Moe X Aylin – Between The Stars
-03. Tycoos & Daisy Lou – Darkness Into Light (Daniel Kandi Remix)
-04. Ahmed Romel – Cupertino (SoundLift Remix) (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E506F61049E010F7DE3D0903B28BFB0ADD5159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799847   (66370) от 30.05.2025
-
-VA - Ori Uplift - Uplifting Only Episode 642 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Deme3us - You (Intro Mix)
-02.	BluSkay & Esmee Bor Stotijn - Winter Took Over 2025
-03.	Alexander Komarov - Suite
-04.	Ace Da Brain - Almond Eyes (Timo Pralle Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C4190F442D9FCF5995AE6D49D6ED7E2DB8A5EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

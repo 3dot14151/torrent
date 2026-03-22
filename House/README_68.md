@@ -1,3 +1,148 @@
+###  Публикация: 1194074   (214031) от 23.12.2017
+
+VA - Dance On Abba - Remix Cover Collection Vol.2 (2017) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_214031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zaneta  -  Dancing Queen (Club Edit)  3:19
+02.  Donna M  -  Summer Night City (Club Edit)  3:44
+03.  Joey Flores  -  Chiquitita (Club Edit)  3:48
+04.  Charmin  -  Eagle (Club Edit)  3:52(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52E7C4F354CD7724D7D5764F819788F4E791FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831728   (212215) от 29.10.2025
+
+VA - ADE2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiddelozza - Fi 05:22
+02. Attican - Duplicity 06:02
+03. Foreign Lights - Whispering Pines 05:11
+04. Muuk' - Don't Do Anything 07:23(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A061B8085FFE88DC3AE768946A847BAECDABCCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831713   (212214) от 29.10.2025
+
+VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amlex - Be With You 02:40
+02. Tod Allen & Kris Kiss - Feelings 03:33
+03. Francesco Diaz, Radio Killer & Young Rebels - Clothes Off (Jeff Rock Remix) 06:09
+04. Muphus - Mahaba 03:35(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3E84A27FF2BC0FA7D09FC0DF287BD9BB017868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638174   (212103) от 07.06.2023
+
+VA - Ibiza Summer 2023: The Sounds Of The Island (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_212103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aribo - Worth The Wait (Plastik Funk Remix) [2:29]
+02. Mazza - Feel The Love (Original Mix) [3:03]
+03. El Mukuka & Mumba Yachi - The Harvest (Original Mix) [2:35]
+04. Nicky Jones - Vroom Vroom (Original Mix) [2:38](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7328112FB0EF188437D8626669C13893BA7710B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638557   (211896) от 09.06.2023
+
+Chicane - Nevertheless (2023) [MP3|320 Kbps] <House, Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - In One Ear & Out The Other (Extended Mix) [5:27]
+02. Chicane feat. Paul Aiden - Nevertheless (Extended Mix) [5:31]
+03. Chicane feat. The Mannequin - All This Time Alone (Extended Mix) [3:44]
+04. Chicane - LouBeeLou (Extended Mix) [5:04](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DD8FB9EBA71326E9794A1C83E46D2A23B36FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639114   (211830) от 11.06.2023
 
 VA - Summer 2023: Best Of Deep House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -600,151 +745,6 @@ VA - Black Hole House Music 09-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:657D2505FEB2CFC61AE33E4F0EF3EDFF6469AD8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591476   (187194) от 18.11.2022
-
-VA - Club Charts 2023 (2022) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack & R3HAB feat. AuRa - Worlds On Fire (Extended Mix) (3:54)
-02. Don Diablo x Dominica - Gotta Let U Go (Extended Mix) (4:06)
-03. Farruko - Pepas (Original Mix) (4:47)
-04. David Guetta x Dimitri Vegas vs. Nicole Sherzinger x Azteck - The Drop (Extended Mix) (3:33)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF90B6187073F5D8A609E9C2D4288AB39A97F86C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240914   (186403) от 23.09.2023
-
-VA - We Love Funky by Miguel Vizcaino (2016) [MP3|320 kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zo! - We Are On The Move (Joey Negro & Dave Lee Remix) (04:56)
-02. Corduroy Mavericks feat. Soledrifter - True Love (Soledrifter Remix) (04:02)
-03. Dr Packer - Bizarre Love (04:47)
-04. Paul Mad - Believe in Love (Deep Beep Records) (06:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CC8A8B7B221E8475D73A06C243082EE6BECAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592507   (183837) от 22.11.2022
-
-VA - Deep-House World Vol. 3 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, Soulful, Deep Groove, Beach House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hector Cassanova - My Religion Is... (Dyba's Club Sexy Mix)
-02. The Soul lovers - Relaxed
-03. Mondial Groove - Summer Vibes
-04. Yovann Bleu - Antiflex(   Читать дальше...   )Жанр: Deep-House, Soulful, Deep Groove, Beach HouseПродолжительность: 01:22:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD85C644D9F57291EA526FD75AA143300C7D79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665263   (183226) от 29.09.2023
-
-VA - Ibiza Autumn Mix 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echo Boy - Get Do It (Original Mix) [04:58]
-02. Mike Carry - Disco Luv (Original Mix) [04:44]
-03. Brian Forster - I Like It (Original Mix) [02:40]
-04. Adam Gordon - Lonely Nights (Original Mix) [02:44](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A94F6A3F23D7990ABB6EC9EBAE62C98FE0F84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592624   (183101) от 23.11.2022
-
-VA - SFR Best Remixes 2022 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Mason - Forever Is Now (Michael Kortenhaus Remix) (6:51)
-02. Zy Khan - Attack Mode (Guy Augustin Remix) (6:24)
-03. Leandro Murua - Vispera (Yonsh Remix) (6:56)
-04. Zy Khan - Attack Mode (Bookash Remix) (6:30)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4C09EBE8E6A0DE17D343C067C933A9C558A631
 ```
 
 https://mybot314.ru/tekegram_catalog/

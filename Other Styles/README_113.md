@@ -1,3 +1,148 @@
+###  Публикация: 1063971   (430116) от 18.10.2016
+
+Esperanza - 2 Альбома (1998, 2001) [MP3|320 Kbps] <Instrumental, Latin, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duende   (01:08)
+02. Spanish Eyes   (04:17)
+03. La Punta   (05:37)
+04. Gabrilla's Lullaby   (03:38)(   Читать дальше...   )Жанр: Instrumental, Latin, New AgeПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA064E03897900D251AAA5CF2F6BECD467D00BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411010   (429613) от 24.09.2020
+
+Fleet Foxes - Shore (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wading In Waist-High Water (02:15)
+02. Sunblind (04:13)
+03. Can I Believe You (04:04)
+04. Jara (04:09)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60791B72E3514F799EA2F5FC7D3CD1BDB9CEB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411015   (429483) от 24.09.2020
+
+VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J. C. Aprile & His Orchestra / Feelings (04:14)
+02. Denny Wright / Try A Little Tenderness (02:59)
+03. Denny Wright / Fly Me To The Moon (02:57)
+04. Dick Abell / Minette (02:21)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946177   (429453) от 12.10.2015
+
+Bernard L'Hoir - She's... (2015) [OGG| 407-500 кб/с]<New Age, Jazz, Folk, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My gypsy girl (05:25)
+02. Between you and me (03:42)
+03. A classy blues (05:53)
+04. Osar’s Naad (03:55)(   Читать дальше...   )Жанр: New Age, Jazz, Folk, InstrumentalПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBB5C9855BBF92CF28E169D4730C471255CF29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945836   (429402) от 12.10.2015
+
+Francisco Canaro - Serie Para Baile Vol.2 - Todo Vals (1941) [MP3|256 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Con Tu Mirar
+02 -  Yo No Se Que Me Han Hecho Tus Ojos
+03 -  Ya Viene El Invierno
+04 -  Plegaria(   Читать дальше...   )Жанр: TangoПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602EFD7695FDFC64236A1C5002B9CD3820BD00E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410924   (429360) от 24.09.2020
 
 Enigmatic Hits - Reloaded (2020) [MP3|320 Kbps] <Enigmatic, New age>
@@ -597,158 +742,6 @@ Anima - Temple of the Heart (2010) [MP3|320 Kbps] <New Age, Native American Flut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387D2E192CA0593DCB52512AC183C29856BD1491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708195   (423279) от 11.10.2013
-
-Steven Price - Gravity: Original Motion Picture Soundtrack (2013) [FLAC|Lossless]<Soundtrack / Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above Earth (1:50)
-02. Debris (4:25)
-03. The Void (6:16)
-04. Atlantis (3:43)(   Читать дальше...   )Жанр: Soundtrack / ElectronicПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5069FB9EFDC963CCA2095318DD0B8EAD747A68B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411998   (422963) от 27.09.2020
-
-Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaymen Shuffle
-02. Olley Oxen Free
-03. Everybody Way Oh!
-04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9B8162E776157CEBE1A094185E1A612780F307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412054   (422715) от 27.09.2020
-
-Nicolas de Angelis - Grand Concert (1986) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nicolas de Angelis является ярким представителем французской школы романтической гитары, а также одним из вдохновителей последней волны нового французского романтизма. Родился в местности Сэнт Клод – северном предместье Парижа, потянувшемся вдоль берега Рэйна.
-В юности получил классическое музыкальное образование по классу гитары, с десяти лет занимаясь в парижской (   Читать дальше...   )01. - La Danse Du Sabre (Katchatourian) (02:28)
-02. - Danse Macabre (Saint-Saëns) (02:39)
-03. - Adagio (Albinoni) (03:17)
-04. - Barcarolle (Offenbach) (02:55)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FECD77F2AF1AD87D2A7BD73C214BFE39F9F9398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167039   (421906) от 18.09.2017
-
-Deosil - A Drop of Eternity (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Second Offering (9:17)
-02.  This Beautiful Moment (7:13)
-03.  Days of Renewal (6:29)
-04.  Solemn Intent (6:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E193ADF877FD577442851B2CDFBADB23927C3DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557586   (421797) от 07.10.2012
-
-Amer-Inkas - 3 albums (2010-2012) [MP3|320 кб/с]<Instrumental, Native american>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421797.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:11) 01. Ananace
-(5:36) 02. Colors of the rainbow
-(3:28) 03. Dances with wolves
-(4:26) 04. Dawa (The Cradlesong)
-(5:38) 05. Love mountain
-(5:28) 06. Ly-O-Lay-Ale Loya
-(5:59) 07. Pakari
-(6:51) 08. Sayrinan
-(6:08) 09. Shunguman
-(5:14) 10. Silvermoons secret(   Читать дальше...   )Жанр: Instrumental, Native americanПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81AFE4022F69EB46D836BA0C6EACCF1FC89416F
 ```
 
 https://mybot314.ru/tekegram_catalog/

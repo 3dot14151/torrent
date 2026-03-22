@@ -1,3 +1,148 @@
+###  Публикация: 1648574   (208108) от 24.07.2023
+
+Elvis Presley - Integral 1954-1962 (2023) 6CD, Diggers Factory [MP3|320 Kbps] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - ELVIS PRESLEY INTEGRAL 1954 - 1962
+CD-02 - ELVIS PRESLEY INTEGRAL 1954 - 1962
+CD-03 - ELVIS PRESLEY INTEGRAL 1954 - 1962(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 6 CD, 05:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4E9925C3B7FD965EB59A4AF675F3FB14083975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649294   (207839) от 28.07.2023
+
+The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) ROAR Records[MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Me Up (Remastered 2009) [03:33]
+02. Brown Sugar (Remastered 2009) [03:50]
+03. Miss You (Remastered) [04:49]
+04. Beast Of Burden (2009 Mix) [04:25](   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 02:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610BA731C3A37F27D15C0EDED7A7D6C0C65C0899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649761   (207684) от 29.07.2023
+
+Eagles - Beacon Theatre, New York 1974 (2016) Reissue, 2023, Zip City [MP3|320 Kbps] <Rock, Folk, World, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peaceful Easy Feeling [00:04:41]
+02. Already Gone [00:04:53]
+03. Good Day In Hell [00:04:56]
+04. Silver Threads And Golden Needles (feat. Linda Ronstadt) [00:02:40](   Читать дальше...   )Жанр: Rock, Folk, World, CountryПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA15BF6964C430DE9D49317E7050624EC049657A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650249   (207514) от 31.07.2023
+
+Rush - Pinkpop (live) (1979) Reissue, 2023, Cult Legends [MP3|320 Kbps] <Progressive Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (live) [00:00:19]
+02 - A Passage To Bangkok (live) [00:03:35]
+03 - Xanadu (live) [00:12:32]
+04 - The Trees (live) [00:04:49](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1324E23C85901231564A3174F1619C2E846AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650418   (207147) от 04.08.2023
+
+The Animals - Live In The Sixties (1966-1967) Reissue, 2023, London Calling [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - C.C. Rider (Live_ Francia TV 1966) [00:02:48]
+02 - The Same Thing (Live_ UK Radio 11th Nov 1966) [00:02:48]
+03 - Paint It Black (with Interview) (Live_ UK Radio 14th Nov 1966) [00:04:05]
+04 - Jailhouse Rock (Live_ UK Radio 14th Nov 1966) [00:02:52](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D5FEC46364583B3D7040A6289A766F97EF0EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614332   (206820) от 21.02.2023
 
 VA - Classic Rock Classic Hits (2023) [MP3|320 Kbps] <Rock>
@@ -594,151 +739,6 @@ VA - 100 Greatest Guitar Solos (2004) (Первая раздача Клуба)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AA13448771B235441F13E6DB4E667F0B9079556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588041   (191835) от 03.11.2022
-
-Jon Bon Jovi - Destination Anywhere (1997) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of New Orleans
-02. Janie, Don't Take Your Love To Town
-03. Midnight In Chelsea
-04. Ugly(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F970A15B229FD54A0F8E9F61A25B1F8F12680D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588244   (191833) от 03.11.2022
-
-White Skies - Black Tide (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Do You Know About Love (04:12)
- 02. Emily (04:10)
- 03. Midnight Rendezvous (05:03)
- 04. Kiss Me (As I Say Goodbye) (04:57)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E70366F3B2AAFEAFACD13532E8288793E6641BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589067   (190861) от 07.11.2022
-
-Catapult - The Single Collection (1996) CD [MP3|320 Kbps] <Pop Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit The Big Time (3:27)
-02. Let It Be True (2:36)
-03. Let Your Hair Hang Down (2:40)
-04. Performers Prayer (2:36)(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46EB3D3D589157EEE3AE4DF407730A97110A9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589139   (190655) от 08.11.2022
-
-Black Expression - Nada Es El Fin Vol. 1-2 (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Envuelto En Misterio (Return) [00:06:10]
-02. Lake Of Sanity Pt1 Assembly Line [00:05:16]
-03. Lake Of Sanity Pt2 Lost In All [00:10:21]
-04. Lake Of Sanity Pt3 The Circle Completes [00:04:17](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2 CD, 01:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68F58E3A4335C63F167025ACD602D8EDC94D0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658020   (190642) от 10.09.2023
-
-Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Introduction (live) [00:01:12]
-02 - Another Road (live) [00:02:27]
-03 - Danny's Song (live) [00:03:03]
-04 - At The Whiskey (live) [00:02:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB157D4B77F177D36F2E5D6026B2B619937C7B62
 ```
 
 https://mybot314.ru/tekegram_catalog/

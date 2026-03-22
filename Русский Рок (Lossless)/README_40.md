@@ -1,3 +1,270 @@
+###  Публикация: 272577   (278550) от 19.12.2010
+
+Валерий Кипелов - Редкие Записи (2010) [FLAC|Lossless]<Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278550.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Никто
+2 Талисман
+3 Свет дневной иссяк (Версия 2002г с альбома С. Маврина «Одиночество»)
+4 Чужой (Дуэт с группой «СерьГа». Студийная версия)
+5 Когда-Нибудь (Дуэт с гр. Чёрный Обелиск)
+6 Бедный Иерусалим (Ария Семона Зелота с альбома «Иисус Христос – Суперзвезда». Дуэт с М. Серышевым)
+7 Фиолетово-чёрный (Живой дуэт с группой «Пикник»)
+8 We'll Be Back (Совместно с «монстрами» русского металла)
+9 Тореро (С юбилея группы «МастеР»)
+10 Без тебя (С юбилея группы «Мастер»)(   Читать дальше...)Жанр: MetalПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735362   (277973) от 17.12.2013
+
+Антитіла (Антитела) - Над Полюсами (2013) [FLAC|Lossless]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Метро (3:44)
+02. Generation «F» (3:35)
+03. Ім'я Не Моє (3:59)
+04. Над Полюсами (3:56)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7411A3157C12F2F18341ADD8E51CAC424454F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337072   (276144) от 09.11.2019
+
+VA - XXXL 10-Рок (2003) [FLAC|Lossless|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ленинград - Хуямба
+02. Би-2 - Песок
+03. Сплин - Алиса
+04. Илья чёрт - Со мной(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:103
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDAC46A5CC650390988F3B3FF64F6DFDE321E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850694   (276128) от 16.12.2014
+
+Линда - Лучшие песни.Серия «Новая Коллекция» (2010) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мало огня
+02. Ворона
+03. Сидите потише
+04. Танец под водой(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EE84EF8F8572EF6B5AE44103F2E5F600B3E62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188239   (276119) от 01.12.2017
+
+ГильZа - Яестьлюбовь (2017) [FLAC|Lossless|image + .cue] <Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276119.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Яестьлюбовь
+2. Голуби
+3. Вместе
+4. Три тысячи(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAC1066D64C2BD347DE0DD0FF45446A3124165B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265336   (275222) от 27.11.2018
+
+Сруб - Пост (2018) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пост (Abstinence) (4:38)
+02. За величием \ за падением (For the greatness \ for the fall) (7:07)
+03. Марш забытых богов (March of forgotten gods) (4:15)
+04. Престол (The throne) (6:08)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9AED8B2D95CDBE07D3653F1EC25981CF98A985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188299   (274898) от 02.12.2017
+
+Bloodrain - De Vermis Mysteriis (2001) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бессмертный (Undead) 03:55
+02. De Vermis Mysteriis 04:49
+03. Зов (The Call) 04:11
+04. Путь скорби (The Path of Grief) 03:53(   Читать дальше...   )Жанр: Thrash Metal, Black MetalПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE4B2CBD4729AD63861F22A862F7E42B1ABAF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188417   (274872) от 02.12.2017
+
+Тиран - Apocalyptic Tales (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agony In Hate
+02. Crawling Pile
+03. Entropy
+04. Metal Messiah(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1684D8FAA79DAE31840A013DBD466CF7AA0E2248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188419   (274563) от 02.12.2017
+
+Фаэтон - Знак проклятья (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Адреналин (04:22)
+02. Навстречу судьбе (04:33)
+03. Знак проклятья (06:03)
+04. Пламенный ангел (05:22)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E2E81EC5EE967351470021E7D7BE11AF3CDDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083652   (273555) от 16.12.2016
 
 Ольга Кормухина - Соль (2016) [APE|lossless|tracks] <Rock>
@@ -489,290 +756,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503436   (259890) от 31.05.2012
-
-5 Стихий - Феникс (2008)[APE|lossless]<Sympho Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рассвет (2:04)
-02. Искупление (5:04)
-03. Ночь пяти стихий (5:07)
-04. Феникс (4:39)
-05. Одна (5:21)
-06. Сапфировый взгляд (7:13)
-07. Лорелея (5:34)
-08. Карнавал лжи (4:49)
-09. Закат (1:52)
-10. Феникс (radio version) (3:55)Жанр: Sympho Power MetalПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5263901E28C89D0F9E5BCB9E184777C05E3272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502105   (258853) от 27.05.2012
-
-Секрет - The Best (1997) [FLAC|Lossless]<Rock, Russian Rock, Rockabilly, Rock-n-Roll, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Привет  (03:00)
-02. Сара Барабу  (02:31)
-03. Именины у Кристины  (02:55)
-04. Тысяча пластинок  (03:02)
-05. Мажорный рок-н-ролл  (02:13)
-06. Моя любовь на пятом этаже  (03:00)
-07. Алиса  (02:26)
-08. Блюз бродячих собак  (03:17)
-09. Арина-балерина  (04:48)
-10. Домой  (03:59)(   Читать дальше...   )Жанр: Rock, Russian Rock, Rockabilly, Rock-n-Roll, Blues RockФормат: CD, СборникПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 426010   (258687) от 26.05.2012
-
-Король и Шут - TODD: Акт 1 , 2 (2011 - 2012) [FLAC|Lossless] <Punk-Rock>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смерть На Балу (Ария Солиста и Тодда) (4:41)
- 02. Маленький Остров (Ария Ловетт) (2:50)
- 03. Неупокоенный (Ария Тодда) (2:46)
- 04. Выход Судьи (Ария Судьи) (4:33)(   Читать дальше...   )Жанр: Punk-Rock |Продолжительность: 00:36:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500201   (257179) от 23.05.2012
-
-Рарогъ - Сыны Сокола (2012) [FLAC|Lossless]<Progressive Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сын сокола (3:59)
- 02. Невидаль (3:31)
- 03. Сердечная (4:53)
- 04. Пятый снег (4:28)
- 05. Огненный меч (3:31)
- 06. Рогнеда (3:53)
- 07. После победы (3:57)
- 08. Перунова рень (3:33)
- 09. Вещий сокол (2:43)
- 10. Сердце воеводы (5:12)(   Читать дальше...   )Жанр: Progressive Pagan MetalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837098   (256878) от 15.11.2025
-
-Кино (Виктор Цой и Юрий Каспарян) - Исправленному верить! (Концерт в г. Сосновый Бор 26.10.1984 г.) (1984) Reissue, 2024, "МаксСиДи" Санкт-Петербург [FLAC|Lossless|image + .cue] <Rock, ...
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Начало концерта
-02. Последний герой
-03. Около семи утра(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 01:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06778A84240CDE236FE896F085BC5002BD6AC882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836789   (256865) от 15.11.2025
-
-DvärG (DvarG) - Скала (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Варварский Вой
-03. Скала
-04. Драконьи Слезы(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4DE0BDDF0E68711779D9577DBB4562998D9E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499640   (256499) от 21.05.2012
-
-Леонид Фёдоров - Весна (2012) [WavPack|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Топл
-2. Весна
-3. Тетрадь
-4. Думал
-5. Конь
-6. Трон
-7. Баньщик
-8. Душа
-9. ЭлегияЖанр: RockПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314421   (255573) от 03.04.2023
-
-VA - КИНОпробы - tribute Виктор Цой (2000)[APE|lossless]<rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вячеслав Бутусов - Звезда По Имени Солнце (4:44)
-02. Кукрыниксы - Скоро Кончится Лето (4:58)
-03. Аквариум - Генерал (4:31)
-04. Краденое Солнце - Бездельник (3:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE78E5BCE473C86331ED35A9510F05677ECD8327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624032   (255547) от 04.04.2023
-
-Вейя - Разнотравье (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Symphonic Metal, Female vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:01:47]
-02. Папоротника цвет [00:03:34]
-03. Лик ночи [00:03:15]
-04. Ведьмин хмель [00:03:19](   Читать дальше...   )Жанр: Folk Metal, Symphonic Metal, Female vocalПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767CA5D72BF0BBBC784A4CA31F131BEFB6CD0444
 ```
 
 https://mybot314.ru/tekegram_catalog/

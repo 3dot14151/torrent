@@ -1,3 +1,148 @@
+###  Публикация: 1048442   (546527) от 02.09.2016
+
+Blues Pills - Golden Treasures (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady In Gold
+02. Elements And Things
+03. Bliss
+04. High Class Woman (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51626D3980D07B57CAE7834A8558F5D9366FFBE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048457   (546462) от 02.09.2016
+
+Mark Wood - Voodoo Violince (1991) [MP3|320 Kbps] <Melodic Rock, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkeybats
+02. I Want to Take You Higher/Stand
+03. VooDoo Violince
+04. Right-Engl-Boogie(   Читать дальше...   )Жанр: Melodic Rock, Instrumental RockПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10A246B85ECAAEF8FF7895AAEBF7A8ADB8BC61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048430   (546379) от 02.09.2016
+
+A Day To Remember - Bad Vibrations (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Vibrations 03:33
+02. Paranoia 03:20
+03. Naivety 03:19
+04. Exposed 03:38(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2772F7926968D53EAFB19A70225504C72C64CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238558   (546235) от 30.07.2018
+
+The Wolverhinos - Love Runs Out! (2017) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Runs Out (02:54)
+02. Budapest (02:31)
+03. Rock And Roll (04:18)
+04. Blame It On The Boogie (04:08)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA27EB0AF58A6544616AFCD1B032FF5C05A84B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048651   (545795) от 03.09.2016
+
+The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torn & Frayed
+02. Ghost Train
+03. Killing Time
+04. Twisted Love (Album Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048684   (545740) от 03.09.2016
 
 Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps] <Blues Rock, Classic Rock>
@@ -600,151 +745,6 @@ Mick Jagger - Wandering Spirit (1993) Reissue, 2019, Polydor Records [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE61DCE75AFB191BD4C1F67A746941A49E6B478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051431   (532346) от 11.09.2016
-
-Black Sabbath - The Spirit Of 666 (2016) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Pigs
-02. N.I.B.
-03. Fairies Wear Boots
-04. Into The Void(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9992FB457F5DCE3D992A71368B01A8B7FFAA9210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155671   (531568) от 04.08.2017
-
-The Devils Deuce - Supercharged (2017) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can't Change Me (02:28)
-02. I Won't Get Drunk & I Won't Get Lost (02:31)
-03. Cool Cat Died (02:23)
-04. Passion Pit (02:29)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5395573C8DFACA36F3C7D2770EAF385ED67CCA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312758   (530611) от 05.07.2019
-
-Deep Purple - Live In Newcastle 2001 (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman From Tokyo ( 6:14)
-02. Ted The Mechanic ( 5:11)
-03. Mary Long ( 5:57)
-04. Lazy ( 6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB924E7F72A9CEA5B2B1A6E4ED72A7ABD5FD332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051945   (530507) от 12.09.2016
-
-David Gilmour - L.A. 3rd Night (2016) 2CD Bootleg, Live [MP3|320 Kbps] <Progressive rock, Art rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond(10:15)
-02. Fat Old Sun(6:48)
-03. Coming Back To Life(7:06)
-04. Band introduction(2:23)(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 02:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F7732EEF8EF55AA95EAD103E1225FFA19FC9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051735   (530499) от 12.09.2016
-
-Freddie Mercury - Messenger Of The Gods: The Singles Collection (2016) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выход сборника «Messenger Of The Gods» приурочен к семидесятилетнему юбилею Фредди Меркьюри. В двухдисковое издание вошли избранные песни из альбома Queen «Made In Heaven», вышедшего уже после смерти музыканта, а также треки из его сольных альбомов.01. Freddie Mercury - Living On My Own
-02. Freddie Mercury - The Great Pretender
-03. Freddie Mercury - In My Defence
-04. Freddie Mercury - Love Kills(   Читать дальше...   )Жанр: RockПродолжительность: 01:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB12B55541102BD683683561DA936F70D3BCF26
 ```
 
 https://mybot314.ru/tekegram_catalog/

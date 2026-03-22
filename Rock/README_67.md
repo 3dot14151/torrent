@@ -1,3 +1,149 @@
+###  Публикация: 1580473   (330802) от 01.10.2022
+
+Def Leppard - CD Collection Volume 3 (2021) (6 CD), Remastered, Compilation, 2021, UMC [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Now
+02. 	Unbelievable
+03. 	You're So Beautiful
+04.	Everyday(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 04:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEA0780C209445396D56E9CFC404E372C40D1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956515   (330213) от 14.11.2015
+
+Zdob Si Zdub - Белое вино / Красное вино (2010) [MP3|320 кб/с]<Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стоп, мафия! feat. Сергей Михалок (02:46)
+02. Гооол! (03:59)
+03. Невеста (03:28)
+04. Молдавский хардкор (04:09)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DF8FE3893658DFFE9225E0D0F5D40C4BA0B75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580741   (329984) от 02.10.2022
+
+Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Hard The Hunter
+02. Animal
+03. Excitable
+04. Foolin.(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339783475BE2C91BF8CD2BB00A6541178AA79824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580559   (329924) от 02.10.2022
+
+B.O.W. (Brotherhood Of Wolves) - A Dump Of Twisted Destinies (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dump of Twisted Destinies (04:56)
+02. We Were Fools (05:49)
+03. Golden Ball (04:30)
+04. Bosss Girl (04:31)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06810596176D74BE367D81243F11EB25BF3F66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579743   (329836) от 02.10.2022
+
+Arena - 12 Albums LP (2022) [MP3|320 Kbps] <Arena Rock, Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Capsule [00:05:30]
+02. The Equation (The Science of Magic) [00:06:28]
+03. Twenty-One Grams [00:06:34]
+04. Confession [00:02:20](   Читать дальше...   )Жанр: Arena Rock, Progressive Rock, Neo-Prog
+Country: United Kingdom, SolikamskПродолжительность: 13 CD, 11:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC3D3CF507DEDECA73D6ECB151F93C9C3C4C714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580847   (328004) от 04.10.2022
 
 Def Leppard - CD Collection Volume 2 (2019) Box Set: 7 CD [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -606,148 +752,6 @@ Fats Domino - Greatest Hits (1991) [MP3|320 Kbps] <Rock'n'roll>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AEC450A75C63251C6026B84AFA8707FFF41549F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417747   (319321) от 04.11.2020
-
-Deep Purple - In Rock (1970) Self-made Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Hard Rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Speed King (04:23)
-02-Bloodsucker (04:16)
-03-Child In Time (10:22)
-04-Flight Of The Rat (07:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71329E3D8A89D7A6A4370B78A8A4A1677EA81266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959193   (319129) от 23.11.2015
-
-Slade - Alive At Reading (1980) Bootleg [MP3|192 кб/с]<Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Back Home
-02. Wheels Ain`t Coming Down
-03. You`ll Never Walk Alone
-04. Moma Were All Crazy Now(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3955D36F8858B6D769B8E79D64C7D27698058BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182218   (319092) от 09.11.2017
-
-Kid Rock - Sweet Southern Sugar (2017) [MP3|320 Kbps] <Rock, Country Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Greatest Show On Earth
-2. Po-Dunk
-3. Tennessee Mountain Top
-4. I Wonder(   Читать дальше...   )Жанр: Rock, Country Rock, Southern RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4BB8D20E4B4E5486B89352DBA59AC16780BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692049   (318846) от 28.11.2013
-
-Paul McCartney - 73 Albums, 31 Singles (1970-2013) Discography [MP3|320 кб/с]<Rock, Electric, Classical>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_318846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэр Джеймс Пол Маккартни — один из самых известных музыкантов и композиторов XX века, участник легендарной группы "The Beatles". На протяжении своей сольной карьеры записал десятки пластинок в самых разных направлениях музыки, от рока и поп-музыки до классики, эмбиента и авангарда. Дискография составлена согласно сайту paulmccartney.com (из всех альбомов (   Читать дальше...   )Жанр: Rock, Electric, ClassicalПродолжительность: 00:13:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582864   (318769) от 11.10.2022
-
-Roxette - Look Sharp! (1988) Reissue, 1994, EMI [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look
-02. Dressed For Success
-03. Sleeping Single
-04. Paint(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB23CB6BD480956BA5785D50D7BCB282176A792
 ```
 
 https://mybot314.ru/tekegram_catalog/

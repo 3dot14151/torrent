@@ -1,3 +1,120 @@
+###  Публикация: 431203   (381247) от 10.10.2018
+
+Marie Laforet - L'integrale Festival 1960/1970 (1998) [MP3|320 kbps]<French pop, сhanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_381247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мари́ Лафоре́ (фр. Marie Laforêt, настоящее имя Майте́на Мари́ Брижи́тт Думена́к, фр. Maïtèna Marie Brigitte Doumenach; род. 5 октября 1939, Сулак-сюр-Мер, департамент Жиронда, Франция) — французская певица и актриса.
+В 1959 году, в возрасте 20 лет, подменяя заболевшую сестру, Лафоре победила на конкурсе юных дарований. (   Читать дальше...   )1 Saint-Tropez Blues
+2 Tumbleweed
+3 Tu Fais Semblant
+4 Les Vendanges De L'amour(   Читать дальше...   )Жанр: French pop, сhansonПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068462   (380612) от 01.11.2016
+
+VA - Underground Nu-Disco Sessions Vol.7 (2016) [MP3|320 Kbps] <Soulful, Nu Disco, Indie Dance,>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Aristocrat - Miami
+02. Lo-Koality – Fading
+03. Alan De Laniere - It's The Beat (Docolv Mix)
+04. Turntable Actor Chloroform - Junatik Tracker(   Читать дальше...   )Жанр: Soulful, Nu Disco, Indie Dance,Продолжительность: 02:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3BC55809CBF723946633462F1C0F3F58570C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415350   (378946) от 11.10.2020
+
+Caelestium - Caelestium (1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Stars  (3:13)
+02. Cool Fire  (3:32)
+03. Radical Man  (3:19)
+04. Man  (4:32)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52AA266DFE881A65E25568F2DFA9D8813939F7C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175604   (378823) от 18.10.2017
+
+Patrick Juvet - 2 Albums (1978, 1979) Reissue CD [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два малоизвестных альбома в стиле диско-поп и на английском языке из всей дискографии  шансонье 70-80х Патрика Жюве из Швейцарии. Второй предлагаемый альбом явно дал толчок для дальнейшего творчества королю хитов 80-90х - Дитеру Болену.01. Got A Feeling (3:46)
+02. Another Lonely Man (4:04)
+03. Where Is My Woman (7:14)
+04. I Love America (14:00)Жанр: Electronic, Pop, DiscoПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70BF6D4B3B027EF478A2D6F87C9C6C660C8FCB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415112   (378724) от 11.10.2020
 
 Workout Music Tv - 40 Best Pop Hits For Step 2020 [MP3|320 Kbps] <Pop>
@@ -647,122 +764,6 @@ Svenne & Lotta (в некоторых странах Sven & Charlotte) - поп-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7245E0CACAE5E3F7C743512783F50A59A7FB259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176590   (369846) от 22.10.2017
-
-Carl Douglas - Kung Fu Fighting (1994) The Best Of Carl Douglas [MP3|320 Kbps] <Electronic, Pop-Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kung Fu Fighting (3:16)
-02. When You Got Love (3:30)
-03. I Want To Give You My Everything (2:37)
-04. Run Back (3:23)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, DiscoПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B5546A60B3F9B61352246490B7C009CE164C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576250   (368609) от 13.09.2022
-
-Cliff Richard - Love Songs (1981) Remaster, 1987, Parlophone[MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Miss You Nights (1987 Remaster) [00:03:57]
-02 - Constantly (1987 Remaster) [00:02:38]
-03 - Up in the World (1987 Remaster) [00:02:40]
-04 - Carrie (1987 Remaster) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC8660E9A82150F8A05D0B25F39CF107511B523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576241   (368496) от 13.09.2022
-
-Julio Iglesias - Love Songs (2007) [MP3|320 Kbps] <Pop Latino>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To All the Girls I've Loved Before [00:03:32]
-02 - Crazy [00:03:16]
-03 - When I Need You [00:04:15]
-04 - Vincent (Starry Starry Night) [00:04:15](   Читать дальше...   )Жанр: Pop LatinoПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88485BCE3BD17922A12C48D259820361CFDF957A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576246   (368392) от 13.09.2022
-
-Chris Norman - Rediscovered Love Songs (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Need You Now [00:04:11]
-02. To Love Somebody [00:03:35]
-03. Wonderful Tonight [00:03:42]
-04. I Drove All Night [00:04:11](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29145F65E2BE9ED9B20A49B10B23200E199B8ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/

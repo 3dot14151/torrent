@@ -1,3 +1,32 @@
+###  Публикация: 993172   (895189) от 05.03.2016
+
+Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apareka (2:38)
+02. Qrizantemebi (The chrysanthemums) (2:55)
+03. Dililme (2:46)
+04. Qalo (The Women) (2:38)(   Читать дальше...   )Жанр: Ethnic / Georgian FolkПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71B917F084ED4B35C7D4F35D5F3300DA7C53CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100094   (894629) от 07.02.2017
 
 Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental Avant-garde Metal, Electronic, Experimental>
@@ -718,35 +747,6 @@ Tina Guo (28.10.1985) – американская виолончелистка 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:369B839FAA2B99FF840CB313750A924DD746D134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371666   (888581) от 01.04.2020
-
-Art of Empathy - Posthuman Decadence (2012) [FLAC|Lossless|tracks + .cue] <Neofolk, Darkwave, Atmospheric>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Design [07:27]
-02. Good Morning Sick World [05:20]
-03. Don't Mind [04:21]
-04. Recreation [04:32](   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1CD013437DCCA3B16E87F520C8976572FA0FDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

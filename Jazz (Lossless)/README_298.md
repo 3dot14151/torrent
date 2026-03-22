@@ -1,3 +1,177 @@
+###  Публикация: 1681441   (132771) от 03.12.2023
+
+VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan) (1956) 2CD, 2000, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donald Byrd & Hank Mobley - B. for B.B. (previously unissued) [6:31]
+02. Donald Byrd & Hank Mobley - B. for B.B. [6:29]
+03. Hank Mobley & Lee Morgan - Hank's Shout [7:02]
+04. Hank Mobley & Lee Morgan - Bet [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44213EC3FDDB3C6488E778DE290969B6FF294A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681525   (132702) от 03.12.2023
+
+Norah Jones - Little Broken Hearts (2012) 2023, 2CD Japan Deluxe Edition, SHM-CD [FLAC|Lossless|image + .cue] <Contemporary Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132702.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1 Original album + Bonus track & Remix:
+01. Good Morning
+02. Say Goodbye
+03. Little Broken Hearts(   Читать дальше...   )Жанр: Contemporary Jazz, Pop |Продолжительность: 02:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48876A570AA67BC146F1A35EE45CB77D1FC2FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681705   (132416) от 04.12.2023
+
+Ahmad Jamal - Emerald City Nights: Live At The Penthouse (1963, 1964) 2CD, 2022, Jazz Detective [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bogota [12:17]
+02. Lollipops & Roses [7:45]
+03. Tangerine [8:17]
+04. Keep on Keeping On [8:59](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8529DCF63942F440AEF6D7D9EF5D5868FCD4B952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681854   (132137) от 05.12.2023
+
+Lowell Hopper - Soul Fingers (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Throwback (3:56)
+02. Upside Down (4:41)
+03. Out of the Blue (4:05)
+04. Wide Awake (4:02)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AAEA861F06DF30DED66B5A5C76FC34A0ABC7BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681956   (132135) от 05.12.2023
+
+Clifford Jordan - Highest Mountain (1975 - 1978) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inward Fire [6:43]
+02. The Look [8:12]
+03. Toy [6:10]
+04. Eat at Joe's [9:25](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319750EC38B29CE724E3C185A59CB5F9AB58AAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681857   (132091) от 05.12.2023
+
+Dave Sereny - Talk to Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk to Me (Joe Smooth Remix) (3:50)
+02. About Her (4:01)
+03. Caribbean Cruise (3:28)
+04. Talk to Me (Spring Remix) (2:54)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99912FC89DE22954D2BE1D6B4C68FC56F2AB4DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681893   (132081) от 05.12.2023
 
 VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Nu Jazz, Future Jazz>
@@ -611,192 +785,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43862116E28D804ED827F42322D4E70D2EC9ED1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489304   (129234) от 28.04.2012
-
-Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The 'A' Train (2:55)
-02. Don't Get Around Much Any More (Never No Lament) (3:18)
-03. Cotton Tail (Shuckin' And Stiffin') (3:11)
-04. I Got It Bad And That Ain't Good (3:18)
-05. Conga Brava (2:58)
-06. Concerto For Cootie (Do Nothin' Till You Hear From Me) (3:17)
-07. A Portrait Of Bert Williams (3:09)
-08. Warm Valley (3:24)
-09. Solitude (2:57)
-10. Country Gal (2:57)(   Читать дальше...   )1990Жанр: Big BandПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525680   (129189) от 21.01.2022
-
-Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love Lost
-02. Don't Give Up
-03. Still Not Over You
-04. The Way We Danced(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488988   (129145) от 27.04.2012
-
-Count Basie and His Small Groups - The Fives (1936—1942) (1996) [FLAC|Lossless]<Trad Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoe Shine Boy
-02. Evenin’ (Jimmy Rushing, vcl)
-03. Boogie Woogie (Jimmy Rushing, vcl)
-04. Oh! Lady Be Good
-05. Boogie Woogie
-06. The Dirty Dozen
-07. The Fives
-08. Hey Lawdy Mam
-09. Oh! Red
-10. Red Wagon(   Читать дальше...   )1996Жанр: Trad JazzПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525660   (129114) от 21.01.2022
-
-Pat Martino - Comin' And Goin': Exit & The Return (1976, 1987) 2CD, 1999, 32 Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129114.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Exit:
-01. Exit [9:26]
-02. Come Sunday [7:36]
-03. Three Base Hit [4:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CEC6D611450E162EE55B62AA47AB77E2E49555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683292   (128714) от 10.12.2023
-
-VA - Gorgeous Relaxing Jazzy Instrumentals in Lounge Style (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Guessing Game (4:17)
-02. Chillaxing Jazz Kollektion - Like a River (5:23)
-03. Chillaxonic - Oasis (4:58)
-04. Chillaxing Jazz Kollektion - True Dreams (5:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5FF2CD5D3C11468E4D0ECDB8C63534E8F8FCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683284   (128703) от 10.12.2023
-
-VA - Best Emotional Sax Colletion (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilled Jazz Masters - Tranquil Morning (3:23)
-02. Easy Listening Chilled Jazz - Jazzin' Vibes (3:07)
-03. Acoustic Hits - Acoustic Morning Mood (3:37)
-04. Chilled Jazz Masters - Good Morning, Sweetie (3:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53944E2F46AF134AF4BC88C4F1F5F4D551EFE84
 ```
 
 https://mybot314.ru/tekegram_catalog/

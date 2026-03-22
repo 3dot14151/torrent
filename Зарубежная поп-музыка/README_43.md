@@ -1,3 +1,119 @@
+###  Публикация: 1308615   (553730) от 15.06.2019
+
+VA - Megahits Sommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553730.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Robin Schulz feat. Harloe - All This Love
+02. Ava Max - So Am I(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295D7159AF87782DBA83E8E5CF7DC476B8C1A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308491   (553710) от 15.06.2019
+
+Madonna - Madame X (2019) (Japanese Edition) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna & Maluma - Medellín
+02. Madonna - Dark Ballet
+03. Madonna - God Control
+04. Madonna & Quavo - Future(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC255EEAE21C756BA7E2CE9D4768E2F876E1741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308759   (553537) от 16.06.2019
+
+VA - 30 Spaß Party Hits (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553537.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Andy Bar - Ballermann - Mein Herz Schlägt Für Den Ballermann
+02. Willi Herren - Was Kann Uns Keiner Nehmen(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351EE2819F32DD072576A804F41D0E3453E24B0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308756   (553533) от 16.06.2019
+
+VA - Fun Radio le Son Dancefloor Summer 2019 (2019) 3CD [MP3|320 Kbps] <Electropop, Future House, Basssline, Tropical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553533.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Calvin Harris - Giant
+02. Armin van Buuren - Turn It Up(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D48E09D4A22131472B528E0059941D129AD62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308841   (553518) от 16.06.2019
 
 VA - Radio Italia Summer Hits 2019 [MP3|320 Kbps] <Pop>
@@ -635,123 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE8D4F3AD3A4BD096479D8182FF3FFD709DA325C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925028   (542990) от 05.08.2015
-
-VA - Top 40 Club Beats for Dj's 2015.6 (2015) [MP3|320 кб/с]<Club, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damon Paul Feat. Simone Mangiapane - Rhythm Is A Dancer (Festival Mix )
-02. Amen B & Miroslav Vrlik - 2 Faced People (Martin Cloud Remix)
-03. Bermuda Twins - The Sun (Beach Club Mix)
-04. Prince Ringo - Disco Star (Discohouse Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 03:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD3ECDEEAE78BAA738EADDFDBC3EEC5D71AE27A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154262   (542888) от 29.07.2017
-
-VC-People - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542888.jpg" />
-</div>
-
-
-###  Подробнее
-
-VC-People - один из студийный проектов от Klaus Netzle. Известен как немецкий композитор, аранжировщик, клавишник, программист, музыкант, вокалист, звукорежиссер, продюсер, фотограф и дизайнер.
-Родился 26 апреля 1926 года в Мюнхене, Германия.01. Gipsy Dance (3:37)
-02. Disco Rigoletto (3:13)
-03. E-l-i-z-a (4:04)
-04. Mr. Boccherini's Minuetto (3:25)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59919613E40E4D6DD4B0D46EDC37E4D0704CE266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049870   (542015) от 06.09.2016
-
-Thanks - No Mercy in the Mountain (2016) [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Dark Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Magic
-02. No Diamond
-03. Warm Hands
-04. I'll Try(   Читать дальше...   )Жанр: Alternative Pop, Alternative Rock, Dark SoulПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F92D0E6762D563FE41009B4416BE0DAE33C897A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311446   (541974) от 29.06.2019
-
-Q - Dancin' Man (1977) LP [MP3|320 Kbps] <Pop, Disco, Funk Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancin' Man (2:41)
-02. Do I Love You? (3:08)
-03. Knee Deep In Love (3:08)
-04. Feel It In Your Backbone, Got It In Your Feet (4:03)(   Читать дальше...   )Жанр: Pop, Disco, Funk SoulПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533BD5C77202A4245E1EA1936722DD3DB1081FEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1217485   (742261) от 05.04.2018
+
+VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742261.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Billy Ocean - When The Going Gets Tough The Tough Get Going (7:33)
+002. Europe - The Final Countdown (5:10)
+003. George Michael - A Different Corner (4:05)
+004. UB40 - Sing Our Own Song (4:02)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DD72BA9E99D4A3F9FCD9F4A263050CE19A3CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397024   (741367) от 19.07.2020
+
+VA - German Top 100 Single Charts 17.07.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apache 207 - Bläulich
+02. Kontra K - Tiefschwarz (feat. Samra)
+03. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat)
+04. KC Rebell, Summer Cem, Loredana - GEH DEIN WEG (feat. Loredana)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568FB144F98B49B3CDB987FB4BA532D2DC5CE155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397308   (741258) от 19.07.2020
+
+VA - Disco Charm: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741258.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hard Ton - On And On
+002. Tj Edit - Nightblues (Original Mix)
+003. Martin Eve - Night Train
+004. Alan Barry - Come On(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 08:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4516E4C438ED6DEBE2E914168BF04767B06F55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125667   (741121) от 20.04.2017
 
 VA - Топовая сотня весенняя. Версия № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -252,6 +339,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D7F0D2F30C5E657C0195C8D8864F1719F525864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528371   (734872) от 01.02.2022
+
+VA - Shazam Хит-парад Russia Top 100 Январь (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_734872.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Melisa - I'm Alone (feat. Tommo) (2:59)
+002. Gayazov$ Brother$ - МАЛИНОВАЯ ЛАДА (3:33)
+003. Goya Menor & Nektunez - Ameno Amapiano Remix (You Wanna Bamba) (3:47)
+004. Etolubov - Притяжение (Kalashnikoff Remix) (3:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D494BC55C10A40DABD92F180F6DBA200035646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529242   (733123) от 05.02.2022
+
+VA - Pop Party (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly Clarkson - Since U Been Gone (3:10)
+02. Ariana Grande - 7 rings (2:58)
+03. The Chainsmokers, Halsey - Closer (4:06)
+04. Tones And I - Dance Monkey (3:29)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D48872675AFFB602CF59C6D60B83C228680EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,151 +745,6 @@ VA - Сотка популярных весенних хитов версия �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127747   (731145) от 22.04.2017
-
-VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Диана Громова - Не Хочется 2:58
-002. Mike Perry Feat. Casso - Inside The Lines 3:25
-003. Катерина Sky - Мне Тебя Не Хватает 3:21
-004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127755   (731144) от 22.04.2017
-
-VA - Лучший весенний хит. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731144.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Швец - Фиолент 2:27
-002. Тина Кароль - Lost In The Rain 3:18
-003. Ольга Бузова - Привыкаю 3:49
-004. Катерина Корс - Так Близко 3:49(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE0AD65191035BF58AF24E60E4B08802BB382A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127764   (731138) от 22.04.2017
-
-VA - Высшая лига. Весна выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731138.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Непара - Половинки 3:44
-002. Nina Ann - Ты Спросишь Однажды 3:30
-003. Лена Семенова - Уверен Ли Ты 3:46
-004. Лаурита - Пока Пока 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1825A9F4ECD0281FDD0393D96D56A1A98D13BD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127757   (731136) от 22.04.2017
-
-VA - Топовая сотня весенняя версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Пающие Трусы - Давай Туси 3:01
-002. Леля - Грешная 3:43
-003. Ваня Чебанов - Ты №1 3:41
-004. Кейс - Держать Тебя За Руку 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC148303E262BD503D758C5B342C6C9D2C6784F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127798   (731131) от 22.04.2017
-
-VA - German Top 50 Official Dance Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731131.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Claptone Ft. George Kranz - The Drums (Din Daa Daa) 3:26
-002. Nalin & Kane - Beachball 2017 (Sebastien Remix) 2:58
-003. DJ Higheffect Ft. Silvia Dias - Sweet Dreams 3:35
-004. Tujamo - Make U Love Me 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946CA398AE0B2F5E51ED000C2E2FEB26861B4598
 ```
 
 https://mybot314.ru/tekegram_catalog/

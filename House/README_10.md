@@ -1,3 +1,148 @@
+###  Публикация: 998768   (866619) от 21.03.2016
+
+VA - Sofa Lovers (Deephouse Selection) (2016) [MP3|320 кб/с] <Electronic, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep House Lovers - The Better Way to Start (Urbanity Mix) (03:17)
+02. Conti Finzini - I Decide (Drink in Ibiza Mix) (03:33)
+03. Fashion Modell - All Have Been Kids (Passerella Mix) (04:05)
+04. Norman Jay - You Make Me Happy (Public House Mix) (03:09)(   Читать дальше...   )Производство: Phono 1 RecordsЖанр: Electronic, Deep HouseПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FD2A9FE2EB6B4AF8E48C64E9F154BF622CCFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107728   (866566) от 23.02.2017
+
+VA - 12 Bombs To Rock: Tech and Deep-House Edition 15 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcelo Wallace - A7
+02. Clownfish - The Lights
+03. Andy B. Jones - World To Life - Matty Menck Dub
+04. Mark - Evol - Extended Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C0A77511FCDE6B8F9B7F01CF29035F22D3B3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107920   (866565) от 23.02.2017
+
+VA - Going Deep in London (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brett Johnson - Danger - Original Mix 7:46
+002. Pro-Moe - 6:15 - Original Mix 7:12
+003. Eduardo Tristao - Roses Are Red - Sudad G Loves Vinyl Mix 7:52
+004. Mappa - Party - Mappa Deep Mix 6:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3ABFE6D0D7BBAC7DCC6D6C89E092CB38E1846C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107923   (866488) от 23.02.2017
+
+VA - A Deep and Soulful House Selection Vol.1 (2017) [MP3|320 Kbps] <Deep House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866488.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mousse T. - Summerdays - Soledrifter's In Sand Mix 6:30
+002. Hans Thalau - North Light - Nekes Remix 7:21
+003. Duererstuben - Geschlossenheit schldgt Ndhe 4:20
+004. Nico Stojan - Princess of the Night - Mira & Chris Schwarzwaelder 7:16(   Читать дальше...   )Жанр: Deep House, Soulful HouseПродолжительность: 01:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E67F48B6D33F191E40D4567138A32E4DD3D61C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107622   (866478) от 23.02.2017
+
+VA - Disco Nights, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Disco Gettin' Jacked (Original Mix) (6:15)
+02. Audio Jacker - It's So Funky (Original Mix) (5:07)
+03. Boogie Freaks - Bring The Old Skool Back (Original Mix) (5:04)
+04. Martello - Give It To Me (Original Mix) (7:08)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7A708BC3D061B160A702A71C9B2247CD5E27AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375657   (865609) от 14.04.2020
 
 VA - From Fitness To Dance (2020) [MP3|320 Kbps] <Progressive House>
@@ -600,151 +745,6 @@ VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB91B2645C9C1677390A2A9F4F27077F6ABF0C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109702   (857456) от 28.02.2017
-
-VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Sabatini - Keep The Beat (Tony Puccio Remix)  5:38
-02.  Jens Mueller - Freshness (Original Mix)  7:18
-03.  Joseph Matera - Boca (Giulio Lnt Remix)  6:39
-04.  Alex Raimondi - White Lake (Max Sabatini & Alex B Remix)  6:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794E668A980684AE45FAA72B522B957065E88B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109554   (857449) от 28.02.2017
-
-VA - Deep House Warm Up (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857449.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mighty Real - Little by Little 5:59
-002. Performative Mode - Pixelated 6:46
-003. Circuito Zeta - Step Down 7:18
-004. Self Explanatory - Game Changer 6:54(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8115033D5EC49D6EAAB8BB3C58C2636E06467F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109502   (857445) от 28.02.2017
-
-VA - New York Deep Vibes: 2017 Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J-Key - Octopus 4:09
-002. Tabula Rasa - Hashtag Stop - Code Remix 5:19
-003. Minimal Duo - Low Profile 5:00
-004. Tabula Rasa - Cocktail Party 4:55(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504A12372CC1D0ED7AC1AA3BAF840CFC5C52ED57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000615   (857376) от 26.03.2016
-
-VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [MP3|320 кб/с] <Deep House, Techno, Tech House, Progressive Trance, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silinder - A World Is Watching (Michael A Remix) (7:24)
-02. Nicolas Petracca - Blast From The Past (Mitaric's Division Remix) (8:02)
-03. Ruttenbergs - The Fat Duck (Original Mix) (7:15)
-04. Sebastian Weikum - There She Is (Original Mix) (6:25)(   Читать дальше...   )Жанр: Deep House, Techno, Tech House, Progressive Trance, Progressive HouseПродолжительность: 07:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4B68661EF788C510B51DA23335500C119036BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109659   (857373) от 28.02.2017
-
-VA - Balearic Daylight Bar Vol.1 (Balearic Hang Out Tunes) (2017) [MP3|320 Kbps] <Deep House,Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Living Room - World Traveller  4:36
-02.  Badetasche & Deat Marotta - Sunshine (Radio Edit)  3:44
-03.  Runthesphere - Fade Away  6:17
-04.  Benno Blome & Hopperider - Father Of Birds (Fish Eye Collective Remix)  7:28(   Читать дальше...   )Жанр: Deep House,DowntempoПродолжительность: 02:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B77896AE03E98367E22A2D9050D21C7FF98C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

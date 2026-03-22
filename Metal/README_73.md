@@ -1,3 +1,119 @@
+###  Публикация: 1253899   (379520) от 11.10.2018
+
+Kreator - Coma Of Souls (1990) 2CD, Remastered, 2018, Noise [MP3|320 Kbps] <Thrash metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379520.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. When the Sun Burns Red (Live in Fürth, Germany)
+  2. Betrayer (Live in Fürth, Germany)
+  3. Terrible Certainty (Live in Fürth, Germany)
+  4. Extreme Aggression (Live in Fürth, Germany)(   Читать дальше...   )Жанр: Thrash metalПродолжительность: 02:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EBE692B0993819CC7F261B1E70A370EF241C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575150   (379418) от 08.09.2022
+
+October Thorns - Circle Game (2022) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Page One
+02. Circle Game
+03. Soul Forge
+04. No Idle Phrase(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F12563461081F1881654D674DA47FF6086193BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575155   (379398) от 08.09.2022
+
+Bloodbath - Survival Of The Sickest (2022) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombie Inferno (04:07)
+02. Putrefying Corpse (feat. Barney Greenway of Napalm Death) (03:52)
+03. Dead Parade (04:39)
+04. Malignant Maggot Therapy (03:05)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFE50C177B853757E7BC74CA234BD52C60AAD56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575143   (379354) от 08.09.2022
+
+Parkway Drive - Darker Still (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ground Zero (04:09)
+02. Like Napalm (03:44)
+03. Glitch (04:21)
+04. The Greatest Fear (05:28)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC0579447EFA231E3F8DE999C35E9AF4DAFC7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575146   (379345) от 08.09.2022
 
 LunariaN - Burn the Beauty (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
@@ -636,122 +752,6 @@ Veil Of Maya - False Idol (2017) [MP3|320 Kbps] <Progressive Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15BBBD2B0E096A199EC2FD4BA11DAB0DCC13D18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415658   (374296) от 13.10.2020
-
-Spirit Adrift - Enlightened In Eternity (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Into The Light [00:04:42]
-02. Astral Levitation [00:06:12]
-03. Cosmic Conquest [00:05:32]
-04. Screaming From Beyond [00:06:21](   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5A14AF6764EAE4304619982C305658D49A49A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069385   (373859) от 04.11.2016
-
-Vader - The Empire (2016) [MP3|320 Kbps] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Of Steel
-02. Tempest
-03. Prayer To The God Of War (album version)
-04. Iron Reign(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0A56E170D022E998C22CC30CB6B9393195B965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327690   (372561) от 26.09.2019
-
-Hellyeah - Welcome Home (2019) [MP3|320 Kbps] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 333
-02. Oh My God
-03. Welcome Home
-04. I'm the One(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F22D78019E01DC1BC078A7CB2E9503389F12D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327689   (372427) от 26.09.2019
-
-KMFDM - Paradise (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KMFDM
-02. No regret
-03. Oh my goth
-04. Paradise(   Читать дальше...   )Жанр: Industrial Metal, Aggro-IndustrialПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF3FB1016A595A1120E25CBDD27172F6B5919F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

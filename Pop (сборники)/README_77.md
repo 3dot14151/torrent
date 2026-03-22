@@ -1,3 +1,182 @@
+###  Публикация: 1318604   (492619) от 07.08.2019
+
+VA - Top Of The Pops Summer (2019) [MP3|320 Kbps] <Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matina Zara - Lies
+002. Nouvelle Vague - Mirror In The Bathroom
+003. Jeroen Van Der Boom - Winnaars
+004. Mert Oksuz - Losing Control(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 11:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29C26F2336234AE8037464A4538C308F0F86B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544332   (491835) от 07.09.2012
+
+VA - Number 1 Hits Of The 1950's (2008) [MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Laine - I Believe [02:10]
+02. Eddie Calvert - Cherry Pink and Apple Blossom White [02:24]
+03. Johnnie Ray - Yes Tonight, Josephine [02:31]
+04. Andy Williams - Butterflys [02:22]
+05. David Whitfield - Cara Mia [03:10]
+06. Tony Bennett - Strangers in Paradise [03:05]
+07. Tennessee Ernie Ford - Sixteen Tons [02:37]
+08. Doris Day - Que Sera Sera [02:05]
+09. Guy Mitchell - She Wears Red Feathers [03:08]
+10. Kitty Kallen - Little Things Mean Alot [03:00](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7B465C0C9BBA80A93B9F3DE7341203FFA156CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544168   (491586) от 07.09.2012
+
+VA - Big Italian Music Album { Nagy Olasz Slageralbum } (2007-2008) [MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Kent & Luisa Fernandez - Solo Por Ti [04:09]
+02. Al Bano - Sempre Sempre [03:46]
+03. Francesco Napoli - Balla Balla 3.Жанр: Pop, Rock, Oldes, RetroПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7DBC686064D7D3896DB0C059B2B2F6B255F368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565422   (490351) от 25.07.2022
+
+Las Ketchup - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desafina Como Quieras
+02. Kusha Las Payas
+03. Tengo Un Novio Tantriko
+04. Un Blodymary(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC24F1B3989925F6621075CC3117D2673E193EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565470   (490337) от 25.07.2022
+
+Geri Halliwell - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Call Me Baby
+02. Strength Of A Woman
+03. Circles Round The Moon
+04. Desire(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DCB6F2AB542D7CAD361DA59864CFA1926D5607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054999   (490296) от 21.09.2016
+
+VA - New Edition Italo Disco 80s (2016) [MP3|320 Kbps] <Disco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490296.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chito - One More Chance (Extended Version) 7:50
+002. Chrom - The Start Of Something New 5:32
+003. Digitalo - Russian Man (Zyx Extended Version) 5:19
+004. Steve Burbon Project Feat. Mirko Hirsch - The Vibe (Extended Version) 6:27(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 09:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E35CE33D15A03DA7257C6B736BF31CAA12C71E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055185   (490283) от 21.09.2016
 
 VA - Семь морей (2016) [MP3|256 Kbps] <Pop>
@@ -637,180 +816,6 @@ Sonic Dream - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FECF1F582D6B7E065661FDB1694492137DC2E326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244390   (482086) от 01.09.2018
-
-VA - German Top 100 Single Charts 31.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482086.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynoro & Gigi D'Agostino - In My Mind
-002. Bonez MC x RAF Camora - Risiko
-003. Bonez MC & RAF Camora - 500 PS
-004. Capital Bra - Melodien (feat. Juju)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4309CE710B781DD79DE0117B5A8A66ADC03179B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159449   (481856) от 21.08.2017
-
-VA - Oldies 70's (2017) [MP3|320 Kbps] <Disco, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America - A Horse With No Name 4:09
-02. Sister Sledge - We Are Family 3:19
-03. Foreigner - Feels Like the First Time (Edit) 3:28
-04. Frankie Valli - Grease 3:21(   Читать дальше...   )Жанр: Disco, Pop, RockПродолжительность: 03:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A851303DDCB205C6A165C1CFF31C96339B5344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056324   (481762) от 25.09.2016
-
-VA - SpaceSynth & ItaloDisco Hits Vol.16 (2016) [MP3|320 Kbps] <Pop, Synthpop, Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den Haan - Gods From Outer Space (Created Synthleslie) 5:16
-02. The Starforce - Saviours In The Sky (Leroy Dub Mix) 3:51
-03. Franck Choppin - The Lonely Pianist 4:46
-04. Why Not - Smile 6:39(   Читать дальше...   )Жанр: Pop, Synthpop, Italo DiscoПродолжительность: 04:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9EBF80E4BCCF51C3CBDE2B6AE310DF3A5797AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405697   (480957) от 31.08.2020
-
-VA - Radio DFM Top D-Chart Август 2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. twocolors - Lovefool (3:10)
-02. MARUV & Boosin - I Want You (2:55)
-03. Dotan - NUMB (Addal vs. Balzanellli & Bedo Edit) (3:19)
-04. Filatov & Karas feat. Deepest Blue - Give It Away (3:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763EB2EF160741BC26F7A73B2146179D32E2673A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056236   (480679) от 25.09.2016
-
-VA - Дискотека 80-90 годов по-новому (Dj Ikonnikov - E.x.c Version) (38) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Fugitive (Dj Ikonnikov E.x.c Version) (06:45)
-02. Вячеслав Диденко и гр. Компания - Девушка (Dj Ikonnikov E.x.c Version) (05:00)
-03. Boney M - Blue Beach (Dj Ikonnikov E.x.c Version) (04:08)
-04. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version) (03:01)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED07E647431DC25C4E4F611DF3F4234622A8395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938597   (479788) от 19.09.2015
-
-VA - Попсовая соточка MTV Сборник 5 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479788.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Размер Project & D.I.P Project - Там Где Ты
-002. Chris Brown Feat. Akon - Came To Do
-003. Стас Пьеха - Далия
-004. Onuka - Around Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F568AC743314191554EDA35E9B691E3DCD6F20
 ```
 
 https://mybot314.ru/tekegram_catalog/

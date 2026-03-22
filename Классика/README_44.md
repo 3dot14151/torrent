@@ -1,3 +1,137 @@
+###  Публикация: 496122   (252984) от 14.05.2012
+
+Pink Floyd - Us And Them Symphonic Pink Floyd: The London Philharmonic Orchestra (1995) [FLAC|Lossless]<Modern Classical, Ambient>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time 08:13
+02. Brain Damage 05:14
+03. Another Brick In The Wall (Part II) 08:28
+04. Comfortably Numb 05:27
+05. Breathe 04:04
+06. Money 06:46
+07. The Great Gig In The Sky 05:11
+08. Nobody Home 06:26
+09. Us And Them 11:38
+10. Time (The Old Tree With The Winding Roots Behind The Lake Of Dreams Mix) 10:42(   Читать дальше...   )1995Жанр: Modern Classical, AmbientПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B65005E960114BEDCA3C78909F70BB4601C75FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496314   (252929) от 14.05.2012
+
+Wolfgang Amadeus Mozart – Mozart, Music for oboe and strings: VA, Virtuosity of oboe, Alexsei Utkin (1994-1995) /2003, Vista Vera/[FLAC|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252929.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adagio for English horn, violin, viola, and cello in C major KV 580a 5:25
+Quartet for oboe, violin, viola and cello in C major (Flute Quartet in autograph) KV285b
+2. Allegro 8:16
+3. Andantino 10:48
+Quartet for oboe, violin, viola and cello in F major KV 370
+4. Allegro 9:13
+5. Adagio 3:10
+6. Rondo Allegro 4:15
+Quartet for oboe, violin, viola and cello in C major (Flute Quartet KV 285 in autograph)
+7. Allegro 6:54(   Читать дальше...   )2003Жанр: ChamberПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD11F660DC651FC7E1E1AA0B8F87C125D9BE8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495951   (252661) от 13.05.2012
+
+Johann Sebastian Bach - Three Concertos for Flute: Ars Rediviva Orchestra, VA, Jean-Pierre Rampal (flute), (1719-1726) /1991, Sony /[APE|Lossless]<Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for flute, strings and basso continuo C-Dur BWV 1055
+1.Allegro 4:11
+2.Larghetto 5:02
+3.Allegro ma non tanto 3:51
+Concerto for flute, strings and basso continuo g-moll BWV 1056
+4.Without tempo indication 2:58
+5.Largo 2:27
+6.Presto 3:34
+Concerto for flute, strings and basso continuo e-moll (after 1,2 & 5 movements
+Of Cantata N. 35)(   Читать дальше...   )1991Жанр: ChamberПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F9F04F4E85D8701D2BCA0117E7A10851789A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835574   (252326) от 08.11.2025
+
+Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here for You (3:50)
+02. Longing (3:43)
+03. Sonic Samba (2:57)
+04. Fathers and Sons (3:27)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F4AC3FB16DCCBFDF1F7DB535A20A7C93E56A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495526   (251372) от 12.05.2012
 
 Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Neoclassical, Martial Industrial>
@@ -647,122 +781,6 @@ JOHANN STRAUSS, JR.(   Читать дальше...   )Жанр: ClassicalПро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A0573951CBFCEDE23D041CADEEFA5DDE1BA7ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268068   (229104) от 09.12.2018
-
-The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3|320 Kbps] <Pop, Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rondo Alla Turka Sonata In A Major (Mozart) (4:05)
-02. Gypsy Melody Opus 55 No 4 (Dvorak) (3:11)
-03. The Anger Over Lost Pennies (Beethoven) (2:48)
-04. Piano Concerto No 21 In C Minor (Mozart) (4:00)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 03:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEF6A02C9D26B22FB24673B16166A418E75DE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648081   (227533) от 30.07.2023
-
-Seattle Opera - Der Ring des Nibelungen (2014) [FLAC|24/96|tracks|WEB-DL] <Classical, Opera>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk 1
-1-1 Prelude
-1-2 Weia! Waga! Woge Du Welle
-1-3 Garstig Glatter Glitschriger Glimmer(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 14:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252E4E80A8F934581EB883F168F2D8FD6F919FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268592   (226164) от 11.12.2018
-
-Andrea Bocelli - Si (2018) Terget Deluxe Edition [FLAC|Lossless|image + .cue] <Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali di libertà
-02. Amo soltanto te (duet with Ed Sheeran)
-03. Un'anima
-04. If Only (duet with Dua Lipa)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5553AE61F10C8BD88553416736525D890C5666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341651   (225346) от 01.12.2019
-
-Rick Wakeman - Christmas Portraits (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225346.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The First Noel (03:25)
-2. In The Bleak Midwinter (03:35)
-3. Deck The Halls / Away In A Manger (03:29)
-4. The Holly & The Ivy / Mary's Boy Child (03:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3589665E9A55670893D179D386DF713FF1282B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

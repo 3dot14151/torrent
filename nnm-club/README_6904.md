@@ -1,54 +1,25 @@
-###  Публикация: 1208928   (779690) от 24.02.2018
+###  Публикация: 1206532   (782120) от 14.02.2018
 
-Teddy Hill And His Orchestra - 1935 - 1937 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lookie, Lookie, Lookie Here Comes Cookie [02:57]
-02. Got Me Doin' Things [02:50]
-03. When The Robin Sings His Song Again [02:51]
-04. When Love Knocks At Your Heart [03:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65064895618FE010AA4A7F3770FC238A544B229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208922   (779689) от 24.02.2018
-
-Mel Torme - Night At The Concord Pavilion (1990) 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Moon - Kiss Me (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779689.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sing For Your Supper [05:03]
-02. You Make Me Feel So Young [03:57]
-03. Early Autumn [04:33]
-04. Guys And Dolls Medley [08:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:42
+01. The April Fools
+02. Brazasia
+03. Kiss Of Life
+04. Quando, Quando, Quando(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:46:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED11A03C5CA27B7BC0995AAF7EAA687431BE2DBB
+magnet:?xt=urn:btih:0E1FFB5A61A63F29290DFC375E42A8AB5DAD7062
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,80 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208817   (779688) от 24.02.2018
+###  Публикация: 1206561   (782119) от 14.02.2018
 
-VA - The Sounds Of The Underground 11 (Compiled and Mixed by Deeper82) (2018) [MP3|320 Kbps] <Progressive House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jorgio Kioris - Linda (Ziger Remix)
-02. Anthony G - I Can Show You (Oscar Vazquez Remix)
-03. Dom Kane - Compound (Original Mix)
-04. Graumann - The Ants (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D70166F45A0551380C1BB3E7BEE90AD83491FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208799   (779687) от 24.02.2018
-
-Николай Елин | Санька-рекордсмен (1976) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые и немножко грустные истории из жизни Сани Кручинина, мечтателя и фантазера.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F334E8E23CC7F521CBE8D1BA9CB013B8E15728BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208147   (779686) от 24.02.2018
-
-С.А. Малахов | Против троцкизма и меньшевизма в литературоведении (1932) [PDF]
+Уэйд Грэхем | Dream Cities. 7 урбанистических идей, которые сформировали мир (2018) [FB2]
 
 >>Научная и техническая литература
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779686.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В период развернутого социалистического наступления пролетариата и обостренной классовой борьбы выступления тов. Сталина помогли партии своевременно организовать отпор враждебной пролетариату идеологии и гнилому либерализму по отношению к ней. Так на основе выступления тов. Сталина на конференции аграрников-марксистов, на основе ленинского принципа, увязывания теории (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
+Городская архитектура – как она влияет на нас и как мы влияем на нее? Откуда берутся привычные формы зданий? И какие идеи они могут олицетворять? Знаменитый ландшафтный дизайнер, историк и писатель Уэйд Грэхем расскажет истории архитекторов, чье представление о городах стало основой сегодняшнего градостроительства, чтобы через жизнь этих «мечтателей и энтузиастов», (   Читать дальше...   )Жанр: Архитектура, Зарубежная литература о культуре и искусствеФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5410F0F1ED4AB444E651FFA634B17F7EFCAB0FB
+magnet:?xt=urn:btih:128D4CF93E536B1F4BD7FE7F59F1E289B7F955BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,199 +53,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208860   (779685) от 24.02.2018
+###  Публикация: 1206534   (782118) от 14.02.2018
 
-VA - Double Environment: Progressive House Garden Music (2018) [MP3|320 Kbps] <Progressive, Tech House>
+Чимаманда Нгози Адичи | Американха (2018) [FB2]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779685.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Marsh - Face To Face (Airdraw Intro Remix)
-002. Sunlight Project - Tierra Del Fuego (Original Mix)
-003. Zoo Brazil - From A Distance (feat. Wolf & Moon)
-004. Freedome - I Feel You (ReWorked Radio Edit)(   Читать дальше...   )Жанр: Progressive, Tech HouseПродолжительность: 10:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CFEE8E91C158F8D8126B37063815852A1EDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209058   (779684) от 24.02.2018
-
-VA - The Official UK Top 40 Singles Chart 23.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake – God’s Plan 3:19
-02. Rudimental – These Days (Feat. Jess Glynne, Macklemore & Dan Caplen) 3:31
-03. Dua Lipa – Idgaf 3:38
-04. Portugal. The Man – Feel It Still 2:43(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220FF452A8450D219384E9E9D0D9669DE6EFD535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208138   (779683) от 24.02.2018
-
-Л.А. Леонтьев | Ленинская теория империализма (1969) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ленинская теория империализма составляет одно из центральных достижений ленинского этапа в развитии марксизма в целом, марксистской экономической науки в частности. Эта теория дает ключ к пониманию глубины противоречий капитализма на последней его стадии и раскрывает содержание тех коварных приемов, с помощью которых господствующий класс стремится сохранить и продлить (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C0825230B987D067C1E840997B8A4AD1E9551A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208927   (779682) от 24.02.2018
-
-VA - Swing Trumpet Kings: Harry Edison, Buck Clayton, Red Allen, Roy Eldridge (1956, 1958, 1960) 2CD, 1996, Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779682.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Harry Edison, Buck Clayton, Red Allen:
-01. Memories for the Count [08:53]
-02. Come With Me [05:54]
-03. Critics' Delight [06:51](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, New Orleans JazzПродолжительность: 02:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B6507B9EDB328447A2AF37A0054C2633E96A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208943   (779681) от 24.02.2018
-
-John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779681.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Passing Through
-2. Hello L.A., Bye Bye Birmingham
-3. Oobleedooblee Jubilee
-4. I've Been Scorned(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208883   (779680) от 24.02.2018
-
-VA - Hidden Places Chillout And Ambient 7 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito  -  Konja Tokyo De (feat. Anna Y.)  5:33
-02.  L'Art Mystique  -  Underwater Twilight  4:27
-03.  Maksim Biserov  -  Rumination  6:28
-04.  Madhukar  -  When Love Rules  5:04(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 03:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1067442C442051109C7BC591FA6B455C82F7883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208364   (779679) от 24.02.2018
-
-И.А. Каиров и др. | Педагогика (1939) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга является учебным пособием для педагогических институтов и университетов.
+Третий роман нигерийского прозаика Чимаманды Нгози Адичи, уже завоевавшей не одну литературную награду за предыдущие свои книги, – самый масштабный и по времени, и по географии действия, и по диапазону идей и проблем, которые Адичи смогла мастерски и увлекательно охватить.
 
-Авторский коллектив дает систематическое изложение курса педагогики, читаемого в вузах.
-(   Читать дальше...   )Жанр: История, политология, искусство, педагогика, психологияФормат: PDF
+Роман о том, что чувствует образованный человек «второго мира», оказавшись в США или в Лондоне, (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Шаши МартыноваФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6072ED38822BD46C264AD3644F16C9EB007C2AD
+magnet:?xt=urn:btih:13F0C54DFB9EB7A9E55CC23A71513171CC968ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,169 +81,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208842   (779678) от 24.02.2018
+###  Публикация: 1206505   (782117) от 14.02.2018
 
-Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. It's Not Too Late 6:27
-02. All The Young Girls Cry 5:00
-03. Leah 4:02
-04. The Angels Will Remember 4:34(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208924   (779677) от 24.02.2018
-
-Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Hanging In The Balance 18:03
-02. Working On Mystery Train (On A Bus) 1:49
-03. We All Need Some Light 5:25
-04. Dance With The Devil 9:03(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208843   (779676) от 24.02.2018
-
-Старше всех! (2017-2018) WEB-DLRip [H.264] (5 выпусков из ??) [MP4|1280x720] (Обновляемая)
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779676.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Старше всех!» — новое шоу талантов на Первом канале. Его участники, несмотря на возраст, бодры, веселы и готовы к приключениям. Все герои нового шоу старше 55 лет! Среди них уникальные гимнасты, повара, певцы, гримеры, силачи, танцовщики, токари, блогеры, путешественники… Бабушки и дедушки, чьи истории волнуют и напоминают нам, что возраст — бесценное богатство, (   Читать дальше...   )Производство: Первый каналЖанр: ТелешоуСубтитры: ОтсутствуютПродолжительность: ~ 01:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041E3D51FCF0BAA4BD19C66E7D38B1BE67911C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209040   (779675) от 24.02.2018
-
-Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dovahkiin (Deepkomplekt Remix) (07:04)
- 02. Dovahkiin (Metzler Remix) (05:57)
- 03. Dovahkiin (Overcast Sound Remix) (07:58)
- 04. Dovahkiin (Rich Weller Remix) (05:42)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D39DE1254F0F0E8605D624FCFFAFC53424179E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208309   (779674) от 24.02.2018
-
-MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ballad Of The Goddess (Skyward Sword)
-02 - Song Of Storms (Ocarina Of Time)
-03 - Hyrule Castle (A Link To The Past)
-04 - Gerudo Valley (Ocarina Of Time)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA4FE16104A88E28652574B78D7041DB7B9B9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208738   (779673) от 24.02.2018
-
-Б.Д. Есипов (ред.) | Основы дидактики (1967) [DJVU]
+Ю.Н. Дементьев и др. | Автоматизированный электропривод (2009) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779673.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга является наиболее полным обобщающим трудом по теории образования и обучения. В ней рассматриваются основы содержания образования, методы и организационные формы обучения в общеобразовательной школе, освещаются методологические, психологические и дидактические основы обучения.
-
-Книга рассчитана на научных работников, аспирантов, преподавателей педвузов и педучилищ, (   Читать дальше...   )Жанр: История, искусство, педагогика, психологияФормат: DJVU
+Работа и развитие современной промышленности, сельского хозяйства, транспорта невозможна без автоматизированного электропривода. Изложены основы теории электропривода. Рассматриваются статические и динамические характеристики разомкнутых и замкнутых систем электроприводов постоянного и переменного тока.
+Представлена методика и примеры расчета параметров двигателей. (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E88E040BC8934ABF6A330135D8E2A45C2CFB870
+magnet:?xt=urn:btih:42A2778EB5A81CCAD6521AF8838560C4BD6B5605
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208859   (779672) от 24.02.2018
+###  Публикация: 1206602   (782116) от 14.02.2018
 
-FileZilla 3.31.0 Portable by Baltagy  [Multi/Ru]
+Sleipnir 6.2.10.4000 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779672.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FileZilla — это свободный многоязычный FTP-клиент с открытым исходным кодом для Microsoft Windows, Mac OS X и Linux. Он поддерживает FTP, SFTP, и FTPS (FTP через SSL/TLS) и имеет настраиваемый интерфейс с поддержкой смены тем оформления. Оснащен возможностью перетаскивания объектов, синхронизацией директории и поиском на удаленном сервере. Поддерживает многопоточную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Sleipnir - быстрый и надежный браузер на базе движка Blink и с поддержкой расширений Google Chrome, разработанный японской компанией Fenrir Inc. Веб-браузер предоставляет очень гибкие возможности настройки, поэтому любой пользователь может настроить его под свои нужды.С Sleipnir Вы можете создать идеальный браузер, изменив дизайн, тему оформления и визуальное представление. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB1CA41C138EDBB488413A53AD8A1EF6FD9DA6FF
+magnet:?xt=urn:btih:A98E609B80F75F95F63D6955FBC82A68FA0EC0B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,28 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209060   (779671) от 24.02.2018
+###  Публикация: 1206581   (782115) от 14.02.2018
 
-VA - Record Super Chart #525 (2018) [MP3|320 Kbps] <House, Club, Dance>
+VA - Europa Plus: ЕвроХит Топ 40 / 09.02. (2018) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779671.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Maruv & Boosin  -  Drunk Groove (Kolya Funk & Mephisto Radio Mix)  3:43
-02.  Vanotek feat. Eneli  -  Back To Me (DJ Mexx & DVJ Karimov Radio Remix)  3:02
-03.  Holl & Rush  -  Don't Know  3:49
-04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:03
+01.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+02.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
+03.  Merk Kremont  -  Sad Story Out Of Luck  3:32
+04.  Imagine Dragons  -  Whatever It Takes  3:21(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34F521F89B167313EA0C9B3AD5E011916106E75C
+magnet:?xt=urn:btih:1A1C239D8DB37F6A8F7A2778FB65EE1F76EC8DB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,26 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208855   (779670) от 24.02.2018
+###  Публикация: 1206233   (782114) от 14.02.2018
 
-Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, Promo [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+No-One's Project - Warning (2016) [MP3|320 Kbps] <Rock, Modern Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779670.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. The Fang... Sings! 0:18
-02. Find My Way Back Home 13:22Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:12:49 (CD1), 00:51:01 (CD2), 00:13:41 (Bonus CD)
+1. The Unify Express
+2. Invasor Ballad (The Fallen Mask)
+3. You Are in Teatro
+4. Fly Under the Moon When Midnight Rises(   Читать дальше...   )Жанр: Rock, Modern RockПродолжительность: 00:48:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4B16A9232FF8A686A97106D4351A4E4A8EA9B51
+magnet:?xt=urn:btih:73FA21E16B9F6F7A225977908DBB61BEF4B0D398
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,27 +192,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208355   (779669) от 24.02.2018
+###  Публикация: 1206589   (782113) от 14.02.2018
 
-К. Маркс, Ф. Энгельс, В. Ленин | О научном коммунизме (1965) [DJVU, PDF]
+VA - The Dream - Best Of Torsten Fenslau (1994) 2CD [MP3|320 Kbps] <Electronic, EBM, Techno, Euro House>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torsten Fenslau был одним из самых влиятельных продюсеров ранней немецкой танцевальной сцены. Его прорыв произошел в 1993 году с Culture Beat's 'Mr. Vain', которая возглавила все европейские чарты в этом году. Торстен управлял своим собственным лейблом "Abfahrt Records" и являлся резидентом  Dorian Gray во Франкфурте. Он умер слишком рано в автокатастрофе (   Читать дальше...   )01. Out Of The Ordinary - The Dream (7:50)
+02. Abfahrt - Alone It's Me (9:12)
+03. Klangwerk - Klangwerk (6:11)
+04. Out Of The Ordinary - Play It Again (Los Ninos Mix) (6:59)(   Читать дальше...   )Жанр: Electronic, EBM, Techno, Euro HouseПродолжительность: 02:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3486826E3BAFF1EC1D3F940AD5C0F5BB6F1EC657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206527   (782112) от 14.02.2018
+
+Ромен Гари и тд. | О любви и её последствиях [Сборник. Часть 1] (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неискренняя любовь, что существует только на словах, может привести к ещё большим мучениям, нежели любовь безответная, а неопределенность и пагубная страсть могут толкнуть человека на самые неожиданные и отчаянные поступки…Жанр: реализм, драмаПродолжительность: 07:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F046D103395A65ABF9A34C5D79CF4CE2078AB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206478   (782111) от 14.02.2018
+
+VA - Две Судьбы, Два Голоса (2018) [MP3|256-320 Kbps] <Поп, Рок, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Руки Вверх! & Astero - Когда мы были молодыми
+002. Марина Капуро & Aнсамбль Яблоко - Happy New Year
+003. Руки Вверх vs. Ser Twister - С Новым Годом! (DJ Prezzplay MashUp)
+004. Тараканы! - Stacy Hairy (feat. Иван Глобин & Дарья Глобина)(   Читать дальше...   )Жанр: Поп, Рок, ШансонПродолжительность: 06:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7EF11DDC8D9E5C601026908B7A45C78671DAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206510   (782110) от 14.02.2018
+
+А.М. Донченко, А.Г. Сошинов | Электрооборудование промышленных агрегатов и установок (2018) [PDF, DJVU]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779669.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемая хрестоматия представляет собой сборник высказываний К. Маркса, Ф. Энгельса и В. И. Ленина о научном коммунизме. Распределение материала по главам и внутри глав по отдельным вопросам осуществлялось по тематическому принципу, поэтому расположение высказываний не всегда соответствует хронологической последовательности.
-
-При расположении материала по возможности (   Читать дальше...   )Жанр: История, политология, экономика, хрестоматияФормат: DJVU, PDF
+Разработано в соответствии с обязательным минимумом содержания дисциплины «Электрический привод» . Даются необходимые теоретические положения по основным разделам дисциплины, изложены требования к выполнению заданий, а также методика и примеры их выполнения. В пособии дается весь необходимый справочный материалЖанр: ЭлектротехникаФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1F2653FAA47E7AA99461AE6D8B34C9A719724C9
+magnet:?xt=urn:btih:0205E85627DB43858878E6D34500D906D21ABFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,27 +302,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208890   (779668) от 24.02.2018
+###  Публикация: 1206543   (782109) от 14.02.2018
 
-Москва (изд.) | Утешения старца Паисия в болезнях и скорбях. Беседы. Наставления. Молитвы (2017) [PDF, DJVU]
+Растровый клипарт - Construction Machinery Set 5 [JPG]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779668.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В брошюру вошли краткие рассказы о том, как утешал всех приходящих к нему и подавал исцеления от самых разнообразных телесных и духовных недугов преподобный Паисий Святогорец.
-
-В конце брошюры приведено молитвенное воздыхание матери о своих детях, а также редкая молитва Архангелу Михаилу — нашему верному заступнику от козней диавола, избавителю от всякого зла и целителю (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+Комплект строительной техники, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 7000x4667-9000x6007
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8A94CCD27F7568F1BF49F7DF353A7300FA66540
+magnet:?xt=urn:btih:E16D2FEE167C6AE7CECEE4070E7D168D4EA56FDE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,25 +328,184 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208579   (779667) от 24.02.2018
+###  Публикация: 1206464   (782108) от 14.02.2018
 
-Максим Горький | Русские сказки (1912) [JPG]
+Растровый клипарт - Fotolia - Paradise Travel #2 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие в рай с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2301x3600-5850x4240
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D676B0519E5DD6C9440F9A752CCDBD03A98070C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206593   (782107) от 14.02.2018
+
+Google Chrome 64.0.3282.167 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1FBC6D512BCB99D1E8AFAF9781860909A566C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206590   (782106) от 14.02.2018
+
+Disk Drill Enterprise 3.5.882 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill - восстановление информации без помощи специалистов
+Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: maOS softwareРелиз состоялся: 2018Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.8.5 +Язык интерфейса: Русский, Английский, Польский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AEB4E509BB86562CBF2B8EA0F344166AE44AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206550   (782105) от 14.02.2018
+
+Векторный клипарт - Fotolia - Christmas Collection 21 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Рождественская коллекция
+25 EPS PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971505C1043504B3565953DAB294C4A869016ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206549   (782104) от 14.02.2018
+
+Растровый клипарт - Airplanes Set 13 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект самолетов, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 7000x4554-9000x6007
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF9B1D6823EE2EB0551FEE45BF2228788C57313B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206599   (782103) от 14.02.2018
+
+Ashampoo Photo Commander 16.0.2 RePack (& Portable) by TryRooM  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая Ashampoo Photo Commander 16 - это всестороннее решение для просмотра, редактирования и организации Ваших фотографий, да ещё и с геотегами! Привнесите порядок в Вашу библиотеку фотографий, пакетно оптимизируйте несколько файлов за раз или создавайте Ваши собственные календари, поздравительные открытки и слайд-шоу с лёгкостью. Тщательно контролируйте и управляйте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5A91A281EB9A1679B342E792191B9EEDF19D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206205   (782102) от 14.02.2018
+
+А.Л. Цуканов | Нескучная философия (2018) [PDF, DOCX]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779667.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник сказок для младшего и среднего школьного возраста.Жанр: Детская проза, СказкиФормат: JPG
+Философия, как известно, – не самая простая наука. Но в нашей книге о ней рассказано легко и понятно, так, что каждый школьник поймет: кто такой Эпикур, какие бывают добродетели, почему нельзя дважды войти в одну и ту же реку и почему человек есть «мыслящий тростник»…Жанр: Философия, познавательная литература для детейФормат: PDF, DOCX
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BD91DF74E766547BEE1DEB66A6E5FB6D6B973CC
+magnet:?xt=urn:btih:B6FF828C2AC4BE111B8126F6B93372E252852602
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +513,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209084   (779666) от 24.02.2018
+###  Публикация: 1206406   (782101) от 14.02.2018
 
-Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Dream Pop>
+Faithless - Forever Faithless: The Greatest Hits (2005) Limited Edition [FLAC|Lossless|tracks + .cue] <Progressive House, Downtempo, Hip-Hop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/16. Insomnia (8:42)
+ 02/16. Mass Destruction (3:33)
+ 03/16. God Is A DJ (3:29)
+ 04/16. Don't Leave (4:00)(   Читать дальше...   )Жанр: Progressive House, Downtempo, Hip-HopПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BEC52309F620ED980AC561B482C669F8773386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206635   (782100) от 14.02.2018
+
+Systems In Blue - Melange Bleu (The 3rd Album) (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779666.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sky 04:00
-02. Pearl 03:31
-03. Working Like a Crow 04:05
-04. From One Another 02:54(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Dream PopПродолжительность: 00:34:49
+Part 1. - The Blue Part
+01. Back In Blue 4:13
+02. There's No Heart 3:54
+03. Lady Ocean 3:42(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:11:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80DAF4CBE8EFD0BE605796B77523623AB3454DBC
+magnet:?xt=urn:btih:D0DABA1924929309CABAEBA944DF8FA79B0E897B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,28 +571,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209070   (779665) от 24.02.2018
+###  Публикация: 1206538   (782099) от 14.02.2018
 
-MegaDriver - For Great Justice (2018) [MP3|256 Kbps] <Heavy Metal>
+Бэтмен: Начало / Batman Begins (2005) HDRip [H.264] [MP4|1280x534]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Мультимедиа и прочее
+>>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779665.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Thunder Thrash (Title And Bosses Medley), Thunder Force IV
-02 - Metal Squad, Thunder Force IV
-03 - Rising Blue Lightning, Thunder Force V
-04 - Stand Up Against Myself, Thunder Force IV(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:48
+В детстве юный наследник огромного состояния Брюс Уэйн оказался свидетелем убийства своих родителей, и тогда он решил бороться с преступностью. Спустя годы он отправляется в путешествие по миру, чтобы найти способ восстановить справедливость. Обучение у мудрого наставника боевым искусствам дает ему силу и смелость. Вернувшись в родной город, Уэйн становится Бэтменом (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, Боевик, Драма, ПриключенияРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Майкл Кейн, Лайам Нисон, Кэти Холмс, Гари Олдман, Киллиан Мерфи, Морган Фримен, Том Уилкинсон, Рутгер Хауэр, Кен Ватанабе, Марк Бун ДжуниорПеревод: Дублированный (Лицензия)Субтитры: Русские (полные), Английские (полные)Продолжительность: 02:20:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:369A281E3D73715461D5FD82A9F843E958233601
+magnet:?xt=urn:btih:7311F445F22F74D11D346DAACADE15FF1C3E5C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206470   (782098) от 14.02.2018
+
+Журнал | Шитье и крой (ШиК) №3 [+выкройки] (март 2018) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782098.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ШиК» — современный журнал по шитью. Десятки оригинальных, изысканных и шикарных моделей pret-a-porter для женщин. Журнал дополнен специальным разделом, где представлены варианты коллекций для полных, маленьких и миниатюрных женщин, а также детские и мужские модели. В каждом номере героини известных отечественных и зарубежных кинофильмов и сериалов представляют вниманию (   Читать дальше...   )Жанр: шитье и кройФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CECE0F74896DC03F3B810D2B7467E88A9633D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206630   (782097) от 14.02.2018
+
+Журнал | Maxim [Россия] №3 (март 2018) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Maxim радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0328D432EC5A86DA6164D23231E68135EA265D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206502   (782096) от 14.02.2018
+
+Рамки - С Днем Святого Валентина! [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многослойные PSD Шаблоны-рамки.С Днем Святого Валентина! для вашего творчества.Формат: PSDРазрешение файлов: 3508х4961-4961х3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA2A6A2DD05D506CE1EC70823953C8CDE9452C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206643   (782095) от 14.02.2018
+
+Растровый клипарт - Creative Market - Super fancy Valentine's Day Pack - 2278661 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот большой набор объектов, которые вы можете использовать для создания собственного дизайна для свадьбы, приглашений, декорации событий, дня Святого Валентина. Или вы можете просто добавить сладкие и милые вещи во все, что вы создаете.Формат: PSDРазрешение файлов: 4000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1142927D440600A0BAFDD80EB94DE9C035847173
 ```
 
 https://mybot314.ru/tekegram_catalog/

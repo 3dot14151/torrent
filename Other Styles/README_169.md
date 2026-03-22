@@ -1,3 +1,178 @@
+###  Публикация: 468910   (83309) от 20.03.2012
+
+John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83309.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.20th Century Fox Fanfare (0:19)
+2.Star Wars Main Title / The Imperial Probe (3:43)
+3.Saying Goodbye (1:31)
+4.Escaping the Wampa's Lair (1:41)
+5.Vision Of Obi-Wan / Luke's Rescue (2:14)
+6.Snowspeeder Rescue (1:03)
+7.The Bacta Tank (0:16)
+8.The Executor (1:47)
+9.Battle Preparations (4:02)
+10.Battle Of Hoth (3:18)(   Читать дальше...   )Жанр: ScoreПродолжительность: 2:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4C59EC3F1661C6513268FAD7663EC120E5A523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469248   (82728) от 17.03.2012
+
+Звуки Природы - Песни Птиц (1999) [MP3|320 кб/с]<Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Восход (03:20)
+02. Птицы на реке (03:51)
+03. Пересмешник (01:09)
+04. Древесный дрозд, Рыжик, Лисий воробей (02:57)
+05. Воробей с белым горлом, Краснохвостый сокол (01:55)
+06. Красноголовый дятел, Красногрудый дятел (02:37)
+07. Пурпурный зяблик, Балтиморская иволга, Болотная иволга (02:47)
+08. Каролинский крапивник, Каньонный крапивник, Мухолов (03:06)
+09. Ворона обыкновенная, Большой баклан, Зеленая цапля (02:57)
+10. Обыкновенный воробей, Обыкновенный дятел, Овсянка (03:35)(   Читать дальше...   )1999Жанр: RelaxПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EBFCA2C3CE09FDC7483F6CA43E64BE7CE5545B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468129   (82515) от 16.03.2012
+
+Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82515.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening Titles
+ 2. The Game Is On
+ 3. War
+ 4. Pink
+ 5. Security Cameras
+ 6. Pursuit
+ 7. Which Bottle?
+ 8. Targets
+ 9. Library Books
+ 10. Number Systems(   Читать дальше...   )2012Жанр: Series OSTПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A131D93CE5D659FA276B973E9D5F66BC9377ABA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468579   (82403) от 16.03.2012
+
+Сердца в Атлантиде - Hearts In Atlantis (2001) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chubby Checker - The Twist (2:38)
+02. Chuck Berry - Carol (2:48)
+03. Santo & Johnny - Sleep Walk (2:23)
+04. The Platters - Never Really Went Away (2:49)
+05. The Platters - Only You (2:40)
+06. Mychael Danna - Summer Vacation (5:32)
+07. The Crew Cuts - Sh-Boom (2:48)
+08. Percy Faith & His Orchestra - Theme from 'A Summer Place' (2:23)
+09. The Platters - Twilight Time (2:47)
+10. Mychael Danna - The Hill (4:14)(   Читать дальше...   )2001Жанр: SoundtrackПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8515322FE95110655123B803E63D9485A959E32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467154   (81860) от 13.03.2012
+
+VA - Любимые мелодии Советского кино (2012) [MP3|320 кб/с]<Soundtrack, Pop>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тема детей (из к-ф 'Сказка о звездном мальчике', 1983)
+02. Сны Татьяны (из к-ф 'Шла собака по роялю', 1978)
+03. Вертолет (из к-ф 'Шла собака по роялю', 1978)
+04. Утро (из к-ф 'Служебный роман', 1977)
+05. Увертюра (из к-ф 'Служебный роман', 1977)
+06. Подводный мир и румба (из к-ф 'Человек-амфибия', 1961)
+07. Осень (из к-ф 'Служебный роман', 1977)
+08. Мелодия (из к-ф 'Осенний марафон', 1979)
+09. Вальс (из к-ф 'О бедном гусаре замолвите слово', 1980)
+10. Тема разлуки (из т-с 'Гардемарины, вперед!', 1987)(   Читать дальше...   )2012Жанр: Soundtrack, PopПродолжительность: 04:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1629151A5A7EEA837BCE8505B08F312D27D0E2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467022   (81834) от 13.03.2012
 
 Лоракс / The Lorax - Original Songs From The Motion Picture (2012) [MP3|320 кб/с]<Soundtrack>
@@ -641,151 +816,6 @@ Armik - Gitano Amor (2025) [MP3|320 Kbps] <Flamenco, Instrumental, Guitar>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4A6D8858000C293BCA6689E3ED24B92E6615FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784919   (69235) от 16.03.2025
-
-Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origination (Original Mix) (3:52)
-02. Token of Love (Original Mix) (4:49)
-03. Try to Understand This (Original Mix) (3:34)
-04. My Morning (Original Mix) (4:16)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EF8A196F15AEE926D293C7BED012906D4ACF34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787216   (68805) от 25.03.2025
-
-Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manschoud
-02. Timeless
-03. Safi
-04. People(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E569DCCCE7688482B9F5081044C8A2FB38413796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788827   (68453) от 01.04.2025
-
-VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalico Jak, Tibetania - Sunlight Through the Treetops (Original Mix) (9:04)
-02. Gabriel Slick, Tibetania - Astral Illusion (Original Mix) (7:18)
-03. Paolo Lofre, Tibetania - Doa (Original Mix) (7:32)
-04. Indiano, Tibetania - Astral (Original Mix) (8:04)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376B1D1DAFC9F109B870878946C5E10105EAE73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789135   (68361) от 02.04.2025
-
-Chris Janson - Everybody (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who's Your Farmer    [0:02:50.72]
-02. Everybody    [0:02:52.50]
-03. Name On It    [0:02:43.30]
-04. Eyes for Nobody    [0:03:37.69](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4BA0513C9DC902AF5A4D84C3FCDF6544B3CAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789180   (68344) от 03.04.2025
-
-Dwight Yoakam - This Time (1993) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pocket of a Clown    [0:02:57.45]
-02. A Thousand Miles From Nowhere    [0:04:29.58]
-03. Home for Sale    [0:03:39.02]
-04. This Time    [0:03:58.28](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DECBF747F6C2156F5F7F752AB94297E516ABE2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

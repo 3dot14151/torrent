@@ -1,82 +1,25 @@
-###  Публикация: 1798974   (66533) от 25.05.2025
+###  Публикация: 1785328   (69342) от 15.03.2025
 
-Orbital - Orbital 2 (1993) The Brown Album Expanded, 2025, 5CD, London Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Acid, Breakbeat, Electro, House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Semi Detached [00:09:32]
-02. Lush (Spacewalk Mix) [00:07:06]
-03. Lush (1926 Trancendance Mix) [00:05:38]Жанр: Electronic, Acid, Breakbeat, Electro, House, Techno, TranceПродолжительность: 5 CD, 04:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C40071C077151D23D97BF30E7E882D176EA0755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799090   (66532) от 25.05.2025
-
-Agressor - The Merciless Onslaught (2004) Compilation [WavPack|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paralytic Disease
-02. Elemental Decay
-03. Bloody Corpse
-04. Intro/Brainstorm(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E6815C52B1A459E164D9CEE226EA819D1E5FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799046   (66531) от 25.05.2025
-
-Thus Spoke Zarathustra - I'm Done With Self Care, It's Time For Others' Harm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
+Karen Cheryl - Etonnamment Romantique  Best Of (2025) Remastered [FLAC 24/96|Lossless|WEB-DL|tracks] <Disco, Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66531.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. G.G.O.
-02. I Can't Save You (feat. Boundaries)
-03. Gage Lanza 2: Return Of The Red Hammer
-04. I Didn't Believe In Magic Till' My Dog Turned Into A Snake(   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:30:08
+01. La marche des machos (04:17)
+02. Chante pour nous Mama (03:17)
+03. Les nouveaux romantiques (03:23)
+04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: Disco, Electronic, PopПродолжительность: 03:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75468B8525E029F86EE226EA90157538AD03C4FC
+magnet:?xt=urn:btih:FF41D47F9DD122827C62176FDA7D4D592D7EEC95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798971   (66530) от 25.05.2025
+###  Публикация: 1785206   (69341) от 15.03.2025
 
-Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metalcore>
+Manntra - Titans (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Folk Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66530.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undo [00:03:59]
-02. Surge [00:04:05]
-03. Meek [00:04:13]
-04. Safe [00:05:21](   Читать дальше...   )Жанр: Alternative Metal, Nu MetalcoreПродолжительность: 00:44:01
+01 - Ceremony [0:57]
+02 - Titans [2:53]
+03 - Teuta [3:33]
+04 - The Heart Of The Storm [4:24](   Читать дальше...   )Жанр: Industrial Metal, Folk MetalПродолжительность: 00:37:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2C0F4C671839A95933AC18ACEDE635D4BF971B
+magnet:?xt=urn:btih:B9C1991D820A8A03B4BE8F621CAAE3F58D65095E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,213 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799131   (66529) от 25.05.2025
+###  Публикация: 1785174   (69340) от 15.03.2025
 
-Зашанхаенный / Shanghaiet (1912) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66529.jpg" />
-</div>
-
-
-###  Подробнее
-
-У молодого моряка Вилли дела идут хорошо. Он только что с отличием закончил обучение, обручился с любовью всей своей жизни, дочерью судовладельца Клаузена, Лилли. И уже получил работу, понятно дело, на судне будущего тестя. Все хорошо и перспективы радужные. Но есть соперник, некий Бэнг, чье предложение руки и сердца Лилли недавно было отвергнуто. Он полон гнева (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Cajus Bruun, Alma Hinding, Отто Лагони, Карл Лауритцен, Альф Нилсен, Питер Нилсен, Клара Понтоппидан, Кристиан Шрёдер, Agnete von Prangen, Карло ВитПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712A1F3A78062FE0994CBAC041F803EEF47ACF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799050   (66528) от 25.05.2025
-
-MotoGP. Этап 07 из 22. Гран-при Великобритании. Квалификация (24.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66528.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 мая 2025 суббота. 13:50 МСК. Этап 7 Сильверстоун. Гран-при Великобритании. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00034EDB3219235878D4C207D7F8B816D4EC269A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799074   (66527) от 25.05.2025
-
-MotoGP. Этап 07 из 22. Гран-при Великобритании. Спринт (24.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66527.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 мая 2025 суббота. 18:00 МСК. Этап 7 Сильверстоун. Гран-при Великобритании. Спринт (10 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0BCC96B81FF0D00381E1DB71FA0B206452EBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798916   (66526) от 25.05.2025
-
-The Devil Wears Nada - Postalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock / AOR>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adecence
-02. Patient Zero
-03. Late Night Talking
-04. Make Me Feel(   Читать дальше...   )Жанр: Melodic Rock / AORПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F84B3F99A60CCC0B92AF15E2B8C8C963AC4812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799053   (66525) от 25.05.2025
-
-Hinder - Back To Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Rock, Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Without It [00:03:28]
-02. Rearview [00:03:23]
-03. Everything Is A Cult [00:03:23]
-04. Bring Me Back To Life [00:03:56](   Читать дальше...   )Жанр: Alt. Rock, Hard Rock, Post-GrungeПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41342DCC4CDFF0DCDDB78E956B9DEEF8A0893746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798725   (66524) от 26.05.2025
-
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-7 [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8E5FC0D06068DEAF79FA3AEB833521ECFE56D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798501   (66523) от 26.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Coastal Cowgirl Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на морскую тему с ковбойшами (пастушками-ковгёрлами).Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71BAC6378679C8DF6A0F40A85822E088C77C918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799227   (66522) от 26.05.2025
-
-Газета | Тайны СССР №9 (186) (май 2025) [PDF]
+Журнал | Делаем сами №5 (578) (март 2025) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66522.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30719CA1C2255348A340121F1908620EA052F707
+magnet:?xt=urn:btih:6FDE9368555C67226031EA7E4A562D367EF92410
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,25 +82,283 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798707   (66521) от 26.05.2025
+###  Публикация: 1785266   (69339) от 15.03.2025
 
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-1 [JPEG]
+Electrical Cost / Стоимость электроэнергии v6.1.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расчет теоретических расходов в соответствии с потреблением энергии бытовой техникой. С помощью программы вы легко сможете посчитать нагрузки, возможность отправки созданного шаблона на другие устройства.Тип издания: ModРелиз состоялся: 14.03.2025Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9A143ADDFBE5DBA2329904861D29D451E2FF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784963   (69338) от 15.03.2025
+
+The Hot Rod Gang - Can U Dig It? (40th Anniversary) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Rockabilly, Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can U Dig It? [00:04:00]
+02. Two Hearts [00:04:04]
+03. The Man He Used To be [00:03:42]
+04. Boogie Woogie Country Girl [00:03:10](   Читать дальше...   )Жанр: Rock, Rock & Roll, Rockabilly, Rhythm & BluesПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF00FC673F8F1E8C17A6FD61F1C046333C733EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785327   (69337) от 15.03.2025
+
+Екатерина II Великая | Записки Екатерины II. Избранные главы (1992) [MP3, Роза Балашова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Екатерина II (1729–1796) – российская императрица. Урожденная немецкая принцесса София Августа Фредерика Ангальт-Цербстская.
+Долгое время «Собственноручные записки» императрицы Екатерины II хранились под грифом «Особой секретности», наложенным на них ее сыном, императором Павлом. Однако он разрешил своему близкому другу, князю Александру (   Читать дальше...   )Жанр: Русская литература, исторические мемуары, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 03:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A75EAD165372872C41E5752D5DBDE8F6BEDB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785376   (69336) от 15.03.2025
+
+Екатерина Дашкова | Записки княгини Дашковой. Избранные главы (1992) [MP3, Валентина Панина]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Екатерина Романовна Дашкова (1743–1810) – государственный деятель Российской империи, одна из самых заметных личностей русского Просвещения, писатель и педагог.
+Многолетняя подруга и сподвижница императрицы Екатерины II, сыгравшая значительную роль в восшествии последней на престол в 1762 году.
+Читает Заслуженная артистка РСФСР Валентина (   Читать дальше...   )Жанр: Русская литература, исторические мемуарыИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 03:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BB377454D9F153AB9F6F0382B885500793E2C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784248   (69335) от 15.03.2025
+
+Сергей Одинцов - Пусть не кончается любовь (2025) [MP3|320 Kbps] <Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - А там, за тучами свет [00:03:59]
+02 - А ты танцуй, танцуй [00:04:04]
+03 - Всё так же, как тогда [00:03:23]
+04 - Ну как же я хочу [00:03:16](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB116EF87FA13CFFF348BAEE86E6041523F62458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785412   (69334) от 15.03.2025
+
+Streetlight - Night Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Long-Distance Runner (3:57)
+02.  Captured In The Night (3:40)
+03.  Sleep Walk (3:50)
+04.  Learn To Love Again (5:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688CB34508C75185FB54705BE54BE744A1C52671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784962   (69333) от 15.03.2025
+
+Confidence Man - 4AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, Electro, House, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WHO KNOWS WHAT YOU’LL FIND? [00:03:35]
+02. I CAN’T LOSE YOU [00:02:35]
+03. CONTROL [00:03:44]
+04. SO WHAT [00:03:15](   Читать дальше...   )Жанр: Techno, Electro, House, DanceПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319A36DA14F5E20E93F95AB503A9706C27BBDFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785308   (69332) от 15.03.2025
+
+Александр Куприн | Штабс-капитан Рыбников (2021) [MP3, Дмитрий Лебедев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+Рассказ Александра Куприна «Штабс-капитан Рыбников» был впервые опубликован в журнале «Мир божий» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51A9E727F62F61F38C2B546320CC8A17AB470CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785326   (69331) от 15.03.2025
+
+Swallow The Sun - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swallow the Sun — финская группа из Йювяскюля, основанная в 2000 году2003 - The Morning Never Came
+2005 - Ghosts of Loss
+2008 - Hope
+2009 - New MoonЖанр: Melodic Doom/Death MetalПродолжительность: 10:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43FC1B90DBC99B4E9153207DA5894F9AB1C1352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785315   (69330) от 15.03.2025
+
+Шрифты - Creative Market - Maniefa || Elegant Serif Font - 290802538 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66521.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600 - 4000 x 4000
+Maniefa — это шрифт с засечками, который излучает роскошь и элегантность. Он привлекает внимание и улучшает любой дизайн.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5EF18A3883A020FE45E408F24F7853FF14568FB
+magnet:?xt=urn:btih:F05DE1FD9D4A9CFEB3B8A700A41913C9E2A27256
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,28 +366,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798685   (66520) от 26.05.2025
+###  Публикация: 1785201   (69329) от 15.03.2025
 
-Skunk Anansie - The Painful Truth (2025) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
+Coheed and Cambria - The Father of Make Believe (2025) [MP3|320 Kbps] <Alternative, Prog Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66520.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - An Artist Is An Artist [3:12]
-02 - This Is Not Your Life [3:25]
-03 - Shame [4:07]
-04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
+01 - Yesterday’s Lost [00:03:24]
+02 - Goodbye, Sunshine [00:04:16]
+03 - Searching for Tomorrow [00:03:33]
+04 - The Father of Make Believe [00:04:39](   Читать дальше...   )Жанр: Alternative, Prog RockПродолжительность: 00:57:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F59106210D8E0067AC703E37588D9886AEA2AB2
+magnet:?xt=urn:btih:52EF9D379933E9BA9A968FFD16D551E4588B6594
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,25 +395,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799224   (66519) от 26.05.2025
+###  Публикация: 1785364   (69328) от 15.03.2025
 
-Газета | Тайны СССР №8 (185) (апрель 2025) [PDF]
+David Rose - My Only One (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66519.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01.  My Only One (3:34)
+02.  Dancing Alone (6:26)
+03.  Sunset Boulevard (3:43)
+04.  Shades of Blue (3:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CDD0DC632C8640446F66D670B7620EF53D3992A
+magnet:?xt=urn:btih:B34ACAA46927E0BE5463B3691F45F2EC7F158372
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,25 +424,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798522   (66518) от 26.05.2025
+###  Публикация: 1785207   (69327) от 15.03.2025
 
-Книжная иллюстрация - DoodleBox - Creative Fabrica - Abstract Mandala Coloring Pages Vol.3 [AI, EPS, JPG, PDF, PNG, SVG]
+Glowhax - The Sun Forgot to Shine (2025) [MP3|320 Kbps] <Dark Electro, Synthwave>
 
->>Графика, Арт, Разное
->>Книжная иллюстрация
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66518.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор изображений с мандалами в векторе и растре.Формат: AI, EPS, JPG, PDF, PNG, SVGРазрешение файлов: 4000 x 4000
+01 - Celestial Being [00:03:02]
+02 - Miserables [00:03:51]
+03 - Soft Silky Touch [00:04:50]
+04 - Island Wasn't What I Thought [00:03:13](   Читать дальше...   )Жанр: Dark Electro, SynthwaveПродолжительность: 00:50:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5347743E091ABB3C68EEB7382AF54C859178FB7
+magnet:?xt=urn:btih:21D8E09AF18C2E0F786055FE3118FF2E19FDD803
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,54 +453,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798510   (66517) от 26.05.2025
+###  Публикация: 1785281   (69326) от 15.03.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Camera Retro Sublimation [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с фотоаппаратами для сублимации.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A01EC5F2BBC360DD2DEC94DD517B3B7C0E47B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799196   (66516) от 26.05.2025
-
-VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+VA - Exx Muzik Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66516.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steen Thottrup & Kaia Mainz - Dreamers (daZZla Deep Remix) (06:14)
-02. Living Room - Fisheye (Pearldiver Deep Edit) (03:29)
-03. Calmabohain - Never Forget (03:25)
-04. Mia Lemar - Squire Of Desire (HerbLF Close To Dub Mix) (06:34)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:13:17
+01. Airsand & TuraniQa & widerberg - Mesmerized (Extended Mix) [4:49]
+02. Davrin - I Just Want To Fly (Extended Mix) [5:55]
+03. Raynz (IT) - Bring The Fire (Extended Mix) [5:24]
+04. Airsand & TuraniQa & Vedi Kerem - Diwali (Extended Mix) [5:01](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:46:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
+magnet:?xt=urn:btih:6680C1C055A7CD9C52E25AF613314BD1308ADA95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,25 +482,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799220   (66515) от 26.05.2025
+###  Публикация: 1785203   (69325) от 15.03.2025
 
-Газета | Тайны СССР №15 (166) (июль 2024) [PDF]
+VA - Sirup Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
->>Журналы
->>Другие журналы
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66515.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01. Sons Of Maria - Some Days Are Harder (Extended Mix) [4:46]
+02. Galardo - Juno (Extended Mix) [5:42]
+03. Nora En Pure - Train Of Thoughts (Extended Mix) [6:30]
+04. EDX - Longlivedad (Extended Mix) [5:51](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:04:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FF6FE8DCF29715833C954CA094E374A98098A10
+magnet:?xt=urn:btih:E237EFDACB81B71A20A39454D16205019F38F8C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,25 +511,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799172   (66514) от 26.05.2025
+###  Публикация: 1785374   (69324) от 15.03.2025
 
-Карен Хорни | Невротическая личность нашего времени (2005) [MP3, Игорь Писарев]
+Своя игра (15.03.2025) WEBRip [H.264/1080p]
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66514.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В своей работе «Невротическая личность нашего времени» (1937), ознаменовавшей отход от классической фрейдовской теории, Карен Хорни сосредотачивается не на прошлых, а на существующих в данный момент конфликтах личности и включает в сферу своего внимания социальные и культурные факторы развития неврозов.Жанр: ПсихологияИздательство: АРДИСПродолжительность: 09:15:11
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Михаил Говорков, Андрей Волыхов, Николай БабушкинЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B65B252703D9374F7229BB206F67826931066E4F
+magnet:?xt=urn:btih:DE29BE87E1AA05CD83F4E96015D954134A53F90E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,25 +537,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798733   (66513) от 26.05.2025
+###  Публикация: 1785324   (69323) от 15.03.2025
 
-Паттерны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-9 [JPEG]
+Живая еда с Сергеем Малозёмовым (15.03.2025) WEBRip [H.264/720p]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66513.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600 - 4096 x 4096
+Какие продукты способны продлевать молодость? Кто такие биохакеры? На что они только не идут, чтобы сохранить молодость — голодают, пускают кровь и даже едят цветы, но что из этого действительно работает, а что, наоборот, опасно для жизни?
+  Изюм: правда ли в нем много грязи? Чем его обрабатывают, как выбрать вкусный и безопасный и как правильно его мыть, чтобы не (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75C69CFCD74CE03D86474AFCB7DB9A61A0AFD1DC
+magnet:?xt=urn:btih:12FE07456843D9CAB499F7E2A4BE5DAAFA549F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,25 +564,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798525   (66512) от 26.05.2025
+###  Публикация: 1785410   (69322) от 15.03.2025
 
-Растровый клипарт - DoodleBox - Creative Fabrica - Abstract Mandala Adult Coloring Pages 2 [AI, EPS, JPG, PDF, PNG, SVG]
+ZZ Ward - Liberation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66512.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор изображений с мандалами в векторе и растре.Формат: мРазрешение файлов: 4000 x 4000
+01.  Mother (2:56)
+02.  My Baby Left Me (2:14)
+03.  I Have No One (2:33)
+04.  Cadillac Man (2:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65F9AF698DBEF2C400CA9651BDCC7C66257000AC
+magnet:?xt=urn:btih:16908F827D9EDD64AB68F29367017514B065DAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,25 +593,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798633   (66511) от 26.05.2025
+###  Публикация: 1784955   (69321) от 15.03.2025
 
-Растровый клипарт - FabriCraft - Creative Fabrica - Monstera Plant Digital Paper Patterns [PNG]
+Yuridia - Sin Llorar (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66511.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Орнаменты с изображениями монстеры.Формат: PNGРазрешение файлов: 3600 x 3600
+01. Para Que Seas Feliz [00:03:02]
+02. Sin Llorar [00:03:42]
+03. Un Bendito Día [00:03:31]
+04. Evítame la Pena [00:02:43](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DF96F6D1030528A747A1FBD810C95111A259F34
+magnet:?xt=urn:btih:A1A0EF22A38CC95FD9706038804113F18690559B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,26 +622,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798626   (66510) от 26.05.2025
+###  Публикация: 1785283   (69320) от 15.03.2025
 
-Растровый клипарт - Creative Fabrica - FabriCraft - Medical Seamless Patterns [PNG]
+Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чудаков [2024, TV, 12 из 12 эп.] BDRemux 1080p raw+rus
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Аниме разное
+>>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66510.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные бесшовные орнаменты на медицинскую тему.
-Подойдет для медицинской формы в детских мед. учреждениях.Формат: PNGРазрешение файлов: 3600 x 3600
+Соске Кабурая - простой детектив, который пытается сводить концы с концами. Работая над делом, он столкнулся с Сарой, принцессой из иного мира. Несмотря на владение магией, она легко освоилась в современном японском обществе. В это время её находит Ливия, рыцарь из свиты Сары. Вскоре обе девушки начинают влиять на жизнь Соске и других персонажей.Производство: SynergySP | Studio CometЖанр: ФэнтезиРежиссер: Сато МасафумиПеревод: CrunchyRollЯзык озвучки: Японский и Русский (AniLibria)Субтитры: Английские (полные и надписи), Русские (полные и надписи)Продолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEABC40B778ED1B3E2782E39C5E6D5C31484E98D
+magnet:?xt=urn:btih:EAF987678DCD7906CC312EAA43E4FE9253D0EA8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,25 +648,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798736   (66509) от 26.05.2025
+###  Публикация: 1785389   (69319) от 15.03.2025
 
-Фоны - doly_khatun - Creative Fabrica - Mandala Digital Papers Set-11 [JPEG]
+David Rose - Sun Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66509.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с изображением мандалы.Формат: JPEGРазрешение файлов: 3600 x 3600
+01.  Salvame De Esta Pena (3:44)
+02.  Laman-Zana (2:02)
+03.  Bailando Junto Al Mar (3:07)
+04.  Primavera En El Paraiso (1:31)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:54:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD18EE1F8209D9545165517B28537899993AB9B5
+magnet:?xt=urn:btih:B3ED31119F09289763699D037CBBE0C3BDB7CA19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +677,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798711   (66508) от 26.05.2025
+###  Публикация: 1784894   (69318) от 15.03.2025
 
-Mudslider - Eerie Visions (2025) [MP3|320 Kbps] <Progressive Thrash, Heavy, Death Metal>
+Футбол. Fonbet Кубок России 2024/25. Путь регионов 1/4 финала. Акрон (Тольятти) - Спартак (Москва) (12.03.2025) WEBRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66508.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Chewing Dead
-02. Doppelgänger
-03. Globster
-04. Hanako-san(   Читать дальше...   )Жанр: Progressive Thrash, Heavy, Death MetalПродолжительность: 00:41:36
+Сегодня, 12 марта, состоится матч 1/4 финала Пути регионов Фонбет Кубка России между тольяттинским «Акроном» и московским «Спартаком». Игра пройдёт на стадионе «Солидарность Арена» в Самаре. В качестве главного арбитра встречи выступит Артём Чистяков. Стартовый свисток раздастся в 16:00 мск. Команды объявили стартовые составы на игру.
+    Экс-защитник столичной команды (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболПродолжительность: 01:44:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:397E6850FE3C451CDB425B07A4398DC6F07486FA
+magnet:?xt=urn:btih:77740E38E1B65169C88F26979D9EBC197409DAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785377   (69317) от 15.03.2025
+
+Екатерина Дашкова | Записки (2004) [MP3, Галина Самойлова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Тайны истории в романах, повестях и документах.
+Екатерина Романовна Дашкова (1743–1810) – государственный деятель Российской империи, одна из самых заметных личностей русского Просвещения, писатель и педагог.
+Е.Р. Дашкова принадлежит к числу выдающихся общественных деятелей России второй половины XVIII века. На протяжении многих лет она была подругой (   Читать дальше...   )Жанр: Русская литература, исторические мемуарыИздательство: Вира-М (аудио)Продолжительность: 08:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EC93C6A36B352911147DF5CEA17CF7D89F2C1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,109 @@
-###  Публикация: 1713533   (111882) от 06.04.2024
+###  Публикация: 1703478   (114806) от 01.03.2024
 
-Attic - Return of the Witchfinder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+Marian McPartland & Friends - 85 Candles: Live In New York (2005) 2CD, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [9:46]
+02. My Foolish Heart [5:34]
+03. But Not for Me [3:35]
+04. Memories of You [7:31](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7E1498D6505C6560AB9B3F718682C753B6F93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703701   (114805) от 01.03.2024
+
+Averoth - Burden of My Life (2010) EP [FLAC|Lossless|tracks] <Melodic Death, Doom, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrifice Me for Evil (03:23)
+02. Burden of My Life (04:11)
+03. Evil Lies (03:03)
+04. Coldness in My Tears (04:53)(   Читать дальше...   )Жанр: Melodic Death, Doom, Gothic MetalПродолжительность: 00:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C7BBB0FA69BD6F8C1AC635462672EFE54E4942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703770   (114804) от 01.03.2024
+
+Женщина в черном / The Woman in Black (1914) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная цыганка Мэри обманута и соблазнена безнравственным Робертом Крэйном и брошена ( да-да, он обманул и соблазнил цыганку! Экий ухарь!). Ее изгоняют из табора, и она вместе со своей матерью Зендой, известной как «Женщина в черном», клянется отомстить. Тем временем Крейн шантажирует отца Стеллы Эверетт, заставляя ее выйти за него замуж, хотя она любит Фрэнка Мэнсфилда...Производство: США, Biograph Company, Klaw & ErlangerЖанр: драма, мелодрама, немое киноРежиссер: Лоуренс МарстонАктеры: Лайонел Бэрримор, Алан Хейл, миссис Лоуренс Марстон, Мари Ньютон, Милисент Эванс, Чарльз Хилл Майлз, Гектор В. Сарно, Jack Drumier, Фрэнк ЭвансПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF4379B342C3B00D4C966D047F7F1D5F80F7B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703799   (114803) от 01.03.2024
+
+Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Alternative Rock, Rap Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111882.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Covenant
-02. Darkest Rites
-03. Hailstorm And Tempest
-04. The Thief's Candle(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:11
+01 - Where'S The Exit [2:38]
+02 - Deadzone [2:51]
+03 - Wolves In California [2:42]
+04 - Xoxo [2:54](   Читать дальше...   )Жанр: Nu Metal, Alternative Rock, Rap MetalПродолжительность: 00:35:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADF0CC6ACB8F00EFF2D58BD4B24B43E3C5083AC8
+magnet:?xt=urn:btih:6DB484FB4F9F2A40DFE24100F6CF4FFF459EA09C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,166 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713352   (111881) от 06.04.2024
+###  Публикация: 1703745   (114802) от 01.03.2024
 
-VA - Miami Vibes (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Timeless (ofc) - Find Us (Original Mix) [5:30]
-02. Ali Maher - Overtaking (Original Mix) [6:02]
-03. Jaiza(SL) - Anarcrusan (Original Mix) [8:02]
-04. Two R - Something Dark Almost Real (Nikko Mavridis Remix) [7:37](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 10:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5528C23C36CABC7E978D563467584B38C8DF3F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713438   (111880) от 06.04.2024
-
-Markus Schulz - Global DJ Broadcast World Tour (MAD Club Wynwood Miami, Miami Music Week) (2024-04-04) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz (Recorded Live from MAD Club in Wynwood, Miami - March 23 2024)
-01. Anyma - Chordial
-02. Pryda - The Hiidden
-03. Frenckel & Ton TB - Dark Cloud(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50300C86DACD2115121212CB2D53C7221CEB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713555   (111879) от 06.04.2024
-
-Поедем, поедим! Круиз в Турцию: самый странный ресторан Стамбула и тальята с пастой орзо (06.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди снова отправился в круиз! Путешественник осмотрел самую красивую турецкую мечеть, пообедал в самом странном стамбульском ресторане, прогулялся по древнему городу Эфес, попробовал рыбу святого Петра, а еще — поднялся на измирском лифте, приготовил тальяту с пастой орзо и сотэ из мидий соусом бешамель.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4485DA796727DDAD16E4FC90BBB89F9E68C126E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713504   (111878) от 06.04.2024
-
-Дон Аврора Хант | Волшебство на кухне (2024) [MP3, Ирина Ефросинина]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебство на кухне. Гайд по рецептам для любви и романтики» расскажет о самом простом виде волшебства – кулинарии. В этой книге Аврора Дон Хант делится рецептами самых любимых блюд – жареный сыр, суп из запеченного картофеля, киш для воскресного бранча, печеные персики со сливками, – и магическими практиками, которые помогут вам изменить жизнь и привлечь любовь.Жанр: КулинарияИздательство: ЭксмоПродолжительность: 04:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F10A04746F9083FC76B2D3EFBF27493DC33E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713561   (111877) от 06.04.2024
-
-Главная дорога (06.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авария на переезде с 7 жертвами из-за пьяного диспетчера, «подвиги» подростка на тонированном седане, кругом вода и затопленный автобус на Алтае.
- Глюки, ржавчина и сюрпризы во время движения: китайское качество по цене квартиры.
- С виду обычный самокат, а даст фору любом мопеду, а то и мотоциклу! Чем опасны СИМ, как правильно ими управлять, где этому учиться и какие (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0C6795368BAA9BACCF2328A361F0CB1BC71475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713508   (111876) от 06.04.2024
-
-Rob Van Bavel Trio - The Ghost, The King And I (2010) 2CD, 2023, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
+Rhonda Burchmore - Cry Me a River: The World Of Julie London (2013) ABC Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111876.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Announcement [0:49]
-02. You Dig [9:38]
-03. Announcement [1:36]
-04. Vicio [5:54](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 01:56:54
+01. Let There Be Love [2:38]
+02. Blue Moon [2:31]
+03. What a Difference a Day Makes [2:29]
+04. You'd Be So Nice to Come Home To [2:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABA150BB2D0F8A509D839C1FBEB273FC37CFE68C
+magnet:?xt=urn:btih:4C3A20D02D524DF1EF74709E22C3E2D7C054B06B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,28 +140,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713595   (111875) от 06.04.2024
+###  Публикация: 1703595   (114801) от 01.03.2024
 
-Circle Of Friends - Cherokee Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Благовест | Святые минуты. Примеры благочестия и добродетели, извлеченные из житий святых (2013) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starligh (4:02)
-02. Eternal Love (4:17)
-03. Princess of the Night (4:05)
-04. House of Shadows (3:54)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:30
+Книга содержит подборку назидательных высказываний и примеров благочестия и добродетели, извлеченных из житий святых и патериков. Благочестие и добродетели пустынных подвижников являются и для каждого православного христианина образцом для подражания; знакомство с их поучениями и примерами из жизни принесет неоценимую пользу каждому, идущему по пути спасения.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58DFF4F8DF4B8B7456D59FE8FA1207AA0C5D72BD
+magnet:?xt=urn:btih:DA58EA53FC5268634FC914A82EA9242B1B9C6F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,25 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713512   (111874) от 06.04.2024
+###  Публикация: 1703579   (114800) от 01.03.2024
 
-Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
+Сибирская Благозвонница | Святоотеческие сотницы (2009) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111874.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Live at Zepp DiverCity Tokyo, Japan February 21, 2020Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:46:53
+В эту книгу, как в ларец с драгоценностями, архимандрит Наум (Байбородин; 1927–2017), духовник Свято-Троицкой Сергиевой Лавры, собрал изречения святых отцов по самым важным темам для всех тех, кто внимательно относится к своему спасению. Более полувека батюшка подвизался на пастырском поприще, руководя приходящих к нему на пути в Царство Небесное.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35019408864125B8788AC8A329FF07C1BBD5786D
+magnet:?xt=urn:btih:1A5A48D0777C63D587DEA52F79E53C4E3D4422A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,25 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713520   (111873) от 06.04.2024
+###  Публикация: 1703767   (114799) от 01.03.2024
 
-Strava: бег, велоезда, хайкинг v354.7 Mod by ReVanced Team [Ru/Multi]
+Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111873.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любите бегать, кататься на велосипеде или просто проводить время на свежем воздухе? Тогда бесплатное приложение Strava — это то, что вам нужно. Попробуйте, вам понравится! Миллионы бегунов, велогонщиков и просто активных людей используют Strava, чтобы записывать данные своих тренировок, следить за прогрессом, общаться с единомышленниками, а также делиться фотографиями, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.04.2024Разработчик: Strava Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+01. Pure Imagination [00:01:56]
+02. Over the Rainbow [00:04:36]
+03. Nature Boy [00:04:58]
+04. Unchained Melody [00:03:44](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECE970C8E8BF8A2A3026D693D7E7ECF25A9608B3
+magnet:?xt=urn:btih:2DD106D39D278275E74BF9ED1556FA1403B55EC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,26 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713665   (111872) от 06.04.2024
+###  Публикация: 1703589   (114797) от 01.03.2024
 
-Александр Островский | Пучина. Бешеные деньги (2007) [MP3, Юрий Соломин, Элина Быстрицкая и др.]
+Благовест | Святая Блаженная Ксения Петербургская (2010) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111872.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные (   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: СиДиКом, Элитайл, ГостелерадиофондПродолжительность: 04:27:54
+Святая блаженная Ксения Петербургская – известная православная подвижница, совершавшая свой подвиг служения Богу и ближним в XVIII веке. В данном сборнике представлены материалы о блаженной Ксении. Он включает в себя рассказ о житии и канонизации блаженной, свидетельства о чудесах, произошедших по молитвам святой Ксении. Также в сборник включены акафист и молитвы (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D48FCCB81E990985C455355FDEB4D2F5426F920F
+magnet:?xt=urn:btih:A31EB7B659928E1B0C09B19A8AF64F5810E3915B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,26 +247,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713505   (111871) от 06.04.2024
+###  Публикация: 1703583   (114796) от 01.03.2024
 
-Анна Гущина | Упал на дно – оттолкнись! (2024) [MP3, Ольга Седова]
+Благовест | Святитель Тихон. Патриарх Московский и всея России (2013) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111871.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В чём загадка воли к жизни? Каков он, путь от беды к радости? Как построить здоровые отношения?
-Расскажет Анна Гущина – автор популярной трилогии «Бойся, я с тобой» и книг «В постели с абьюзером», «Моя токсичная семья»! «Мне не нравится моя жизнь, но у меня нет сил изменить ее, и я просто плыву по течению… Ничего не получается, все валится из рук… Везет всем, кроме (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига АСТПродолжительность: 04:23:09
+Всю свою жизнь святитель Тихон отдал исповеданию учения Спасителя. Он вел свою паству путем истины и Церковь Российскую в годы гонений сохранил верной Христу. В этой книге рассказывается о личности Патриарха Тихона, его жизни, трудах, о почитании его при жизни и его посмертном прославлении в лике святителей. В издании также приводятся воспоминания современников о (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E266D42691C270E8DE2C126CD35231BF4648802
+magnet:?xt=urn:btih:424730064026302BADE5E222B4C63FE1811CA74D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,28 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713367   (111870) от 06.04.2024
+###  Публикация: 1703808   (114795) от 01.03.2024
 
-Twisted Tower Dire - Crest of the martyrs (2003) [APE|Lossless|image + .cue] <Power Metal>
+Ledisi - Good Life (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111870.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.At Night
-02.Some Other Time Some Other Place
-03.Axes & Honor
-04.To Be a Champion(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:48
+01. Good Life [00:03:03]
+02. Magic (Voila) [00:03:15]
+03. I Need To Know [00:04:00]
+04. Sell Me No Dreams [00:03:08](   Читать дальше...   )Жанр: R&BПродолжительность: 00:48:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:936EF0A80F37B41A1CA47FD50965BF66F847B8A4
+magnet:?xt=urn:btih:8AB1C4CA6C24839E3F793561872720B53B26D11F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,28 +302,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713331   (111869) от 06.04.2024
+###  Публикация: 1703591   (114794) от 01.03.2024
 
-Gene Krupa - 1940, Vol. 2 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Благовест | Евангельский закон (2011) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111869.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Took a Lesson in My Life [3:00]
-02. And So Do I [2:49]
-03. Tonight (Perfidia) [3:03]
-04. Looking for Yesterday [2:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:15
+В данном издании приводится учение Господа Иисуса Христа о евангельском новозаветном законе любви, который Он даровал всем Своим верным последователям на все времена; рассказывается о его сущности, содержании и превосходстве над ветхозаветным нравственным законом.
+
+Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00301A9C0BF25BAC2B9F3C45E6FE50ED224D4D43
+magnet:?xt=urn:btih:6E3C011F80E3435CE2C9C511482CC9185BAB23BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,28 +330,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713459   (111868) от 06.04.2024
+###  Публикация: 1703657   (114793) от 01.03.2024
 
-Twisted Tower Dire - Crest of the Martyrs (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic rock, synthpop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111868.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. At Night
-02. Some Other Time Some Other Place
-03. Axes & Honor
-04. To Be a Champion(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:49
+01. In the Heart of Juliet (Forever Mix (Remastered)) (5:01)
+02. Huldra Part II (Remastered) (3:07)
+03. Good Vibes Bad Vibes (Dance on the Ocean Mix (Remastered)) (6:22)
+04. 3 a.m. (Late Night Version (Remastered)) (5:03)(   Читать дальше...   )Жанр: Gothic rock, synthpopПродолжительность: 01:59:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7EAC0F3289C070B0F997CB103C78F66CA4E07F2
+magnet:?xt=urn:btih:5E8DFB22826DAB89DD0E57E3A80F3847F9BF7EFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,27 +359,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713681   (111867) от 06.04.2024
+###  Публикация: 1703790   (114792) от 01.03.2024
 
-The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-punk Revival>
+Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100,000 Voices [00:04:44]
+02. She Put Sunshine [00:03:30]
+03. Little Blue [00:04:25]
+04. WELLLL [00:02:38](   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8254C200CAAA233BADC4E8D4F90A192C4A068A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703666   (114791) от 01.03.2024
+
+Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111867.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Bravery — американская рок-группа из Нью-Йорка.2005 - The Bravery
-2008 - The Sun And The Moon Complete
-2009 - Stir the BloodЖанр: Post-punk RevivalПродолжительность: 02:38:11
+01. My Blue Moon (Larsson–Hjalmarsson)
+02. Can’t Get You Out Of My Mind (Larsson–Hjalmarsson)
+03. Dance, Dance (Larsson–Hjalmarsson)
+04. Hey Bulldog (Lennon–McCartney)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
+magnet:?xt=urn:btih:65453187EE9F0473BB4082D16DE905E72E562239
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,28 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713621   (111866) от 06.04.2024
+###  Публикация: 1703609   (114789) от 01.03.2024
 
-Validor - Full Triumphed (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
+Simon Stanley Ward and The Shadows of Doubt - Rocket in the Desert (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111866.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dawn of New Age
-02. Son of Fire
-03. Man of Steel
-04. Strong Winds(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:37:23
+01. I'm a Worrier [00:03:44]
+02. This Ain't It [00:03:39]
+03. Tony [00:03:33]
+04. Rocket in the Desert [00:03:00](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D6B02A8F4B5F63B65BF96651A319C3D691B2997
+magnet:?xt=urn:btih:2D98B8F4801334AD5A508EE51475A34B6EB2F804
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,28 +446,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713740   (111865) от 06.04.2024
+###  Публикация: 1703632   (114788) от 01.03.2024
 
-Grave Forsaken - Moment in Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+Геннадий Красухин | Книга для ученика и учителя. Пушкин в комментариях (2024) [MP3, Евгений Терновский]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111865.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back to the Start 03:23
-02. Metal Message 03:48
-03. Win the Day 03:36
-04. There Is Only God 03:18(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:42:29
+В помощь учащимся и учителям публикуются: комментарии к текстам писателя, высказывания критиков, темы сочинений и развернутые планы некоторых из них, задания для самостоятельной работы и т.д., а также материалы, которые в равной степени можно использовать как для проверки знаний, так и на досуге, во время тематических школьных вечеров.
+Произведения самого Пушкина, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 11:42:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91C96FBF802FE6D2F841443457244531CB21B35B
+magnet:?xt=urn:btih:31A0517E645535E7F8D5545863EB1CCF1BDE1161
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,115 +473,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713554   (111864) от 06.04.2024
+###  Публикация: 1703743   (114787) от 01.03.2024
 
-Clownopocalypsis - Клоунский крестовый поход (2024) [FLAC|Lossless|WEB-DL|tracks] <Horror Metal, Alternative Metal, Dark Cabaret>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клоунский крестовый поход [00:03:44]
-02. Чумной кукловод [00:03:13]
-03. Циркулярные арены Доки II [00:03:18]
-04. Звонарь [00:04:05](   Читать дальше...   )Жанр: Horror Metal, Alternative Metal, Dark CabaretПродолжительность: 00:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B9A3F3A7F434A6F5E994E58D50D06E12547A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713662   (111863) от 06.04.2024
-
-Vandor - On a Moonlit Night (2021) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ... Darkness Looms
-02. Mountains Of Avagale
-03. River Of Life
-04. Endless Sea(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EC90F70626A04179C200FD7D092B1CD6C65750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713465   (111862) от 06.04.2024
-
-Twisted Tower Dire - Netherworlds (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Starshine
-02.Dire Wolf
-03.Fortress
-04.Killing Kind(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7C62E7B14F6BB3C95AF78E991FA114F4A19248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713511   (111861) от 06.04.2024
-
-Tadaaki Misago & Tokyo Cuban Boys - Holiday in Tsugaru / Memories of Japan (1966, 1970) 1999, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Japanese Jazz, Big Band>
+Sahib Shihab - Sentiments (1965, 1971) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111861.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tsugaru Jongara Bushi [3:31]
-02. Tsugaru Jinku (Dodarabachi) [3:27]
-03. Ajigasawa Jinku [3:26]
-04. Tsugaru Hayashi [3:49](   Читать дальше...   )Жанр: Japanese Jazz, Big BandПродолжительность: 01:15:01
+01. Ma'nee [7:44]
+02. The Call [7:57]
+03. Rue de la Harpe [5:03]
+04. Sentiments [5:19](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:04:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76807AB84696D9132E9064C82633C228F417B3DF
+magnet:?xt=urn:btih:0C663069DD7D34BADC914A5CC4F42B091E4AE2A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,25 +502,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713723   (111860) от 06.04.2024
+###  Публикация: 1651817   (114786) от 02.03.2024
 
-Последний доброволец / The Last Volunteer (1914) WEBRip
+ProShot v8.24.0 Paid [Ru/Multi]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>След.
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111860.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В немом кинематографе, да и в литературе тех времен, нередко использовался такой прием - местом действия были некие гипотетические, выдуманные страны. Некоторыми чертами похожие на реальные государства, с намеками на примерное расположение - ну, там южная Европа, северная Африка и т.п. Вот и здесь два несуществующих маленьких государства - Саксен-Толбург и Австрания (   Читать дальше...   )Производство: США, Pathé FrèresЖанр: драма, военный, немое киноРежиссер: Оскар АпфельАктеры: Элинор Вудрафф, Пол Панцер, Роберт Бродерик, Ирвинг Каммингс, Эдвард Хойт, Мэри Грэй, Док Крэйн, A.H. BarstarПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 01:04:40
+Добро пожаловать в ProShot, полное решение для фото- и видеосъемки на Android. Являетесь ли вы опытным профессионалом или только начинаете, в ProShot есть что-то для вас. Его обширный набор функций и уникальный интерфейс открывают неограниченные возможности, гарантируя, что вы никогда не пропустите идеальный снимок.Тип издания: PaidРелиз состоялся: 29.02.2024Разработчик: Rise Up GamesПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:146B04C4DF2B2BB586170BB98CE35733C9BBFF61
+magnet:?xt=urn:btih:850A109E9A5CCCEE2E52B8BB1FEE196312A6E86B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,28 +528,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713669   (111859) от 06.04.2024
+###  Публикация: 1704072   (114785) от 02.03.2024
 
-Vandor - In the Land of Vandor (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+Космонавт / Spaceman (2024) WEB-DLRip [H.265/1080p] [MVO] [10-Bit]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111859.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Dark Times (00:01:08)
-02 - Wrath of the Night (00:06:13)
-03 - Beneath the Sky (00:04:57)
-04 - Warriors of Time (00:04:39)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:54:11
+По роману Ярослав Калфаржа «Космонавт из Богемии». Астрофизик Якуб Прохазка родился в небольшой чешской деревеньке. Когда ведущие космические агентства мира отказались исследовать загадочное облако пыли возле Венеры, Якуб стал первым астронавтом в истории своей страны и отправился в восьмимесячное путешествие навстречу неизвестности, в течение которого он будет вынужден (   Читать дальше...   )Производство: США, Чехия / Tango Entertainment, Stillking Films, Free AssociationЖанр: Фантастика, драма, приключенияРежиссер: Йохан РенкАктеры: Адам Сэндлер, Кэри Маллиган, Пол Дано, Кунал Нэйэр, Изабелла Росселлини, Лена Олин, Petr Papánek, Мариан Роден, Зузана Стивинова, Шинейд ФелпсПеревод: Профессиональный многоголосый (Jaskier), двуголосый любительский (Zetflix)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Forced, Full)Продолжительность: 01:48:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C82C666879462D29EB7D736A8EB741C083A1EDC
+magnet:?xt=urn:btih:6B541962E2522848DF4421CC3D9FCAA0713B9656
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,28 +554,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713762   (111858) от 06.04.2024
+###  Публикация: 1319884   (114784) от 02.03.2024
 
-Сто к одному (06.04.2024) WEBRip [H.264/1080p]
+Легион / Legion (2019) WEB-DLRip (сезон 3, серии 1-8 из 8) LostFilm
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Зарубежные сериалы
+>>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111858.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "И смех и грех" против команды "Дом культуры"Язык озвучки: РусскийПродолжительность: 00:39:25
+Третий сезон посвящён душевнобольному Дэвиду Хэллеру, за болезнью которого скрывается не душевное расстройство, а сверхчеловеческие способности. «Легион» — прозвище Дэвида — сын самого профессора Ксавье, учителя Людей Икс.Производство: США / FX Productions, Marvel Television, 26 Keys ProductionsЖанр: фантастика, боевик, триллер, драмаРежиссер: Джон Камерон, Ной Хоули, Дана ГонсалесАктеры: Дэн Стивенс, Рэйчел Келлер, Эмбер Мидфандер, Обри Плаза, Билл Ирвин, Джереми Харрис, Джин Смарт, Джемейн Клемент, Хамиш Линклэйтер, Навид Негабан и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: ~00:46:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59EC8A86F38566AA7339E7AEBD3718F99B5C1595
+magnet:?xt=urn:btih:6DD2E6208D33F5AB6077BD096C8D7703240CE2F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,28 +580,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713655   (111857) от 06.04.2024
+###  Публикация: 1703855   (114783) от 02.03.2024
 
-The KVB - Tremors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <New Wave, Synthwave, post punk, shoegaze, coldwave>
+Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111857.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Negative Drive
-02 – Words
-03 – Tremors
-04 – Labyrinths(   Читать дальше...   )Жанр: New Wave, Synthwave, post punk, shoegaze, coldwaveПродолжительность: 00:35:3003
+Robin Hood - Sherwood Builders – это приключенческая ролевая игра с элементами градостроительства, в которой вам предстоит воплотиться в классического героя, борющегося с тиранией и несправедливостью, царящими в Шервуде. В роли Робина вы будете сражаться, охотиться, созидать, воровать у богатых и, конечно же, помогать местным жителям, чтобы противостоять шерифу Ноттингема (   Читать дальше...   )Тип издания: RepackРазработчик: MeanAstronautsЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FF5EB2774D006D6635D19E4D4920DABBCBE3A41
+magnet:?xt=urn:btih:F2666CB588CB5DDCDA0E6DD7DE3C7EBB2CCE1A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440525   (114782) от 02.03.2024
+
+CG Cookie, Kent Trammell | Creating a Stylized 3D Forest Environment with Blender 2.90 (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь моделировать стилизованный 3D-лес с помощью Blender 2.90. Откройте для себя мощь аддона Sapling для моделирования деревьев, Eevee для материалов и освещения в реальном времени, частиц для выращивания травы и композитинга для окончательной обработки.Производство: CG CookieЖанр: 3D моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D57A7DD8C12A68D663C309B6AD998FA001302E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366771   (114781) от 02.03.2024
+
+Лок и ключ / Замок и ключ / Ключи Локков / Locke & Key (2020) WEBRip (сезон 1, серии 1-10 из 10) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Овдовевшая женщина с тремя детьми переезжает в фамильное имение Дом Ключей в городке Лавкрафт. Семья надеется начать жизнь заново, оставив в прошлом недавние трагические происшествия — отец семейства был жестоко убит. Но особняк скрывает в своих стенах некие ключи и чудовище, которое за ними охотится.Производство: США / IDW Entertainment, Circle of Confusion, Take 5 ProductionsЖанр: фэнтези, триллер, драма, ужасыРежиссер: Майкл Моррис, Винченцо Натали, Тим СоутэмАктеры: Дэрби Стэнчфилд, Коннор Джессап, Эмилия Джонс, Джексон Роберт Скотт, Петрис Джонс, Лайсла Де Оливейра, Гриффин Глюк, Кевин Алвес, Томас Митчелл Барнет, Коби Бёрд и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: Русский, английскийСубтитры: русские, английские (отдельно)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6176B3590B1DB3F8202B2A5447E89730E4F6D19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703817   (114780) от 02.03.2024
+
+KMS Tools Portable by Ratiborus 01.03.2024 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114780.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410FC843D2DC64EE27730E7C223F58AF8DFEA8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703108   (114779) от 02.03.2024
+
+Лотт Стивен, Филлипс Дасти | Объектно-ориентированный Python, 4-е изд. (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко погрузитесь в различные аспекты объектно-ориентированного программирования на Python, паттерны проектирования, приемы манипулирования данными и вопросы тестирования сложных объектно-ориентированных систем. Обсуждение всех понятий подкрепляется примерами, написанными специально для этого издания, и практическими упражнениями в конце каждой главы. Код всех (   Читать дальше...   )Жанр: ПрограммированиеПеревод: С. ЧерниковИздательство: ПитерФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15CB3DC1D3103BDF86420DBA017A5974D94C78F
 ```
 
 https://mybot314.ru/tekegram_catalog/

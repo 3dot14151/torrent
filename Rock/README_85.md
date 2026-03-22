@@ -1,3 +1,148 @@
+###  Публикация: 1588041   (191835) от 03.11.2022
+
+Jon Bon Jovi - Destination Anywhere (1997) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of New Orleans
+02. Janie, Don't Take Your Love To Town
+03. Midnight In Chelsea
+04. Ugly(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F970A15B229FD54A0F8E9F61A25B1F8F12680D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588244   (191833) от 03.11.2022
+
+White Skies - Black Tide (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Do You Know About Love (04:12)
+ 02. Emily (04:10)
+ 03. Midnight Rendezvous (05:03)
+ 04. Kiss Me (As I Say Goodbye) (04:57)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E70366F3B2AAFEAFACD13532E8288793E6641BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589067   (190861) от 07.11.2022
+
+Catapult - The Single Collection (1996) CD [MP3|320 Kbps] <Pop Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_190861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Big Time (3:27)
+02. Let It Be True (2:36)
+03. Let Your Hair Hang Down (2:40)
+04. Performers Prayer (2:36)(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46EB3D3D589157EEE3AE4DF407730A97110A9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589139   (190655) от 08.11.2022
+
+Black Expression - Nada Es El Fin Vol. 1-2 (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Envuelto En Misterio (Return) [00:06:10]
+02. Lake Of Sanity Pt1 Assembly Line [00:05:16]
+03. Lake Of Sanity Pt2 Lost In All [00:10:21]
+04. Lake Of Sanity Pt3 The Circle Completes [00:04:17](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 2 CD, 01:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68F58E3A4335C63F167025ACD602D8EDC94D0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658020   (190642) от 10.09.2023
+
+Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Introduction (live) [00:01:12]
+02 - Another Road (live) [00:02:27]
+03 - Danny's Song (live) [00:03:03]
+04 - At The Whiskey (live) [00:02:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB157D4B77F177D36F2E5D6026B2B619937C7B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658296   (190640) от 10.09.2023
 
 King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lava (2022) [MP3|320 Kbps] <Psychedelic, Garage Rock, Doom>
@@ -597,151 +742,6 @@ Stratovarius - Hunting High And Low (2000) Single [OGG Vorbis|480 Kbps] <Rock, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D1111C11C51CD7128CE09903D7377A0DA4476A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590047   (189486) от 12.11.2022
-
-Stratovarius - Will The Sun Rise? (1996) Single, Remastered, T&T [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will The Sun Rise (Album Version)
-02. Speed Of Light (Live Version)
-03. Will The Sun Rise (Live Version)
-04. Eternity (Live Version)(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12702F1B0EA5CDD53257A102F90B42B12DBD3E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589852   (189367) от 12.11.2022
-
-Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only the Strong Survive [00:02:59]
-02. Soul Days [00:03:58]
-03. Nightshift [00:04:56]
-04. Do I Love You (Indeed I Do) [00:02:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF4146C04F7A3EAC43FEA40F572CDA26686D3C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657823   (189305) от 13.09.2023
-
-Roxy Music - The Thrill Of It All (1995) 4CD [MP3|320 Kbps] <Art Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - The Thrill Of It All (1972-1982)
-CD-02 - The Thrill Of It All (1972-1982)
-CD-03 - The Thrill Of It All (1972-1982)(   Читать дальше...   )Жанр: Art Rock, Glam RockПродолжительность: 05:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416FFC723E226CF98656EE14961036A2A28C3CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590284   (189188) от 13.11.2022
-
-Stratovarius - Darkest Hours (2010) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkest Hours
-02. Infernal Maze
-03. Darkest Hours (Demo Version)
-04. Against The Wind (Live)(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5C23B9BEADA0B283CA476EB50681395CED0929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590292   (189174) от 13.11.2022
-
-Stratovarius - Unbreakable (2013) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbreakable
-02. Falling Star
-03. The Game never Ends
-04. Freedom(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C991C3BB1F872622E29805215F26106D0C5005
 ```
 
 https://mybot314.ru/tekegram_catalog/

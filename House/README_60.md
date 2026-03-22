@@ -1,3 +1,148 @@
+###  Публикация: 963554   (287306) от 08.12.2015
+
+VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [MP3|320 кб/с]<Deep House, Tech House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esteble - Passage (2:14)
+02. Solomon Grey - Miradors (Jody Wisternoff & James Grant Remix) (4:41)
+03. 16 Bit Lolitas, Lucy Iris - More Than Music (4:17)
+04. Dems - Never Have, Never Will (2:52)(   Читать дальше...   )Жанр: Deep House, Tech House, Progressive HouseПродолжительность: 05:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C956943548D4F38318E708DAD4EBDAF91B5063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080864   (286642) от 08.12.2016
+
+VA - Deep House Ibiza Chart Best of 2016 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Colors - Drop (Mat.Joe Remix) 06:44
+02. Emil Croff - Jack 06:25
+03. Eriq Johnson - Pink Rhino 05:50
+04. Shawn Wilson - You Only Know 05:22(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0143BE768C62BF2FD77B8AF819F7F85822CE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963922   (285794) от 09.12.2015
+
+VA - White Nights Grooves Vol 1-2 (2015) [MP3|320 кб/с]<House, Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol 1
+
+
+01. Tony Roja - Bitcoin - Original Mix [03:32](   Читать дальше...   )Жанр: House, Deep House, Chill HouseПродолжительность: 04:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680DDB71926D4EF4C0DD602BAA839F2474F3A7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081241   (284895) от 09.12.2016
+
+VA - Best Of Toolroom (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Knight - Yebisah (Original Mix)
+02. Weiss (UK) - You're Sunshine (Original Mix)
+03. Prok Fitch - Heatwave (Original Mix)
+04. Adrian Hour - Like This (Original Mix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 05:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7420CFA2A8773D42B3497318222E07708D6E4C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186800   (284599) от 26.11.2017
+
+VA - Future Trance Vol.82 (2017) 3CD [MP3|320 Kbps] <House, Trance, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  CJ Stone  -  Future Trance 82 Intro 1:47
+02.  CJ Stone  -  Be Loved (Heart Of Stone Uplifting Mix) 4:18
+03.  Gaia  -  Saint Vitus 4:40
+04.  Armin van Buuren  -  This Is A Test (Shinovi Remix) 5:13(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 03:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1884254B5CCF54CD96A3A0BB80E724A9955C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186978   (283721) от 26.11.2017
 
 VA - Ibiza For 2017 [MP3|320 Kbps] <Funky, Progressive, House>
@@ -600,151 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB5BBE74B9EE294A7672C57E12F47ABCBC5B56AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188073   (276199) от 01.12.2017
-
-VA - Progressive Essentials Vol.7 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Monique - Emotional Cello (Original Mix)
-02. Pro4ound - Deep Reflection (Original Mix)
-03. Gonza Rodriguez - Lucid Dreams (Gh Remix)
-04. Taiyari - Sirio B (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19072A1F2AE4FD2E8502B66C1BC38F8B9D043C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187823   (276152) от 01.12.2017
-
-Matt Darey - Wolf (Album Mixes) (2017) [MP3|320 Kbps] <House, Progressive, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wolf (Original Mix) (feat. Patchy) 6:52
-02.  Ashamed (Extended Mix) (feat. Billie Fountain) 6:26
-03.  Step Outside (Original Mix Pt. 1) (feat. Jonatan Backelie) 5:04
-04.  The Beast (Matt Darey Mix) 8:47(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 01:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C09D31C376077A20801A215575084042BCE35F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187918   (276145) от 01.12.2017
-
-Matt Darey - Wolf (Extended DJ Mixes) (2017) [MP3|320 Kbps] <House, Progressive, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One More Night In Stars (Intro Mix) 7:11
-02.  Ashamed (feat. Billie Fountain) (122 BPM Mix) 9:15
-03.  Promises (feat. Patchy) (122 BPM Intro Mix) 10:58
-04.  Dream Of Me (feat. The Ridgewalkers & Deepnite) (Extended Mix) 6:17(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 02:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01B712D64E27127E92E0C9FAE229D50E8825B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083006   (275997) от 14.12.2016
-
-VA - Deep Chill House 2017 (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traumton - Tube Riding (Original Mix) 6:57
-02. Mr. Chillout - Fata Morgana (Original Mix) 3:11
-03. Denis Filipovic - Keep Dancing (Brian Berg Remix) 7:48
-04. Italo Brutalo - Paradiso Analogico (Rambla Boys Remix) 6:33(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54092A4D8867A5F450D1D16CFE7E69BFB85FCAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188033   (275963) от 01.12.2017
-
-Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckley) (2017) [MP3|320 Kbps] <House,Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Clubbed To Death 3:24
-02.  Galvanize 3:55
-03.  Body Language 3:41
-04.  Killer 4:53(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 01:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06D8115049886F6839E9A10B102089A5766C9B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

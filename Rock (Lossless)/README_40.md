@@ -1,3 +1,119 @@
+###  Публикация: 1120090   (803461) от 30.03.2017
+
+Brother Firetribe - Sunbound (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финская AOR-группа "Brother Firetribe", в состав которой входит гитарист коллектива "Nightwish" Эмппу Вуоринен. Группу создали пять финских музыкантов, которых объединила любовь к американским титанам AOR и хард-рока "Journey" и "Van Halen". Помимо Вуоринена, еще одной известной фигурой в составе коллектива является фронтмен (   Читать дальше...   )01. Sunbound (1:35)
+02. Help Is On The Way (3:55)
+03. Indelible Heroes (3:51)
+04. Taste Of A Champion (3:37)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95990A727BABA27061B20784C465A29AB5F205E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120100   (803372) от 30.03.2017
+
+House Of Shakira - Sour Grapes (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Определение стиля HOUSE OF SHAKIRA как хард-рок весьма условно, так как их звучание мало с чем можно сравнить. В общих чертах, это мелодичный рок очень высокого качества. У себя на родине HOUSE OF SHAKIRA считаются культовой группой.01. No Way Out (4:25)
+02. Nothing Left (3:53)
+03. Trial By Fire (4:04)
+04. Waste No Time (3:28)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:102E3D5EB1936BB948ED830625CBC66509FCDE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120284   (803369) от 30.03.2017
+
+VA - Glamkings Of Rock: The True Story Of Glam Rock (1994) 2CD [FLAC|Lossless|image + .cue] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzi Quatro - Can The Can
+02. Mud - Tiger Feet
+03. The Sweet - Teenage Rampage
+04. T-Rex - Get It On(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C061D04930B20D922A387D695C38C0931FD0857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505447   (803041) от 28.10.2021
+
+Galahad Electric Company - Soul Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Therapy (00:04:14)
+02 - All That Glitters (00:06:50)
+03 - Gone to Ground (00:05:29)
+04 - Fluidity (00:03:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB22FBB6AE083D93CDFB0548E598C1F4036FD2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505692   (803031) от 28.10.2021
 
 Drifting Sun - Forsaken Innocence (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -629,122 +745,6 @@ This Winter Machine - Kites (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9BE9AA2CD10333D704E5BC5118D67A20A7DF802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505958   (801649) от 29.10.2021
-
-Ringo Starr - Zoom In (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <Pop Rock, Classic Rock, Rock'N'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's To The Nights (04:05)
-02. Zoom In Zoom Out (03:57)
-03. Teach Me To Tango (03:08)
-04. Waiting For The Tide To Turn (03:54)(   Читать дальше...   )Жанр: Pop Rock, Classic Rock, Rock'N'RollПродолжительность: 00:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A90D0F9C9BB7AC93B6E91F1312128F03FC2C870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453290   (801547) от 15.01.2018
-
-VA - Compact Disc Club - The Rock Party [4CD Box Set] (1996) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lynyrd Skynyrd -  Sweet Home Alabama (4:46)
-02.Вoston -  More Than A Feeling (4:46)
-03.Europe -  Final Countdown (5:11)
-04.Blue Oyster Cult -  The Reaper (5:10)(   Читать дальше...   )Жанр: RockПродолжительность: 04:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C9A966D450467D1362956A3E0CFDFA96164262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120708   (801283) от 01.04.2017
-
-Elektradrive - Elektradrive (1995) [APE|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Back On The Road
-02. A Man That Got No Heart
-03. Due
-04. The Magic Lamp(   Читать дальше...   )Жанр: AORПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133AAE5C10E93A073A7C6B2F48253C418A1CAD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120748   (801266) от 01.04.2017
-
-The Four Horsemen - Nobody Said It Was Easy (1991) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Said It Was Easy
-02. Rockin' Is Ma Business
-03. Tired Wings
-04. Can't Stop Rockin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A374C0E50CB9A917ADC8A2DE7C879EB5DF5E854B
 ```
 
 https://mybot314.ru/tekegram_catalog/

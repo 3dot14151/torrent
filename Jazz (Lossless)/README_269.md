@@ -1,3 +1,177 @@
+###  Публикация: 1653664   (205384) от 17.08.2023
+
+Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Ray [3:49]
+02. Ill Wind (You're Blowin' Me No Good) [6:08]
+03. Watch What Happens [5:11]
+04. No Moon At All [4:15](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10803585708C876615938A8783DA97595BD7D80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654111   (205279) от 19.08.2023
+
+Phil Woods & Gene Quill - Phil & Quill With Prestige (1957) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creme De Funk [5:14]
+02. Lazy Like [5:58]
+03. Nothing But Soul [6:50]
+04. A Night At St. Nicks [6:52](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE82B4F17A9696C802F695EFF59E73DD0A65B077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654505   (205137) от 21.08.2023
+
+Fats Navarro - Memorial (1947) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boppin' A Riff 1&2 [5:36]
+02. Fat Boy [5:45]
+03. Be Bob Carroll [3:00]
+04. Gone With The Wind [3:12](   Читать дальше...   )Жанр: BopПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDF6FEA3E392A6D3088DB53136B32BD3D59D5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654429   (205125) от 21.08.2023
+
+Sonny Stitt - The Hard Swing (1959) 2001, Verve [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Rhythm [3:10]
+02. What's New [3:42]
+03. Subito [3:59]
+04. If I Had You [4:09](   Читать дальше...   )Жанр: BopПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1147296FEFFB710197419DFB4F322F5B34785E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654730   (204895) от 22.08.2023
+
+Larry Young - Young Blues (1960) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Blues [6:28]
+02. A Midnight Angel [2:24]
+03. African Blues [4:55]
+04. Little White Lies [4:15](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253A512CAB9DE4430998324DFEAA89154AB01BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654980   (204728) от 23.08.2023
+
+Mohini Dey - Mohini Dey (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In-N-Out [00:04:45]
+02. Introverted Soul [00:05:28]
+03. Bombay Bong [00:05:44]
+04. Meat Eater [00:05:18](   Читать дальше...   )Жанр: Jazz RockПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43198C1F15E44CEE19200FCB7261417040FF4687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655060   (204610) от 24.08.2023
 
 Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -570,180 +744,6 @@ Enrico Pieranunzi - Parisian Portraits (1990) 2007, Egea [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:079C8BD61945ECFA7D725B68D8A63B642C324C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587734   (192398) от 01.11.2022
-
-Rosemary Clooney - The CBS Radio Recordings (1955 - 1961) 5CD, 2014, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192398.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Just You, Just Me [1:27]
-02. Don't Take Your Love from Me [3:03]
-03. I Guess I'll Have to Change My Plan [2:41](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 04:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90ADE174527A83E66EBA88422A8D639D8576ED88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587920   (192122) от 02.11.2022
-
-Nelson Riddle - Eight Classic Albums (1955 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Easy Listening, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192122.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Oh, What a Beautiful Mornin' [6:18]
-02. The Surrey With The Fringe On Top [2:52]
-03. Kansas City [2:58](   Читать дальше...   )Жанр: Easy Listening, Big Band, SwingПродолжительность: 04:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214BED981C3B7C5623024A6C571C7B1F0EF8D23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657845   (191946) от 06.09.2023
-
-Johnny Griffin - The Little Giant (1959) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olive Refractions [4:21]
-02. The Message [7:26]
-03. Lonely One [4:11]
-04. 63rd Street Theme [7:35](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56994C59C4AE7641A9305BE04AC4C2F778114727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588138   (191856) от 03.11.2022
-
-Jack Teagarden - The Complete Capitol Fifties Jack Teagarden Sessions (1955 - 1958) 4CD, 1996, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191856.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Struttin' with Some Barbecue [3:02]
-02. Muskrat Ramble [3:01]
-03. New Orleans [2:54](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 03:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736722FA05A334AB32E657440EB526382257874B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588155   (191848) от 03.11.2022
-
-Julius Rodriguez - Let Sound Tell All (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191848.jpg" />
-</div>
-
-
-###  Подробнее
-
-A true cross-genre phenomenon, pianist Julius Rodriguez is a gifted improviser and composer well-versed in the jazz tradition, but also at home in gospel, funk, and hip-hop settings. Rodriguez, who also goes by his nickname, "Orange Julius," has backed jazz vocalist Carmen Lundy and, most notably, toured with rapper A$AP ROCKY in 2018. He brings this deep (   Читать дальше...   )01. Blues at the Barn (Rodriguez) - 3:34
-02. All I Do (Morris) - 4:41
-03. Interlude (Rodriguez) - 1:08
-04. Gift of the Moon (Rodriguez) - 2:59(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, R&BПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83DDD461F0F20A64766A04656803F4C28F9FEA19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588324   (191650) от 04.11.2022
-
-Jimmie Lunceford - The Complete Jimmie Lunceford Decca Sessions (1934 - 1945) 7CD, 2011, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191650.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Sophisticated Lady [3:13]
-02. Mood Indigo [2:57]
-03. Rose Room [3:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 07:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD706B3A9342FC9E43908BBDBC56A69EF80BC08
 ```
 
 https://mybot314.ru/tekegram_catalog/

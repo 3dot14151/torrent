@@ -1,3 +1,32 @@
+###  Публикация: 1779204   (27329) от 17.02.2025
+
+Лицей - Открытый Занавес (1996) [FLAC|Lossless|image + .cue] <Reggae, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осень
+02. Я Спешу За Любовью
+03. Душа
+04. Смех Сквозь Слезы(   Читать дальше...   )Жанр: Reggae, PopПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00EA0A2BA122B25BC07BB7FD3B032C85D3ACCBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787458   (23520) от 25.03.2025
 
 Marina Kapuro (Марина Капуро) - Happy New Year (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>

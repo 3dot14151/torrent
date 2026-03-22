@@ -1,3 +1,90 @@
+###  Публикация: 1453973   (1026611) от 13.03.2021
+
+Sunstorm - Afterlife (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterlife (4:00)
+02. One Step Closer (3:54)
+03. Swan Song (5:14)
+04. Born Again (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2CF735E85125A90F542CE4165F5E9618FFA87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454227   (1026450) от 14.03.2021
+
+Starmen - Welcome To My World (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming
+02. Face The Truth
+03. Ready To Give Me Your Love
+04. Stay The Night(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88EB64992B000F6F962C523C0F3EE15B7061C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454226   (1026446) от 14.03.2021
+
+Starmen - Kiss The Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stealer
+02. Dangerous
+03. All Along The Watchtower {Bob Dylan cover}
+04. Gravity(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5CB2C69F1F1685D8CC8E0CB7CCC51E10E27D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454016   (1026407) от 14.03.2021
 
 Def Leppard - Let There Be Drums (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -659,93 +746,6 @@ Thunder - All The Right Noises (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C20C9C3979DD0B7BBF2C8AB3A615DF5E6884C1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459345   (1023321) от 01.04.2021
-
-Odyssey Desperado - Don't Miss The Sunset (2018) Reissue, 2020, Lions Pride Music [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rush Of The Wave
-02. You And Me Against The World
-03. Cruisin
-04. Dreams Die hard(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DF0B1297E257766C1D4AD5D7FEDE000B20B1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459451   (1023140) от 02.04.2021
-
-Sunstorm - 7 Studio Albums (2006-2021) 7xCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023140.jpg" />
-</div>
-
-
-###  Подробнее
-
-SUNSTORM появился на свет в 2006 году, когда президент Frontiers Serafino Perugino захотел выпустить неизданные песни, сочиненные Joe Lynn Turner в конце 80-х и начале 90-х. Хорошие рецензии и теплый прием дебютного альбома SUNSTORM одного с проектом названия привели к тому, что идея получила продолжение, и было записано еще два альбома под этим названием. Однако (   Читать дальше...   )2006 - Sunstorm
-2009 - House Of Dreams
-2012 - Emotional Fire
-2014 - Rated X(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B530FD93C59C91A0510257B851DC2E207FB2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459504   (1023076) от 02.04.2021
-
-Whitesnake - The Blues Album (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal Your Heart Away
-02. Good To Be Bad
-03. Give Me All Your Love
-04. Take Me Back Again(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2EC93075BD7B34758755E73421AA16AA166852
 ```
 
 https://mybot314.ru/tekegram_catalog/

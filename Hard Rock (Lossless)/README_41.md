@@ -1,3 +1,177 @@
+###  Публикация: 1234649   (567832) от 07.07.2018
+
+Magnum - Lost On The Road To Eternity (2018) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peaches and Cream (4:54)
+02. Show Me Your Hands (5:45)
+03. Storm Baby (6:13)
+04. Welcome to the Cosmic Cabaret (8:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A7B1B52DDA711E898992712AA75D76C5167E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555621   (567497) от 05.06.2022
+
+Bort - The Wreck of the Hesperus (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock, Doom, Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Reckoning
+02. Permanent Failure
+03. New Ideal
+04. Dawn of Day(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Doom, Desert RockПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CED480FDA4810E51F89371F551BF81287371E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555606   (566885) от 05.06.2022
+
+Def Leppard - Diamond Star Halos (2022) Japanese Edition [WavPack|Lossless|image + .cue] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take What You Want
+02. Kick
+03. Fire It Up
+04. This Guitar(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D16F6B78F8E77B0CE9E186EC7C03D7F99F2752D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923129   (566243) от 30.07.2015
+
+Alice Cooper - Billion Dollar Babies (1973) Hybrid SACD, Limited Edition /2014, Audio Fidelity/ [FLAC|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Hooray [4:14]
+02. Raped And Freezin' [3:15]
+03. Elected [4:05]
+04. Billion Dollar Babies [3:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC9C0FB451045C71A2F0F153AD4C98CA0B36801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152600   (565685) от 23.07.2017
+
+Legion - Legion (2010) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Leave Me Alone  (04:23) 
+02.Trouble  (04:20) 
+03.Caught In The Madness  (04:29) 
+04.Coming For You  (04:49) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59153E3EED857720B2C3125956E96F20BD869524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044436   (565538) от 20.08.2016
+
+Now Or Never - II (2016) Jpanase Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice Inside
+02. Sonic Ecstasy
+03. King for a Day
+04. I Shall Remain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBC3987300124978CCAB2EE0705D20380B1CBB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044531   (565519) от 20.08.2016
 
 Robin George and Dangerous Music - Painful Kiss (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -580,179 +754,6 @@ Darian And Friends - Lost Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE1766286A498B64282B2AFD9956151693E59E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556918   (556397) от 12.06.2022
-
-MegaSnake - Charming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sun Don't Shine (00:03:28)
-02 - Shame on Me (00:03:33)
-03 - My Window (00:03:57)
-04 - All in Good Time (00:04:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD02D7E3DF89D701C298326033515E5079DC4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305811   (556111) от 01.06.2019
-
-Kingdom Come - Classic Album Collection 1988-1991 (2019) 3CD Remastered [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556111.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: 1988  Kingdom Come
-CD2: 1989 In Your Face
-CD3: 1991 Hands Of TimeЖанр: Hard Rock |Продолжительность: 02:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09EC096EBB73DAA10D6C5558E30A1C3ACF8FFC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557092   (556099) от 13.06.2022
-
-Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dream Killers (00:04:23)
-02 - Rotten Romance (00:03:58)
-03 - The Velvet (00:04:26)
-04 - Distant Memory (00:03:47)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CBBE7512D18DACD2F2281AAE751E63BA7FD9855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557100   (556094) от 13.06.2022
-
-Raider - Runaway (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dusk Till Dawn (00:03:58)
-02 - High Speed Woman (00:04:00)
-03 - Runaway (00:04:16)
-04 - Come and Get It (00:03:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16C26BB51C0E41F664FCB8C039067C26DB2A9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307844   (554691) от 11.06.2019
-
-Hardbone - Tailor-Made (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Man's Land [0:03:06.25]
-02. It's A Man Thing [0:04:32.56]
-03. Tailor-Made Woman [0:04:48.23]
-04. Blood From Hell [0:03:27.14](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9A8764CF43F9811701DCA9C324F0A6A13B49B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307841   (554684) от 11.06.2019
-
-Hardbone - Bone Hard (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It Off [00:03:41]
-02. Bad Boy [00:05:09]
-03. Sound Of The City [00:05:00]
-04. Move On [00:06:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D729975BCB334BF607E1E2DB0867589281EC7D87
 ```
 
 https://mybot314.ru/tekegram_catalog/

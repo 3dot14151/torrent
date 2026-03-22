@@ -1,22 +1,25 @@
-###  Публикация: 1212766   (775177) от 13.03.2018
+###  Публикация: 1013755   (777354) от 05.05.2016
 
-Adobe AIR 29.0.0.112 Final [Multi/Ru]
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Питтсбург - Вашингтон. 4-й матч (04.05.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775177.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe AIR - (Adobe Integrated Runtime) - платформенно-независимая среда для запуска приложений, позволяющая использовать HTML/CSS, Ajax, Adobe Flash и Adobe Flex для переноса веб-программ на настольные компьютеры. Adobe AIR включает в себя возможность создания инсталляционного пакета, который может быть установлен на компьютер пользователя. Приложения, написанные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+05 мая 2016, четверг. 03:00 МСК
+1/2 финала - Восток. 4-й матч
+
+Стадион: Консоль Энерджи-центр (Питтсбург, США) , 18 614 зрителей (100 % при вместимости 18 656)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Александр Фомичев, Михаил Мельников)Продолжительность: 02:22:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C01EF7E1358C3713BF236054EBBE37D006DD57D1
+magnet:?xt=urn:btih:0EBE1B143D479CD045A38C09400E172F3E487710
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212796   (775176) от 13.03.2018
+###  Публикация: 1013415   (777353) от 05.05.2016
 
-Медведь ШатунЪ - Погоди зверьё (2017) [FLAC|Lossless|image + .cue] <Rock>
+Биатлон с Дмитрием Губерниевым. Сезон 2015-2016. Выпуск 16 (09.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775176.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Хотят ли русские войны (2:43)
- 02. Медсестра Кораблёва (4:56)
- 03. Звезда квартирного масштаба (2:43)
- 04. Му*ак (4:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:35
+Для биатлонистов зима — это время мобилизации сил и полной концентрации. Для зрителей — начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований, рассказы о биатлонных командах.В этом выпуске: - Представление участников Гонки Чемпионов 2016;
+- Многое ли биатлонисты-участники Гонки Чемпионов знают о других участниках? Спросим;
+- История отношений Бьорндалена и Домрачевой;
+- Как долго еще выступать Бьорндалену? Как себя видят спортсмены в 42 года? Эти вопросы задали участникам Гонки Чемпионов;(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортПродолжительность: 00:24:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D911253A765D37CA87118417AEE640B8BDC9562
+magnet:?xt=urn:btih:3C0C9F377D4EC5A216475DDE1C552E583EA46E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +56,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212669   (775175) от 13.03.2018
+###  Публикация: 1013753   (777352) от 05.05.2016
 
-Беседа с Евгением Федоровым (07.03.2018) WEBRip [H.264/720p-LQ]
+VA - The Best Of FMR Trance (2016) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U-Mount -  Teleport (Original Mix)  8:21
+02. J Adsen -  Move With You (Original Mix)  4:16
+03. Betelgeuze -  Dream (Original Mix)  9:13
+04. Betelgeuze -  Ascent (Original Mix)  5:10(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11BDD5A790403456AE491CA41E18518209859787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013680   (777351) от 05.05.2016
+
+VA - Nothing But... Pure Trance Vol.13 (2016) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joseph Alam -  Infernal Soul (Original Mix)  7:12
+02. Katherine Amy -  Lost Without You (Original Mix)  6:33
+03. Miroslav Vrlik -  So Slowly (Original Mix)  6:35
+04. Mike Sanders -  No Way Out (Nikolauss 140 Remix)  7:06(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4793EEBAAA9FFD2C439B9918C53E90499079DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013897   (777350) от 05.05.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (05.05.2016) SATRip
 
 >>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775175.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Руководитель Информационного штаба НОД встретился с депутатом Государственной Думы, координатором Национально-Освободительного Движения Евгением Федоровым. Темы беседы: пропагандист Константин Семин и центральное российское телевидение; что главнее: Отечество или порядки в нем; что такое 1991 год по отношению к Отечеству; спортсмены, альтернативная олимпиада и патриотизм.Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 01:22:36
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:50:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BC18DFB6FEFF3D480EED267985FC7F1E1D8C195
+magnet:?xt=urn:btih:A67BB20D5D60710E7E148C902C749479ABC2EE29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,222 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212670   (775174) от 13.03.2018
+###  Публикация: 1013671   (777349) от 05.05.2016
 
-Обои - Desktop Wallpapers Full HD. Part (151) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED35155118C034BC069712DC25A9A2141D942453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212658   (775173) от 13.03.2018
-
-Журнал | Авиация и космонавтика: вчера, сегодня, завтра №7 (июль 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF16E28265227E8C1B5B532BE9936846D7FD4A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277762   (775172) от 22.01.2019
-
-Pillorian - Obsidian Arc (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Light of a Black Sun (8:23)
-02. Archaen Divinity (6:33)
-03. The Vestige of Thorns (8:46)
-04. Forged Iron Crucible (7:08)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87612653CF798475D4FFD38B0A0023C69860A648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277765   (775171) от 22.01.2019
-
-Panikos - Eclipse I (1998) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.     After Creation: Panikos, Rebellion/Isheth Zenunim
-02.     Mighty mother law of Kings
-03.     Hymn to the eternal earthly life
-04.     Kneel, Pan has returned(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB9861278E966B440F4386BF1EDFDD484604E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277764   (775170) от 22.01.2019
-
-Watch Them Die - Bastard Son (2005) [APE|Lossless|image + .cue] <Thrash Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bastard Son
-02. Onslaught
-03. Throne Of Lies
-04. Horizon(   Читать дальше...   )Жанр: Thrash Death MetalПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FE8D91E02672A32F2DCCEB16FFD89239CD8078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277767   (775169) от 22.01.2019
-
-Enchained Souls - In Memoriam (2010) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.     Intro
-02.     Fachadas, el Ocaso del Ser
-03.     La Contracara del Honor
-04.     La Ruina tras la Victoria(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5BCFE0160C0710F99DABFC330E778616D75EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277763   (775168) от 22.01.2019
-
-Zaphyria - Hate and War (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.     Memories of Hope
-02.     Hate and War
-03.     Running in Circles
-04.     TimeЖанр: Symphonic MetalПродолжительность: 00:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553F6DDC39418249FC156576DBF5D4E2AE1F5A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277731   (775167) от 22.01.2019
-
-MarsEdit 4 v4.2.6 [En]
+Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Ответный матч. Реал (Испания) - Манчестер Сити (Англия). (04.05.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775167.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2019Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+04 мая 2016, среда. 21:45 МСК
+1/2 финала. 2-й матч
+
+Стадион: Сантьяго Бернабеу (Мадрид, Испания) , вместимость: 85454(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Георгий Черданцев, Александр Шмурнов) / ИнтершумПродолжительность: 01:52:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60B900E352837B76E5C3580743D90BE3AC9B901C
+magnet:?xt=urn:btih:5FD917520224304DF6F291726114BB80B9AD33A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,29 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277942   (775166) от 22.01.2019
+###  Публикация: 1013642   (777348) от 05.05.2016
 
-VA - Annexe: Cottage Industries 2 (2002) 2CD [FLAC|Lossless|tracks + .cue] <Abstract, IDM, Ambient>
+VA - Top Trance Anthems Vol.3 (Nation Of Epic Melodic And Progressive Hardtrance) (2016) [MP3|320 кб/с] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775166.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-01. Sense - Icyltap (05:22)
-02. Funckarma - Trezz (06:48)
-03. Novel 23 - Siberian Lily (04:34)(   Читать дальше...   )Жанр: Abstract, IDM, AmbientПродолжительность: CD1 - 01:01:57
-CD2 - 01:01:01
+01. Arrakeen, Jaki Song -  Time (Original Instrumental Mix)  9:19
+02. Altek -  2nd Chance  7:46
+03. Akira Kayosa, Firestorm -  Reflections (Eldritch Project Remix)  8:05
+04. Dark Sector -  Strings of Anger (Marc De Simon Remix)  7:58(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAD58F3B2D56D8883D707D2BE1C5AF68523B8321
+magnet:?xt=urn:btih:49CF21C7FA6E4459E748BB8B3A2C2E77E2415893
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277903   (775165) от 22.01.2019
+###  Публикация: 1013637   (777347) от 05.05.2016
 
-VA - Abstract Vibes 2 - More Vibes (1997) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
+VA - Mediterranean Chill Out Session Vol.1 (2016) [MP3|320 кб/с] <Lounge>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775165.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Archive - Old Artist (04:04)
-02. Sneaker Pimps - 6 Underground (Fila Brazillia remix #1) (06:48)
-03. Lascelles - Butterfly (feat. Vanessa Darby) (04:03)
-04. Lamb - Trans Fatty Acid (06:23)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:59:20
+01. NLDA - Yes We Are
+02. Angela Puxi - Anima
+03. Area Code 51 - Teldrassil
+04. Florzinho - Like The First Moment(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:01:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5CD5FB990E2193F6701F8C54F14F0653AAEAC19
+magnet:?xt=urn:btih:831DC520CA84039962CEAA222262F184A00B02CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,278 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277804   (775164) от 22.01.2019
+###  Публикация: 1013706   (777346) от 05.05.2016
 
-John Coltrane - Gold (1957 - 1964) 2CD, 2006, Hip-O Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775164.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Blue Train [10:44]
-02. Giant Steps [4:46]
-03. Naima [4:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D545C53983D62F142B0E00E33B1A9322D7C62CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277726   (775163) от 22.01.2019
-
-GraphicConverter 10 v10.6.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775163.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 10 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2019Разработчик: Lemke Software GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB9EEF2807E3CE93992E3C063A51FE1CAF73900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277766   (775162) от 22.01.2019
-
-Obscura - Akroasis (2016) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sermon of the Seven Suns  (7:13)
-02 - The Monist  (4:57)
-03 - Akroasis  (4:24)
-04 - Ten Sepiroth  (5:09)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2AE1D8EE65ACD7DB0A04A8FD011D792D2A266BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277826   (775161) от 22.01.2019
-
-Scrutiny 8 v8.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2019Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF0E167FD2C7C5610FC92C5832C34BB4FAAB6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277798   (775160) от 22.01.2019
-
-VA - D.MAX Recordings: Best of 2018 (Mixed by Bryan Summerville & Dave Cold) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novan Aery - Quasar (Original Mix)
-02. D4souL - Mario (Original Mix)
-03. AC - Gale (Original Mix)
-04. Age&Why - Don't send Me Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A634EA4CB3E502AB105588DFA7C204EE26F6A261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277556   (775159) от 22.01.2019
-
-С. И. Гуськов | В атаке доллар [Международный спорт и идеологическая борьба] (1988) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775159.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге поднимаются острые и злободневные проблемы международного спорта - одного из эпицентров современной идеологической борьбы. "Долларовая революция" в американском спорте. Что она порождает? Грубость, насилие, победа "любой ценой" - кому это выгодно? Система американского спорта - эталон для подражания или идеологическая диверсия против идеалов (   Читать дальше...   )Жанр: История, политология, экономика, искусство, психология, социология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6B834972DF87CCDA0DB9C869F03A61EB1E4A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277930   (775158) от 22.01.2019
-
-Emiliana Torrini - Love in the Time of Science (1999) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be Free (3:25)
- 02. Wednesday's Child (3:55)
- 03. Baby Blue (4:05)
- 04. Dead Things (4:25)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D146DC7E5474AB00A234E5FF344EB36515DF0B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277548   (775157) от 22.01.2019
-
-Н. Н. Сибиряков, Н. Е. Покровский (сост.) | Перепутья и тупики буржуазной культуры (1986) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775157.jpg" />
-</div>
-
-
-###  Подробнее
-
-борник посвящен актуальным проблемам развития современной буржуазной культуры. Наряду с репортажами и художественно-публици­стическими очерками, рассказами о новейших явлениях культурной жизни стран Запада читатель познакомится со статьями советских ученых-обществоведов, в которых анализируются важные стороны общественного сознания (прежде всего эстетического и художественного), (   Читать дальше...   )Жанр: История, политология, культурология, социология, психология, искусство, эстетика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA57913D955B7D1FDE790778882D621A120F4A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277588   (775156) от 22.01.2019
-
-Dave Thomas Junior - Echo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - If Things Had Gone Our Way
-02 - Double Down
-03 - Let Me Down Easy
-04 - When Does It Get Easier(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7FEB72B2B698B86934D09589D4174B26656304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277847   (775155) от 22.01.2019
-
-VA - Winter Sun 01 (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+VA - San Trance Disko Vol.1 (2016) [MP3|320 кб/с] <House, Progressve, Tech House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775155.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Numedian - Balearic Winter (Original Mix) [08:07]
-02. ZGOOT - Hopefulness (Original Mix) [06:25]
-03. L_DG - Toronto (Original Mix) [07:41]
-04. Ellunate - Twinkle (Original Mix) [06:04](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:36:25
+01. Skyroom -  Stella (Blue Amazon Vocal Remix)  9:11
+02. Lucas Oggier -  That's It  7:25
+03. Kid Massive -  Creeping for Girls  7:36
+04. Matan Caspi -  Check the Windows (East Cafe Remix)  7:33(   Читать дальше...   )Жанр: House, Progressve, Tech HouseПродолжительность: 03:37:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A9E7A3E5BC907B47290AF32A89D8BC19F6EDE6C
+magnet:?xt=urn:btih:074C125B7623E831BBD97710AC40AB4FC3C239B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015318   (775154) от 10.05.2016
+###  Публикация: 1013807   (777345) от 05.05.2016
 
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Запад. Сент Луис - Даллас. 6-й матч (09.05.2016) WEB-DL [H.264/720p-LQ] [EN]
+Autumn of Communion - Broken Apart By Sunlight (2016) [MP3|320 кб/с] <Ambient, Experimental, Space>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775154.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 мая 2016, вторник. 03:00 МСК
-1/2 финала - Запад. 6-й матч
-
-Стадион: Скоттрэйд-центр (Сент Луис, США) , 19 808 зрителей (100 % при вместимости 19 808)(   Читать дальше...   )Телекомпания: CBCЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:02:42
+01. Cassini’s Visible Raindrops (21:47)
+02. KELT-4Ab (21:50 )
+03. TW Hydrae Observations (21:42 )
+04. Broken Apart By Sunlight (21:45 )(   Читать дальше...   )Жанр: Ambient, Experimental, SpaceПродолжительность: 01:48:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55C82B025FB2B23687A21916F4E622B5C0F77AB6
+magnet:?xt=urn:btih:99021DF9D7BA0BE804CF96C86BA7974666DEB946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,28 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015133   (775153) от 10.05.2016
+###  Публикация: 1013740   (777344) от 05.05.2016
 
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Тампа Бэй - Айлендерс. 5-й матч (08.05.2016) HDTVRip [H.264/720p-LQ]
+VA - Festival Anthems Club EDM (2016) [MP3|320 кб/с] <House, Club, Dance>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775153.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 мая 2016, воскресенье. 22:00 МСК
-1/2 финала - Восток. 5-й матч
-
-Стадион: Амали-Арена (Тампа, США) , 19 092 зрителя (98 % при вместимости 19 500)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Неценко)Продолжительность: 01:56:23
+01. Scotty -  On the Move (Cj Stone Edit)  2:57
+02. StadiumX -  Mombasa (Radio Edit)  3:17
+03. Alejandro Yanni -  Grenade (Original Mix)  5:25
+04. Saccao & Stage Rockers feat. Ryan Konline -  Sweetest Memory (Radio Edit)  3:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D167047110A0DE397A0DF5B873BF55A1E8BE0258
+magnet:?xt=urn:btih:84ADB5E60EAF6A8BE7F98F61D44B832558055081
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,28 +314,414 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014684   (775152) от 10.05.2016
+###  Публикация: 1013647   (777343) от 05.05.2016
 
-Футбол. Чемпионат Италии 2015-2016. 37 тур. Болонья - Милан (07.05.2016) HDTVRip [H.264/720p-LQ]
+VA - Straight Up Ear Candy Vol. 2 (2016) [MP3|320 кб/с] <Electro House >
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775152.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 мая 2016, суббота. 21:45 МСК
-37-й тур
-
-Стадион: Ренато Далль'Ара (Болонья, Италия) , вместимость: 38279(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Арустамян)Продолжительность: 01:48:18
+01. MitiS, Fathom - Breathe feat Fathom (Original Mix) [3:12]
+02. SugarBeats - Moon Walker feat Veronica RockStar [5:06]
+03. Khai - Do You Go Up (Madnap Remix) [3:29]
+04. Kicks n Licks - Young ft Adara (Original Mix) [4:09](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:20:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:109294329FF0FBAE776E3EA5E15FA0F765724580
+magnet:?xt=urn:btih:C2409B666BA543C9B7B08EB471FB5FFA35D2DEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013771   (777342) от 05.05.2016
+
+Ем. Ярославский | Анархизм в России (1939) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анархист строит свои планы будущего анархического общественного устройства не на основании знания законов общественного развития, а на основании придуманной общественной организации, которая бы обеспечивала неограниченную свободу отдельной личности. В основу своей деятельности анархисты кладут не интересы общества, а интересы отдельной личности - индивидуума. Так (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1CFD5E1755AB4E19B8FE6420B785ADFCBC6072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013757   (777341) от 05.05.2016
+
+John Coltrane featuring Pharoah Sanders - Live In Seattle (1965) 2011, Verve[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cosmos [10:53]
+ 02.Out Of This World [23:43]
+ 03.Evolution [35:56]
+ 04.Tapestry In Sound [06:09]Жанр: Avant-Garde JazzПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD10D40883594C1236C6E9847BE8E402607B7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013764   (777340) от 05.05.2016
+
+Germind - Antimatter, Vol. 4 (2016) [MP3|320 кб/с] <Psybient Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snow Butterfly (05:58)
+ 02. Water Air Thoughts (07:47)
+ 03. Stars On Ice (06:09)
+ 04. Bird Flight Mission (07:47)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C5F89B2589307B5EA5BAD9D8DBDE616753E685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013869   (777339) от 05.05.2016
+
+Haldo, Clelia Liguori & Erika Scherlin - Napoli Lounge # 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haldo & Clelia Liguori - Tu Si' 'na Cosa Grande (Lounge mix) (03:13)
+02. Haldo & Clelia Liguori - Lacrime Napulitane (Lounge mix) (04:49)
+03. Haldo & Erika Scherlin - I Say I Sto Cca' (Dream mix) (04:39)
+04. Haldo & Erika Scherlin - Torna A Surriento (Lounge mix) (03:58)(   Читать дальше...   )Производство: Rebus RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF492B7BB630CEAC7B117F2F0D0AC18714B85BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013742   (777338) от 05.05.2016
+
+SZRP - 23 (2016) [MP3|320 кб/с] <Hip-Hop Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11
+02. 2.12AM
+03. 143U2
+04. 1NAME(   Читать дальше...   )Жанр: Hip-Hop InstrumentalПродолжительность: 00:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFB1C6D6D84D69CE069BCD824AEBECED44F2DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013752   (777337) от 05.05.2016
+
+Lingon X 4.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon X  - автоматический запуск приложений и сценариев
+Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 апреля 2016Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5A9DA830C5AB0D4B1124CCD75323DFD156CEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013773   (777336) от 05.05.2016
+
+В. В. Комин | Анархизм в России (1969) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный курс лекций, прочитанный на историческом факультете педагогического института - одна из первых, после долгого "молчания", попыток рассмотрения в советской исторической науке истории российского анархизма. В книге рассматривается зарождение анархизма, его идейная эволюция, роль анархистов в российском революционном движении, их участие в революциях (   Читать дальше...   )Жанр: История, политология, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8D75197EEBCF612FA7902543AD9BB25EF2559A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013232   (777335) от 05.05.2016
+
+VA - Ibiza Techhouse Weekend Session (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Explanatory - Backwater
+02. Unexpected Marvel - The Search
+03. Spiced Boogie - Another Way
+04. Riffle Shuffle - Warning Function(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A5BBD0B5DA40C372B09B6CAE04007E147FC6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013793   (777334) от 05.05.2016
+
+Место встречи. Назовём своими именами? (05.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36B30062265D40E9EAF84AA2460E822E16DE4BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013720   (777333) от 05.05.2016
+
+VA - 50 Dance Club Full of Essential Music (2016) [MP3|320 кб/с] <Club, Hands Up, Dancecore>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Housegeist -  This Dreams (Orange & Blue Remix)  3:58
+02. Boyz From TBG -  The Fatherland (Radio Edit)  3:44
+03. DJ Jawesome -  Street Sharks (Radio Edit)  3:29
+04. Floorfilla With P. Moody -  On & on (Radio Edit)  3:27(   Читать дальше...   )Жанр: Club, Hands Up, DancecoreПродолжительность: 03:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838AB6A7BA0F61A729F7D35B49595CB2C68FE053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013810   (777332) от 05.05.2016
+
+Право голоса. "Рецепт от Обамы" (05.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777332.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: ЕС нужно как можно скорее создавать вместе с США Трансатлантическое торговое партнёрство, а России выгодно будет сотрудничать с сильной единой Европой - такой рецепт на будущее дал президент Соединённых Штатов Барак Обама. Почему американцы так торопят европейцев? Как будут выстраиваться наши отношения на практике?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97CEFE76793A019F13145B9DE4072B6FF1DB968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013521   (777331) от 05.05.2016
+
+Faderhead - Black Friday (2010) [FLAC|Lossless|image + .cue] <Electro, EBM, Synth-Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obnoxiated [2:09]
+02. Escape From The Machine [4:43]
+03. Hot Bath And A Cold Razor [3:41]
+04. The Moth And The Fire [3:59](   Читать дальше...   )Жанр: Electro, EBM, Synth-PopПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1964C88EBA2645FC43B925A702563C012A1E2643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013839   (777330) от 05.05.2016
+
+Газета | Сезон у дачи №8 (210) (Апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61663F7336A80FC47B2185F0E53AD0B48FFDEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013811   (777329) от 05.05.2016
+
+Журнал | Дачные сезоны №4 (Апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный журнал для дачников, в котором вы найдёте много полезных советов.Жанр: Дом, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3125ECCA94FC16E2A5401211C0C41B9040A9D8B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

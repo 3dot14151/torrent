@@ -1,3 +1,32 @@
+###  Публикация: 1428322   (1040026) от 12.01.2021
+
+Кипелов - Концерт с симфоническим оркестром (2020) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дыхание тьмы
+02. Безумие
+03. Свет дневной иссяк
+04. Мёртвая зона(   Читать дальше...   )Жанр: Heavy MetalФормат: 2CD + DVDПродолжительность: 01;08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB9B784E2FA7EA6FF27EE2BA53ECDFCBCEF795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612943   (1039922) от 17.02.2023
 
 Улица Космонавтов - Жизнь, любовь и танцы (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -717,35 +746,6 @@ Live 208 - На полпути (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:135E43E5A5B3F5B5B8E5B02A41AFCF09DB1D2CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616864   (1035855) от 04.03.2023
-
-Нэил Шери - Громче (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стать смелей [00:03:21]
-02. Живём один раз [00:02:26]
-03. Такая игра [00:03:17]
-04. С тобой [00:03:25](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF25192429614BE2D1D270BE0B8477B3590A41AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

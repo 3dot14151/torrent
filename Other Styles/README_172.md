@@ -1,3 +1,148 @@
+###  Публикация: 1741690   (46915) от 13.08.2024
+
+Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image + .cue] <Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin Wild
+ 02. I'm Thru With Love
+ 03. When Love Goes Wrong
+ 04. My Heart Belongs To Daddy(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743492   (46583) от 16.08.2024
+
+Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adagietto
+02. Sandrine's Dream
+03. Franz
+04. Evening in Gourmos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743924   (46378) от 18.08.2024
+
+101 Strings Orchestra - Moon River: The Music of Henry Mancini (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River (From "Breakfast at Tiffany's")
+02. The Pink Panther Theme (From "The Pink Panther")
+03. Peter Gunn Theme
+04. Theme from "Cade's County"(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68CCFBB92C0F8B2C3BC93D1E36A1F7873CE8E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747686   (44391) от 06.09.2024
+
+101 Strings Orchestra - San Francisco: City of Romance (1974) 2014-2024 Remaster From The Original Alshire Tapes [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Left My Heart in San Francisco (2014 Remaster)
+02. Top o’ the Mark (2024 Remaster)
+03. Cable Cars (2024 Remaster)
+04. Concerto to the Golden Gate (2021 Remaster)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7D44062994B26F2836657E090909EB4E66DD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748599   (43993) от 10.09.2024
+
+Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensual Sunrise Asanas (3:49)
+02. Tantric Tranquility Flow (3:10)
+03. Whispers of Intimacy (3:10)
+04. Sacred Connection (3:18)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A0278C849B5B16DF484A219EF0220797A81863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750464   (42923) от 20.09.2024
 
 Эхо Москвы - История песен Битлз The Beatles (49 выпусков) (200?) [MP3|128 Kbps] <Подкаст>
@@ -598,151 +743,6 @@ Gregorian - 25/2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Crossover, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA78AA1BBF0DB1C06D37B2B36C245C9C875348C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760754   (37081) от 16.11.2024
-
-Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Melody, Easy>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsession
- 02. Ecology
- 03. Santa Fe
- 04. Feelin's(   Читать дальше...   )Жанр: Romantic Melody, EasyПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292E73EC4C8CF851DD8A2BACEA62E67D42EC100A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761229   (36787) от 19.11.2024
-
-Рок-Опера - Иисус Христос Суперзвезда, (1995) Remaster, 2023 [FLAC|Lossless|tracks] <Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Увертюра (3:46)
-02-Живущие лишь небесным (4:24)
-03-Что стряслось (4:13)
-04-Все превосходно (5:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A75B3E59EBF1B6D987521ECA7BD3AD5D61FCA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761230   (36775) от 19.11.2024
-
-Рок-Опера - Иисус Христос Суперзвезда, (1995) Remaster, 2023 [MP3|320 Kbps] <Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Увертюра (3:46)
-02-Живущие лишь небесным (4:24)
-03-Что стряслось (4:13)
-04-Все превосходно (5:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B63681F62551B737233941E71762D70551BEF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761367   (36759) от 19.11.2024
-
-VA - The Orient Collective: Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco da Mata & Tibetania - Aich (5:42)
-02. Tibetania & Aunnar - Monte Musa (7:14)
-03. Tibetania & Fernándo feat. Ludelf - Corazon Seco (5:26)
-04. Viel & Tibetania - Espoir (7:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38426D882EA44B77325FE7CB3786E90C44E328A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761521   (36577) от 21.11.2024
-
-Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gate (2:04)
-02. Push the Limits (6:27)
-03. Gravity of Love (3:59)
-04. Smell of Desire (4:57)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E90A1AA72E1B72BE654EF08F25843C8335AB01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,154 @@
+###  Публикация: 1268450   (227834) от 10.12.2018
+
+Paul McCartney & Wings - Wild Life (1971) Remastered, 2018, Capitol Records [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wild Life — дебютный альбом британской рок-группы Wings, вышедший в 1971 году, альбом также является третьим студийным альбомом в дискографии Пола Маккартни вне и после его участия в группе The Beatles. Первоначальный состав Wings образовали Пол и Линда Маккартни, работавший с Полом и Линдой над их предыдущим сольным альбомом Ram барабанщик Denny Seiwell, а также (   Читать дальше...   )01. Mumbo
+02. Bip Bop
+03. Love Is Strange
+04. Wild Life(   Читать дальше...   )Жанр: RockПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25C256328EF62F338373F2BDE0A7188C7A27D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650015   (227668) от 30.07.2023
+
+Richard Wright - Wet Dream (1978) Remix by Steven Wilson, 2023, Rhino [MP3|320 Kbps] <Progressive rock, instrumental rock, jazz fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_227668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mediterranean C (2023 Remix) [00:03:54]
+02. Against The Odds (2023 Remix) [00:03:57]
+03. Cat Cruise (2023 Remix) [00:05:48]
+04. Summer Elegy (2023 Remix) [00:04:59](   Читать дальше...   )Жанр: Progressive rock, instrumental rock, jazz fusionПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D5890A0F9E9EF766F0A4C6888BD9718156BEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649972   (227523) от 30.07.2023
+
+Sweet - Give Us A Wink (Alternative Mixes & Demos) (2022)  [MP3|320 Kbps] <Rock, Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_227523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Scott Talking About Give Us a Wink (June 2022) [05:22]
+02. Fox On The Run (Rough Mix) [03:40]
+03. White Mice (Munich Mix) [05:00]
+04. Cockroach (Munich Mix) [05:00](   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D48EA698D068C8F1A5CF6125EC2778F07D706B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341934   (227519) от 30.11.2019
+
+Kozmik Landing - Distant Land (2019) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Float Instead of Sink (04:02)
+02. Shade of Blue (02:59)
+03. Slow It Down (04:49)
+04. Distant Land (05:31)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171336B2934C55E24CA3147288516D2F2D99F405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586643   (227001) от 09.12.2012
+
+Eagles - Hell Freezes Over (1994) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Get Over It
+02.Love Will Keep Us Alive
+03.The Girl from Yesterday
+04.Learn to Be Still
+05.Tequila Sunrise
+06.Hotel California
+07.Wasted Time
+08.Pretty Maids All in a Row
+09.I Can't Tell You Why
+10.New York Minute(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA8F93B78C265E76B94EA9F68FAD839879D17F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583861   (226927) от 17.10.2022
 
 Blake Hobson - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal, Rock Opera, Comedy Rock>
@@ -599,151 +750,6 @@ Berlin - Best Of Berlin 1979-1988 (1988) [OGG Vorbis|480 Kbps] <Rock, Pop Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5306DCA6995C0D6CE678CE557C93F9030030A637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584733   (224485) от 19.10.2022
-
-Bee Gees - This Is Where I Came In (2001) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Where I Came In
-02. She Keeps On Coming
-03. Sacred Trust
-04. Wedding Day(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000730291D6BDC8736294BF55060D300E2659B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965787   (223856) от 15.12.2015
-
-Marc Bolan & T.Rex - For All The Cats - The Best Of (2015) 2CD [MP3|320 кб/с] <Rock, Glam, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Rod Mama
-02. Blessed Wild Apple Girl
-03. Find a Little Wood
-04. Is It Love?(   Читать дальше...   )Жанр: Rock, Glam, Psychedelic RockПродолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6BDC1244CCB02D20A65C0601CC1A6228BAB139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585227   (222984) от 21.10.2022
-
-Diggeth - Zero Hour in Doomtown (2022) [MP3|320 Kbps] <Heavy Rock, Southern Metal, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freak Flag
-02. Soultwister
-03. Last Man Standing
-04. Acardiac(   Читать дальше...   )Жанр: Heavy Rock, Southern Metal, StonerПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9159C54D1B463DF760806ABCDE58462700059AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585377   (222975) от 21.10.2022
-
-Goatroach - 3 Albums (2019-2022) [MP3|320 Kbps] <Sludge Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Demo '19
-2021 - Excarnated/Of Guided Missiles and Misguided Men
-2022 - Plagueborn(   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 3 CD, 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BA161C8BD89D2FAA2BFC59F450B86DC8D30901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585246   (222966) от 21.10.2022
-
-Battalions - King of a Dead World (2022) [MP3|320 Kbps] <Sludge, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Boots
-02. Coughing Nails
-03. Diagnosis Fucked
-04. Bones to Dust(   Читать дальше...   )Жанр: Sludge, StonerПродолжительность: 00:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DAFE2C2C383A69B455D10E82A2A7823571D34A
 ```
 
 https://mybot314.ru/tekegram_catalog/

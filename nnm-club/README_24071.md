@@ -1,26 +1,25 @@
-###  Публикация: 482645   (99504) от 13.04.2012
+###  Публикация: 1756269   (103503) от 20.10.2024
 
-[Wallpapers] Wallpapers Mix 28 (1600x1200- 4000x3000)
+Freddie Hubbard - Ride Like The Wind (1981) 2014, Warner [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz-Funk>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99504.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Wallpapers Mix 28 (1600x1200- 4000x3000)
-Название: Wallpapers Mix 28 (1600x1200- 4000x3000)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200- 4000x3000
-Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+01. Hubbard's Cupboard [4:55]
+02. This Is It [4:35]
+03. Condition Alpha [4:53]
+04. Ride Like the Wind [4:55](   Читать дальше...   )Жанр: Post-Bop, Jazz-FunkПродолжительность: 00:37:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0FB221012A1154FC944B478BDCD258EE866A498
+magnet:?xt=urn:btih:C2B2D1A32EF98ABF5BA691B9F8461183F025B0BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,29 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482662   (99503) от 13.04.2012
+###  Публикация: 1756262   (103502) от 20.10.2024
 
-[Wallpapers] Nature Pictures №42
+The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99503.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №42
-Название: Nature Pictures №42
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Va de du? [5:24]
+02. De salde sina hemman [6:13]
+03. Den motstravige brudgummen [5:53]
+04. Och hor du unga Dora [5:51](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:32:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68733C105078C93190E042F5C8F1EE149FB2A280
+magnet:?xt=urn:btih:832169EA9E7B1EC7CE4FDEB0337B9CC324046C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -58,27 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482378   (99499) от 13.04.2012
+###  Публикация: 1756272   (103501) от 20.10.2024
 
-Корсар - Каменный ангел (Single) (2012) [MP3|320 кб/с]<Heavy Metal>
+Jim Peterik & World Stage - Roots & Shoots Volume Two (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99499.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Каменный ангел
-02. Он не отдаст тебя
-03. Его ли дом?2012Жанр: Heavy MetalПродолжительность: 00:18:42
+01. American Dreamer (feat. Dave Mikulskis) (4:16)
+02. Your Own Hero (feat. Mike Reno with Jim Peterik) (4:02)
+03. Stronger Than You Know (feat. Jim Peterik and Dave Mikulskis) (4:10)
+04. All That's Mine To Give (feat. Toby Hitchcock) (4:28)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:147BF3EC77A6919CF43C09767C77E26CB81D7E97
+magnet:?xt=urn:btih:E1D13719105E82E6C4AAEB7B47513596DC75E305
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,142 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482524   (99497) от 13.04.2012
+###  Публикация: 1756263   (103500) от 20.10.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (14.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F2518D2D9C699B3DE007D5DE7EEBC170728050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482140   (99494) от 13.04.2012
-
-Exumer - Fire & Damnation (2012) [MP3|320 кб/с]<Speed / Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire & Damnation (03:16)
- 02. Vermin of the Sky (03:17)
- 03. The Weakest Limb (03:50)
- 04. New Morality (03:08)
- 05. Waking The Fire (03:13)
- 06. Fallen Saint (03:54)
- 07. Crushing Point (03:01)
- 08. Devil Chaser (02:42)
- 09. I Dare You (03:40)
- 10. Tribal Furies (03:28)2012Жанр: Speed / Thrash MetalПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4920E535311EF50D74708E27BCF8EB2C94923973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482520   (99493) от 13.04.2012
-
-[Wallpapers] Super Girls Wallpapers (14.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CD9705B2BB6DB270FAAD139B8B325300DA4101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482686   (99492) от 13.04.2012
-
-[Wallpapers] Нравятся! Сотня № 004 (1920х1080-2560х1600)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D31CF2F4925D5362D2B2D0B65F2A9A16818DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481843   (99491) от 13.04.2012
-
-Amongst The Deceit - Tribulations Of Man (2011) [MP3|320 кб/с]<Brutal Death>
+Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99491.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inceptum 1:26
- 02. Inferior Lives 4:08
- 03. Dark Science 4:33
- 04. Dawn Of The Martyr 4:41Жанр: Brutal DeathПродолжительность: 00:38:20
+01. Dirty Water (4:05)
+02. The Others (3:52)
+03. Looking For Paradise (3:51)
+04. Find You (4:14)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:43:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD4F0C6BBE039F7786672B9365D7E775E5CFBE7
+magnet:?xt=urn:btih:D2655592139FD191BCBB4A5F5655C19A465DC26E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480892   (99490) от 13.04.2012
+###  Публикация: 1756396   (103499) от 20.10.2024
 
-Trifixion - A Utopia For The Damned (2011) [MP3|~245 кб/с (V0)]<Brutal Technical Death>
+Beorn - Time To Dare (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99490.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Human Construct (Intro) (01:53)
- 02. Fucked In Gutteral Vortex (03:56)
- 03. Delta 9 Messiah (04:10)
- 04. In Nomine Patris (03:56)Жанр: Brutal Technical DeathПродолжительность: 00:47:13
+01. From Here to Eternity (instrumental)
+02. Riders of the Sky
+03. Star Ocean
+04. In Quest for Planet Eden(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72F2FB8ED4C0014EF8E33E529D47E0FCF30BD3CC
+magnet:?xt=urn:btih:7152C12DF731AD0CA98D4201A145CFC15AEE2EF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,33 +143,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481590   (99489) от 13.04.2012
+###  Публикация: 1756294   (103498) от 20.10.2024
 
-220v - Overcharged (2008) [FLAC|Lossless]<Psychedelic / Full-On>
+Jaime Narvaez - Joyous Cosmology EP (2019) [FLAC|Lossless|tracks] <Deep House, Progressive House>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99489.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 220v - Overcharged [08:17]
- 02. 220v - Friday [06:49]
- 03. 220v - Insane To The Brain [07:22]
- 04. 220v - Keeping The Music Real [08:10]
- 05. 220v - Swinguin Beat [07:54]
- 06. Eskimo - Every single sound (220V Remix) [07:54]
- 07. 220v - Kizuna [08:12]
- 08. 220v - The Future Shock [07:22]
- 09. 220v - Turn The Beat Back [06:44]2008Жанр: Psychedelic / Full-OnПродолжительность: 01:08:42
+01. Jaime Narvaez - Joyous Cosmology (Original Mix) (8:08)
+02. Jaime Narvaez - Joyous Cosmology (Wonderful Life Vocal Mix) (8:08)
+03. Jaime Narvaez - Neptunian (Original Mix) (7:20)Жанр: Deep House, Progressive HouseПродолжительность: 00:23:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:07DAC9F20A734C560BC870734F6390BC355A9C78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,34 +171,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482164   (99488) от 13.04.2012
+###  Публикация: 1756178   (103497) от 20.10.2024
 
-VA - MAXI. Популярные новинки Раdio Плюс (2012) [MP3|256-320 kbps]<Pop | Dance>
+Mother's Cake - Ultrabliss (2024) [FLAC|Lossless|WEB-DL|tracks] <Progresive, Space, Psychedelic Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99488.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bahh Tee - Я Наверное
-02. Frisco Disco ft. Ski - One Way Ticket (Original Club Mix)
-03. Lia Love feat. Chaddi - Down Down (Kriss Raize Radio Edit)
-04. T1One feat. U'Lee (44) - Всё Будет Как Прежде
-05. Макsим - Небо-самолёты
-06. A-VIA & Extasy Project - Мама-Любовь
-07. Katy Perry - Wide Awake
-08. Spencer & Hill feat. Ari - Surrender (Radio Edit)
-09. Людмила Соколова - Дарю Тебе Счастье
-10. Оксана Почепа - Стаи птиц (DJ Audiophil Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:16:14
+01. Clockwork [00:09:53]
+02. Feel Alright [00:04:10]
+03. One of These Days [00:03:51]
+04. Love Me [00:09:05](   Читать дальше...   )Жанр: Progresive, Space, Psychedelic RockПродолжительность: 00:53:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B73ACAADD045E4568220F6E9A18C07F96FA6423A
+magnet:?xt=urn:btih:54F344997D6DDA1E7892B69F6B7AC35F53F8C9D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,34 +200,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482758   (99486) от 13.04.2012
+###  Публикация: 1756202   (103496) от 20.10.2024
 
-VA - Trance Maniacs Party: Trancefer Wave #96 (13.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+Starcrazy - Starcrazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99486.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix)
-002. Santerna - Aquamarine
-003. Radion 6 - B U Tiful (Original Mix)
-004. Patric la Funk - Baltic (Original Mix)
-005. Ralphie B - Bullfrog (Original Mix)
-006. Veracocha - Carte Blanche (Dabruck & Klein Remix)
-007. Marcel Woods - Champagne Dreams (W&W Remix)
-008. Ummet Ozcan - Cocoon (Original Mix)
-009. Matt Bowdidge - Crossing North (Original Mix)
-010. Mark Burton - Delusion (Original Mix)(   Читать дальше...   )13.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 03:36:53
+01. The Fire [00:03:36]
+02. What It's Worth [00:03:17]
+03. Going Underground [00:03:24]
+04. Nighttime [00:03:11](   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 00:38:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24D9BAB52FF711E9861F50BF0B9E5287973EE9D4
+magnet:?xt=urn:btih:BC7A67C49306258E621C9A5AD8E97A29BB3BB5FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,29 +229,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482682   (99483) от 13.04.2012
+###  Публикация: 1756318   (103495) от 20.10.2024
 
-[Wallpapers] HD Wallpapers №10
+Первая передача на НТВ. Автомобильная передача (20.10.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99483.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №10
-Название: HD Wallpapers №10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200/1680x1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+В Тюмени невиновный водитель оказался в дураках, хотя ПДД нарушил другой участник аварии. Какую ответственность несет аварийный комиссар и как получить документы в ГАИ, ведь экипаж на место никто не вызывал?
+ Самая массовая модель «Жигулей»: как она создавалась и чего не хватает нынешнему автолюбителю.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C49978FCF3B11DFB99CA646FA9F2F098880C80D9
+magnet:?xt=urn:btih:0577C660A374C39D153175684E25E3AB2CEE16D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,29 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481989   (99480) от 13.04.2012
+###  Публикация: 1756392   (103494) от 20.10.2024
 
-Jeff Hughell (ex-Brain Drill) - I Came To Hate [EP] (2009) [MP3|320 кб/с]<Technical Instrumental>
+Moonrise - Under The Flight Crows (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99480.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Came To Hate
- 02. Elbowed Back To Life
- 03. Fuck You All
- 04. Classicaly
- 05. Black Label Bongo Thrash2009Жанр: Technical InstrumentalПродолжительность: 00:18:42
+01. Under the Flight of Crows 06:50
+02. Dusk 05:46
+03. Dressed by Our Dreams 04:36
+04. My Ruins 04:21(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
+magnet:?xt=urn:btih:D409D29776B70231C84293F5CA6FFB3DDFA198D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,34 +285,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482550   (99476) от 13.04.2012
+###  Публикация: 1756240   (103493) от 20.10.2024
 
-Derelict - Perpetuation (2012) [MP3|~295 кб/с]<Technical Progressive Death>
+НХЛ 2023-2024. Каролина Харрикейнз - Питтсбург Пингвинз (18.10.2024) WEB-DLRip [H.264/720p] [hand made 30 fps] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99476.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Perpetuation 3:05
- 02. Spoils Of War 3:37
- 03. Expiry 2:55
- 04. Digital Birthright 3:25
- 05. Intricate Decay 4:38
- 06. Olympic 3:26
- 07. Ergogenic 3:32
- 08. Recreated 3:06
- 09. Yours To Surpass 2:34
- 10. Shackles Of Indoctrination 4:48(   Читать дальше...   )2012Жанр: Technical Progressive DeathПродолжительность: 00:43:38
+19 октября 2024, суббота. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 074 зрителя (91% при вместимости 18 673)
+Главный судья: Кендрик Николсон (Милвертон, Канада); Главный судья: Картер Сандлак (Лондон, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Си Джей Мюррей (Питтсбург, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E182DD163A8DBAA74A81BC0736B98A107DA8F60
+magnet:?xt=urn:btih:584B572231904307816558210DD8437F75D5F229
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,29 +312,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482712   (99475) от 13.04.2012
+###  Публикация: 1756979   (103492) от 24.10.2024
 
-[Wallpapers] HD Wallpapers №12
+The Grammers - Rockfield (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99475.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №12
-Название: HD Wallpapers №12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Devil in the Eyes of Men (3:33)
+02. DNA (2:40)
+03. Live It Up (4:39)
+04. I Know You're Strong (4:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72ED6EFC203C01ADF00E1A5C77911BCF8D1D6B8B
+magnet:?xt=urn:btih:4668C87514275B2CDF48545BBDC234A341F7FBD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,25 +341,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482435   (99474) от 13.04.2012
+###  Публикация: 1757003   (103491) от 24.10.2024
 
-Журнал | 5 колесо №3 (март 2012) [PDF]
+Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«5 колесо» - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей. В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Формат: PDF
+01. Stranger (5:01)
+02. Impatient (4:54)
+03. Closer to Heaven (5:21)
+04. Ring Me Around (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
+magnet:?xt=urn:btih:BF8823A18633939A217E04E32BC1A9AF77390FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,25 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482513   (99473) от 13.04.2012
+###  Публикация: 1757018   (103490) от 24.10.2024
 
-[Wallpapers] Scotland (Шотландия) wallpaper | для БориСКА47
+Malabari - Down The Maelstrom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99473.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Релиз подготовлен по просьбеРазрешение файлов: 1280x840 - 1600х1200
+01. Down The Maelstrom (1:54)
+02. Maelstrom (4:38)
+03. Empty Sacrifice (3:51)
+04. Shadows (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
+magnet:?xt=urn:btih:4ED6111EADC96F3863DA85978798128964B207BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,34 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481984   (99471) от 13.04.2012
+###  Публикация: 1756929   (103489) от 24.10.2024
 
-Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
+Gillian Welch & David Rawlings - Woodland (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Folk, Blues, Americana>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99471.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
- 02. Parasite
- 03. Mensonges
- 04. People
- 05. Cadaveric Slam
- 06. Amnésie
- 07. Hate My Face
- 08. All Star
- 09. Anal Evil
- 10. Armes de Sang Froid2011Жанр: Slamming Brutal DeathПродолжительность: 00:29:39
+01. Empty Trainload Of Sky (3:25)
+02. What We Had (3:59)
+03. Lawman (4:32)
+04. The Bells And The Birds (3:14)(   Читать дальше...   )Жанр: Folk, Blues, AmericanaПродолжительность: 00:41:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
+magnet:?xt=urn:btih:1C23DE161E88A2CDFC4C1188DA1290BEE2836FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,33 +428,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481846   (99467) от 13.04.2012
+###  Публикация: 1756937   (103488) от 24.10.2024
 
-I’ll Eat Your Face - Hot Brains Terror (2011) [MP3|320 кб/с]<Death Metal / Grindсore>
+Франсуаза Саган | Немного солнца в холодной воде (2020) [MP3, Алла Човжик]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99467.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Weasel Tank Slime (01:08)
- 02. Acid Worm Monsoon (01:37)
- 03. Brainwolf: Revenge of the Priest (01:53)
- 04. Drowning Dogs in a Swamp (03:32)
- 05. Enslaved by the Prawnmaster (01:18)
- 06. Reverse Eagle Embeastment (02:13)
- 07. The Eels of Love Lake (02:10)
- 08. Castle of Vomiting Owls (01:48)
- 09. Forever Sealed in the Electric Brains’ Melting Slug-Ray (05:16)2011Жанр: Death Metal / GrindсoreПродолжительность: 00:21:00
+Серия/Цикл: Саган. Коллекция.
+Франсуазу Саган (1935–2004) называли Мадемуазель Шанель от литературы. Начиная с самого первого романа «Здравствуй, грусть!» (1954), наделавшего немало шума, её литературная карьера складывалась блестяще, она с удивительной легкостью создавала книгу за книгой, их переводили на различные языки, и они разлетались по свету миллионами экземпляров. (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Наталия НемчиноваИздательство: Азбука-АттикусПродолжительность: 04:52:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C4EB3D02112D6B7D1A2F1C97CA45B961EE5024C
+magnet:?xt=urn:btih:D5783AC824EFEA0ECC32B984202B527210C61EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,25 +455,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482064   (99465) от 13.04.2012
+###  Публикация: 1756951   (103487) от 24.10.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (12.04.12)
+Франсуаза Саган | Четыре стороны сердца (2021) [MP3, Алла Човжик]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99465.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Серия/Цикл: Саган. Коллекция.
+Франсуаза Саган (1935–2004) – французская писательница.
+В романе «Синяки на душе» (1972), как и во многих романах писательницы, речь идет о любви, хрупкой, нерешительной, мимолетной. Верная себе Саган заводит своих персонажей в лабиринт запутанных отношений: вокруг Себастьяна и Элеоноры кружатся странные люди, пытаясь проникнуть в тайны (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Алла БорисоваИздательство: Азбука-АттикусПродолжительность: 03:46:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A39A7C28B2DFCC1C692CA45DA6FA8EA45D830864
+magnet:?xt=urn:btih:B570B3D8302E85C9B0BADBE8C21FA785DA8E0FCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +483,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481178   (99464) от 13.04.2012
+###  Публикация: 1756952   (103486) от 24.10.2024
 
-Infestdead - 3 альбома - Discography (1995 - 1999) [MP3|320 кб/с]<Death Metal>
+Nitrogods - Valley Of The Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99464.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Death MetalПродолжительность: 01:22:51
+01. Left Lane To Memphis (3:02)
+02. Shinbone Kicker (3:16)
+03. Valley Of The Gods (3:54)
+04. Last Beer Blues (4:52)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
+magnet:?xt=urn:btih:EFB824A0BBDD6BB1617858B406673772276AC3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,34 +512,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481995   (99462) от 13.04.2012
+###  Публикация: 1756989   (103485) от 24.10.2024
 
-A Million Dead Birds Laughing - Force Fed Enlightenment (2011) [MP3|~275 кб/с (V0)]<Experimental Grindcore / Technical Death>
+Todd Partridge - Desert Fox Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99462.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Conduit - 01:04
- 2. Void - 01:47
- 3. Forcefed - 01:11
- 4. Edge - 01:44
- 5. Requiem - 01:30
- 6. Defiants - 02:37
- 7. Purpose - 01:21
- 8. Willow - 01:09
- 9. Oracle - 02:49
- 10. Leech - 02:26(   Читать дальше...   )Жанр: Experimental Grindcore / Technical DeathПродолжительность: 00:24:42
+01. Depression (4:55)
+02. Gotta Do (2:19)
+03. Gentleman Blues (2:32)
+04. Interstellar Planetary (3:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94391266783DF4CDCBE7FFA59D272B091153A0E8
+magnet:?xt=urn:btih:FC125A31B479BA02F4652AAD22162945A2AA2D51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,25 +541,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482526   (99460) от 13.04.2012
+###  Публикация: 1757014   (103484) от 24.10.2024
 
-[Wallpapers] Best HD Wallpapers (14.04.12)
+Mary Coughlan - Repeat Rewind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99460.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Repeat Rewind (4:22)
+02. Lumberjack (3:39)
+03. What If I Do (3:45)
+04. Once Upon A Fairytale (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46F36852AF17C7DF1D8B29391D8BD69F3AE41ADA
+magnet:?xt=urn:btih:532CD0CD59025DF49F62B3B963B6AB09DC628124
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,25 +570,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482519   (99459) от 13.04.2012
+###  Публикация: 1756886   (103483) от 24.10.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (14.04.12)
+VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99459.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Philly Joe Jones Sextet - Blues For Dracula (8:15)
+02. Louis Armstrong - The Skeleton In The Closet (Single Version) (3:11)
+03. Vince Guaraldi - The Great Pumpkin Waltz (Reprise) (2:40)
+04. Ornette Coleman - The Disguise (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:42:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
+magnet:?xt=urn:btih:5EAD6B5E7EC67FDEDF0ED7FF09ADA358C117ED31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -747,34 +599,143 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481810   (99457) от 12.04.2012
+###  Публикация: 1756954   (103482) от 24.10.2024
 
-The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock>
+Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99457.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carnival [03:37]
-02. Gordon's Gardenparty [03:20]
-03. Daddy's Car [03:35]
-04. Pikebubbles [03:02]
-05. Tomorrow [03:03]
-06. Beautiful One [03:27]
-07. Travelling with Charley [04:09]
-08. Fine [03:09]
-09. Sunday Circus Song [03:54]
-10. Hey! Get Out of My Way [03:30](   Читать дальше...   )2008Жанр: Pop RockФормат: CD, Album, ReissueПродолжительность: 01:03:11
+01. Stranger (5:01)
+02. Impatient (4:54)
+03. Closer to Heaven (5:21)
+04. Ring Me Around (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:44
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:530F3B4FAF77F36603D8E82E5B3BDCE4832A2D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756893   (103481) от 24.10.2024
+
+Lankester Merrin - Dark Mother's Child (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103481.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Eyes Of The Night
+2. High Plains Drifter
+3. Hoist Up The Sail
+4. Immortal Prince(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E28C1F1981023035760A033A1BC893C0472651F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757012   (103480) от 24.10.2024
+
+Zooloo / The Seaweeds - Black Pearls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:04)
+02. Zooloo / The Seaweeds feat. Francis Têtu - Sailed Away (4:19)
+03. I Smell a RatЖанр: BluesПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE871485CBBEBDA740FCF4AABB6B31F5FBBCA0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756871   (103479) от 24.10.2024
+
+VA - Interplay ADE 2024 (Extended DJ Mixes) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Popov & Ahmed Helmy - In Your Mind (Extended Mix) (03:27)
+02. Ahmed Helmy - Stay (Extended Mix) (05:45)
+03. LTN & Omair - Fractal (Extended Mix) (05:38)
+04. LTN - Sakura (Extended Mix) (05:38)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B079B8BEFC50BCAE3DE5A0FB6894F6B27098B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756881   (103478) от 24.10.2024
+
+Bunkiman - Electro Swing Festival (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clockwork Syndrome (2:19)
+02. Rhythm Junky (2:48)
+03. Midnight (2:48)
+04. The Walking Drunker (2:22)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FCD889C895A4CFA824845697CC60FABC306574
 ```
 
 https://mybot314.ru/tekegram_catalog/

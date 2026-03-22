@@ -1,3 +1,61 @@
+###  Публикация: 1213013   (773092) от 15.03.2018
+
+Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soon Its Gonna Rain (from The Fantasticks)
+02. Dream, Dream, Dream
+03. Moonlight in Vermont
+04. Moon River (From Breakfast at Tiffanys)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2278F06D8E41251186F5AB935FC1D3F129F3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213214   (773084) от 15.03.2018
+
+Paul Mauriat - Piano Ballade & Remember (2016) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Ballade (1984)
+01. Hello
+02. A Chance for Heaven
+03. Only You(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327ABDE9B798A4B27D93B2EF7FE9F61B6B1D9957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015741   (772555) от 12.05.2016
 
 Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Gypsy Punk, Balkan>
@@ -687,64 +745,6 @@ Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277967   (768349) от 26.01.2019
-
-Христина Соловій - Любий друг (2018) [MP3|320 Kbps] <Pop-Folk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768349.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Любий друг
-2. Хвиля
-3. Океан
-4. Шкідлива звичка(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBFB4F002BA492E97A7ED94D7EBFC501B776156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125501   (767922) от 15.04.2017
-
-Blackmore's Night - The Village Lanterne (2006) Box Set, Limited Edition [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	25 Years
-2.	Village Lanterne
-3.	I Guess It Doesn't Matter Anymore
-4.	The Messenger (Instrumental)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3835D70E6AC28C9B5B16A11196AB50EDA39CEA89
 ```
 
 https://mybot314.ru/tekegram_catalog/

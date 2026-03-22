@@ -1,3 +1,90 @@
+###  Публикация: 1366007   (925834) от 10.03.2020
+
+Big Life - Big Life (2011) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Life - Dying Day 05:02
+02. Big Life - Close To You 04:17
+03. Big Life - Better Man 04:51
+04. Big Life - Calling 04:26(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC652BE2D18B8A7333200832BB842DE2AD864FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365996   (925760) от 10.03.2020
+
+Newman - 14 альбомов (1997-2017) 15CD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1997 - Newman
+1999 - One Step Closer
+2000 - Dance In The Fire(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 15:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43AFCC01B4AAF66E158E428CCE0B41EFA6A8E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366160   (925748) от 10.03.2020
+
+Khymera - Master Of Illusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Away [4:03]
+ 02. The First Time [4:22]
+ 03. Master of Illusions [4:28]
+ 04. The Sun Goes Down [4:34](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EB4D0C17C73555A4E3FCB1BB7EA5A4A8FE909D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489536   (925543) от 16.08.2021
 
 Wormhog - Yellow Sea (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
@@ -657,93 +744,6 @@ King Mountain - Kingdom Of Shadows (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFFAC93689538FBEB3217C9E1DCFAEDAF2C9F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098077   (910782) от 29.01.2017
-
-Super Vintage - Welcome To Mojo Land (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Moon Rising (05:55)
-02. Delta Mud (04:35)
-03. Son Of Pain (04:42)
-04. Kiss Your Bad Feelings Goodbye (03:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C06B404BEA0B9DF82F22723B743B913DE12A1A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368308   (910548) от 19.03.2020
-
-David Coverdale - Whitesnake - The Best Of Ballads: 40th Anniversary Collection (2019) 2CD [FLAC|Lossless|image + .cue] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Hole In The Sky
-02. Say You Love Me
-03. Only My Soul(   Читать дальше...   )Жанр: Hard-Rock |Продолжительность: 02:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5251B532E84BB7B65580CEF621A56ABF87C53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368524   (909232) от 20.03.2020
-
-Geisha - Youth Stand Tall (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U Got What It Takes (04:56)
-02. Claws Of Sin (04:54)
-03. Shock Rock School (04:36)
-04. Gangland Sector 21 (06:49)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9466E27909A82AEA8AF7C16C97C9D0EBB2E3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

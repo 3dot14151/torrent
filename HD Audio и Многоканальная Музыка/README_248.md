@@ -1,3 +1,318 @@
+###  Публикация: 1801267   (15132) от 09.06.2025
+
+Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz, Big Band>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом содержит песни в аранжировках Фрэнка Синатры, которые певец собирался исполнить, но так и не успел.01. Give Me The Simple Life
+02. I Never Felt This Way Before
+03. Lush Life
+04. Flying Down To Rio(   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB91A4BB31DDD6626E62240431CA3EE535E30F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801251   (15124) от 09.06.2025
+
+Sanctorium - Studio Albums (3 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sanctorium - метал-группа из России, г. Санкт-Петербург. Музыканты черпают свое вдохновение в мифологии, различных легендах, истории древних цивилизаций, философии и мистике. Влияния: Draconian, Epica, Therion, Nightwish, Tristania, Within Temptation.2014 - The Depths Inside
+2017 - Tessellation Of The Universe
+2020 - OrnamentsЖанр: Symphonic Gothic MetalПродолжительность: 03:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9357AEA626BFB48D29C842601BE4D596717BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801444   (15043) от 10.06.2025
+
+King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rustbelt Numetal [00:02:34]
+02. Noonday Demon [00:03:22]
+03. Blue Collar Noose [00:03:00]
+04. Headshot [00:03:51](   Читать дальше...   )Жанр: Nu-Metal, RapcoreПродолжительность: 00:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E4E25E7CB8F362153742FCE27DDFE8F9D40428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801410   (15041) от 10.06.2025
+
+Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15041.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Exodus
+A2 Tribes Of Caïn
+A3 Son Of Earth
+B1 Winter Solstice(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA43A92C43CA1A82120FB316C36DD3497DAD6A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801439   (15037) от 10.06.2025
+
+Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Carter [00:01:48]
+02. Welcome to Tha Carter [00:03:35]
+03. Bells [00:03:24]
+04. Hip-Hop [00:04:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE49CCBCE44980D9565B003E24BA5F4AB119C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801445   (15026) от 10.06.2025
+
+Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why (Interlude) [00:00:41]
+02. Best For Me [00:03:27]
+03. More Than Twice [00:04:33]
+04. You First [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D848FFC35C106D020F147B9AA46B076DBA17F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801771   (14825) от 12.06.2025
+
+Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Und die Engel singen [00:03:27]Жанр: Industrial MetalПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D1C82F769C2E3D610986D73083086DEF8F8DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801795   (14743) от 13.06.2025
+
+Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ain't My Bitch (Remastered 2025) [5:05]
+02 - 2 x 4 (Remastered 2025) [5:29]
+03 - The House Jack Built (Remastered 2025) [6:39]
+04 - Until It Sleeps (Remastered 2025) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F2F5551C1A03370C9934B009A61AB09AEB8037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801785   (14731) от 13.06.2025
+
+Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bequest Of The Wicked [1:05]
+02 - The Eyes Of Suffering [4:04]
+03 - Deformity [4:42]
+04 - Never Forgotten Place [4:38](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801777   (14730) от 13.06.2025
+
+Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hell, Fire and Damnation (Live at Hellfest) [5:40]
+02 - Motorcycle Man (Live at Hellfest) [3:47]
+03 - Power and the Glory (Live at Hellfest) [5:19]
+04 - Madame Guillotine (Live at Hellfest) [5:05](   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D704BB31725FAD4652A32938CC7B80DD9F4DF8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801890   (14717) от 13.06.2025
+
+The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
+02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
+03 - Blood Mother [3:17]
+04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801662   (14715) от 13.06.2025
 
 Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
@@ -423,325 +738,6 @@ Joe Bonamassa - Trigger Finger (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FD783B489C606E1758AF41E27CDA53844E3E52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637929   (13718) от 23.06.2025
-
-Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal).2008 - Captain Morgan's Revenge
-2009 - Black Sails at Midnight
-2011 - Back Through Time
-2014 - Sunset On The Golden AgeЖанр: Folk/Power MetalПродолжительность: 07:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09C05E399CFB1186F78012C64093F1FDB5723D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716189   (13571) от 24.06.2025
-
-Хаме-леоН - Студийные альбомы (6 изданий) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаме-леоН — российская метал-группа из Курска. Основана в 2005 году.2013 - Попробуй на вкус эту душу!
-2016 - Ночь шальных машин в городе тьмы
-2020 - К.О.Д
-2022 - Крики!Жанр: Heavy/Power MetalПродолжительность: 05:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF88EF00B39667AE01FD73368402D1B3FAA0154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553929   (13315) от 27.06.2025
-
-Sodom - Studio Albums (17 releases) (1986-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sodom — немецкая трэш-метал-группа из Гельзенкирхена, коллектив был образован в 1981 году. Sodom принадлежат к пионерам и одним из наиболее успешных классиков немецкой экстремальной метал-сцены наравне с Kreator, Destruction и Tankard. Эти четыре группы составляют так называемую «большую тевтонскую четверку трэш-метала». Манера игры музыкантов, в значительной степени (   Читать дальше...   )1994 - Get What You Deserve
-1995 - Masquerade In Blood
-1997 - 'Til Death Do Us Unite
-1999 - Code Red(   Читать дальше...   )Жанр: Thrash metalПродолжительность: 17:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CCC08F48EB63226F419B6061A47285E48372F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804110   (13279) от 27.06.2025
-
-Barbra Streisand - The Secret Of Life: Partners, Volume 2 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First Time Ever I Saw Your Face (feat. Hozier)
-02. My Valentine (feat. Paul McCartney)
-03. To Lose You Again (feat. Sam Smith)
-04. The Very Thought Of You (feat. Bob Dylan)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A889E4430A8DB603A2DF44B011E9978A5768273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804090   (13278) от 27.06.2025
-
-De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip Hop, Lounge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotel Grand Moondial
-02. Overjoked
-03. Serenade To Go
-04. My Turntable Is Unable(   Читать дальше...   )Жанр: Nu Jazz, Trip Hop, LoungeПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5767AA5AC2A9671EF400BD659E68BD018257240C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804117   (13265) от 27.06.2025
-
-Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blind Idols [5:40]
-02 - The Circle [3:41]
-03 - Outsider [3:32]
-04 - Fractures [4:17](   Читать дальше...   )Жанр: Post-Groove MetalПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76BBF481FA149FD0EE66423DF978F255679C6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804049   (13263) от 27.06.2025
-
-Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heavens Throat [2:11]
-02 - Transmigration [5:13]
-03 - Only Once In A Lifetime [3:52]
-04 - Shadows Of Mine [5:16](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493ED6A47EE10D8E5CE70E8837298BB79AFF19B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804050   (13260) от 27.06.2025
-
-Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Keinen Schritt zurück [4:37]
-02 - Schweineherbst [3:17]
-03 - Eisenkopf [3:51]
-04 - Destroy Fascism (Too Good to Steal from Edition) [1:59]Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A816EC79D0D0C3240653296FDF60D3AA8509D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804161   (13254) от 27.06.2025
-
-Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sky Is Falling
-02. Let Sleeping Dogs Lie
-03. Good Morning Vietnam
-04. For Whom The Bell Tolls(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E669A8B0FD8DEE84D6737545D72FF0728688AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804027   (13253) от 27.06.2025
-
-Benson Boone - American Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry I'm Here For Someone Else [00:02:36]
-02. Mr Electric Blue [00:03:10]
-03. Man In Me [00:03:48]
-04. Mystical Magical [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93CC70B4F0706BC0C107EC5E6D126CB5099043C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804100   (13245) от 27.06.2025
-
-Bruce Springsteen - Tracks II: The Lost Albums (2025) [FLAC 24/96, 24/44.1|Lossless|WEB-DL|tracks] <Rock, Folk Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I'm Not Sleeping [3:38]
-02 - Idiot's Delight [3:35]
-03 - Another Thin Line [4:47]
-04 - The Great Depression [3:48](   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 05:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB3A4D9688A951A81E4FD0B839DD99934BE36F2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

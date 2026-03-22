@@ -1,3 +1,144 @@
+###  Публикация: 1625269   (237901) от 09.04.2023
+
+Random Earth Project - Airwaves (2023) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airwaves 07:06
+02. Egyptian 04:38
+03. Time To Dream 04:14
+04. Window 07:50(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEA4455E8D97BCBA395A306594C4DD9CD9C7D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449369   (237629) от 21.02.2021
+
+Inner Prospekt - Canvas Two (2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Glimpse [00:03:06]
+02 Soul Of Hundred Lives [00:17:45]
+03 King Of Spades [00:06:48]
+04 Why Me [00:08:06](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5924D42D612AA5CB09B037B25FF2C2BA0ED561D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626687   (237409) от 18.04.2023
+
+The Immortals - No Turning Back (1986) UK 12" Single [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Turning Back (The Joy-Stick Mix) (06:21)
+02. No Turning Back (03:59)
+03. No Turning Back (The Chocks Away Mix) (04:00)Жанр: Pop RockПродолжительность: 00:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE12EEE41079E99B862B7E5933F8C91589E545C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627171   (237391) от 18.04.2023
+
+Lindsey Buckingham - Go Insane (1984) Germany 12" Single [MP3|320 Kbps] <Pop Rock, Synth-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Insane (Extended Remix) (05:47)
+02. Play in the Rain (06:56)Жанр: Pop Rock, Synth-popПродолжительность: 00:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783BE80365CE9A58ABD1CF0A4987803DB8D5238F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626998   (237384) от 18.04.2023
+
+Gino Vannelli - In the Name of Money (1987) US 12" Single [MP3|320 Kbps] <Pop Rock, Synth-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Name of Money (Extended Dance Mix) (05:30)
+02. In the Name of Money (Single Version) (03:56)
+03. In the Name of Money (Dub Mix) (03:56)Жанр: Pop Rock, Synth-popПродолжительность: 00:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17882DE66A3A34EC191E732D4A16B12B3E32BBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639290   (237179) от 12.06.2023
 
 Karnataka - Requiem For A Dream (2023) [MP3|320 Kbps] <Progressive Rock>
@@ -601,151 +742,6 @@ Maxus - Maxus (1981) [MP3|320 Kbps] <AOR, Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5524F4F9234146C5B7F954DC1AACC562E797043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623376   (233850) от 01.04.2023
-
-Orphan - Salute (1985) [MP3|320 Kbps] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Up the Skies (04:04)
-02. Lyin' to Me (03:52)
-03. Woman in Love (04:02)
-04. Crazy for the Night (03:58)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B402EF91B365A4CAD806E1E179281C104699888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633914   (233803) от 18.05.2023
-
-VA - Rock Fun & Happy Songs (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - Fun, Fun, Fun (Remastered 2001) (2:05)
-02. The Rolling Stones - Let's Spend The Night Together (3:26)
-03. The Knack - My Sharona (4:52)
-04. The Preatures - Is This How You Feel (3:34)(   Читать дальше...   )Жанр: RockПродолжительность: 03:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D284BB94BFBEA0740FFD677AD5C24B82D5482DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623764   (233663) от 03.04.2023
-
-Boulevard - Blvd. (1988) [MP3|320 Kbps] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream On (03:41)
-02. Far from Over (04:10)
-03. Western Skies (03:40)
-04. Never Give Up (04:38)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF9AE27568363FB48115BDE865B2153F4E733B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641922   (233461) от 25.06.2023
-
-The Samurai Of Prog - The Man In The Iron Mask (2023) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Iron Mask Ouverture [00:03:23]
-02. Celebration For The Birth Of The King [00:02:13]
-03. Berceuse To The King [00:03:25]
-04. The Secret Twin [00:04:07](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD0293DB0FCC3BE158ACCD758823B6CB01D2E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644371   (233383) от 05.07.2023
-
-Coastwise - 2 Albums (2022-2023) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Yourself Ready 00:15
-02. Hard Rock Is Back 04:20
-03. Vampire Love 02:55
-04. Gimme What You've Got 05:07(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922C83DA4DF2BD3F840158502010A7AA49B41DE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

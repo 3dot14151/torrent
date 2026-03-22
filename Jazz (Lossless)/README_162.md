@@ -1,3 +1,175 @@
+###  Публикация: 930762   (514100) от 24.08.2015
+
+Shawna Yang - Simple Life (2015) [FLAC|tracks|WEB-DL]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Life [7:10]
+02. I Remember You [8:07]
+03. Angel Eyes [7:29]
+04. Circle [4:06](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B69CD4063F49CB3C719B499251CD68F8BFDB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930895   (514099) от 24.08.2015
+
+Thelonious Monk - Thelonious Himself (1957) /2008, Concord/[FLAC|tracks+.cue]<Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. April In Paris [03:55]
+02. (I Don't Stand) A Ghost Of A Chance (With You)Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8DDF093D921AD35F79C749CE39D8D00B7185DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930976   (514098) от 24.08.2015
+
+The Australian Jazz Quartet & Quintet (1956) /2014, Solid Records/[FLAC|tracks+.cue]<Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day [02:40]
+02. Broadway [03:15]
+03. Little Girl Blue [03:27]
+04. September Song [04:08](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250A176414D5FF7175C2671D9C07359F315D0284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930869   (514092) от 24.08.2015
+
+The Bill Evans Trio - I Will Say Goodbye (1977) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Say Goodbye [03:32]
+02. Dolphin Dance [06:04]
+03. Seascape [05:24]
+04. Peau Douce [04:20](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7809FDDE93E8E2D46B9C79AF3CF569AD64D176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242618   (514036) от 23.08.2018
+
+Hampton Hawes - Jam Session (1968) 2014, Columbia [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction By Max E. Lush [1:07]
+02. All The Things You Are [13:31]
+03. Buzzy [10:38]
+04. Uma-San's Blues [13:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD86929745B94DB4426E4DBBAFB4F9CD504BFBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242613   (514035) от 23.08.2018
+
+Charles Davis All Stars - A Tribute To Kenny Dorham (2010) TCB Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Oscar For Oscar [7:38]
+02. Sao Paolo [8:01]
+03. This Love Of Mine [10:21]
+04. Tonica [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E0FBF0C00BA33F278A78B276D1C587AF30F27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242621   (514034) от 23.08.2018
 
 Freddie Hubbard - The Hub of Hubbard (1969) 1972, MPS Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -577,180 +749,6 @@ The Dirty Dozen Brass Band - The New Orleans Album (1990) /Columbia/[APE|tracks+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32B68E8A8A9AD0CEA1A719083CF44F997A64C729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932420   (509554) от 29.08.2015
-
-Bruno Angelini - Instant Sharings (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Folk song for Rosie
-02. Meridianne - A Wood Sylph
-03. Solange
-04. Home by another way(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC5A054E0C5B13D013167B9DDB9705FDBF7288D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932374   (509553) от 29.08.2015
-
-The Lew Tabackin Quartet - Desert Lady (1990) /Concord Jazz/[FLAC|tracks+.cue]<Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot House [04:09]
-02. Pyramid [09:41]
-03. Serenade To Sweden [08:05]
-04. Chelsea Bridge [07:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08A50E1B202FC51FB402A1F22E1FB5CD38DFAF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932426   (509551) от 29.08.2015
-
-Marie Seferian Quartett - Mille Nuits (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La plainte des fontaines
-02. Nos regards
-03. Myosotis I
-04. Myosotis II(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB85BFA10913AB93A5038FE2B47E305119B1C992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932369   (509549) от 29.08.2015
-
-Ted Curson - Quicksand (1974) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiderlegs [07:54]
-02. Tears For Dolphy [08:17]
-03. Typical Ted [07:27]
-04. Greasy As A Porkchop [05:56](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5845C6E57F7B52E774CED6EB4FE56C26339781FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932220   (509545) от 29.08.2015
-
-John Coltrane - First Meditations (for quartet) (1965) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love [08:04]
-02. Compassion [09:35]
-03. Joy [08:49]
-04. Consequences [07:21](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C294880CF2F962A25A93A832E701D3BF1B6A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562415   (509289) от 09.07.2022
-
-Clark Terry - Three Classic Albums (1958 - 1960) 2CD, 2011, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509289.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Caravan [2:03]
-02. Candy [2:23]
-03. Clark's Expedition [2:31](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Hard BopПродолжительность: 01:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73CD4892EE54E7729C26D3326A0EE4718007684
 ```
 
 https://mybot314.ru/tekegram_catalog/

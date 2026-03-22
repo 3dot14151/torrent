@@ -1,3 +1,90 @@
+###  Публикация: 1282805   (742333) от 14.02.2019
+
+The Animals - The House Of The Rising Sun: Best Of The Animals (2019) [MP3|320 Kbps] <Rock, Blues, Folk, World, & Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The House Of The Rising Sun
+02. Don't Let Me Be Misunderstood
+03. We've Gotta Get Out Of This Place
+04. It's My Life(   Читать дальше...   )Жанр: Rock, Blues, Folk, World, & CountryПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C09AE4E227B722DEAA3D22AABA2F0C5389B5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282905   (741992) от 14.02.2019
+
+Avril Lavigne - Head Above Water (2019) [MP3|320 Kbps] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Head Above Water
+2. Birdie
+3. I Fell In Love With The Devil
+4. Tell Me It's Over(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1646C785638FEC8663B9E1E7C95333C62DA0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217691   (741933) от 05.04.2018
+
+Rainbow (Ritchie Blackmore's Rainbow) - Memories In Rock II (2018) Live [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Rainbow (Live)
+02. Spotlight Kid (Live)
+03. I Surrender (Live)
+04. Mistreated (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7BD8D74E0861BE4C4681F13CCE90A96BA708A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640329   (741496) от 28.05.2016
 
 The Alan Parsons Project - Discography (1976-2016) 69 Albums [MP3|192-320 кб/с]<Art rock, Progressive rock, Pop rock>
@@ -405,6 +492,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528175   (735382) от 31.01.2022
+
+VA - College Rock Throwback Mix Tape (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_735382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting Crows - Mr. Jones (4:32)
+02. 3 Doors Down - Here Without You (3:58)
+03. Fastball - The Way (4:17)
+04. Sister Hazel - All For You (3:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0F9EE676E6077337C0CCEAC721D86586FA73FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399072   (734342) от 29.07.2020
 
 Stilema - Utopia (2020) [MP3|320 Kbps] <Folk Rock>
@@ -633,122 +749,6 @@ Ourlives - Den Of Lions (2014) [MP3|320 кб/с] <Rock, Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6304B2AD36EADB17F5A27E473634D5D1DF17118D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023129   (726724) от 04.06.2016
-
-Hillbilly Hellcats - Rev it up with Taz (2000) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hillbillies On Speed (02:33)
-02. White Trash (02:04)
-03. I Like Whiskey (02:17)
-04. Ol' Bobcat (02:36)(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0696B8742D3BB5B717E949D67F8054700373711E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023110   (726713) от 04.06.2016
-
-Beth Lee and the Breakups - Keep Your Mouth Shut (2016) [MP3|320 кб/с] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only a Dream (02:05)
-02. Bellville County Line (02:53)
-03. Keep Your Mouth Shut (03:39)
-04. Bad Elevator (02:56)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54160A7B4834BF05E7E277855C73A0463A02D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023305   (726202) от 04.06.2016
-
-The Rolling Stones - Totally Stripped (2016) Live [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Fade Away - Amsterdam (3:12)
-02. Honkey Tonk Woman - Paris (4:54)
-03. Dead Flowers - Amsterdam (4:00)
-04. Faraway Eyes - London (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C88B16FF340835FA1DA268BCF96C3B8EE0D4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399866   (725216) от 02.08.2020
-
-Green Seagull - Cloud Cover (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aerosol (03:20)
- 02. Made To be Loved (03:43)
- 03. In The Morning Time (02:39)
- 04. Little Lady (In The Amplifier) (03:55)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0B29DD77CDB1F2FA0EC14FE2135B25E4670261
 ```
 
 https://mybot314.ru/tekegram_catalog/

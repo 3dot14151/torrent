@@ -1,3 +1,177 @@
+###  Публикация: 1246793   (459232) от 12.09.2018
+
+Art Blakey & The Jazz Messengers - Hard Champion (1987) 2015, King Record [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scenic Route [13:42]
+02. Come Rain or Come Shine [4:56]
+03. Theme of Hard Champion [3:39]
+04. Witch Hunt [18:52]Жанр: Hard BopПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F37458757FDC938AEA93CC7DE53E63A477CAE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162402   (459210) от 01.09.2017
+
+Weather Report - Mr. Gone (1978) Remaster, 1991, Columbia [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pursuit Of The Woman With The Feathered Hat (5:00)
+02. River People (4:49)
+03. Young And Fine (6:54)
+04. The Elders (4:20)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDF8595B51956DCF4F3CA17E67079768AF7CA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162398   (459163) от 01.09.2017
+
+Weather Report - Night Passage (1980) Remaster, 1987, Columbia [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Passage (6:30)
+02. Dream Clock (6:26)
+03. Port Of Entry (5:09)
+04. Forlorn (3:55)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B2FDFDB6C2C4C57F650AF8102423E162861528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 826050   (459012) от 28.09.2014
+
+Arnett Cobb And Eddie "Lockjaw" Dawis - Blow Arnett, Blow (1993) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Grow Too Old To Dream [06:44]
+02. Go Power [05:11]
+03. Dutch Kitchen Bounce [07:02]
+04. Go Red, Go [05:42](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED17DB388B8ECD0BDE1EB8B455289D6625733119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408166   (458421) от 11.09.2020
+
+Chris Woods - From Here To Eternity (1974) 2019, Solid Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Here to Eternity [6:18]
+02. Invitation [4:13]
+03. Smoke Gets in Your Eyes [9:02]
+04. You Can't Win None of 'Em [4:59](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547AD92FE86764B67500C7901C47D23A500D2D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408210   (458311) от 11.09.2020
+
+Richard "Groove" Holmes - Night Glider (1973) 2019, Solid Records [FLAC|Lossless|image + .cue] <Jazz-Funk, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Glider [5:19]
+02. Flyjack [3:35]
+03. It's Going to Take Some Time [4:31]
+04. Pure Cane Sugar [5:02](   Читать дальше...   )Жанр: Jazz-Funk, Soul JazzПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA89ABCAE604CDD8FBCAB1F343F43CD6CCAD7AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942087   (458227) от 29.09.2015
 
 Elvin Jones introduces Takehisa Tanaka - When I Was At Aso-Mountain (1993) /2005, Enja/[FLAC|tracks+.cue]<Post-Bop>
@@ -576,180 +750,6 @@ Bud Freeman - Chicago / Austin High School Jazz In Hi-Fi (1957) 2006, Mosaic Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C6C822C18037C307001231D547E3578096E954D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162870   (455133) от 03.09.2017
-
-June Christy And The Stan Kenton Orchestra - The Complete Studio Recordings (1945 - 1951) 1994, Collectors' Choise Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tampico [02:44]
-02. It's Been a Long, Long Time [02:45]
-03. Just A-Sittin' and A-Rockin' [02:51]
-04. Shoo Fly Pie and Apply Pan dowdy [02:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78EB321575DF08941064C592BA493723A304803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247230   (455117) от 14.09.2018
-
-Will Davis Trio - Have Mood Will Call... (1959) 2017, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Call [4:18]
-02. Sock Cha-Cha [4:08]
-03. Bye & Bye [2:48]
-04. St. George's Groove [3:15](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB203B32D4EEDF1E1A238E1211DD7E40CCF9DED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247243   (455111) от 14.09.2018
-
-Diana Horta Popoff - Amor de Verdade (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madi
-02. Canção Chão
-03. O Barco
-04. Impressões de Amar(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C461D62A6245008357C939100BF30271DD2A547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247234   (454932) от 14.09.2018
-
-Red Rodney - Then And Now (1992) Chesky Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woody 'n' You [6:08]
-02. Marmaduke [5:41]
-03. Little Suede Shoes [6:33]
-04. Un Poco Loco [6:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D744A8572B5A4DFB9C3B8382A1015EC83DCBFBD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060650   (454823) от 07.10.2016
-
-Norah Jones - Day Breaks (Deluxe Edition) (2016) [FLAC|Lossless|image + .cue] <Vocal Jaz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn
-02. Tragedy
-03. Flipside
-04. It's A Wonderful Time For Love(   Читать дальше...   )Жанр: Vocal JazПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0B38FC7936079AE035C47676BA71BF051C9156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247208   (454638) от 14.09.2018
-
-Tony Bennett & Diana Krall - Love Is Here To Stay (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'S Wonderful
-02. My One And Only
-03. But Not For Me (Diana Krall solo)
-04. Nice Work If You Can Get It(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B047208F8DEDD80F0EB9C4F2A7FC5B8143F2473
 ```
 
 https://mybot314.ru/tekegram_catalog/

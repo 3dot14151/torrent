@@ -1,3 +1,61 @@
+###  Публикация: 1358996   (966286) от 10.02.2020
+
+VA - Flow Of Feeling: Electro House Party (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966286.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luciano Scheffer - Baj (Monojoke Remix)
+002. Esee Free - Stronger (Original Mix)
+003. Club Shakerz - Lose Control
+004. Jaga - Back To Love(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89170A2750D2FF8EEC77CB94E26F5C3E8C51B0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359080   (966276) от 10.02.2020
+
+VA - Beatport Tech House: Pack Electro Sound #09 (2020) [MP3|320 Kbps] <Deep, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worldtraveller - Ocean Motion
+02. Christopher Lake - Rescue You (Original Mix)
+03. Schneider & Haze - Si Balla
+04. Sergio Wos - Filling Me Up(   Читать дальше...   )Жанр: Deep, Tech House, ElectroПродолжительность: 04:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC4732D38D05B6C015E318FD632BDF627EF437B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358956   (966206) от 10.02.2020
 
 VA - Record Super Chart 624 (2020) [MP3|320 Kbps] <Pop, House, Dance>
@@ -684,64 +742,6 @@ VA - Consciousness Determines Reality (2016) [MP3|320 кб/с] <Psy, Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59BFC782174E8EAB79A4C1BEA60FF07BB4F6931A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979378   (959959) от 26.01.2016
-
-VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Moore - In the Sunshine - Original Mix
-02. Scott Navarro - Tell Me Why - Original Mix
-03. Nigel Scott - Disco Salsa - Original Mix
-04. Peter Cox - White Star - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEDBFFE075FF31C76803724EDB39476461892A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979918   (957459) от 28.01.2016
-
-VA - Colibri Trance Pack (2016) [MP3|320 кб/с] <Progressive, Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957459.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Waas Van Siem - Cold Sun
-002. Blue Dolphin - Dreams
-003. Black Pulsar - Searching 4 Love
-004. ViDs - Passion Spills (DJ Brush vs Darren Tech Remix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Vocal TranceПродолжительность: 11:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63193418FA958C1AD09C9B2935351C4105511C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

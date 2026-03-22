@@ -1,3 +1,119 @@
+###  Публикация: 918180   (587993) от 14.07.2015
+
+Life In Film - Here It Comes (2015) Deluxe Version [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alleyway
+02. Set It Off
+03. Are You Sure?
+04. Lose Control(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0239846A9DF7968B5E4E56F766E70416306617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918249   (587938) от 14.07.2015
+
+VA - Women’s Stories (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sade – Smooth Operator
+02. Annie Lennox – Why
+03. Beverly Craven – Promise Me
+04. Celine Dion – My Heart Will Go On(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FC6EDC1B4229AC59193BD4DF0665BBF52257D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552587   (586749) от 21.05.2022
+
+VA - Discotech & About Nu Disco (2022) [MP3|320 Kbps] <Nu Disco, Dance, Deep House, Electronica>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTC, Luke Truth, Carrera - Dance Through The Storm (Original Mix)
+02. Gillies - What About Luv (Original Mix)
+03. Moe Turk - Thinking Of You (Original Mix)
+04. Ram J - Indie, 606 (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Dance, Deep House, ElectronicaПродолжительность: 02:28:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1F593550DCB9DDCB134138E63F36CE81865796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040531   (586481) от 05.08.2016
+
+Black Jack - 3 Albums (1979-1982) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586481.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Black Jack" - созданная в Германии "Funk-Disco" группа. Основатель - George Liszt.Список альбомов:
+1979 - Hot Passion
+1980 - Neon Lover
+1982 - White BusinessЖанр: Electronic, Disco, Synth-pop, Pop-RockПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F45669094D9D31CD6FAB933660DBC00CAD7050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040536   (586435) от 05.08.2016
 
 VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
@@ -645,121 +761,6 @@ Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB7D938AD7F3559FA6FCBD068B111D54E96CE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921900   (573752) от 26.07.2015
-
-Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaohsiung Christmas
-02. Hey, Can We Go Back?
-03. HidupЖанр: Electronic, Indie PopПродолжительность: 00:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90B7051FD880D5FA735BC95E1F8F001D7C8FE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921808   (573643) от 26.07.2015
-
-Inna - Body and the Sun (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Sexy
- 02. Bop Bop (feat. Eric Turner)
- 03. Rendez Vous
- 04. Salina Skies(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7436CF580E6BA61A6BBE7A3B154173BAE2525E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303531   (573085) от 21.05.2019
-
-Elohim - Elohim (2018) Deluxe Edition [Explicit] [MP3|320 Kbps] <Synthpop, Electropop, Indie-Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Am I Like This? (01:50)
-02. The Wave (03:10)
-03. Sleepy Eyes (With Whethan) (03:22)
-04. Skinny Legs (05:10)(   Читать дальше...   )Жанр: Synthpop, Electropop, Indie-DanceПродолжительность: 01:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08010C92837674A959E5F5D4C620B07EF636D5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303549   (572887) от 21.05.2019
-
-VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mabel - Don't Call Me Up
-02. Shawn Mendes - If I Can't Have You
-03. Mark Ronson - Nothing Breaks Like a Heart
-04. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA71C2463BA22C9C87FFB9085BCB13D0C9242C17
 ```
 
 https://mybot314.ru/tekegram_catalog/

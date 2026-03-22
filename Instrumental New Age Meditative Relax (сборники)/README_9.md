@@ -1,3 +1,61 @@
+###  Публикация: 1041686   (581465) от 10.08.2016
+
+VA - Smooth Romance: Love Notes by the Piano (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Gonella - Improvviso
+02. Icardi Ivano, Magnino Corrado - Le Scaphandre Et Le Papillon
+03. Ivano Icardi, Corrado Magnino - Quite Motionless
+04. Cristiano Viti - Tulipano(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFCB304E4472F52DDB5BE6400C84068E0CC9C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042052   (580422) от 11.08.2016
+
+VA - I Like An Indian (Indian Heart) (2016) [MP3|256-320 Kbps] <Native american, Ethnic, Folk>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gerry Freeman - The long Ride
+02. Ecuador Manta - Wayramanta
+03. Medwyn Goodall - Blue Jay
+04. Alborada del Inka - Five Spirith (Ivan Rafo)(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 04:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9FFCA9DF17394CB4EB28DCC48200704526C7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360423   (579555) от 08.07.2011
 
 VA - Музыкотерапия. Повышение потенции (2011) [MP3|320 kbps]<Instrumental / Саксофон>
@@ -713,70 +771,6 @@ VA-Танцуют все! - Популярные танцы народов ми�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12097147EBE8F370D0CAED7D3F5F1B503BB916DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535781   (515620) от 17.08.2012
-
-VA - Hit Parade XX Century Instrumental Music (2CD) (1994) [MP3|320 кб/с]<Instrumental, Soundtrack>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Symphonic Rock Orchestra - The Phantom Of The Opera (4:31)
- 2. S. Taylor - Summertime (2:34)
- 3. The Shadows - Chi May (3:38)
- 4. J. Last - The Lonely Sheepheard (4:21)
- 5. P. Mauriat - Mammy Blue (2:52)
- 6. Jan Morks Quartet - You Don't Know How Much (3:23)
- 7. A. Ventura - Love Story (3:45)
- 8. F. Goya - I Just Call To Say I Love You (3:50)
- 9. Ocarina - Song Of Ocarina (3:37)
- 10. H. Manginy - The Pink Pantera (2:36)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 00:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AE0C88842C73C8CDCBFB81FDF52B96E0CFB6A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561852   (513479) от 06.07.2022
-
-Ricky King - Compilation (2022) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolga - Melodie
-02. Hei?e Sonne, Wei?er Strand
-03. Verde
-04. Yesterday(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BFAE3FE876ACBD73E07E19C29B336C9870D50A
 ```
 
 https://mybot314.ru/tekegram_catalog/

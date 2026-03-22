@@ -1,3 +1,177 @@
+###  Публикация: 1220105   (708246) от 17.04.2018
+
+Sonny Stitt & Hank Jones - The Complete Original Quartet Recordings (1955, 1957, 1962) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterwards [03:18]
+02. If I Should Lose You [04:19]
+03. Blues for Bobby [04:52]
+04. My Melancholy Baby [05:43](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9F2D329A5C795E7DD5DC8D2B9AB49DFD572661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220113   (708245) от 17.04.2018
+
+Fredrik Kronkvist - Afro-Cuban Supreme (2017) Connective Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Tierra Africana part 1 [02:33]
+02. A Love Supreme - Acknowledgement [05:31]
+03. A Night in Tunisia [05:49]
+04. Caravan [07:11](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BA119C4F07BEBC38B721E1FCADC0254F26F829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220165   (708244) от 17.04.2018
+
+Dusko Gojkovic - Belgrade Blues (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Campimania
+02. You're Too Beautiful
+03. Lullaby Of The Leaves
+04. Doo-Doosh(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90525482C49557F74A14ACEDAB13ECDCBA3BA852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025875   (708215) от 13.06.2016
+
+Phil Sheeran - Orchid (1998) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orchid
+02. Ste. Tropez
+03. The Look of Love
+04. Riding the Wind(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5A67032D2DDF619E52B7C04523F061858BA68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025985   (708212) от 13.06.2016
+
+The Cannonball Adderley Quintet - Mercy, Mercy, Mercy!: Live At “The Club” (1966) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction / Fun [08:29]
+ 02.Games [07:27]
+ 03.Mercy, Mercy, Mercy [05:00]
+ 04.Sticks [03:56](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03C808B2EDF17B87630A0200A22D5A896420616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025802   (708017) от 13.06.2016
+
+Frank Sinatra, Dean Martin, Sammy Davis Jr. - The Clan In Chicago (1994) Live At Villa Venice Chicago 1962, Unofficial Release [APE|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Dean Martin	- Parody On: When You're Smiling, The Lady Is A Tramp
+02.	Dean Martin	- I Left My Heart In San Francisco
+03.	Dean Martin	- I'm Gonna Sit Right Down And Write Myself A Letter
+04.	Dean Martin	- Medley: Volare / On An Evening In Roma(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5455F78F7C782FF135F0149FFD4CFCCE243188FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025810   (707938) от 13.06.2016
 
 Frank Sinatra - Blue Skies (1995) Series Success [APE|Lossless|image + .cue] <Jazz, Swing, Vocal>
@@ -571,180 +745,6 @@ Johnny “Hammond” Smith - That Good Feelin' (1959) Remaster, 2013, Universal[
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCB98414E336E491966D4C94CEEB90E263C1CB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026173   (706154) от 14.06.2016
-
-Wanda De Sah - Softly! (1965) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ho Ba La La [02:31]
- 02.Sweet Happy Life (Samba De Orfeu) [02:36]
- 03.Quiet Nights (Corcovado) [02:06]
- 04.Aruanda [01:55](   Читать дальше...   )Жанр: Latin Jazz, Vocal JazzПродолжительность: 00:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7349F603C122C689AA0127B0A434FD09DDB8177E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026219   (706153) от 14.06.2016
-
-The Super Premium Band - Sounds of New York (2011) Happinet Corporation[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Take The 'A' Train [03:35]
- 02.Stompin' At The Savoy [06:49]
- 03.Moon River [06:22]
- 04.Autumn In New York [05:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6753455A94209C62FF848B0CDC7A0B301274543C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026288   (706152) от 14.06.2016
-
-Herbie Hancock Trio with Ron Carter + Tony Williams - Trio '81 (1981) Remaster, 1996, Sony Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stablemates [11:06]
- 02.Dolphin Dance [10:19]
- 03.A Slight Smile [09:04]
- 04.That Old Black Magic [08:34](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9A5319E6E773546D644701CB85888C0637A3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401896   (705793) от 12.08.2020
-
-Ella Fitzgerald - The Singles (1954 - 1962) 2017, 3CD, New Continent [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705793.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Wished on the Moon [3:08]
-02. Baby [2:43]
-03. I Need [2:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C3741FBE445502EFE33ADB30783699A7F07397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401898   (705696) от 12.08.2020
-
-Daphna Levy - Late Night Journey (2014) Self Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzland [4:45]
-02. All of Me on Lo' Flame [4:12]
-03. Day Dream [5:27]
-04. I Hear Music [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5193304DE21E619A9CE0693C8AF8BA759833FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402019   (705609) от 12.08.2020
-
-Norah Jones - Morning Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sunrise
-2. Those Sweet Words
-3. Falling
-4. I'm Alive(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F408FCD455A131A9AC76A1F0FB0DEF855FB1B625
 ```
 
 https://mybot314.ru/tekegram_catalog/

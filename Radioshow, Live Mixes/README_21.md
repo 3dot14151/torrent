@@ -1,3 +1,88 @@
+###  Публикация: 1690091   (124164) от 05.01.2024
+
+Markus Schulz - Global DJ Broadcast New Year's Rehab (2024-01-04) [MP3|320 Kbps] <Melodic House, Indie Dance, Nu Disco>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BadWolf & Soff - After Todo
+02. Purple Disco Machine - Bad Company (Instrumental Mix)
+03. Röyksopp featuring Susanne Sundfør - Stay Awhile
+04. Kendal - Come to Me(   Читать дальше...   )Жанр: Melodic House, Indie Dance, Nu DiscoПродолжительность: 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550E7C0309C4EF9E9C526C3B03F9809FB55F5DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690950   (123649) от 09.01.2024
+
+Corey James - Axtone House Party (2024-01-08) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matrefakt - Nano
+02. Corey James & Dice Of Nights - Sisco
+03. Corey James & HIISAK ft. Roland Clark - The Underground (House of God) (Steve Angello Edit)
+04. 96 Vibe - Go Down(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BFB3DA1CD0A3A5A8C16586C8414FCD848A05CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691496   (123088) от 13.01.2024
+
+VA - Armin van Buuren - A State Of Trance 1155 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnia - Feeling
+02. The Hidd3ns & Michael Ra - TakhatumЖанр: Trance, Progressive, ElectronicПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5F7F590963593FC8A1E49D9692A6DCC6BC2435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692001   (122929) от 14.01.2024
 
 Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
@@ -658,94 +743,6 @@ VA - Armin van Buuren - A State Of Trance 1160 (2024) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:159986631C01B6348E3ECFA6E58A509F2C535DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700324   (117055) от 17.02.2024
-
-Markus Schulz - Global DJ Broadcast Deeper Shades (2024-02-15) [MP3|320 Kbps] <Progressive House, Trance, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma - Sonder
-02. Nathan Katz - For You
-03. GMJ & Matter - Soular
-04. Jares - Sam's Voyage Part III (Kamilo Sanclemente Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic HouseПродолжительность: 02:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE97FFC24AADE2545D42054C94408A32AAA7FB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702153   (115859) от 24.02.2024
-
-VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren & Joris Voorn @ A State of Trams Rotterdam, Netherlands 2024-02-05:
-01. ARTBAT & Armin van Buuren - Take Off
-02. ID - ID
-03. Rebūke - Along Came Polly (Konstantin Sibold & Carmee & ZAC Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 00:25:00
-01. ALPHA 9 - Come Home (ID Remix)
-02. Kristiane - Hold You
-03. ID - ID(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447C93EAA7E9BC449F873074AEB3592EA75D90C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702083   (115858) от 24.02.2024
-
-Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Dre ft. Snoop Dogg - Still D.R.E. w/Kid Cudi ft. MGMT & Ratatat - Pursuit Of Happiness w/MEDUZA ft. GOODBOYS - Piece Of Your Heartw/ Over Easy - Rockstarw/Eminem - Without Me
-02. Martin Garrix & Sentinel ft. Bonn - Hurricanew/Whitney Houston - I Wanna Dance with Somebody (Who Loves Me) w/Morgan Wallen - Last Night w/Martin Garrix & Sentinel ft. (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4D45BFC22D56EBEB528C46815448537051DC7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 235713   (490640) от 16.09.2010
+
+Pikku-Orava - 3 Альбома (2006-2007) [MP3|320 kbps] <Comedy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pokka (Irina) (02:01)
+02. Sukset (Popeda) (02:20)
+03. Minttu Sekä Ville (Jonna) (02:48)
+04. Rising Sun (Asturm Und Drang) (02:25)
+05. Hyvännäköinen (Markku Aro) (02:19)
+06. Relax, Take It Easy (Mika) (02:42)
+07. O Fortuna (Carmina Burana) (01:00)
+08. Hetki Lyö (Kirka) (01:59)
+09. Ni Una Sola Palabra (Paulina Rubio) (03:03)
+10. Sleeping Sun (Nightwish) (02:37)(   Читать дальше...   )Жанр: Comedy Rock |Продолжительность: 01:01:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565808   (490439) от 25.07.2022
+
+Joe Macre - The Dream Is Free (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dream Is Free [00:03:51]
+02. Tell Me [00:03:47]
+03. Ride Or Die [00:03:13]
+04. Drop Me Off At The Rainbow [00:04:58](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DED5CB406CC5ABD18F6CE98404E0931D0F5DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565750   (490436) от 25.07.2022
+
+Shroud of Bereavement - A Beautiful Winter (2022) [MP3|320 Kbps] <Epic Doom, Neo-Classical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canticle
+02. Amber Skies: Shadows of My Becoming
+03. An Unfamiliar Embrace
+04. Bury Me in Silence(   Читать дальше...   )Жанр: Epic Doom, Neo-Classical MetalПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36456ECFA0BD1E42F963335E5CB94BE74C11EA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544709   (489315) от 08.09.2012
+
+Cosmos - Mind Games (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contact
+02. Skygarden
+03. Lost Years
+04. Freak Show
+05. No Point In Living
+06. Hollow Man
+07. Paranoia
+08. There Are Millions Of Reason To Carry On (Instrumental)
+09. Close To The Edge
+10. SequencesЖанр: RockПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C16D2FB0EE1F18DCE995443821A0B40E02F5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404922   (489254) от 27.08.2020
+
+Pink Floyd - Transmissions + 1969 (2020) Unofficial Release, 2xCD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489254.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Point Me At The Sky (04:22)
+ 02. The Embryo (03:27)
+ 03. Baby Blue Shuffle In D Major (03:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71D6692DAE2DFB417558E569DF1939A86FBE6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158998   (488133) от 18.08.2017
 
 Cravinkel - Garden Of Loneliness (1971) Reissue, 2003, Walhalla [MP3|320 Kbps] <Prog Rock, Krautrock>
@@ -627,151 +784,6 @@ Pink Floyd - Greatest Songs (1995) Bootleg [MP3|320 кб/с]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EC2E63551B1A58229E1F0F9F8EB26AF749CA920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160487   (473919) от 25.08.2017
-
-VA - American Road Trip (2017) [MP3|~241-291Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473919.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01- Livin On A Prayer - Bon Jovi
-02- Go Your Own Way - Fleetwood Mac
-03- More Than A Feeling - Boston(   Читать дальше...   )Жанр: RockПродолжительность: 03:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07FAC9A773EF2756306629050E5855214BD5692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057765   (473294) от 29.09.2016
-
-Stage - Stage (2003) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Has Come Between Us (4:04)
-02. An Angel Screams From Outer Space (3:34)
-03. I Will Be Something (4:00)
-04. I Don't Know (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B1B5993F9CA71A249F9DFF312DAB4CDB19F0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406558   (473070) от 04.09.2020
-
-Killer Deal - First One's Free (2020) [MP3|320 Kbps] <Blues Rock, Psychedelic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473070.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. It Could Be Better (3:27)
-2. Four Before the Train (3:18)
-3. Heavy Road (5:54)
-4. Stay Too Long (3:50)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic Rock, Hard RockПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D5344BDBAE4FFFAAB1FEB97C1C97DE96DB5840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406568   (473069) от 04.09.2020
-
-Faro - Luminance (2020) [MP3|320 Kbps] <Alternative Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473069.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pure (4:08)
-2. Fragment (4:10)
-3. December (4:19)
-4. Lucas (4:﻿11)(   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Progressive RockПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA66D08E1D70F3093E543C29AE16DDD9A1A4099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057879   (473043) от 29.09.2016
-
-Van Der Graaf Generator - Do Not Disturb (2016) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473043.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aloft
-2. Alfa Berlina
-3. Room 1210
-4. Forever Falling(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C145995CD58C4EAAE1AFF6FB36E086C6EBD6FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

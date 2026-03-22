@@ -1,3 +1,145 @@
+###  Публикация: 1246188   (465481) от 09.09.2018
+
+Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Called To Say I Love You
+02. I'm Not In Love
+03. Sailing
+04. Medley: For All We Know \ We've Only Just Begun(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832B418C186229136572BFC724E4BD14AC1E0987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824372   (464992) от 25.09.2014
+
+VA - Новая рождественская сказка / Scrooged (2001 (1988)) [FLAC|Lossless] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Annie Lennox & Al Green - Put A Little Love In Your Heart
+ 02. Mark Lennon - A Wonderful Life
+ 03. New Voices Of Freedom Feat. Adriane McDonald & George Pendergrass - Sweetest Thing
+ 04. Dan Hartman & Denise Lopez - The Love You Take(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423D3F4B3094D1D112F9C8CF60903114AC15B75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161410   (464913) от 29.08.2017
+
+Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bowie - Cat People (Putting out Fire) (06:43)
+02. Peter Schilling - Major Tom (vollig losgelost) (04:59)
+03. HEALTH - Blue Monday (04:46)
+04. Tyler Bates - C*cks*cker (01:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934B8BF86FA20B33CB2B315AC3B8827AE087FB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387372   (464673) от 14.09.2011
+
+Cristina Branco - Коллекция, 9 альбомов (1998-2011) [MP3|320 kbps]<Fado, Tango>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристина Бранко – непревзойденная португальская исполнительница песен фадо, певица с мировым именем.Печальные песни о любви не нуждаются в переводе, а глубокий проникновенный голос певицы, ее сдержанно-сосредоточенная манера зачаровывают публику. Ее исполнение фадо переносит слушателей в мир чистой красоты, удивительного голоса, вокальный тембр которого так многообразен и выразителен, что певица может выступать без микрофона или инструментального сопровождения.В традиционные формы Кристина привносит элементы других музыкальных стилей и направлений – босанова, джаз, американский блюз. В группу Кристины Бранко входят замечательные музыканты: это лучший в мире португальский гитарист и фадо-композитор Кустодио Кастелло, гитарист Александре Силва, бас-гитарист Фернандо Майя, а также пианист Риккардо Диас.1998-2011Жанр: Fado, TangoПродолжительность: 07:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF31B84B8E500D60596901F9F58829072386B4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941214   (464606) от 26.09.2015
+
+Benjamin Richter - The Grand Momentum (2015) [MP3|320 кб/с]<Piano, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grand Momentum
+02. Hollow Life
+03. Enjoy the Silence Sonata
+04. Piano Morte(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442206A7433E977FB46DFEA59F03F08BCF770FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940763   (464462) от 26.09.2015
 
 Benjamin Richter - The Grand Momentum (2015) [FLAC|Lossless]<Piano, Instrumental>
@@ -609,150 +751,6 @@ Irene Kelley - These Hills (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385B02334D79B57FF80BB6E330CD8C4826AE41D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060304   (457250) от 06.10.2016
-
-Eguana - The Last Dragon (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breathing Cold Mountains (6:24)
-02.  Spirit Of The Dragon (9:49)
-03.  The Majestic Finesse To Soul (6:23)
-04.  Shaman Dancing With Dragon (9:53)(   Читать дальше...   )Жанр: Ambient, Chillout, New ageПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8C466FBCD9AEDD0D40F883B7B97472942176AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246966   (456986) от 13.09.2018
-
-Matt English - Inspire Me (2018) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith
-02. Key of B
-03. Childlike
-04. Crave(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E843A632E4AB3FBF6F454B2A78DBFCE685FCD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321583   (456802) от 25.08.2019
-
-Christopher Phillips - Piano Chill: Songs of Billy Joel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Always a Woman (3:40)
- 02. She's Got a Way (3:17)
- 03. Piano Man (2:53)
- 04. Allentown (4:10)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9526E9C62549E6855E457E1C5BBA12535BBF717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321208   (456439) от 25.08.2019
-
-Tantric Sex Background Music Experts - Asian Tantric Yoga (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensual Yoga (3:19)
-02. Spiritual Intimacy (2:57)
-03. Deep Tantric Sensuality (4:00)
-04. Awaken Your Sexual Potential (3:33)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B526179D2721EE15897C450E9210853496A08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 826508   (455480) от 29.09.2014
-
-VA - В ритме танца. Вальс (2010) 3CD [FLAC|Lossless]<Instrumental, Easy Listening, Waltzes>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в начале 1800-х вальс впервые был представлен на английских балах, он был осужден церковью и государством за вульгарность и безнравственность. Это был, в конце концов, первый раз, когда перед обществом возникла возмутительная позиция для танца, в которой мужчина так близко держал женщину. Но именно эта изюминка, вызвавшая столько критики, вызвала увлечение (   Читать дальше...   )CD1: Будь Что Будет
-CD2: Любовь Моя
-CD3: Этот Прекрасный МирЖанр: Instrumental, Easy Listening, WaltzesПродолжительность: 03:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0B432F29EEBAA58DEA365D3775A6F3562341A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

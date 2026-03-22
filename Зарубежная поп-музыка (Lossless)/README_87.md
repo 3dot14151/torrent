@@ -1,3 +1,235 @@
+###  Публикация: 1705083   (113913) от 08.03.2024
+
+VA - Cover Sanremo 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boomdabash, Alessandra Amoroso - Mambo Salentino (2:35)
+02. Tiziano Ferro - Il Regalo Più Grande (3:47)
+03. sangiovanni - farfalle (2:44)
+04. Umberto Tozzi - Gloria (4:24)(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503DF0FDC4E90CD4440BF573D41249727CAB0022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705419   (113885) от 08.03.2024
+
+Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. intro (end of the world)
+02. bye
+03. don't wanna break up again
+04. Saturn Returns Interlude(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF64F97FBA3EF56729090EAA664411FE5BDF1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705741   (113759) от 10.03.2024
+
+The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Then He Kissed Me [00:02:38]
+02. Da Doo Ron Ron [00:02:19]
+03. He's Sure the Boy I Love [00:02:44]
+04. There's No Other Like My Baby [00:02:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEE50194DE579E59A98E65DCAB203AE99F53DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705696   (113664) от 12.03.2024
+
+Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLAC|Lossless|tracks] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Bit Of Heaven (2:12)
+02. Day Dreaming Of You (2:05)
+03. You Should Have Been There (1:53)
+04. Till You Say You'll Be Mine (2:37)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3248C2602AC0AA08AF867ED72F208F6EEFA580F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706515   (113579) от 13.03.2024
+
+Ariana Grande - eternal sunshine (2024) slightly deluxe, 2024, Republic Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (End Of The World) (01:32)
+02. Bye (02:45)
+03. Don't Wanna Break Up Again (02:54)
+04. Saturn Returns Interlude (00:42)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDEF374E03F2B05A9DAF01E6715EE53B9ACA752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707099   (113453) от 15.03.2024
+
+Justin Timberlake - Everything I Thought It Was (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memphis
+02. F***kin' Up The Disco
+03. No Angels
+04. Play(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09173A796D16D34BAC98A3079BFF8C7D71E022AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707919   (113163) от 19.03.2024
+
+Omar Khorshid - Belly Dance Volumes 1 & 2 (1992) 2CD [FLAC|Lossless|WEB-DL|tracks] <World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Story (3:29)
+02. Hernandos Hide Away (3:30)
+03. Guitar Tango (5:57)
+04. Pop Concerto (4:06)(   Читать дальше...   )Жанр: Pop, folk, worldПродолжительность: 01:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB225BD55E805D68F7ACE4C510E669CBDD3DADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708847   (112982) от 22.03.2024
+
+Shakira - Las Mujeres Ya No Lloran (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puntería (3:02)
+02. La Fuerte (2:45)
+03. Tiempo Sin Verte (3:16)
+04. Cohete (2:53)(   Читать дальше...   )Жанр: Pop, Latin PopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA067DA72B2339C92814A390D80B016653162BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709092   (112897) от 23.03.2024
 
 VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -513,238 +745,6 @@ Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA5B1CFCCDEFAC5442862473401B007722F1458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728669   (108310) от 08.06.2024
-
-Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1995, Rocket [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Fantastic And The Brown Dirt Cowboy
-02. Tower Of Babel
-03. Bitter Fingers
-04. Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD184840D88B1735A9C7968DFD076E8A724E359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730506   (107868) от 16.06.2024
-
-VA - Gym Workout Pumped Up 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - I’m Good (Blue) (2:55)
-02. LF System - Afraid to Feel (2:57)
-03. Tiësto - 10 - 35 (2:52)
-04. Ava Max - My Head & My Heart (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A254A75AAA00DD5D5A43AB5D78337F077A98CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730500   (107845) от 16.06.2024
-
-GoGo Morrow - Ready Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comfortable [00:02:49]
-02. Nu Nu [00:03:06]
-03. I.O.U. [00:02:44]
-04. Don't Stop [00:02:35](   Читать дальше...   )Жанр: R&BПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3C6E1CA2D230CFD8EA49F7966791C759B4EE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730491   (107843) от 16.06.2024
-
-Raveena - Where the Butterflies Go in the Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pluto [00:03:33]
-02. Lucky [00:03:46]
-03. Rise [00:05:34]
-04. Every Color [00:02:51](   Читать дальше...   )Жанр: R&BПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F94A007700E9C7B4E7B5D5E036AF250EC17F1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733869   (107216) от 30.06.2024
-
-Lovejoy - Wake Up & It's Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portrait of a Blank Slate [00:03:47]
-02. Call Me What You Like [00:03:46]
-03. Consequences [00:03:10]
-04. Warsaw [00:03:30](   Читать дальше...   )Жанр: Power PopПродолжительность: 00:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F82B700F90B215D2CE64C6B0297A52C4D3CB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734191   (107158) от 02.07.2024
-
-Billie Piper - Something Deep Inside (2020) Remaster, 2024, Virgin Records[FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Deep Inside [00:03:42]
-02. Something Deep Inside [00:03:24]
-03. First Love [00:03:39]
-04. Makin’ My Way (Any Way That I Can) [00:04:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74489DAEFD96F68AD7581C159C60FA1E39449580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734193   (107139) от 03.07.2024
-
-Climie Fisher - 3 Albums (1988-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Climie Fisher - 1988 - Everything
-Climie Fisher - 1989 - Coming In for the Kill (Expanded Edition 2024)
-Climie Fisher - 2020 - Love Changes Everything (Compilation)Жанр: Pop Rock, Synth-popПродолжительность: 3 CD,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D9D76E5978FD6116B7F5C3A021DACAF00E68B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734494   (107104) от 04.07.2024
-
-Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day & Night (StarGate Mix) [00:03:15]
-02. Something Deep Inside [00:03:22]
-03. Walk Of Life [00:03:49]
-04. Safe With Me [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB93021FC070AB738D0B871385C2E26B01BD2CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

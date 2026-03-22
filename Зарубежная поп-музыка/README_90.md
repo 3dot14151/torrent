@@ -1,3 +1,119 @@
+###  Публикация: 1782419   (69998) от 01.03.2025
+
+VA - 80! (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Minds - Don't You (Forget About Me)
+02. Frankie Goes To Hollywood - Relax
+03. Duran Duran - Wild Boys
+04. Tears For Fears - Shout(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0465A882F4BE6DB17FD63DE8432763967087F034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782361   (69990) от 01.03.2025
+
+VA - Neue Hits '90 - Die Internationalen Super-Hits (1990) 2 CD [OGG Vorbis|480 Kbps] <Pop Rock, House, Pop Rap, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa Stansfield - All Around The World
+02. Technotronic featuring Felly - Pump Up The Jam
+03. Sydney Youngblood - If Only I Could
+04. Soul II Soul - Get A Life(   Читать дальше...   )Жанр: Pop Rock, House, Pop Rap, EuropopПродолжительность: 01:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170123EA171FD5C075215E080A66D15EEAB85A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782805   (69954) от 02.03.2025
+
+VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Disco, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falco - Der Kommissar
+02. A-Ha - Take On Me
+03. Captain Sensible - Wot!
+04. Orchestral Manoeuvres In The Dark - Enola Gay(   Читать дальше...   )Жанр: Pop, Dance-pop, Euro-Disco, EuropopПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BB5E0BD52926E99C0CC25C710B12A44B421DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782675   (69924) от 02.03.2025
+
+VA - One Shot '80 Volume 3 (1999) [OGG Vorbis|480 Kbps] <Synth-pop, Disco, Dance-pop, Europop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You're My Heart, You're My Soul
+02. F.R. David - Words
+03. The Alan Parson Project - Eye In The Sky
+04. William Pitt - City Lights(   Читать дальше...   )Жанр: Synth-pop, Disco, Dance-pop, Europop, PopПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9451AA592947AECCD84C75EA93DFCA1B9C0B4E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783027   (69892) от 03.03.2025
 
 VA - One Shot '80 Volume 6 (1999) [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth-pop, Disco>
@@ -629,122 +745,6 @@ VA - Now That's What I Call Music! 29 (1994) 2 CD [OGG Vorbis|480 Kbps] <Pop, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFB7074DCF3516294C9FA0172122227170D68011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792778   (67639) от 20.04.2025
-
-VA - Grew Up in the 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Christopher Cross - Arthur's Theme (Best That You Can Do) (03:54)
-002 Fleetwood Mac - Everywhere (2018 Remaster) (03:43)
-003 John Parr - St. Elmo's Fire (Man in Motion) (04:12)
-004 Tina Turner - What's Love Got to Do with It (03:50)(   Читать дальше...   )Жанр: Pop, Rock, Dance>Продолжительность: 06:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EADEB37074CB2C03E0D07B5C06FB466FD638359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799298   (66478) от 27.05.2025
-
-Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heut’ ist alles gut [3:10]
-02 - Wilde Nächte [2:29]
-03 - Souvenir [2:33]
-04 - FICKA [2:25](   Читать дальше...   )Жанр: Pop, Rhythm and Blues, SoulПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7541C0F8AA0216966561AC55081DC52EF126248B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802034   (66112) от 14.06.2025
-
-slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neck High (3:49)
-02. Crazy (3:04)
-03. Lay Low (3:07)
-04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0089E996EFECE66D25A679E0B94F567ACFD8808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808459   (64963) от 25.07.2025
-
-VA - R&B Throwbacks 90s & 00s. 100 Classic Hits (2025) [MP3|320 Kbps] <Pop, Pop Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64963.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B.O.B - Nothin’ on You (feat. Bruno Mars)(04:28)
-002. All Saints - Take the Key(04:12)
-003. Musiq Soulchild - Teachme(04:21)
-004. Trey Songz - Say Aah (feat. Fabolous)(03:28)(   Читать дальше...   )Жанр: Pop, Pop Rock, BalladПродолжительность: 07:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C8F1602A1819095A2D0F733D812660A6AEA357
 ```
 
 https://mybot314.ru/tekegram_catalog/

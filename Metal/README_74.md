@@ -1,3 +1,119 @@
+###  Публикация: 1415658   (374296) от 13.10.2020
+
+Spirit Adrift - Enlightened In Eternity (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride Into The Light [00:04:42]
+02. Astral Levitation [00:06:12]
+03. Cosmic Conquest [00:05:32]
+04. Screaming From Beyond [00:06:21](   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5A14AF6764EAE4304619982C305658D49A49A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069385   (373859) от 04.11.2016
+
+Vader - The Empire (2016) [MP3|320 Kbps] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels Of Steel
+02. Tempest
+03. Prayer To The God Of War (album version)
+04. Iron Reign(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0A56E170D022E998C22CC30CB6B9393195B965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327690   (372561) от 26.09.2019
+
+Hellyeah - Welcome Home (2019) [MP3|320 Kbps] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 333
+02. Oh My God
+03. Welcome Home
+04. I'm the One(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F22D78019E01DC1BC078A7CB2E9503389F12D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327689   (372427) от 26.09.2019
+
+KMFDM - Paradise (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KMFDM
+02. No regret
+03. Oh my goth
+04. Paradise(   Читать дальше...   )Жанр: Industrial Metal, Aggro-IndustrialПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF3FB1016A595A1120E25CBDD27172F6B5919F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774197   (371872) от 26.09.2019
 
 Steel Panther - 5 Studio Albums, 2 Live Albums, Other Tracks (2009-2019) [MP3|320 кб/с] <Glam Metal, Hard Rock, Hair Metal>
@@ -629,122 +745,6 @@ Behemoth - Opvs Contra Natvram (2022) [MP3|320 Kbps] <Blackened Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B48EB1C2AFF95A656D80BD1408AF7DB2D2918D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255534   (363836) от 18.10.2018
-
-Soulfly - Ritual (2018) [MP3|320 Kbps] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritual
-02. Dead Behind the Eyes
-03. The Summoning
-04. Evil Empowered(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB8D57D8E428455C8CDDDB475F6FB517F4E7FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255542   (363821) от 18.10.2018
-
-Amaranthe - Helix (2018) [MP3|320 Kbps] <Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Score
-02. 365
-03. Inferno
-04. Countdown(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D998B57243CD91DD28309CEF19029974BFC3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951594   (363314) от 29.10.2015
-
-Draconian - Sovran (2015) Deluxe Edition [MP3|320 кб/с]<Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Lies the Crown
-02. The Wretched Tide
-03. Pale Tortured Blue
-04. Stellar Tombs(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E29610D89A9115102723526EDD50824A50D6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071365   (362032) от 09.11.2016
-
-Mindahead - Reflections (2016) [MP3|192 Kbps] <Progressive, Avant-Garde, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reflection
-02 - Remain Intact
-03 - Mind Control
-04 - On The Dead Snow(   Читать дальше...   )Жанр: Progressive, Avant-Garde, Melodic Death MetalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88206D4BF73A26288A7F3A70DB77D2FAF0E5299C
 ```
 
 https://mybot314.ru/tekegram_catalog/

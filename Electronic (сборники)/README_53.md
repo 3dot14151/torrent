@@ -1,3 +1,93 @@
+###  Публикация: 1427199   (798032) от 06.11.2021
+
+VA - TOP Non-Stop Deep House 2000-2009 (2020) [MP3|192-320 Kbps] <Deep House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phonique - Mexican Sunrise (7:01)
+02. Jimpster - The Last Tape (4:47)
+03. An-2 (Andrei A. Zakharov) - Alma Del Mundo (4:18)
+04. Audiowhores - Nekoosa (4:52)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 09:03:41
+01. Botz & Flydrums - Celtic Rain (Gothek DC 'Solar' remix) (7:31)
+02. Steve Lawler - Sleepwalking (Will Saul & Tam Cooper remix) (6:46)
+03. Schmoov! - Spirits ('Lights Out' mix) (3:40)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C662716DEE69200B7B8997AA8CADCA6A3BAB672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508224   (797989) от 07.11.2021
+
+VA - Synth of Waves 9 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlight Boy - Tonight (Gertrudda Edit) (4:37)
+02. Deeo - In Desperation (4:11)
+03. The Last Concorde - Last Call (Gertrudda Edit) (6:31)
+04. REVIUS - Fight (2:27)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209AC5E698145617AD18C366F29096604DAA7A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385359   (797876) от 24.05.2020
+
+VA - Beatport Uplifting Trance: Electro Sound Pack #95 (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somna - Snowstorm
+02. Bryan Kearney - Open My Mind
+03. Mark Sixma - Meet Again
+04. Alan Morris - Made Of Light(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 05:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75225FABBEF44231747BA4D40CA50FCD8EAD5708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385277   (797812) от 24.05.2020
 
 VA - Record Super Chart 637 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -658,93 +748,6 @@ VA - Лучшие клубные новинки Vol.9 (2018) [MP3|320 Kbps] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:985D7B112E93F98F5F06E0A81BBD973051A17319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011592   (796447) от 28.04.2016
-
-VA - Trance Desire Vol. 67 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia, Jonathan Mendelsohn -  A New Dream (Original Mix)  6:16
-02. Andrew Rayel -  Andrew Rayel - 550 (Senta Aeth  7:44
-03. Karanda -  Agony - Shawn Mitiska Remix  7:08
-04. Fabio XB & Liuck ft. Christina -  Back To You (Purple Stories Re  8:38(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E2ACE793508F26F8FB33A5A3C82EB9A80E9DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011600   (796443) от 28.04.2016
-
-VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Styler & Charlie Darker -  D2b (Steve Aoki Remix)  3:53
-02. Borgeous -  Souls (Andres Fresko Remix) (Feat. M.Bronx)  4:08
-03. TIA Milano -  Wizard (Dirty Mix)  4:38
-04. DJoly -  Volcano (Original Mix)  4:52(   Читать дальше...   )Жанр: House, Trance, BigroomПродолжительность: 06:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9AABA709BB3991C5570212CAAC4928DEA4FC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011779   (796442) от 28.04.2016
-
-VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Goldstone - Please Full - Deepfully Mix
-02. Carl Kennedy - Skank Henz - King Size's Cool Groove
-03. Claude Roberts - Ready for the Trip - Deephouse Mix
-04. George Deep - A Touch of Elegance - Pure Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB9F230921F5DA82F609140A278B03CBBC118FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

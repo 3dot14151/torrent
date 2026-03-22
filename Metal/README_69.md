@@ -1,3 +1,119 @@
+###  Публикация: 947124   (420384) от 16.10.2015
+
+Saxon - Battering Ram (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battering Ram (00:04:56)
+02. The Devil's Footprint (00:04:08)
+03. Queen Of Hearts (00:05:08)
+04. Destroyer (00:03:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6847B4D4630F4F1885FB39CD4E32E30FCF00A93D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065585   (419547) от 23.10.2016
+
+Subscaria - Afterwrath (2016) [MP3|320 Kbps] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Is Your God...and How Are Your God Now
+02. Revenge of the Blacksmith
+03. You Only Live Once
+04. The Dark Side Within...(   Читать дальше...   )Жанр: MDMПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AB55BC78E3622BC47F482285C97295933F377E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572764   (419478) от 28.08.2022
+
+Metallophobia by Peterson - Metallophobia (2022) [MP3|320 Kbps] <Old School Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed Division (04:00)
+02. Dagger Day (04:07)
+03. Dig This Inferno (04:14)
+04. Eve Of Destruction (05:21)(   Читать дальше...   )Жанр: Old School Heavy MetalПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDC8A1D1D5A84F059536E1F3BE9CCDB9066B2A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572635   (419462) от 28.08.2022
+
+Dynazty - Final Advent (2022) [MP3|320 Kbps] <Power Metal, Hard Rock, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Power of Will [00:03:54]
+02 - Advent [00:03:47]
+03 - Natural Born Killer [00:03:25]
+04 - Yours [00:04:24](   Читать дальше...   )Жанр: Power Metal, Hard Rock, Melodic MetalПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE13D937AD375DCD02988B2C590BD32B38A1884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065425   (418938) от 23.10.2016
 
 Pantera - The Great Southern Trendkill (1996) 2CD, Remastered, 2016, Rhino Records [MP3|320 Kbps] <Thrash, Heavy Metal>
@@ -627,122 +743,6 @@ Horncrowned - Rex Exterminii (The Hand of the Opposer) (2020) [MP3|320 Kbps] <Ex
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1974236D63918484D52EBDD128F974BD7D2A29A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066886   (410070) от 27.10.2016
-
-Mindghost - The Anti-Citizen (2016) [MP3|320 Kbps] <Stoner Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free From The Demon
-02. Life Or Death
-03. My Last Breath (with Blaze Bayley, ex. Iron Maiden)
-04. Devil On A Masquerade(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6EC0316F7F7AEA7E91F1D02D668750AC5EB5BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066466   (409525) от 27.10.2016
-
-Aephanemer - Memento Mori (2016) [MP3|320 Kbps] <Melodic Death Metal , MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unstoppable
-02. Sisyphus' Bliss
-03. Hellebore
-04. The Oathsworn(   Читать дальше...   )Жанр: Melodic Death Metal , MDMПродолжительность: 01:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBC5EE69241140AB284727CDF93A49554CC0086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066871   (409270) от 27.10.2016
-
-Avenged Sevenfold - The Stage (2016) [MP3|320 Kbps] <Heavy Metal, NWOAHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stage
-02. Paradigm
-03. Sunny Disposition
-04. God Damn(   Читать дальше...   )Жанр: Heavy Metal, NWOAHMПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B294EC3F053C3D5C5AD6802586D9B4E6870BDB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252515   (409191) от 05.10.2018
-
-Axxis - Monster Hero (2018) [MP3|320 Kbps] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monster Hero (4:04)
- 2. Living as Outlaws (3:33)
- 3. Rock is My Religion (4:09)
- 4. Love is Gonna Get You Killed (3:59)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797B584E1B0BFE30A7CFBD8A500E1E3750DADCD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

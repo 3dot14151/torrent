@@ -1,3 +1,148 @@
+###  Публикация: 1802796   (65974) от 19.06.2025
+
+Around The World in 80 Days - Euphoria (2014) [MP3|320 Kbps] <Post-Rock, Ambient, Space-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Last War [5:40]
+02 - Shock [3:15]
+03 - Gravity [5:40]
+04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F5C99149C1B78C0CD449FD2E21C45D596823B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803406   (65856) от 22.06.2025
+
+Obiymy Doschu - Vidrada (2025) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Діти (07:02)
+ 02 - На відстані (05:08)
+ 03 - Буревій (05:34)
+ 04 - Відрада (06:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB1E3B1CF00E075F48020EAB56C133357693CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804321   (65622) от 29.06.2025
+
+Styx - Circling From Above (2025) [MP3|320 Kbps] <AOR, Progressive Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circling From Above (01:56)
+02. Build And Destroy (03:52)
+03. Michigan (03:03)
+04. King Of Love (03:29)(   Читать дальше...   )Жанр: AOR, Progressive Rock, Hard Rock, Pop RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6415679B6ECA1577CE64C6FD19735338C9988AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805247   (65515) от 04.07.2025
+
+Tim Morse - Transformation (20th Anniversary Edition) (2025) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Present Moment - Remastered 2025 (06:17)
+ 02 - To Set Sail - Remastered 2025 (07:12)
+ 03 - Prelude - Remastered 2025 (03:26)
+ 04 - Goodbye - Remastered 2025 (05:25)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DECA80F7EB95424A793F0D507DBAA3FCA8894A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807730   (65096) от 20.07.2025
+
+Guana Batz - Rockin' Banshee (2025) [MP3|~245 Kbps (V0)] <Rock, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65096.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Corridors [00:02:43]
+2. Rockin' Banshee [00:02:22]
+3. No Way Out [00:02:33]
+4. Run To The Promised Land [00:02:55]Жанр: Rock, PsychobillyПродолжительность: 00:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333EFF84CCF0089DE20863DABE728B370BBFD70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717916   (58893) от 22.04.2024
 
 Smokie - Best Of Smokie 3CD Box Set (2002) [MP3|320 Kbps] <Pop Rock>
@@ -601,151 +746,6 @@ Ghostwriter Society - Long Weekend (2024) [MP3|320 Kbps] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF202533B4119971EFC1FA98B68EAFA5C2C348B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748830   (43898) от 11.09.2024
-
-Rush - Ten songs for you (2024) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Working man [00:07:09]
-02 - Fly by night [00:03:20]
-03 - In the end [00:06:44]
-04 - Finding my way [00:05:05](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57031FA666C2B1421D59F67B8940028127CEB88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748846   (43769) от 12.09.2024
-
-The The - Ensoulment (2024) [MP3|320 Kbps] <Pop Rock, Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cognitive Dissident [00:03:06]
-02 - Some Days I Drink My Coffee by the Grave of William Blake [00:04:03]
-03 - Zen & the Art of Dating [00:04:30]
-04 - Kissing the Ring of Potus [00:03:33](   Читать дальше...   )Жанр: Pop Rock, Alternative, IndieПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342C224CB65875F7E8C1DA316F08F86A4B0B3120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748978   (43758) от 12.09.2024
-
-Tony Levin - Bringing It Down to the Bass (2024) [MP3|320 Kbps] <Progressive Rock, Jazz Fusion, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bringing It Down to the Bass (05:34)
- 02. Me and My Axe (04:23)
- 03. Road Dogs (05:30)
- 04. Uncle Funkster (02:32)(   Читать дальше...   )Жанр: Progressive Rock, Jazz Fusion, InstrumentalПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC753C2018E29B9282C21122E609590F3ED7D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748991   (43668) от 13.09.2024
-
-The Chelsea Smiles - Nowhere Ride E.P. (2005) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Chelsea Smiles - Action Coming Down [2:56]
-2. The Chelsea Smiles - Freakout [2:32]
-3. The Chelsea Smiles - Nowhere Ride [3:39]
-4. The Chelsea Smiles - Pirate Love [3:34]Жанр: RockПродолжительность: 00:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903715D702E0D64A0E1FE725B4EB5C3CEC8B05CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749552   (43142) от 18.09.2024
-
-Local H - Whatever Happened To P.J. Soles? (2004) Reissue, Remaster, 2024, Studio.E Records  [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Where Are They Now_ (2024 Remaster) (01:23)
- 02 - Everyone Alive (2024 Remaster) (03:56)
- 03 - California Songs (2024 Remaster) (04:11)
- 04 - Dick Jones (2024 Remaster) (05:25)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BABF436A6B002BD37F654671B3E491F6745CF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

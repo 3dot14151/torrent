@@ -1,3 +1,177 @@
+###  Публикация: 1652540   (217161) от 12.08.2023
+
+Malkasian - The Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Bluesy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaded Bored Wasted Sick [00:05:08]
+02. Headhunter [00:03:37]
+03. Macabre Times [00:03:42]
+04. Vampire [00:04:22](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, BluesyПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2E47737EE3847885F6AE95C8D2E3D13D56C4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652502   (217057) от 12.08.2023
+
+George Lynch & Jeff Pilson - Heavy Hitters II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sledgehammer [00:04:17]
+02. Carry On [00:05:44]
+03. The Stroke [00:04:01]
+04. Radioactive [00:03:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A0E248DD66910CEE00C1A1C5D374D635B0CDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652537   (217001) от 12.08.2023
+
+Blindstone - Scars To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_217001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embrace The Sky [00:04:13]
+02. A Scar To Remember [00:03:47]
+03. Down For The Count [00:04:08]
+04. Waste Your Time [00:05:13](   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53158CEE3FFD21BB85D81D2AC55536562D5B05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652506   (216982) от 12.08.2023
+
+King Kobra - We Are Warriors (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Is A Piece Of Art [00:04:26]
+02. Turn Up The Music [00:03:58]
+03. Secrets And Lies [00:03:31]
+04. Drownin' [00:05:25](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Heavy MetalПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F166452CC6F1454E40F82A91164901FC6E3342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426031   (216698) от 23.11.2020
+
+Rob Moratti - Paragon (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Falling
+02. Rise Above
+03. What Have We Become
+04. Remember(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FDF532661DFB903F65CFB38DB2C955D3A3125E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737783   (216152) от 23.12.2013
+
+Monster Truck - Furiosity (2013) [FLAC|Lossless]<Hard Rock/Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Train (3:12)
+02. The Lion (4:03)
+03. Power Of The People (2:32)
+04. Sweet Mountain River (3:48)(   Читать дальше...   )Жанр: Hard Rock/Stoner RockПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABFA6FCA949C1FED2E36DE05FC95C0375DE119C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586482   (215962) от 27.10.2022
 
 Spitfire MkIII - Shadows Phantoms Nightmares (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -578,180 +752,6 @@ Steelheart - 7 Albums (1990-2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BF53006384CB855E1CFDE3F720A9C91B46CCEE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638854   (211821) от 10.06.2023
-
-Shakra - Invincible (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way It Is (5:00)
-02. The Matrix Unfolds (4:10)
-03. Invincible (5:39)
-04. Devil Left Hell (5:25)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC0E67C00BA2976FC7E3ADDFD702EFE699D212E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639022   (211767) от 11.06.2023
-
-Floodfall - Unbroken (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Common Heroes (4:30)
-02. Fever Rising (3:13)
-03. Like Thunder (4:14)
-04. Unbroken (4:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12E89DC5C2A16A68A6055776951083232B4D83A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639055   (211751) от 11.06.2023
-
-Space Queen - Nebula (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Cry (3:45)
-02. Deluge (0:39)
-03. Demon Queen (3:15)
-04. Veil (0:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8424F83CBFC02C96C1B616238B067309FF6893DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639026   (211739) от 11.06.2023
-
-Halocene - Maleficent (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maleficent (3:49)
-02. Unholy (2:40)
-03. Hold Me, Help Me (3:45)
-04. Lauren Babic -- Closer (4:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF4EC6832464243085A21B90608A847F2A794F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368014   (209376) от 22.01.2023
-
-Gary Glitter / The Glitter Band - 21 Albums, 2 Box-sets, 26CD (1972-2021) [FLAC|Lossless|image + .cue] <Glam Rock, Glitter Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский поп-рок-исполнитель и автор песен, пик популярности которого пришёлся на 1972—1974 годы, когда, на волне глэм-рока, он трижды поднимался в Британии на 1-е место («I’m the Leader of the Gang (I Am)», «I Love You Love Me Love», «Always Yours»). В период с 1972 по 1995 годы Глиттер выпустил 26 хит-синглов (проведших в общей сложности 180 недель в первой сотне (   Читать дальше...   )--------------------------
-
-01. Angel Face (2:57)
-02. You Wouldn't Leave Me Would You? (3:43)(   Читать дальше...   )Жанр: Glam Rock, Glitter Rock, Rock'n'Roll |Продолжительность: 25:10:09 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85774D8D9FD11A7DD1F3CC769621BF1CD8E6B7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659037   (209215) от 01.09.2022
-
-The Rolling Stones - Voodoo Lounge (1994) [FLAC|Lossless]<Hard rock, blues rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209215.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. «Love Is Strong» — 3:46
-2. «You Got Me Rocking» — 3:40
-3. «Sparks Will Fly» — 3:15
-4. «The Worst» — 2:25(   Читать дальше...   )Жанр: Hard rock, blues rockПродолжительность: 00:62:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0DB2AD7207CD1CE42B392733A9557342353AB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

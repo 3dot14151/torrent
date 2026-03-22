@@ -1,3 +1,29 @@
+###  Публикация: 1366555   (922327) от 12.03.2020
+
+Журнал | Elle [France] №10 (март 2020) [PDF][Fr]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle — французскийЖанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DE07EFE7B27D43AEC6E4995200BD42F711529B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366560   (922249) от 12.03.2020
 
 Журнал | Red UK №4 (апрель 2020) [PDF] [En]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:984651E8CA1F4115162F2FAA2B2B5FB6FA1CDC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491803   (908913) от 26.08.2021
-
-Журнал | InStyle [USA] №7 (июль 2021) [PDF] [En]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908913.jpg" />
-</div>
-
-
-###  Подробнее
-
-InStyle - ежемесячный журнал о женской моде, основанный в 1994 году. Издается в США корпорацией Meredith и Pacific Magazines в Австралии.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27024CF8B59A19A49589E344F4AD52CB41D5D761
 ```
 
 https://mybot314.ru/tekegram_catalog/

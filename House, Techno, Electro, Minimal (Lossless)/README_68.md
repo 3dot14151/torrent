@@ -1,3 +1,148 @@
+###  Публикация: 1744356   (46101) от 21.08.2024
+
+VA - Seychelles Summer Mix 2024 Chillout Island Beach Lounge [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Rivera - We Belong Together (Radio Mix) (3:14)
+02. Tropicalee - Seychelles Sunset Dreams (2:21)
+03. DJ Pacha - Walking On Air (Ibiza Sunrise Edit) (3:16)
+04. Dj Beachshaker - Just like Heaven (Ibiza Dance Radio Cut) (2:50)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACF2BADE883E066496564D0E3597EB10486CD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746684   (44932) от 01.09.2024
+
+VA - Oriental Ethnic Deep House Summer Mix (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Omar - Balearic Harem (4:52)
+02. Yusuf Bhatt - Gonna Keep It (4:16)
+03. Azula - Bedouin (4:52)
+04. Reza Farahani - Hit Me! (4:54)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBF6FDB6FB40CD24A213FC1E2D03ADBC00191E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746713   (44920) от 01.09.2024
+
+VA - Best Ethnic Deep House 2024 (Best Oriental Ethnic Deep Chill House Mix) [FLAC|Lossless|WEB-DL|tracks] <Oriental House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rachid Fairuz - Habiby Da (4:30)
+02. Claude Ravin - Boushret Kheir (4:39)
+03. Jadal Halal - Alayna El Hawa (4:38)
+04. Profesor Esteban - Ya Rayah (5:39)(   Читать дальше...   )Жанр: Oriental HouseПродолжительность: 01:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1E2B6E53346BDAF25552091D57EF72332E0F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746910   (44816) от 02.09.2024
+
+VA - Dark Arabic Bass House (Ethnic Deep House Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Omar - Balearic Harem (Bass Boosted) (4:53)
+02. Yusuf Bhatt - Gonna Keep It (Bass Boosted) (4:16)
+03. Azula - Bedouin (Bass Boosted) (4:53)
+04. Reza Farahani - Hit Me! (Bass Boosted) (4:55)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14D153DA954D08E8C3F3B3CA259F906B5ABE942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747080   (44731) от 03.09.2024
+
+VA - ARABICA 2024 - Arabic Oriental Deep House Chillout Desert [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hakim Assaf - Habiba Mi Amore (6:15)
+02. Sanjay Lamjarred - Min Awel Dekika (5:45)
+03. Burak Abulso'oud - Paro (5:41)
+04. Davide Angiuli - Ensay (5:48)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A351CBD707CFC655BF3A53C84A0D8772F4C5351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747329   (44610) от 04.09.2024
 
 VA - Arab Folk (Arab Vibes of the Middle East) (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
@@ -595,150 +740,6 @@ Ott - Hiraeth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Dub, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE6DB3BCB124D9DA7925D28628FA7FE2D069294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756060   (39668) от 21.10.2024
-
-Lane 8 - Childish (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lane 8 – Childish
-02. Lane 8 & Art School Girlfriend – The Deep
-03. Lane 8 – Higher
-04. Lane 8 & Arctic Lake – The Choice(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6E84746B569CD0C6006EA0CB4EA2D77CFDCA03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756233   (39666) от 21.10.2024
-
-Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We First Met
-02. Life at Full Speed
-03. Make U Happy
-04. Sunshine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E22F523825853600DA56C8590EBB3A3A3804AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757069   (39273) от 25.10.2024
-
-Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benassi Bros. x Dhany - Every Single Day (club edit) (03:43)
-02. Benassi Bros. x Dhany - Every Single Day (club version) (06:41)
-03. Benassi Bros. x Dhany - Every Single Day (club version instrumental) (06:41)Жанр: Club HouseПродолжительность: 00:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC79D0F4BEABC3D5E8EB5673DBAC1E5F8D65C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757395   (39077) от 27.10.2024
-
-VA - Diamond Fitness - Best Songs For Cardio Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Space'c - Side Effects (Fitness Version 128 Bpm) (4:33)
-02. Dj Gang - Popular (Fitness Version 128 Bpm) (4:37)
-03. Kangaroo - Cruel Summer (Fitness Version 128 Bpm) (4:05)
-04. DJ Space'c - Drinkin (Fitness Version 128 Bpm) (4:33)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B91558AF4EC7FC30EC890B7AB32210BE9FF040F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758134   (38721) от 31.10.2024
-
-Power Music Workout - Xtreme Cardio Mix 40 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Please Please (Workout Version 130 BPM) (5:10)
-02. LIFETIMES (Workout Version 131 BPM) (4:38)
-03. Summer's Back (Workout Version 132 BPM) (4:50)
-04. Set My Heart On Fire (I'm Alive x And The Beat Goes On) (Workout Version 133 BPM) (5:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEF3D4785FB469D26882F09EA1BD6E81AB369D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

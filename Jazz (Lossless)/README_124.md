@@ -1,3 +1,177 @@
+###  Публикация: 907239   (639931) от 11.06.2015
+
+John Patton - Along Came John (2015) [FLAC|Lossless]<Jazz, Post-Bop, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Silver Meter [05:44]
+02. I'll Never Be Free [05:05]
+03. Spiffy Diffy [06:04]
+04. Along Came John [06:04](   Читать дальше...   )Жанр: Jazz, Hard Bop, SoulПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F6AE29E19A7F1A2D2F5A04F7266D6DE53CF7C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907235   (639928) от 11.06.2015
+
+Milt Jackson - High Fly (2004) 2CD[FLAC|Lossless]<Jazz, Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639928.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Close Your Eyes [05:54]
+02. Here's That Rainy Day [06:32]
+03. Star Eyes [05:16](   Читать дальше...   )Жанр: Jazz, Post-Bop, Mainstream JazzПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB486369E46957B946E547319BC5522E754FEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907141   (639733) от 11.06.2015
+
+Lauren Desberg - Twenty First Century Problems (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Stop The Show
+02. He Loves and She Loves
+03. Lie To Me
+04. How Deep Is Your Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC937F111AF10E9A2C44B1E1EA422BE65CB8316B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143105   (639559) от 16.06.2017
+
+Stefanie Schlesinger - Reality (2017) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parole, Parole
+02. The Summer Knows
+03. Reality
+04. Hotel Shanghai(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CF4EE28FC3D9C362D3C90FC62415F0134C2899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143097   (639462) от 16.06.2017
+
+Youn Sun Nah - She Moves On (2015) ACT [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traveller [03:44]
+02. Teach The Gifted Children [04:14]
+03. Too Late [05:05]
+04. She Moves On [04:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F748323F88E36C3D4B6E3C33F4568E0F905DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228153   (639412) от 30.05.2018
+
+James P. Johnson - 1928 - 1938 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight Savin' Blues [2:49]
+02. Georgia's Always On My Mind [2:49]
+03. Riffs [3:05]
+04. Feelin' Blue [2:56](   Читать дальше...   )Жанр: Ragtime, Stride, Piano JazzПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82EBC67EDEED3A42BB9CC45976780C3F4EA7998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228027   (639409) от 30.05.2018
 
 Pee Wee Russell - Portrait of Pee Wee (1958) 1991, DCC Jazz [APE|Lossless|image + .cue] <Mainstream Jazz, Swing>
@@ -579,180 +753,6 @@ Miles Davis - 'Round About Midnight (1957) 2012, Mobile Fidelity Sound Lab [WavP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD8B9438955A849790C3ADA267F8F66E1905FE00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033795   (636345) от 12.07.2016
-
-Shorty Rogers - Four Classic Albums (1953-1958) 2CD, 2011, Avid Entertainment[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636345.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Blues Express [04:19]
-02.Pink Squirrel [03:36]
-03.Coop De Graas [03:00](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9210586F94B429F3DAFB98C26E22F2DD1EAE3482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033706   (636281) от 12.07.2016
-
-Kellylee Evans - Come On (2015) [FLAC|Lossless|tracks] <Pop, Soul, Jazz/Soul Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On
-02. Tell Me What You Like
-03. Right To Love
-04. Hands Up(   Читать дальше...   )Жанр: Pop, Soul, Jazz/Soul VocalПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF961DE55978520C5C938A3DCBB1F1A4DF406833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033712   (636276) от 12.07.2016
-
-Janne Schra - Ponzo (2015) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Jazz-Pop, Indie Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ship
-02. Everything I Do Ooh Ooh
-03. Filthy Rich
-04. Good Now(   Читать дальше...   )Жанр: Vocal Jazz, Jazz-Pop, Indie PopПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0EC4CE533569A5EE6897DD4927D3B097D784C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033787   (636268) от 12.07.2016
-
-Lady Linn - Keep It a Secret (2016) [FLAC|Lossless|tracks] <Vocal Jazz, Jazz-Pop, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slowly
-02. Sing Your Heart Out
-03. Lucky
-04. I Cannot Win(   Читать дальше...   )Жанр: Vocal Jazz, Jazz-Pop, SoulПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DC75B73860532D7B60F1023494A3593F8FA2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228502   (636003) от 01.06.2018
-
-Dino Plasmati & LJP Big Band - Matera Encounters (2018) Alfa Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doin' Basie's Thing [3:43]
-02. Big Mama Cass [4:22]
-03. Groovin' Hard [5:38]
-04. Basically Blues [6:42](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D35D552591AD0C72F823AF17023E62A57816CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293584   (635778) от 04.04.2019
-
-Pepper Adams - Four Classic Albums (1956 - 1958) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635778.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Afternoon In Paris [5:57]
-02. You Turned The Tables On Me [4:46]
-03. Apothegh [5:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38745681B0EA3DF44E849527C6D38F4BBC0E829
 ```
 
 https://mybot314.ru/tekegram_catalog/

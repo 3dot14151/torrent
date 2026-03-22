@@ -1,3 +1,241 @@
+###  Публикация: 1141470   (650084) от 10.06.2017
+
+VA - Hard Rock Cafe (2017) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650084.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  The Watchers - Sabbath Highway  3:15
+002.  Black Diamonds - Love, Lies, Loneliness  5:38
+003.  Deep Purple - Roadhouse Blues  6:01
+004.  Uriah Heep - Look At Yourself  9:46(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9064C7672CFD269E609CA33FA9E3CFB61A5BD65C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031677   (649551) от 05.07.2016
+
+Girlschool - Greatest Hits (2015) [MP3|256 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn It Up
+02. Not For Sale
+03. Danger Sign
+04. Take It All Away(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67636EF639270F23E040D43A6CA342698D1F686C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541152   (646855) от 02.04.2022
+
+VA - Punk Rock Holiday (2CD) (2022) [MP3|320 Kbps] <Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Панк - это идея, которая ведёт и строит твою жизнь! Думай самостоятельно, будь самим собой, а не просто принимай то, что даёт тебе общество, — создавай свои собственные правила, живи своей собственной жизнью!CD 01:
+
+001. Working Weekends - Awkward Coupling
+002. Pontious Pilate - Time And Time Again(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 10:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DBC0A5E20AF337264E9BBB5EA8A11E321F29BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541154   (646659) от 02.04.2022
+
+VA - Metal Track: Hard Musical Collection (2022) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специально для ценителей "серьёзной" музыки - самые лучшие зарубежные композиции в стиле жёсткого металла и хардкора в свежем сборнике под названием "Metal Track: Hard Musical Collection". Композиции принесут слушающему очень разнообразную палитру эмоций и настроений, но однозначно никого не оставят безразличным.001. Cutters - Asphalt City
+002. The Flight Of Sleipnir - Voland
+003. Thaeia - Osservati
+004. Mannveira - Framtíðin Myrt(   Читать дальше...   )Жанр: Metal, Hardcore, Hard RockПродолжительность: 09:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13196854E58CEE295824E44A24CAE040D5D7EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518019   (644555) от 02.07.2012
+
+Машина Времени - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В добрый час
+02. Поворот
+03. Скворец
+04. Люди В Лодках
+05. Эпоха большой нелюбви
+06. Ты Или Я
+07. Старая песня о главном
+08. Наш Дом
+09. Лифт
+10. Время(   Читать дальше...   )Жанр: RockПродолжительность: 02:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15FC53BBDC513F19DF468B30DFB991E68BA6154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227807   (642899) от 28.05.2018
+
+VA - Lyrical Ballads: 130 Popular Songs (2018) [MP3|320 Kbps] <Pop Rock, Liric Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642899.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Touch Of Class - Moment In Time
+002. Eternal - Someday
+003. George Strait - I Just Want To Dance With You
+004. Toni Braxton - The Little Things(   Читать дальше...   )Жанр: Pop Rock, Liric BalladsПродолжительность: 08:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD00248E1C644C7B76DF07869E0AA52D5A9BDDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227759   (642622) от 28.05.2018
+
+VA - Короли и Герои: Сборник Русского Рока (2018) [MP3|192-320 Kbps] <Рок, Альтернатива>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проникновенные тексты, сильные голоса, настоящая гитара, живое звучание! Это всё наш рок! Здесь всё дышит жизнью, здесь всё дышит правдой! Презентуем Вам очередной сборник рок музыки под названием "Короли и Герои". Неповторимое звучание представленных композиций, собственный стиль исполнителей, широкий насыщенный саунд, которого музыканты добились благодаря (   Читать дальше...   )001. КняZZ - Наука Билли Бонса
+002. Северный Флот - Любовь и время
+003. Noize MC - Последний герой
+004. АлоэВера - Беги (EP версия)(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 10:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BA1C6246631920D0571BA7D15F11524465DD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541897   (642599) от 04.04.2022
+
+VA - All New Rock 2 (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642599.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stands on Sapphires - For the Fight (7:48)
+002. John Lodge - Isn't Life Strange - Live (6:52)
+003. Mal Hombre - Now That You're Mine (6:19)
+004. Poets of the Fall - Requiem for My Harlequin - Radio Edit (5:40)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 06:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3350E49DFDB8DDE10CA3801612BD9DD9CDD1E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292984   (640884) от 01.04.2019
 
 VA - Рок впрок 12 (2019) [MP3|320 Kbps] <Рок, Поп-Рок>
@@ -513,238 +751,6 @@ VA - Новинки Русского Рока. Выпуск 1 (2015) [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4043FE91F788E4ECF0E82DD7173E17C3BD16B328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909911   (623414) от 19.06.2015
-
-VA - Новинки Русского Рока. Выпуск 2 (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукрыниксы - Жизнь в зоопарке
-02. Ю-Питер - Возьми меня с собой
-03. Animal Джаz - Хранитель весны
-04. Jane Air - Могила моряка(   Читать дальше...   )Жанр: RockПродолжительность: 02:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B45C343F58259B24CD301544FB00EF65B50F6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909968   (623301) от 19.06.2015
-
-VA - Новинки Русского Рока. Выпуск 3 (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. КняZz - Пассажир
-02. Кукрыниксы - Офицеры
-03. Animal Джаz - Инопланетянин
-04. СерьГа - Чистота(   Читать дальше...   )Жанр: RockПродолжительность: 02:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B661571552B4FA396949694DC90DFB545BBE295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544417   (621732) от 15.04.2022
-
-VA - Blues Rock Compilation Part 8 (2022) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brandon Lane - Trouble
-02. Bruce Marshall Group - Conscience as My Witness
-03. Sonny Black and the Dukes - Blues Walkin' By My Side
-04. Brandon Lane - Bird on a Wire(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60139D1517D92DCBA4705C78C044788D7FA5E64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145164   (621539) от 25.06.2017
-
-Dee Snider - After T.S. (2017) Compilation [MP3|320 Kbps] <Rock, Metal, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Core
-02. Blue For You
-03. Emaheevul
-04. Isn't It Time(   Читать дальше...   )Жанр: Rock, Metal, Heavy MetalПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530474EDA1B5F9B18C47CEA8FC48B5BF7414B97F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544664   (620468) от 16.04.2022
-
-Michelle Gurevich - Compilation (2022) [MP3|320 Kbps] <Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Eyes Unchanged
-02. Kiss in Taksim Square
-03. Kiss
-04. Aviva(   Читать дальше...   )Жанр: AlternativeПродолжительность: 03:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C04E3A36A96AD071A0C64CBC275D5D445D5D5E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224352   (618467) от 13.04.2019
-
-VA - Rock And Roll: 80 Best Songs (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не считайте, что это сборник из каких-то банальностей, которые тоже, разумеется, заслуживают своей оценки, но уже всем приелись. Нет, на этот раз у вас будет 80 различных рок композиций, многие из которых вы, может даже, услышите впервые или вспомните, что не слушали их уже давным давно.01. William T. & The Black 50's - I Want You Tonight
-02. Igor & The Red Elvises - One Night Only
-03. Ruth Brown - Hello Little Boy
-04. Joe Turner - Midnight Special Train (Mono)(   Читать дальше...   )Жанр: Rock and Roll, RockПродолжительность: 04:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1BB584ABF8764BE382FE9E1E5597A37B33DAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295547   (618466) от 13.04.2019
-
-VA - Best Rock of All Time (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618466.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AC/DC - Highway to Hell
-002. The White Stripes - Seven Nation Army
-003. Radiohead - Creep
-004. Aerosmith - Dream On(   Читать дальше...   )Жанр: RockПродолжительность: 06:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5870BEF5267BC3FA7F0FE8E3466F612CE7AD4F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294671   (618265) от 13.04.2019
-
-VA - Тяжёлые кавер-версии известных песен (2019) [MP3|320 Kbps] <Punk, Rock, Hardrock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fame On Fire - Shape of You
-02. Guns N' Roses - Knockin' On Heaven's Door
-03. Marilyn Manson - Sweet Dreams (Are Made of This)
-04. Blowsight - Poker Face(   Читать дальше...   )Жанр: Punk, Rock, Hardrock, OtherПродолжительность: 03:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98265D1F0DF1D1D4BACFF0ECA734DE3B06DC55C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

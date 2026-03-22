@@ -1,3 +1,55 @@
+###  Публикация: 1032081   (647263) от 06.07.2016
+
+Проекты - VideoHive - Memory Tree Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memory Tree Slideshow - ностальгическое слайд-шоу для памятных фотографий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0D303D8D4AAD7F055BAE059F31E75B2F29F245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906177   (647127) от 07.06.2015
+
+Проекты - VideoHive - Red And Blue Slide [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект промо дискотеки, вечеринки, шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA1F47B197D43EAD5CEFFF9F544E6DDB78D395B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906148   (647011) от 07.06.2015
 
 Проекты - Pond5 - Energy Photo Slideshow - 47517093 [AEP]
@@ -625,59 +677,6 @@ Opener - оригинальный проект для создания всту�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A003D58109B6A88C5F467F7D976056030435AC99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293263   (638716) от 02.04.2019
-
-Проекты - VideoHive - Clean Rhythmic Opener - 20163088 [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clean Rhythmic Opener - легкий, динамичный проект для создания оригинального вступительного видео.
-Автор проекта: Jilrock1Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234762D5169604765893C077AC113A2A346BFB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800779   (638276) от 30.06.2014
-
-VideoHive - Meadow - 6702113 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летний, короткий проект. Прелюдия к вашему фильму о быстротечном лете.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56BA2A787324491B3D1FF91F05F133ECA6E27DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

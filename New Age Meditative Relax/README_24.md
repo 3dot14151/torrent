@@ -1,3 +1,32 @@
+###  Публикация: 1080321   (288277) от 07.12.2016
+
+Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Soundtrack>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Across the Southern Slies (feat. Guido Negraszus) (09:25)
+02. Slow in Motion (04:39)
+03. Floating Ice (03:57)(   Читать дальше...   )Жанр: Ambient, Electronic, SoundtrackПродолжительность: 02:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B014C9602F859E79B4BB15DA8FBE44AA539356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584886   (288190) от 09.12.2014
 
 Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclassical, Instrumental, Harp>
@@ -726,35 +755,6 @@ Gregorian - 20/2020 (2019) Limited Edition 2CD [MP3|320 Kbps] <New Age, Enigmati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEDE988278D6C3C0FE16268C2B7EFE635F92E434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339737   (264277) от 22.11.2019
-
-Kokhe - Blue World (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264277.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Across The Quiet Universe 5:18
-2. Calypso 4:52
-3. Blue World 4:39
-4. Eternal 5:57(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFC523F97C804A5F24AA72736052C275A8978F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

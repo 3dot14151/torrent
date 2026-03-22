@@ -1,3 +1,60 @@
+###  Публикация: 1358617   (967138) от 09.02.2020
+
+Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paranoia (Original Mix) (5:35)
+ 02. Lush Dance (Original Mix) (4:30)
+ 03. The Police (Original Mix) (3:58)
+ 04. Music Box (Original Mix) (5:38)(   Читать дальше...   )Жанр: Electronic, Deep House, DownbeatПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B073873EB893074FC9AC1918D5BB18CFBFEF2B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977278   (965547) от 21.01.2016
+
+VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cut Up Boys - Shine (a cappella) vs. The Creeps (Get on the Dancefloor) (Vandalism remix) (Booty Luv vs. Freaks) (6:14)
+02. The Cut Up Boys - Let Me Think About It (a cappella) vs. The Creeps (Ida Corr vs. Fedde Le Grand vs. Camille Jones vs. Fedde Le Grand) (5:16)
+03. The Cut Up Boys - Rapture (a cappella) vs. Love on My Mind (feat. Amanda Wilson) (iiO vs. (   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A26BD8878D73EEEC4455610404697A8FEC3545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977841   (963580) от 23.01.2016
 
 VA - Dance Max 2003/1 (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Trance>
@@ -684,64 +741,6 @@ Caribou - Suddenly (2020) [FLAC|Lossless|tracks + .cue] <Experimental, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC15B3277B6A7BA61EF74B067E4FB1522C5F22E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364155   (939348) от 01.03.2020
-
-Maya Jane Coles - Take Flight (2017) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Deep House, Trip-Hop, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weak (4:35)
-02. Bo & Wing (4:48)
-03. Old Jam (4:49)
-04. Take Flight (4:15)(   Читать дальше...   )Жанр: Electronic, Deep House, Trip-Hop, DownbeatПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AC1EB9762F1BDFEC1E6A08A72BBA57411E2507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092475   (938752) от 12.01.2017
-
-Trentemoller - The Last Resort (2006) Limited Edition [FLAC|Lossless|image + .cue] <Techno, Minimal, Tech House, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Into Your Skin (7:44)
-02. Vamp (4:33)
-03. Evil Dub (6:15)
-04. Always Something Better (6:10)(   Читать дальше...   )Жанр: Techno, Minimal, Tech House, Ambient, ExperimentalПродолжительность: 02:33:38 (01:17:36 + 01:16:02)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B590D51BAC8A54148E04674792FEEDAC484D70AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

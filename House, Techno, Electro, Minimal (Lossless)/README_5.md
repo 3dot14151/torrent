@@ -1,3 +1,61 @@
+###  Публикация: 1474167   (1013227) от 01.06.2021
+
+GusGus - Mobile Home (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Synthpop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay The Ride
+02. Higher (feat. Vök)
+03. Simple Tuesday
+04. Love Is Alone (feat. John Grant)(   Читать дальше...   )Жанр: House, Tech House, SynthpopПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809C48E2E20BD82F736598053381A8207C396E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474322   (1013066) от 02.06.2021
+
+Gambusia - Artist Series: Gambusia (2021) Superordinate Dub Waves [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaster (05:50)
+ 02. Heron (04:42)
+ 03. Perch (05:41)
+ 04. Koel (05:52)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91790EB87703A2ECD14FD48530F52FA18C4E151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474530   (1013061) от 02.06.2021
 
 Dani Corbalan - Best of Dani Corbalan (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Electro, Techno>
@@ -679,64 +737,6 @@ Eli & Fur - Found In The Wild (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:685BB2DABAEE4D3403FE01F88445CD526F2F4A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110717   (1009387) от 25.06.2021
-
-Microlith | Rhys Celeste - Discography 13 Releases (2014-2021) CPU Records, mindcolormusic, Fundamental Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient, IDM, Acid, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled 87 7 (04:27)
- 02. Untitled 8 9 (06:50)
- 03. Untitled 23 2 (07:23)
- 04. Untitled 102 3 (02:00)(   Читать дальше...   )Тип издания: WebЖанр: Electro, Ambient, IDM, Acid, Techno •Продолжительность: 08:29:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070A14523F2F2FEBCF6A3F797EB7D86D567A3434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480290   (1009185) от 27.06.2021
-
-Oliver Schories - Paradigm (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Neo Trance, Minimal Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bengalo (6:48)
- 02. Dr.2 (7:41)
- 03. Packard (6:48)
- 04. Tempest (7:15)(   Читать дальше...   )Жанр: Deep House, Tech House, Neo Trance, Minimal TechnoПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AB600F60DF3C2FF48C99D583DD2E8A6FB6F1CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

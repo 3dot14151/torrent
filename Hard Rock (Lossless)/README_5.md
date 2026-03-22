@@ -1,3 +1,90 @@
+###  Публикация: 1620894   (1031678) от 22.03.2023
+
+Riptown Riot - Of Martyrs & Mayhem (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moth (4:21)
+02. War (3:50)
+03. Martyr May I (4:51)
+04. The Beast (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D799287E1766AA28484C72B4FDA2A7A4257A77EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620879   (1031647) от 22.03.2023
+
+Fire Of Destiny - Between Good And Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Hopes [00:05:53]
+02. Sweet Fairy [00:03:53]
+03. Eyes never lie [00:04:57]
+04. No Fear [00:04:01](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8064D5AB733925BC40437A349EBFD140CECCC1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447931   (1031400) от 15.02.2021
+
+Kreek - Kreek (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At The Bottom Of Hell
+02. Missiles
+03. Meet Your Maker
+04. Million Dollar Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB2CC588BF7AD8E744FC36F77163D102AE89C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447802   (1031341) от 15.02.2021
 
 AOR - The Ghost Of L.A. (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -659,93 +746,6 @@ Walk The Walk - Walk The Walk (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B06FC43B354A8F5B4C5DE57A23D5E45A6FBD9D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450474   (1029060) от 26.02.2021
-
-Allison - They Never Come Back (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The River
-02. Edge Of Golden Days
-03. Crank It Up
-04. Hang Tough(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0FAC76B289F223CA0B96198D813648B434762C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450344   (1029055) от 26.02.2021
-
-Arabia - 1001 Nights (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heart Is A Lonley Hunter
-02. Darkside Of Love
-03. Love Love Me Do
-04. 1001 Nights(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B515510038DEE1E9E3616AF9FA3CF66FF3B20E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450309   (1029048) от 26.02.2021
-
-Ricky Warwick - When Life Was Hard & Fast (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Life Was Hard & Fast
-02. You Don't Love Me
-03. I'd Rather Be Hit
-04. Gunslinger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4EE9AC3068E327C00061BBACD0F79189FB06DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

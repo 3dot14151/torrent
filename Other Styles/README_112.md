@@ -1,3 +1,148 @@
+###  Публикация: 1164902   (434663) от 12.09.2017
+
+Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanzen (3:29)
+02. Jamphel Yeshi (4:02)
+03. Benjamin (4:13)
+04. Sommerzeit (3:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B229932EF88A73E945D15179BF6D00B7E6EA5383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063425   (434495) от 16.10.2016
+
+Gregorian - Masters Of Chant Final Chapter Tour (2016) Live [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434495.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Masters Of Chant
+02. Still Haven't Found What I’m Looking For - Only You
+03. Stay(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF576935C865701746E52E364B4B7A12A400C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410708   (433867) от 22.09.2020
+
+François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barn Dance (01:18)
+02. Mazurka (01:12)
+----
+Prelude and Fugue No.1 in A Minor(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CECFE9F554E0C20F96B4CF88AB96304A061FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410668   (433862) от 22.09.2020
+
+VA - Meesters Der Sfeermuziek 2 - De beste Orkesten (2002) 3 CD [FLAC|Lossless|image + .cue] <Pop, Folk, World & Country, Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - James Last – Biscaya (04:03)
+02 - Billy Vaughn And His Orchestra - Sail Along Silvery Moon (02:12)
+03 - Mantovani And His Orchestra - The Moulin Rouge Theme (02:50)
+04 - Frank Chacksfield & His Orchestra - Three Coins In The Fountain (03:41)(   Читать дальше...   )Жанр: Pop, Folk, World & Country, Stage & ScreenПродолжительность: 03:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BCB014A69F319BCAFF5CAC30815FF956F45167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473744   (433833) от 21.08.2022
+
+Hilmar Orn Hilmarsson & Sigur Ros - Angels Of The Universe (2001) [FLAC|Lossless|image + .cue] <Modern Classical, Post Rock, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hilmar Örn Hilmarsson - Approach / Dream (3:07)
+02. Hilmar Örn Hilmarsson - Memory (1:56)
+03. Hilmar Örn Hilmarsson - The Black Dog And The Scottish Play (1:23)
+04. Hilmar Örn Hilmarsson - Degradation (1:19)(   Читать дальше...   )Жанр: Modern Classical, Post Rock, AmbientПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D579C67798A89804987003705DD1CEC4B0B5A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249565   (433313) от 24.09.2018
 
 SolarFlow - Imagine (2018) [MP3|320 Kbps] <New Age>
@@ -608,151 +753,6 @@ Boots Randolph - Live (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E09DB24BE1AF34D0A12B0894C3E60F56D3939246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063971   (430116) от 18.10.2016
-
-Esperanza - 2 Альбома (1998, 2001) [MP3|320 Kbps] <Instrumental, Latin, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duende   (01:08)
-02. Spanish Eyes   (04:17)
-03. La Punta   (05:37)
-04. Gabrilla's Lullaby   (03:38)(   Читать дальше...   )Жанр: Instrumental, Latin, New AgeПродолжительность: 01:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA064E03897900D251AAA5CF2F6BECD467D00BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411010   (429613) от 24.09.2020
-
-Fleet Foxes - Shore (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wading In Waist-High Water (02:15)
-02. Sunblind (04:13)
-03. Can I Believe You (04:04)
-04. Jara (04:09)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60791B72E3514F799EA2F5FC7D3CD1BDB9CEB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411015   (429483) от 24.09.2020
-
-VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J. C. Aprile & His Orchestra / Feelings (04:14)
-02. Denny Wright / Try A Little Tenderness (02:59)
-03. Denny Wright / Fly Me To The Moon (02:57)
-04. Dick Abell / Minette (02:21)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946177   (429453) от 12.10.2015
-
-Bernard L'Hoir - She's... (2015) [OGG| 407-500 кб/с]<New Age, Jazz, Folk, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My gypsy girl (05:25)
-02. Between you and me (03:42)
-03. A classy blues (05:53)
-04. Osar’s Naad (03:55)(   Читать дальше...   )Жанр: New Age, Jazz, Folk, InstrumentalПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBB5C9855BBF92CF28E169D4730C471255CF29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945836   (429402) от 12.10.2015
-
-Francisco Canaro - Serie Para Baile Vol.2 - Todo Vals (1941) [MP3|256 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Con Tu Mirar
-02 -  Yo No Se Que Me Han Hecho Tus Ojos
-03 -  Ya Viene El Invierno
-04 -  Plegaria(   Читать дальше...   )Жанр: TangoПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602EFD7695FDFC64236A1C5002B9CD3820BD00E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

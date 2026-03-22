@@ -1,3 +1,177 @@
+###  Публикация: 1410665   (434053) от 22.09.2020
+
+Louis Armstrong - Hello, Dolly! (1964) 1994, Kapp Records [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, Dolly! [2:27]
+02. It's Been a Long, Long Time [2:22]
+03. A Lot of Livin' to Do [2:37]
+04. A Kiss to Build a Dream On [4:31](   Читать дальше...   )Жанр: Swing, DixielandПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86BD640AF688C79A908F8FC0BB2A30B3CA3EE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571304   (434047) от 21.08.2022
+
+Art Blakey And The Jazz Messengers - In My Prime I (1978) 1989, Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody [10:22]
+02. 1978 [7:28]
+03. To See Here Face [6:24]
+04. Lift Every Voice And Sing [2:17](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562D5F1DAEE8B06D86EE478EF5C7B390FB88A714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945509   (433983) от 10.10.2015
+
+Oliver Gannon - Easy Sailing (2014) [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale (6:49)
+02. Easy Sailing (5:40)
+03. My One and Only Love (5:10)
+04. Chi Chi (4:56)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CA2F5772F0F340C42FCB6E64E7206C9B30B382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945513   (433982) от 10.10.2015
+
+Oliver Jones - From Lush (1995) [FLAC|image+.cue]<Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You Look Tonight (5:36)
+02. Why Think About Tomorrow (5:43)
+03. Len's Den (4:34)
+04. We Will Love Again (4:48)(   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E63019D5F27084029BB79A2226FA6F5757D3197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945486   (433978) от 10.10.2015
+
+Ofer Shapiro Quintet - Two Views (2010) [FLAC|image+.cue]<Post-Bop, Ethnic Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Views (tribute to Wayne Shorter)
+02. Dancing Spirit
+03. The Sea
+04. Minor Blues(   Читать дальше...   )Жанр: Post-Bop, Ethnic FusionПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C533C86292D99FB66F5F661C90CA86F9664616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945482   (433977) от 10.10.2015
+
+Odyssey Trio - Pictures (2014) [FLAC|tracks+.cue]<Contemporary Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песнь Песни / The Song of a Song
+02. Доброе утро / Good Morning
+03. Карусель / Carousel
+04. Прощальная песня / Farewell Song(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD7CE14ED0169113A22A32F8485D210EDC1F67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945477   (433975) от 10.10.2015
 
 Odelia Dahan and the Yellow Submarine Ensemble - Solika (2008) [FLAC|tracks + .cue]<Nu-Jazz, World Music, Fusion>
@@ -571,182 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F558B3DE88F10B62FEF638571DE2C38D06A8480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410887   (431926) от 23.09.2020
-
-Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monk's Shop (Remastered 2017) (03:52)
-02. 'Round Midnight (Remastered 2015) (04:53
-03. One for My Baby (And One More for the Road) (Remastered) (07:41)
-04. Falling in Love With Love (Remastered 2017) (06:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F58B2EC8C3E359C46719DAA476E748D9CD19E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945685   (431909) от 11.10.2015
-
-Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Moments
-02. Double Space
-03. Venus
-04. Dat Love(   Читать дальше...   )Жанр: Post-Bop, Free JazzПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246A1B1814A9D2A9ACEB7C1422C2E2DB17F76B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945683   (431908) от 11.10.2015
-
-Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Waltz Waldron
-02. Hat and Beard Dolphy
-03. Feather Smith
-04. 245 Dolphy(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1887DABEDA4A98383B3BCAD9AE14875AB69AFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553497   (431869) от 03.10.2012
-
-Jaco Pastorius, Kenwood Dennard, Hiram Bullock - PDB (1989) Live / DIW Records / [APE|Lossless]<Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invitation (Kaper/Webster) (9:43)
-02. Three Views Of A Secret (Pastorius) (7:37)
-03. Son Of Creeper (Bullock) (6:01)
-04. Ode To Billy Joe (Gentry) (3:37)
-05. Continuum (Pastorius) (4:36)
-06. Dolphin Dance (Hancock) (10:21)Жанр: Jazz-RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945962   (431865) от 11.10.2015
-
-The Australian Jazz Quintet - At The Varsity Drag (1956) /2014, Solid Records/[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alone Together [02:11]
-02.Koala [03:12]
-03.That Old Feeling [03:14]
-04.Affaire d'Amour [03:10](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050915AF48F65A48F479C9F88E9005D3D540D217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945708   (431861) от 11.10.2015
-
-Omar Sosa - A New Life (Solo Piano) (2003) [FLAC|image+.cue]<Afro-Cuban Jazz, Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling The Baby
-02. Una Mano
-03. Three Persons
-04. Crash De la Tierra(   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, Post-BopПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1297041F69219AD008B04AF0BBEC7ED2E17036
 ```
 
 https://mybot314.ru/tekegram_catalog/

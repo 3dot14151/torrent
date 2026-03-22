@@ -1,3 +1,29 @@
+###  Публикация: 1642905   (234335) от 29.06.2023
+
+JustStream PRO 2.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234335.jpg" />
+</div>
+
+
+###  Подробнее
+
+JustStream — отличное приложение, которое может отображать изображение с Mac на телевизор, Mac — на Chromecast, Mac — на Apple TV и так далее. Вы можете транслировать видео на телевизор и наслаждаться им на большом экране без каких-либо проводов, кабелей или какого-либо дополнительного оборудования.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2023Разработчик: © 2022 Electronic Team, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54EE6B1E12E48B2AB23EB478E64C2E5786595A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577886   (234126) от 20.09.2022
 
 ForkLift 3.5.8 [Multi/Ru]
@@ -657,32 +683,6 @@ Pastebot - менеджер истории буфера обмена
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:567139243775AD00FD13927F9A4A58B40C5280B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649683   (229168) от 28.07.2023
-
-RAR Extractor - The Unarchiver 8.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте любой формат файла архива. Поддержка извлечения RAR, ZIP, 7Z, TAR, GZIP, GZ, BZIP2, LZIP, ACE, ISO, PAX, PKG, APK, LBR, MSI, JAR, XZ, LZMA, BZ, LZH, CAB, CPIO, SWF, SPK, MSI, SEA, NRG, MDF, TAZ, ACE, LBR, RPM, CPT и т. д.Тип издания: macOS SoftwareРелиз состоялся: 27.07.2023Разработчик: © 2023. ElimisoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9490035BEB43C923FEA0FE4A3B9ED28459027E
 ```
 
 https://mybot314.ru/tekegram_catalog/

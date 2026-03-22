@@ -1,3 +1,119 @@
+###  Публикация: 1298841   (601628) от 29.04.2019
+
+Astral Doors - Worship or Die (2019) [MP3|320 kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night of the Hunter (04:42)
+02. This Must Be Paradise (04:03)
+03. Worship or Die (03:17)
+04. Concrete Heart (03:57)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8590EADEA3527C1FBF6BE288C68C2DF93F75EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299038   (600841) от 30.04.2019
+
+Belzebubs - Pantheon of the Nightside Gods (2019) [MP3|320 Kbps] <Sympho Black Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cathedrals of Mourning
+02. The Faustian Alchemist
+03. Blackened Call
+04. Acheron(   Читать дальше...   )Жанр: Sympho Black Metal, Melodic Death MetalПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876E44F5AFABD778F3B40CA04E9C51D786BDC092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913661   (600483) от 01.07.2015
+
+Witchgrinder - Haunted (2015) [MP3|320 кб/с]<Industrial Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600483.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Into The Sleep
+2. Rigor Mortis
+3. Haunted
+4. Our Nightmare(   Читать дальше...   )Жанр: Industrial Metal, Thrash MetalПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBE4F1FE98DA47B0A203B5E1FFD2DD1E7FD6E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913598   (600436) от 01.07.2015
+
+HaddaH - Path To Nefrath (2015) EP [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Alexandros
+02. Immortal Soul Of The Conqueror God
+03. When Rage And Vengeance Desire Blind The Heart Of The Mighty Berserker
+04. Witness The Empty Thrones Of Space And Time(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1226A62A3C9A8635ED81EE803C9D2BA4D54BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913667   (600426) от 01.07.2015
 
 CellRot - Interstellar Telepathy (2015) [MP3|320 кб/с]<Avant-garde Black Metal, Industrial Metal>
@@ -626,122 +742,6 @@ Thessa - The Other Side MMXV (2015) [MP3|320 кб/с]<Instrumental Progressive M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B34EC7E9C53FB3C37A1EE090D80C794EA0B068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915203   (591993) от 06.07.2015
-
-Tanagra - None Of This Is Real (2015) [MP3|320 кб/с]<Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Undying Light
-02. Tyranny Of Time
-03. Eliana
-04. Antietam(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5B6F0590F75FDE77BA58436BBD737D227049A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915019   (591969) от 06.07.2015
-
-Enthrone The Unborn - LXXVIII (2015) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Reflections
-02. Where The Flames Grow Downwards
-03. Burns Within
-04. Harvest(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32909A948A747533052A68857980B6438ACC86C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550595   (591597) от 12.05.2022
-
-Evergrey - A Heartless Portrait (The Orphean Testament) (2022) [MP3|320 kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Us (04:45)
-02. Midwinter Calls (05:06)
-03. Ominous (06:10)
-04. Call Out The Dark (04:23)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7E059811262C04EAC315EA69C840C6B78B8516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916136   (591446) от 07.07.2015
-
-Hellshot - Sickening Society (2015) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now Fear This
- 02. Noose For The Naive
- 03. Martyr
- 04. Defiled(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6D01989100CB3FDB37E5BA99AB9A711FB1ED39
 ```
 
 https://mybot314.ru/tekegram_catalog/

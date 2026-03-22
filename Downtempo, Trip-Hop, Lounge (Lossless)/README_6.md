@@ -1,3 +1,61 @@
+###  Публикация: 1090877   (944608) от 08.01.2017
+
+Jens Buchert - Electronic Space Lounge, Vol.1-3 (2013-2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - Electronic Space Lounge - One
+2013 - Electronic Space Lounge - Two
+2014 - Electronic Space Lounge - ThreeЖанр: Ambient, Downtempo, Trip HopПродолжительность: 03:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345F50FF126882D48B95DEF8C7E67BB5F07BA2E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984853   (934122) от 12.02.2016
+
+VA - JustRomantic (2007) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essence - Tender Fields (4:05)
+02. Satin Stance - Green Rascal (4:36)
+03. Pink Owl - Blue Meeting (4:58)
+04. Le Vab - Deviate (4:02)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EACE3D4F3989DA0D166AEA78B5FA5F274AFAF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366147   (925728) от 10.03.2020
 
 V.A. - Coffee Bar Lounge, Vol. 17 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
@@ -687,64 +745,6 @@ VA - Chillout Sounds Of Nature (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479763126432F851C202AF7E1DB338328BFCD99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374258   (872830) от 10.04.2020
-
-Deep Wave - Chillout Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872830.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winding River	03:02
-2. Reverie	05:13
-3. After the Rain	03:16
-4. Reflection of a Dream	05:06(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E006C3B075827D84EB04E5EC01C6CED3AA44C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375167   (869083) от 12.04.2020
-
-VA - Isolation Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Ambient, Italo, House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olsvanger - 2120 (7:10)
-02. The Head - All the Things I Am (7:05)
-03. Hector Plimmer - Precipice (2:59)
-04. Lily Haz - No Mo Dinin' (3:17)(   Читать дальше...   )Жанр: Balearic, Ambient, Italo, HouseПродолжительность: 02:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F64FCFE4A18086A585CEB6C541A423FA02CCAF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1367918   (914352) от 17.03.2020
+
+Мастодонт / Masta Don’t - Мой личный Дудь (2020) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914352.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Арктический антициклон
+2. Заклинательница змей
+3. Собянинская плитка
+4. Мой личный ДудьЖанр: RockПродолжительность: 00:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC509C68527CCD307C8F89B509A14B4E545A62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490849   (914044) от 23.08.2021
+
+Громыка - Империя ждёт результат (2021) EP [MP3|320 Kbps] <Heavy Psychedelic Twist>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Марс-Марс, я Плутон [00:03:08]
+02 - Туманность Андромеды [00:03:07]
+03 - За иллюминатором [00:04:57]
+04 - Космодромы опустели [00:03:57]Жанр: Heavy Psychedelic TwistПродолжительность: 00:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E3FC67F4B9F132100E96E2DC7146BAC53DFC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367710   (913761) от 17.03.2020
+
+Машина Времени - 50 лет Live (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913761.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Intro (Увертюра)
+02. Время ходит на мягких лапах
+03. Песня о капитане(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874BA2AEF0BA08145DC0B755B3352D4C720A391F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097633   (913643) от 27.01.2017
+
+Сурганова и Оркестр - Песни военных лет (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нам нужна одна победа
+02. Журавли
+03. Песня о далёкой Родине
+04. Самолёты(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8E3308BAFAB2F96BADFBEB0C0AF47AB3B967AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989634   (913567) от 24.02.2016
 
 Гравитация - Открытые Пространства (2016) Авторская раздача [MP3|320 кб/с] <Рок>
@@ -649,122 +765,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CD6BC011BB320FFFC27D8348177F1340940157A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100255   (901322) от 03.02.2017
-
-Обе две - Мальчик (2017) EP [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Февраль
-2. Мальчик
-3. Капитан
-4. Актрисы спят с поэтамиЖанр: Indie RockПродолжительность: 00:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A886F8F6E6053A35FF3DBDD6FCBBE8F38679F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991387   (901041) от 02.03.2016
-
-Scang - Сам себе враг (2000) [MP3|192 кб/с] <Альтернатива>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Мой день
-02-Голод
-03-Здесь нет
-04-Рви свой круг(   Читать дальше...   )Жанр: Альтернатива, nu metalПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36BAC8DADE6EBFFCDFF132F4EFCEE66E104FB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100083   (900769) от 03.02.2017
-
-Вася Обломов - Долгая и несчастливая жизнь (2017) [MP3|320 Kbps] <Rock, Rap, Alternative Сhanson>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Порядок
-2. Во внутренней эмиграции
-3. Неясная поляна
-4. По широкому вопросов кругу(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C04AF5F1BB24504B29DBC3F3025B7A5D980DA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492691   (900673) от 31.08.2021
-
-Ai Mori - 57 Covers track (2019-2021) [MP3|192-320 Kbps] <Alternative, Rock, Punk-Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bellyache (Billie Eilish Rus Cover) (02:59)
-02. Losing Grip (Avril Lavigne Rus Cover) (03:47)
-03. E.T. (Katy Perry Rus Cover) (feat. Женя Hawk) (03:51)
-04. Runaway (Linkin Park Rus Cover) (03:03)(   Читать дальше...   )Жанр: Alternative, Rock, Punk-Rock, Post-HardcoreПродолжительность: 03:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA80841B04CD01D1B78413F6066362D5A3A614DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

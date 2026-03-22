@@ -1,3 +1,159 @@
+###  Публикация: 1342395   (225673) от 01.12.2019
+
+VA - Ibiza Winter Party 2020 (2019) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Ruland – Burning Down (feat Dana Kelson) (3:00)
+02. Eddy Chrome – Your Memory (Mister Shuffle edit) (2:55)
+03. Lost Heartbeat – Beach Love (2:57)
+04. Cheap Sunglasses – Your Energy (Ibiza Bitches edit) (3:20)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBDA354A02CE39AB4D4A663EAB6AD9295E35AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650762   (224759) от 03.08.2023
+
+VA - IBIZA 2023 (Deluxe Version) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_224759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mood 5 & Liana - Good 2 Me (Stardust Dub Mix) [5:54]
+02. Proone - Hold Me Close (Original Mix) [4:10]
+03. Raw Ordio - Love Her (Original Mix) [5:05]
+04. Lukas Steph & August Norr feat. Ruya Fanny - Be Free (Original Mix) [4:38](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A67E3D2B0BC655B2D93571C4319A4E1D172AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587120   (224747) от 10.12.2012
+
+VA - Deep Winter Chill (2012) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Francesco Demegni - Freedom in Light Dance - Original Mix (3:47)
+2. Bank Of Sound - Capital Minds - Beach Groove Mix (3:53)
+3. Blue Groove - Raspberry Colt - Jazzin Wth Anima Mix (3:50)
+4. Diskoo - Fax - House Mix (3:50)
+5. Jaquin Roraso - Stop the Sex - Da Bossa Mix (3:54)
+6. Tee Glam - Omni Passion - Glamorous & Gliter Mix (3:53)
+7. Anphibia - Kolhos - Free Jam Mix (3:49)
+8. Frank Phonic - Pratica - Chillhouse Da Editare (4:06)
+9. London Jazz Soul Project - Lovely Chillout - Piccadilly's Night Mix (3:53)
+10. Funk Da Jazz House - Daddy Now - Fdj Deephouse Mix (3:52)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE747A5C41CB9C479946B47B0374CED6963733F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965758   (224598) от 15.12.2015
+
+VA - Best Of Massive EDM Party (2015) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Stellar - The Prophecy [04:29]
+02. Hate & Love - Like Stars (feat. Firas Abi Ali) [06:44]
+03. Claus Backslash - Ibiza (Need U)Жанр: House, Progressive HouseПродолжительность: 03:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC14A040E1448E40F88B805608B0CB174670712E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586999   (224468) от 10.12.2012
+
+VA - Milano Fashion Nights: House Music Compilation (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Carbonero - Magnus
+02. Roberto Carbonero - Woman in Love - Stefano Albane
+03. Phreo - Passion
+04. Luca La Greca - Deep Breath
+05. Moreno Pezzolato - Word - Marcelo Tag Remix
+06. Lovework - Lady Deep - Main Mix
+07. Pavel Sheemano - Cow
+08. Alene Barret - You Come in the Night - Deep M
+09. Manuel Battista - What You Want
+10. Roberto Carbonero - Ellen(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A805FB7862434F40A399CEEB32D8FF17C8DB4A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585345   (222601) от 21.10.2022
 
 VA - ADE Highlights (2022) CD, Compilation [MP3|320 Kbps] <Melodic House & Techno, Deep Progressive, Electronica>
@@ -600,151 +756,6 @@ Unmixed
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FBFCDFEDA8583F39E1F78D09D9A6E627B3AD24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194074   (214031) от 23.12.2017
-
-VA - Dance On Abba - Remix Cover Collection Vol.2 (2017) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zaneta  -  Dancing Queen (Club Edit)  3:19
-02.  Donna M  -  Summer Night City (Club Edit)  3:44
-03.  Joey Flores  -  Chiquitita (Club Edit)  3:48
-04.  Charmin  -  Eagle (Club Edit)  3:52(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52E7C4F354CD7724D7D5764F819788F4E791FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831728   (212215) от 29.10.2025
-
-VA - ADE2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiddelozza - Fi 05:22
-02. Attican - Duplicity 06:02
-03. Foreign Lights - Whispering Pines 05:11
-04. Muuk' - Don't Do Anything 07:23(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A061B8085FFE88DC3AE768946A847BAECDABCCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831713   (212214) от 29.10.2025
-
-VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amlex - Be With You 02:40
-02. Tod Allen & Kris Kiss - Feelings 03:33
-03. Francesco Diaz, Radio Killer & Young Rebels - Clothes Off (Jeff Rock Remix) 06:09
-04. Muphus - Mahaba 03:35(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3E84A27FF2BC0FA7D09FC0DF287BD9BB017868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638174   (212103) от 07.06.2023
-
-VA - Ibiza Summer 2023: The Sounds Of The Island (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aribo - Worth The Wait (Plastik Funk Remix) [2:29]
-02. Mazza - Feel The Love (Original Mix) [3:03]
-03. El Mukuka & Mumba Yachi - The Harvest (Original Mix) [2:35]
-04. Nicky Jones - Vroom Vroom (Original Mix) [2:38](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7328112FB0EF188437D8626669C13893BA7710B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638557   (211896) от 09.06.2023
-
-Chicane - Nevertheless (2023) [MP3|320 Kbps] <House, Progressive House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - In One Ear & Out The Other (Extended Mix) [5:27]
-02. Chicane feat. Paul Aiden - Nevertheless (Extended Mix) [5:31]
-03. Chicane feat. The Mannequin - All This Time Alone (Extended Mix) [3:44]
-04. Chicane - LouBeeLou (Extended Mix) [5:04](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DD8FB9EBA71326E9794A1C83E46D2A23B36FB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

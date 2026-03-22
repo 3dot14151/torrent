@@ -1,3 +1,32 @@
+###  Публикация: 1464013   (1006398) от 17.07.2021
+
+Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapture of Massy (5:20)
+02. Your Tranquillity Matilda (4:51)
+03. Simmering Souls (6:01)
+04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar |Продолжительность: 04:48:21 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B58A024D6B9B6B8FF89C86AB3AED31A07E1F320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977149   (1006320) от 17.07.2021
 
 Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-set 3 CD [FLAC|Lossless|tracks+.cue] <Contemporary Instrumental, Instrumental Pop, Neo-Classical>
@@ -719,35 +748,6 @@ Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C5155E4E52221FE79CAE44871ECDB3A11FB09F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351984   (1001645) от 12.01.2020
-
-Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streets of Cobblestone
-02. Luminosity
-03. Dancing Light
-04. Fancy Free(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB5F9390FC8508EFD4B2FAEB440B063D47734E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

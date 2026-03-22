@@ -1,55 +1,22 @@
-###  Публикация: 485442   (89799) от 21.04.2012
+###  Публикация: 479459   (98826) от 07.04.2012
 
-VA - 100% Rap Francais (2012) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89799.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - 100% Rap Francais (2012)
-Год: 2012
-Жанр: Rap
-Продолжительность: 01:38:45Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:
-01 Sexion D’assaut – Excellent Feat H Magnum (03:53)
-02 Sniper – J’essaye D’oublier (05:02)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60A3F6B1BFC0FEE9374FF768E03460C3B8FCFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485851   (89794) от 21.04.2012
-
-Елена Кулик | Судьба или проклятие [2012] [FB2]
+[Wallpapers] Computer Desktop Wallpapers Collection (07.04.12)
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89794.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто из нас не мечтал найти того единственного, при взгляде на которого сердце замирает, а в душе разгорается пожар? Кто не мечтал о любви, которой не страшны века и пространство? А что, если эта мечта исполнится? Что, если ваш единственный придет из другого мира, да будет еще и не совсем человек, у которого к тому же куча врагов и проблем? Что тогда? Отказаться от мечты или встать рядом с ним и окунуться с головой в этот новый, пусть и страшный, но такой завораживающий мир, в котором есть и вампиры, и оборотни, и императоры, и загадка, которую только ты можешь разгадать.2012Жанр: ФантастикаФормат: FB2
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1ECA4AE30C90C10850847EC55CB690B85F0BA16
+magnet:?xt=urn:btih:785824954076D2B64F5101F049765558BF11A591
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,147 +24,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485819   (89792) от 21.04.2012
+###  Публикация: 479432   (98825) от 07.04.2012
 
-Верящий в правду (Истинно верующий) / True Believer (1989) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой юрист, только закончивший учебу, устраивается ассистентом к преуспевающему адвокату, работой которого он вохищался многие годы. Выясняется, что этот «профессионал» растерял былой энтузиазм, и сейчас проводит время, вытаскивая торговцев наркотиками из тюрьмы. Однако появляется интересное дельце. К ним обращается мама паренька, осужденного на пожизненное заключение (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Джозеф РубенАктеры: Джеймс Вудс, Роберт Дауни мл., Маргарет Колин, Юдзи Окумото, Кертвуд Смит, Том Бауэр, Мигель Фернандес, Чарльз Хэллахан, Салли Диаз, Мисан Ким, Джон Снайдер, Луис Гузман, Грэм Беккел, Тони Хейни, Джоэл Полис, Уилл Маркетти, Эбигейл Ван Элин, Дебора Оффнер, Томас Вагнер, Ричард Фэнси, Курт Фуллер, Джинджер Чунг, Джерри Бэммен, Чарльз Дин, Гюстав Джонсон, Кэб Ковей, (   Читать дальше...   )Перевод: Профессиональный двухголосыйПродолжительность: 01:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62FCE8062D1713767094A03ECCC9977AF9A2853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486078   (89790) от 21.04.2012
-
-В.В.Турыгин | Кубанская кухня [1988] [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубанская кухня своеобразна. В книге приведены многие рецепты, даны советы домашней хозяйке.1988Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC2974E56859BEE45B0F010E131CC4655D0E092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485863   (89789) от 21.04.2012
-
-VA - Плэйлист Love Radio (2012) [PCM|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89789.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bunhead - Am The Best (Kuba S Remix)
-002 Натаника - Замужняя Девушка
-003 Jennifer Lopez feat. Pitbull - Dance Again (Extended Mix)
-004 Шима - Океан
-005 Star Mind - Japanese Boy
-006 DJ Richi - Пляж (Radio Mix)
-007 Ellie Goulding - Lights (Sex Ray Vision Remix)
-008 Ани Лорак - Я Буду Солнцем
-009 Leyla - Fallen Angels
-010 Евгения Власова - Красивые и Богатые2012Жанр: PopПродолжительность: 06:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A11E539F1BA2D98954C57F7271D1F733118ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486061   (89784) от 21.04.2012
-
-VA - Жаркие Танцы. Europa Plus (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89784.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кристина Орбакайте И Thomas N'evergreen - Тайна Без Тайн (Dance Version) (3:50)
-2. Жасмин - Тук-Тук (3:18)
-3. Sasha Lopez & Andreea D. Feat. Broono - All My People (3:47)
-4. Eugene Star - Electro Pavlik(Mem Mix) (3:41)
-5. Макsим - Осколки (Dj Viduta & Dimixer Remix) (4:08)
-6. My Project - Не Говори (4:08)
-7. Dj Sava Feat. Andreea D & J. Yolo - Money Maker (3:45)
-8. David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (3:12)
-9. Анна Седокова - Love U (3:03)
-10. Дядя Жора - Губки Уточкой (3:21)2012Жанр: PopПродолжительность: 05:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D13C0EAF991EE3703673B41CC753F238597633F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486167   (89781) от 21.04.2012
-
-Призрак матери / Ghost Mother (2007) DVDRip
+[Wallpapers] HD Wallpapers №7
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89781.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После того, как мать сбежала со своим новым мужем за границу, а отец погиб, убитый мафией, Нан становится единственным близким человеком для своих трех племянников. Чтобы содержать их, она продает соевое молоко и жареную сдобу, но денег не хватает и она начинает подрабатывать швеёй. А в это время, мафия ищет свои пропавшие наркотики...и в своих поисках они приходят к Нан, чтобы узнать, не знает ли она, где спрятан их товар. В итоге, девушка жестоко убита, но ее дух неспокоен, поскольку она не может бросить своих племенников без заботы и защиты...а убийц без наказания.Жанр: Ужасы, ДрамаРежиссер: Тарасорн СирипарнварапорнАктеры: Патчарапа Чайчура, Сана Суттикамон, Фокус Джиракул, Натниша ЦердчообуфакариПеревод: DeadSnoПродолжительность: 01:24:04
+[Wallpapers] HD Wallpapers №7
+Название: HD Wallpapers №7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A97232E152EDA7961087BBBDB14EF1142232A5E
+magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -205,32 +54,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484380   (89780) от 21.04.2012
+###  Публикация: 479752   (98823) от 07.04.2012
 
-Dream Theater - Systematic Chaos (2007) [AC3 5.1|tracks (DVD-Video)]<progressive metal, progressive rock, metal>
+[Wallpapers] Desktop Wallpapers №13
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89780.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 In The Presence of Enemies Part I  9:00
-02 Forsaken  5:35
-03 Constant Motion  6:55
-04 The Dark Eternal Night  8:53
-05 Repentance  10:43
-06 Prophets of War  6:00
-07 The Ministry of Lost Souls  14:57
-08 In The Presence of Enemies Part II  16:382007Жанр: progressive metal, progressive rock, metalПродолжительность: 01:18:46
+[Wallpapers] Desktop Wallpapers №13
+Название: Desktop Wallpapers №13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D9BAF0AA08F722528EC4E09E305DC74044BCFBA
+magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,34 +84,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485675   (89779) от 21.04.2012
+###  Публикация: 479700   (98822) от 07.04.2012
 
-VA - Звезды дискотек. Хитовый взрыв (2012) [MP3|256 кб/с]<Pop>
+[Wallpapers] Anime Wallpaper (08.04.12)
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89779.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Светлана Лобода - Ты Самый Любимый На Свете (Dj Amor Remix) (6:33)
-2. Сергей Жуков & Opium Project - Я Буду С Тобой (4:22)
-3. Issy feat. David Goncalves - You and Me (3:24)
-4. Юрий Шатунов Vs. Eminem - Детство Without Me (Cj Koka Mix) (3:33)
-5. Mixi - Только Я И Ты (Dj Val Remix) (3:46)
-6. Dan Balan - Лишь До Утра (Special Mix) (3:09)
-7. Lenny B, Roxxett - Hysteria (Original Mix) (6:52)
-8. Maria Maria - Ты Обо Мне Не Вспоминай (Icebird Remix) (3:14)
-9. Шахзода Feat. Sean Bay - Flying Tonight (Radio Edit) (4:42)
-10. Алеся Муха - Где Ловить Мечту (Dj Jurij Extended Remix) (5:15)2012Жанр: PopПродолжительность: 06:48:38
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85C091AFEEC28687FC3FE26C6C889E5981B8D39C
+magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,34 +110,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485991   (89774) от 21.04.2012
+###  Публикация: 478461   (98820) от 07.04.2012
 
-VA - Lounge Music Collection - All for love (2010) [MP3]<Chillout, Lounge>
+Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89774.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Michel Petit — Rhode Island
-2. Solar Cycle — Others
-3. Mister O — Come Clean
-4. Blank and Jones — Revealed
-5. Jojo Effect — I Long for You
-6. Mehmet Cemal Yesilcay — Eternal Existance
-7. Cantoma — Essarai
-8. Bedroom Affairs — Love Lounge (Erotic Escapades Mix)
-9. Alejandro de Pinedo — Cancer
-10. Green Tea — Cruise Control(   Читать дальше...   )2010Жанр: Chillout, LoungeПродолжительность: 04:08:17
+01.Tomas Heredia- Hurricane (Radio Edit)
+ 02. Max Graham feat. Susana-Down To Nothing ({am} Extended Mix)
+ 03. Solarstone & Haris C-Ultraviolet (Haris C Mix)
+ 04. Meridian vs. Arctic Moon vs. ReOrder-Smile In Biscay Bay (LarSson & Lucas Comes Mashup)
+ 05. Running Man & Ahmed Romel-Azure (Running Man Edit)
+ 06. John OCallaghan-Psychic Sensor (Indecent Noise Remix)
+ 07. Talla 2XLC-Salvation (Club Mix)
+ 08. Keelin Temple vs Heatbeat-Iridescent (Reach & Height Rosary Mashup)
+ 09. Skylight-Autumn Wonderland (Aero 21 Remix)
+ 10.  7 Baltic-Hidden Life (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9CE5E31925840CA9222FED98F72F09CDA25944C
+magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,21 +145,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485907   (89773) от 21.04.2012
+###  Публикация: 479466   (98819) от 07.04.2012
 
-В. Махно | Соусы, кетчупы, приправы [2004] [DJVU]
+[Wallpapers] Best Wallpapers (07.04.12)
 
->>Разное (категория книг)
->>Кулинария
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89773.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге описаны основные виды пряностей и предложены рецепты разнообразных соусов, которые способны придать тонкий и пикантный вкус любому блюду.Формат: DJVU
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479679   (98816) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98816.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №5
+Название: Desktop Wallpapers №5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479683   (98815) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98815.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №7
+Название: Desktop Wallpapers №7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479732   (98814) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98814.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №11
+Название: Desktop Wallpapers №11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479579   (98812) от 07.04.2012
+
+Совершеннолетие Рунета: 7 апреля 2012 года доменной зоне .Ru исполнилось 18 лет
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98812.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+7 апреля домен .Ru празднует 18-летие. Именно в этот день в 1994 году состоялось официальное открытие национальной доменной зоны. Первый зарегистрированный ресурс 1-9-9-4.ru. До этого все отечественные сетевые ресурсы размещались на международных доменах и в зоне Советского союза .SU. В свое совершеннолетие домен продолжает удерживать позицию самого популярного в России, уверенно перешагнув отметку в 3,5 миллиона регистраций. В честь дня рождения Рунета ведущий аккредитованный регистратор доменных имен REG.Ru напомнил об основных этапах становления доменной зоны.Активная регистрация доменных имен коммерческого назначения началась еще в 1996 году, но сегодня старожилов почти не осталось – основную часть регистраций (почти 40%) составляют домены, зарегистрированные в зоне .RU менее года назад. Старейшим действующим доменом в национальной зоне .Ru признан сайт nostalgie.ru.С 2006 по 2008 год зона .Ru динамично развивалась: если в 2006 году число зарегистрированных доменов составляло чуть более 718 тысяч, то уже (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -334,34 +288,69 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485860   (89765) от 21.04.2012
+###  Публикация: 478466   (98811) от 07.04.2012
 
-VA - 100% Автохит Клубный (2012) [MP3|256 кб/с]<Dance, Club>
+Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Se.Ra.Phi (2007)- After The Last Breath (Se.Ra.Phics Epic Version)
+ 02. Stuart Trainer-Surrender (Original Mix)
+ 03. Rene Ablaze & Tonerush-Sulaco ({am} Extended Mix)
+ 04. Endre (2004)-Kallocain (Robert Nickson Remix)
+ 05. Dorius-One Day In Tuva (Original Mix)
+ 06.  Aly & Fila-200 (Fsoe 200 Anthem) (Original Mix)
+ 07. Max Braiman-Origins (Amir Farhoodi Remix)
+ 08. Lisko-End Of Summer (Peter Plaznik & Tech Trek Remix)
+ 09.  Subimpact-End Of An Age (Vahab Bandari Remix)
+ 10.  Subimpact-Rockin (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278C968CC144B35FC3880994D48753F76201A5A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478648   (98806) от 06.04.2012
+
+VA - High Heels Feeling Vol 3: Finest Lounge Music For Intimate Relaxation & Pleasure (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89765.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 89ers - Go Go Go Go! (Ti-Mo Remix Edit)
-02 Crystal Lake vs. Manian - FAQ (Manian Video Edit)
-03 Alyssa Reid feat. Jump Smokers - Alone Again (Steve Smart And Westfunk Radio Edit)
-04 Scotty - Children (Club Mix Edit)
-05 Cascada - Night Nurse (Ryan Thistlebeck Vs. Dan Winter Radio Edit)
-06 2-4 Grooves feat. Amina - Melodie (Radio Version)
-07 Antoine Clamaran & Vince M. feat. Soraya - Feeling You (Radio Edit)
-08 Christopher S feat. Max Urban - Star (Radio Edit)
-09 Mario Lopez - I Can Stand It (Move Town Radio Edit)
-10 Jens O - Body & Soul (Radio Edit)2012Жанр: Dance, ClubПродолжительность: 06:01:40
+01. Solanos - Palabras y Sentimientos
+02. Blue Wave - Falling Skies
+03. The Sura Quintet - Walking On the Sand
+04. Don Gorda Project - Take a Rest
+05. Enrico Donner - Temptalizing Me (Feat. Judy Georges)
+06. Christian Hornbostel - Schakunta - Bossamba Mix
+07. Cane Garden Quartet - Love Goddess
+08. Diario - What I Would Miss About You
+09. Arrojas - The Last Day of Summer
+10. Aquarius - Dissonant Looks(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDAACBDD1D36BED0B224915919398B236D9A5299
+magnet:?xt=urn:btih:E136F225F69DC810C214186EE3B7EE0382DEDCC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,29 +358,383 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486097   (89761) от 21.04.2012
+###  Публикация: 479244   (98805) от 06.04.2012
 
-Dark Tranquillity - Zero Distance [EP] (2012) [MP3|320 кб/с]<Melodic Death>
+VA - Dash Berlin Top 20 April (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98805.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Dash Berlin Top 20 April (2012)Год: 2012
+Жанр:Trance
+Продолжительность: 02:35:16Кодек: MP3
+Битрейт:320 кб/с
+Тип битрейта: CBRТрек лист:
+1. James Dymond - Sunset Bench (Original Mix) (8:28)
+2. Cerf, Mitiska & Jaren with Rank 1 - Witness (Tomas Heredia Remix) (7:37)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478787   (98804) от 06.04.2012
+
+Природа зверя / The Nature of the Beast (1995) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен Джек подбирает в окрестностях Невады «бродягу» Эдриана. Эдриен оказывается слишком назойливым попутчиком, и Джек хочет избавиться от него. Но Эдриена не так-то просто потерять из виду, потому что он знает один страшный секрет Джека и грозится сообщить об этом в полицию.
+
+В это время по радио в машине передают криминальные новости: в районе орудует серийный убийца по прозвищу Рубщик. Возможно, или Эдриен или Джек, и есть убийца, но природа зверя раскроется лишь к концу фильма…Жанр: Ужасы, Триллер, ДетективРежиссер: Виктор СэлваАктеры: Эрик Робертс, Лэнс Хенриксен, Саша Дженсон, Ана Гэбриэл, Илой Касадос, Брайон Джеймс, Лайла Гэрретт, Фрэнк Новак, Элиза Робертс, Эрл Теро, Уильям Э. Темпл, Холлэс Колберн, Лин Шэй, Сэра Янг, Боб МэйПеревод: Одноголосый закадровый (Михаил Иванов)Язык субтитров: английский, испанскийПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478657   (98798) от 06.04.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №24 (2012.04.05) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98798.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13854D1DF1633D6D63537FC6F5C9363A40F7AF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478597   (98797) от 06.04.2012
+
+LibreOffice 3.5.2 Final [Мульти, Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98797.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice - новое имя пакета офисных приложений OpenOffice.org. Разработчики пакета программ OpenOffice объявили о создании независимой организации The Document Foundation, в рамках которой они продолжат разрабатывать свои приложения, но уже под названием LibreOffice. Программы OpenOffice.org - это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; Calc – электронные таблицы; Impress - создание и просмотр мультимедийных презентаций; Draw - редактор векторной графики; Math – редактор математических формул. Одно из крайне положительных качеств - возможность работы всех этих приложений с соответствующими документами форматов MS Office.Название программы: LibreOfficeЯзык интерфейса: Мульти, Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478936   (98795) от 06.04.2012
+
+Wise Registry Cleaner 7.14 build 451 Final + Portable [Multi(Rus)]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478450   (98793) от 06.04.2012
+
+Nothgard - Warhorns Of Midgard (2011) [FLAC|Lossless]<Viking Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lex Talionis (4:38)
+02. Arminius (5:14)
+03. Under The Serpent Sign (4:08)
+04. Einherjer (5:33)
+05. Shadows Arise (2:09)
+06. Blackened Sky (6:02)
+07. Victory (3:57)
+08. Warhorns of Midgard (5:29)
+09. Spirit (3:38)
+10. Ancient Heritage / Modern Warriors (5:08)(   Читать дальше...   )Жанр: Viking Folk MetalПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478922   (98790) от 06.04.2012
+
+Журнал | Звёзды и совет № 9 [март 2012] [JPEG]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женский журнал, в котором можно почитать о жизни звезд, а так же их советы на различные темы.март 2012Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9216A87DAFB3079FF65B43B7D3CF4526072CE8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478972   (98787) от 06.04.2012
+
+Forodwaith - Nirnaeth Arnediad (2010) [MP3|320 кб/с]<Fantasy/Folk/Melodic Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Intro (03:10)
+02. - Nirnaeth Arnediad (07:41)
+03. - Morgoth (04:45)
+04. - Stone Guardian (04:39)
+05. - Saga (06:52)
+06. - Death And Beer (04:22)
+07. - The White Tower (04:01)
+08. - Horn Of Gondor (05:11)
+09. - Revenge Of Mjolnir (04:51)
+10. - Valhalla Feast (05:41)2010Жанр: Fantasy/Folk/Melodic Death MetalПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5742F82D34552230855A9D9153D23CCEB32467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479136   (98782) от 06.04.2012
+
+Журнал | АиФ. Спецвыпуск. Общество №4 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди с ограниченными возможностями - такие же полноправные члены общества, как и все. И в то же время у инвалидов есть свои права, которые полезно знать, и даже свои льготы.
+Что могут инвалиды? На какую поддержку они вправе рассчитывать? Как меняется социальная среда с учетом их потребностей? Об этом в нашем спецвыпуске расскажут юристы, официальные лица и активисты общественных организаций.
+Также вы прочитаете удивительные истории мужественных людей, которые, несмотря на травмы и болезни, смогли состояться в профессии, стать полезными другим людям и обрести счастье.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9282A0D61E4C4FD4C0A03107AC27595D6A331284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478753   (98774) от 06.04.2012
+
+VA - Big City Trance Volume 24 (05.04.2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squarz Kamel - Crystal (Original Mix)
+ 02. DJ Mikas & DJ Sage - Shaken Not Stirred (Original Mix)
+ 03. Dave Horne - Light & Dark (Original Mix)
+ 04. Artento Divini - Adhd (Original Mix)
+ 05. Des McMahon - Raven (Original Mix)
+ 06. Avion - Brilliant (Original Mix)
+ 07. David Forbes - Yasai (Original Mix)
+ 08. Euphoric Feel - Trip To India (Original Mix)
+ 09. Erick Strong - Stars
+ 10. Dart Rayne - Luminescence (Original Mix)(   Читать дальше...   )05.04.2012Жанр: TranceПродолжительность: 02:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B22E36ECBE23FDE758940862B66E6CC315129EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478635   (98773) от 06.04.2012
+
+Wise Disk Cleaner v7.17 build 474 Final + Portable [Multi(Rus)]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478106   (98772) от 06.04.2012
+
+VA - French Plaisir - compiled by Drenan (2008) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time In Motion - Magic Corner 08:20
+02. Kularis - Uf7 06:36
+03. Mute - Space N Time 08:42
+04. Dualism VS. Meeloo - Rest In Panic (Xahno Rmx) 07:29
+05. Davina - Special Sakaya 08:35
+06. Cyklones - Find Your Own Reality 07:04
+07. Midimal - Over & Out (Klopfgeister Rmx) 07:46
+08. Badbug - Beating Wood 07:50
+09. Phaxe - Secret Effects 08:322008Жанр: Psychedelic / ProgressiveПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478848   (98771) от 06.04.2012
+
+Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-Metal / Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89761.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Zero Distance [00:04:30]
- 02 - Out Of Gravity [00:04:32]
- 03 - Star Of Nothingness [00:02:07]
- 04 - To Where Fires Cannot Feed [00:03:51]
- 05 - The Bow And The Arrow [00:03:53]2012Жанр: Melodic DeathПродолжительность: 00:18:54
+01. Agnostic Demon (8:39)
+ 02. Liminality (6:27)Жанр: Sludge Post-Metal / HardcoreПродолжительность: 00:59:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FA42DA3422A47B4E9CCC2D194C9B29B871F5C9F
+magnet:?xt=urn:btih:9FE8F84871D57103ACBDC136FBB1F62E4789F894
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,354 +742,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485355   (89759) от 20.04.2012
+###  Публикация: 478706   (98770) от 06.04.2012
 
-Botanicula [Ru] (RePack) 2012 l Naitro
+[Wallpapers] Computer Desktop Wallpapers Collection (06.04.12)
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89759.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это история о последнем семени умирающего дерева, изнуренного нашествием злобных паразитов. Пять удивительных созданий отправляются в путешествие от его верхушки к самым корням, чтобы спасти от гибели свой любимый дом... В двух словах, Botanicula - это интереснейшие исследования, множество занимательных забавных головоломок, незабываемые знакомства со странными (симпатичными и не очень) существами, чарующая музыка... И все это - на одном необыкновенном огромном растении!Тип издания: RePackЖанр: AdventureЯзык озвучки: Музыкальное сопровождениеЯзык интерфейса: Русский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A51DF5BFAFF671C05D72F1FFBDAE171258DD3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485459   (89758) от 20.04.2012
-
-Windows 7x86 Ultimate UralSOFT & miniWPI v.4.8.12 (2012) (Rus)
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка сделана на основе оригинального образа:Название программы: Windows 7x86 Ultimate UralSOFT & miniWPI v.4.8.12Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483052   (89756) от 20.04.2012
-
-Евгений Линский | Уроки C++ - Первый семестр [2011] Web-Rip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продвинутый видеокурс по языку C++. Все структуры в курсе адаптированы под компилятор GCC(Linux). В данном торренте приведен 1-й семестр курса. Сама структура курса приведена ниже. Рекомендую к просмотруЖанр: ПрограммированиеПродолжительность: 16:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69649CDC369D99269DCFB87D8933B55B4D70AD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485366   (89752) от 20.04.2012
-
-Mathworks Matlab R2012a 7.14 [x86 + x86_x64] (iso)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык программирования для инженерных и математических расчетов. Обширная библиотека функций упрощает работу (в частности графическое отображение данных)
-MATLAB – это высокоуровневый язык технических расчетов, интерактивная среда разработки алгоритмов и современный инструмент анализа данных. MATLAB по сравнению с традиционными языками программирования (C/C++, Java, Pascal, FORTRAN) позволяет на порядок сократить время решения типовых задач и значительно упрощает разработку новых алгоритмов. MATLAB представляет собой основу всего семейства продуктов MathWorks и является главным инструментом для решения широкого спектра научных и прикладных задач, в таких областях как: моделирование объектов и разработка систем управления, проектирование коммуникационных систем, обработка сигналов и изображений, измерение сигналов и тестирование, финансовое моделирование, вычислительная биология и др.
-Ядро MATLAB позволяет максимально просто работать с матрицами реальных, комплексных и аналитических типов данных. Содержит встроенные (   Читать дальше...   )Название программы: Mathworks Matlab R2012aЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485308   (89750) от 20.04.2012
-
-[Xbox 360] The Witcher 2: Assassins of Kings [FullRUS] (XGD3) (LT+2.0) (PAL) (2012)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть саги о ведьмаке из Ривии — интересная и глубокая история с нелинейным сюжетом.
-
-Предотвратив убийство короля Фольтеста, Геральт оказался вовлечен в политические интриги. Но его главной задачей, так или иначе, остается защита жизни монарха, а для этого Белому Волку предстоит выяснить, кто же организовал покушение и подослал таинственного убийцу с «ведьмачьими» глазами.
-
-Все, что принесло мировую славу «Ведьмаку», было сохранено и усовершенствовано во второй части. Харизматичный герой, сложное повествование, уникальные графические решения — все это сделает игровой процесс необычайно захватывающим.Тип издания: ЛицензияРазработчик: CD Projekt REDЖанр: RPG / 3D / 3rd PersonЯзык интерфейса: RUS (текст+звук)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F1422286471A41F2AFBC6D6BFABD9CF6133694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485472   (89748) от 20.04.2012
-
-Интерны. Серия №117 (2012) WEBRip
-
->>След.
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои ситкома – четыре интерна. Они все время попадают в идиотские ситуации, а их руководитель доктор Быков (Охлобыстин) с удовольствием за этим наблюдает. Доводить интернов до белого каления Быкову помогает друг доктор Купитман и мешает главврач больницы Анастасия Кисегач. Почти все сюжеты взяты из реальной врачебной практики. Роль доктора, который помимо своей воли становится руководителем практики у четырех оболтусов-интернов, играет Иван Охлобыстин. (   Читать дальше...   )Жанр: КомедияРежиссер: Максим Пежемский, Заур БолотаевВ ролях: Иван Охлобыстин, Вадим Демчог, Светлана Камынина, Александр Ильин мл., Кристина Асмус, Илья Глинников, Дмитрий ШаракоисПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485375   (89747) от 20.04.2012
-
-Pole Position 2012 [Multi5-] (L) 2012 | FairLight
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Качественный симулятор менеджера - это большая редкость. Именно этот факт и побудил компанию destraX Entertainment разработать свой собственный продукт. Вам предстоит взвалить на свои хрупкие плечи управление собственной командой, которая принимает участие в гонках формула 1. Как известно, жизнь команды состоит не только из гонок и красивых выступлений. За всей красотой стоит длительная и кропотливая работа, которая заключается в огромном количестве элементов.
-
-Вам предстоит взять на себя управление всеми акспектами команды, начиная от поиска пилотов для болидов, и заканчивая техническим оснащением машин. Бюджет команды так же целиком является вашим бременем: необходимо правильно распределить ресурсы как на тренировку команды, так и на техническое оснащение машин. Дерево технологий значительно улушилось по сравнению с предыдущими играми серии. Теперь количество улучшений достигает 100 единиц.
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy (Manage/Busin.) / Racing / Sport / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EF4C67BB5E404A27485992A1BFAD8332E3BFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485303   (89745) от 20.04.2012
-
-SamDrivers 12.4 Final - Сборник драйверов для Windows x86/x64 [2012, MULTILANG+RUS, Full-Files]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник драйверов от SamLab.ws для всех 32-х и 64-битных Windows от Windows 2000 до Windows 8 (кроме XP x64) включая серверные платформы. В качестве оболочек-установщиков использованы программы DriverPack Solution 12.3.255 / Drivers Installer Assistant 3.4.16 / DriverX 1.88 для автоопределения вашего оборудования и автоматической установки необходимых драйверов! В сборник включены самые актуальные на данный момент драйверы собранные лично SamLab. Не путать этот пакет с драйвер-паками от Bashrat'a - текущие драйверы новее и стабильнее других т.к. SamLab являясь членом команды Bashrat имеет возможность зная о всех проблемах аналогичных пакетов создавать свой набор наиболее полным и бесконфликтным!Тип издания: Бесплатные и портативные драйвера с автоустановкойЯзык интерфейса: Русский и другие языки
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485296   (89743) от 20.04.2012
-
-SamDrivers 12.4 Final - Сборник драйверов для Windows x86/x64 [2012, MULTILANG+RUS, DVD-ISO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник драйверов от SamLab.ws для всех 32-х и 64-битных Windows от Windows 2000 до Windows 8 (кроме XP x64) включая серверные платформы. В качестве оболочек-установщиков использованы программы DriverPack Solution 12.3.255 / Drivers Installer Assistant 3.4.16 / DriverX 1.88 для автоопределения вашего оборудования и автоматической установки необходимых драйверов! В сборник включены самые актуальные на данный момент драйверы собранные лично SamLab. Не путать этот пакет с драйвер-паками от Bashrat'a - текущие драйверы новее и стабильнее других т.к. SamLab являясь членом команды Bashrat имеет возможность зная о всех проблемах аналогичных пакетов создавать свой набор наиболее полным и бесконфликтным!Тип издания: Бесплатные и портативные драйвера с автоустановкойЯзык интерфейса: Русский и другие языки
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485316   (89742) от 20.04.2012
-
-The Witcher 2: Assassins of Kings [XBOX360] [RUSSOUND] [XGD3] [LT+3.0] [PAL] (2012)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть саги о ведьмаке из Ривии — интересная и глубокая история с нелинейным сюжетом.
-
-Предотвратив убийство короля Фольтеста, Геральт оказался вовлечен в политические интриги. Но его главной задачей, так или иначе, остается защита жизни монарха, а для этого Белому Волку предстоит выяснить, кто же организовал покушение и подослал таинственного убийцу с «ведьмачьими» глазами.
-
-Все, что принесло мировую славу «Ведьмаку», было сохранено и усовершенствовано во второй части. Харизматичный герой, сложное повествование, уникальные графические решения — все это сделает игровой процесс необычайно захватывающим.Тип издания: ЛицензияРазработчик: CD Projekt REDЖанр: RPG / 3D / 3rd PersonЯзык интерфейса: RUS (текст+звук)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3573B6BB51A5A9E306E162A92C3DE0836D2E0D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485370   (89738) от 20.04.2012
-
-[Xbox360] Prototype 2 [ENG] (RegionFree) (XGD3) (LT+3.0) (2012)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вырвавшийся на свободу смертоносный вирус превратил мегаполис в преддверие ада. Разделенный на зоны безопасности, город стал огромной ловушкой. Часть улиц контролируют военные, уничтожающие любое проявление заразы. Остальные районы превратились в «красную зону» – обиталище мутантов, безжалостно пожирающих своих жертв. Где-то там, среди разрушенных зданий, скрывается Алекс Мерсер, главный виновник распространения вируса. А теперь туда стремится и бывший сержант Джеймс Хеллер, жаждущий отомстить за свою семью, погибшую в первые дни катаклизма. Добро пожаловать в Нью-Йорк Зеро. Сезон охоты открыт.Тип издания: ЛицензияРазработчик: Radical EntertainmentЖанр: Action / 3D / 3rd PersonЯзык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04E25DEE97F28C0E785D337AE9FB5256B29EE56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484587   (89737) от 20.04.2012
-
-[Xbox 360] Knights Contract [PAL] [RUS] (2011)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много лет назад все церкви Европы вели войну против демонов и ведьм. Но среди защитников добра не было равных Хайнриху. Он всегда отличался своей силой и упорством, которое помогало ему в схватках с врагом. Но он не сумел уберечь себя от проклятия молодой женщины, которая делает главного героя бессмертным.
- Так и жил Хайнрих столетия...Однажды доктор Фауст начинает воплощать свой план по захвату этого мира. Он создаёт полчища чудовищ, ещё более ужасных чем демоны. И здесь главный герой знакомится с Гретхен, которая может снять с него это проклятье. Но услуга за услугу: она хочет, чтобы Хайнрих помог ей в войне против Фауста.2011Жанр: ActionЯзык интерфейса: Русский Текст
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485490   (89736) от 20.04.2012
-
-Григорий Лепс: Научись летать Live (2011) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89736.jpg" />
-</div>
-
-
-###  Подробнее
-
-23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
-02. Клуб одиноких сердец подполковника Пеппера
-03. Зима
-04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:E0640CD762F89935CFF4CC433834717727A0E3D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

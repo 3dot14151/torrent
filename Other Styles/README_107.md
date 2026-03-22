@@ -1,3 +1,148 @@
+###  Публикация: 1320310   (471248) от 18.08.2019
+
+Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/Electronica>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471248.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fractures and Lifts (Переломы и подъемы)
+2. Wastelands and Heights (Пустоши и вышины)
+3. Pegs and Fortresses (Колышки и крепости)
+4. Chains and Gaps (Цепи и провалы)(   Читать дальше...   )Жанр: Metal/Intumental/Neo-classic/ElectronicaПродолжительность: 00:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EC7A085312904C82DD1F5458CEF71EC87FD528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406845   (470521) от 05.09.2020
+
+Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470521.jpg" />
+</div>
+
+
+###  Подробнее
+
+[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
+[05:16] 02. Ludwig Goransson - WINDMILLS
+[02:16] 03. Ludwig Goransson - MEETING NEIL
+[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401FFC49F2AD778E0654C0045F9D693A7C73894C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406846   (470506) от 05.09.2020
+
+Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470506.jpg" />
+</div>
+
+
+###  Подробнее
+
+[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
+[05:16] 02. Ludwig Goransson - WINDMILLS
+[02:16] 03. Ludwig Goransson - MEETING NEIL
+[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D562F6C42A86FEF3603C273D5DD3469A800E9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245792   (469966) от 07.09.2018
+
+Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Brahms' Lullaby
+02 A Time for Us
+03 Time Has Made You a Memory
+04 Taps(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF40777EB0B25918A44F2C736AE1AA112D1BB286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245658   (469895) от 07.09.2018
+
+Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Steps
+02. Sunsets
+03. Reflections
+04. When I Was Young(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542C84A40A0FD29150AC94A030A187217DB8EF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245739   (469888) от 07.09.2018
 
 VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s (2007) [FLAC|Lossless|tracks + .cue] <Folk Rock, Bossanova, MPB, Latin Jazz>
@@ -615,148 +760,6 @@ The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3B6F3E52B1302A0DBDEBCFAC6702F2AB739B22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246188   (465481) от 09.09.2018
-
-Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Called To Say I Love You
-02. I'm Not In Love
-03. Sailing
-04. Medley: For All We Know \ We've Only Just Begun(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832B418C186229136572BFC724E4BD14AC1E0987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824372   (464992) от 25.09.2014
-
-VA - Новая рождественская сказка / Scrooged (2001 (1988)) [FLAC|Lossless] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annie Lennox & Al Green - Put A Little Love In Your Heart
- 02. Mark Lennon - A Wonderful Life
- 03. New Voices Of Freedom Feat. Adriane McDonald & George Pendergrass - Sweetest Thing
- 04. Dan Hartman & Denise Lopez - The Love You Take(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423D3F4B3094D1D112F9C8CF60903114AC15B75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161410   (464913) от 29.08.2017
-
-Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - Cat People (Putting out Fire) (06:43)
-02. Peter Schilling - Major Tom (vollig losgelost) (04:59)
-03. HEALTH - Blue Monday (04:46)
-04. Tyler Bates - C*cks*cker (01:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934B8BF86FA20B33CB2B315AC3B8827AE087FB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387372   (464673) от 14.09.2011
-
-Cristina Branco - Коллекция, 9 альбомов (1998-2011) [MP3|320 kbps]<Fado, Tango>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристина Бранко – непревзойденная португальская исполнительница песен фадо, певица с мировым именем.Печальные песни о любви не нуждаются в переводе, а глубокий проникновенный голос певицы, ее сдержанно-сосредоточенная манера зачаровывают публику. Ее исполнение фадо переносит слушателей в мир чистой красоты, удивительного голоса, вокальный тембр которого так многообразен и выразителен, что певица может выступать без микрофона или инструментального сопровождения.В традиционные формы Кристина привносит элементы других музыкальных стилей и направлений – босанова, джаз, американский блюз. В группу Кристины Бранко входят замечательные музыканты: это лучший в мире португальский гитарист и фадо-композитор Кустодио Кастелло, гитарист Александре Силва, бас-гитарист Фернандо Майя, а также пианист Риккардо Диас.1998-2011Жанр: Fado, TangoПродолжительность: 07:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF31B84B8E500D60596901F9F58829072386B4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941214   (464606) от 26.09.2015
-
-Benjamin Richter - The Grand Momentum (2015) [MP3|320 кб/с]<Piano, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Grand Momentum
-02. Hollow Life
-03. Enjoy the Silence Sonata
-04. Piano Morte(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442206A7433E977FB46DFEA59F03F08BCF770FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1733407   (107304) от 28.06.2024
+
+MEDUZA & Alec Monopoly - Live @ Our House Pre-Party, Cafe Mambo Ibiza, Spain (2024-06-21) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+02. HELLMATE & Santiago & Carlitos & Chantal Lewis-Brown - Show Me Love
+03. Marshall Jefferson & Solardo - Move Your Body
+04. Jerry Ropero & Denis The Menace ft. Jaqueline - Coraçao(   Читать дальше...   )Жанр: HouseПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6379562532FFB0BCB7D5B5E10089C408A2C33917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733153   (107300) от 28.06.2024
+
+VA - Armin van Buuren - A State Of Trance 1179 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rivo vs. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Tune Of The Week)
+02. Kyau & Albert - Cascading Waterfalls
+03. Pete K & Paul Arcane ft. Amy J Pryce - Hold Me
+04. KASIA - Drowning (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66DE28C1960B1693E46FFAFB4CA8C510A9E1423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733414   (107298) от 28.06.2024
+
+Markus Schulz - Global DJ Broadcast Sunrise Set (2024-06-27) [MP3|320 Kbps] <Progressive House, Trance, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Early (Symphonic Rehearsal Mix)
+02. Markus Schulz - Summer of '99
+03. Stu McNally - Innerversions
+04. Estiva - Mesa(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic HouseПродолжительность: 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA58148A89576888A2E86B06C4675FA656E8BC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733600   (107264) от 30.06.2024
 
 Tiësto - Tomorrowland Friendship Mix (2024-06-27) [MP3|320 Kbps] <Dance, Electro Pop>
@@ -646,93 +733,6 @@ Markus Schulz - Global DJ Broadcast (In Search of Sunrise 20 Companion Mix) (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C034CF35BD896DB172569D8B8A72E10065BD6A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753268   (103853) от 04.10.2024
-
-VA - Armin van Buuren - A State Of Trance 1193 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Protoculture - Viper
-02.	LÜRUM - Decisions
-03.	Armin van Buuren - Pulstar (Future Favorite)
-04.	Pennyman - Paloma (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D551302EB73567D35DADC81C52EC1E4ED902A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754712   (103674) от 12.10.2024
-
-VA - Armin van Buuren - A State Of Trance 1194 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H. & Jam Da Bass & Julie Thompson – Oceans
-02. Laura van Dam – Get Lost
-03. Matt Fax – Axis (Progressive Pick])
-04. MRAK ft. Aimée Sophia – Dune(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B266F9F8550801E3D3FE4CAF684FC357878A3EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758200   (103410) от 01.11.2024
-
-VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Norman – Phantom Manor (Daniel Wanrooy Remix)
-02. Vintage Culture & Fideles ft. Be No Rain – Fallen Leaf (Massano Remix)
-03. Yoel Lewis – Meteor
-04. MRPHLNDR – Tron (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
 ```
 
 https://mybot314.ru/tekegram_catalog/

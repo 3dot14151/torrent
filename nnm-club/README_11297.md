@@ -1,678 +1,25 @@
-###  Публикация: 1551052   (590783) от 14.05.2022
+###  Публикация: 1150301   (594067) от 15.07.2017
 
-Britof - Ruins (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Buzz (00:04:55)
-02 - Scum of the Earth (00:03:36)
-03 - The Fiend (00:06:29)
-04 - Sick (Sodom and Gomorah) (00:04:07)(   Читать дальше...   )Жанр: Stoner, Heavy MetalПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F18B52BF28F73CFDEDFAACB8818D1CE28A12E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551141   (590782) от 14.05.2022
-
-Primitive Man - Insurmountable (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - This Life (00:12:24)
-02 - Boiled (00:07:17)
-03 - Cage Intimacy (00:11:02)
-04 - Quiet (00:07:44)Жанр: Sludge, Doom MetalПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECD6EA971D3F199D08CFD0C0E16EC24363C37E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551045   (590781) от 14.05.2022
-
-Raam - Fire Of Glory (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pindar (Intro)
-02. Fire And Glory
-03. I Prefer To Drink
-04. Got Your Back(   Читать дальше...   )Жанр: Heavy Metal, Rock & RollПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD3516C2A4048EE398409D75EAEAB5743DB8391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550978   (590780) от 14.05.2022
-
-Winteria - Winteria (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressive, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Первый снег (00:02:03)
-02 - Крылья 2.0 (00:05:22)
-03 - В клетке времён (00:04:26)
-04 - Странник (00:03:25)(   Читать дальше...   )Жанр: Symphonic, Progressive, Gothic MetalПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881797151B249C6AAE5F4809D23E3CA555439749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551055   (590779) от 14.05.2022
-
-Collidor - Collidor (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal, Speed Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_590779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nephophobia (00:04:34)
-02 - Hero Of Destruction (00:02:35)
-03 - Cryostorm (00:03:08)
-04 - Doctor Death (00:03:01)(   Читать дальше...   )Жанр: Power Metal, Heavy Metal, Speed MetalПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551025   (590778) от 14.05.2022
-
-Katharos - Of Lineages Long Forgotten (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Those Hornclad (00:06:53)
-02 - Feigned Retreat (00:07:05)
-03 - Of Lineages Long Forgotten (00:08:51)
-04 - The World Serpent's Marrow (00:05:26)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5B5282A2B3D4A8ED9BB98AEA3FFCE68020264D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550958   (590777) от 14.05.2022
-
-Stinger - Expect The Unexpected (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Diggin' Up The Dirt (00:04:22)
-02 - Chasing Utopia (00:05:10)
-03 - Monkey (00:03:22)
-04 - Highfalutin' (00:02:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E016EE2A845F594B6EAFE9B00EF3851A90ACCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550808   (590756) от 14.05.2022
-
-Misery Index - Complete Control (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Death Metal, Grindcore>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_590756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Administer the Dagger (4:52)
-02. The Eaters and the Eaten (3:40)
-03. Complete Control (3:32)
-04. Necessary Suffering (3:39)(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550960   (590755) от 14.05.2022
-
-Junkyard Drive - Electric Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Burn (00:03:39)
-02 - Electric Love (00:04:16)
-03 - Mr. Rock N' Roll (00:03:34)
-04 - Home (00:04:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0DE364430BE89D070B4DD1287B99924FAE4466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551133   (590754) от 14.05.2022
-
-The Faceless Hunter - One Minute to Midnight (2022) [FLAC|Lossless|WEB-DL|tracks] <Russian Modern Metal, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Minute to Midnight [00:03:29]
-02. The Edge of Emptiness [00:05:39]
-03. Dead Heaven [00:05:46]
-04. Sacred Blood [00:05:31](   Читать дальше...   )Жанр: Russian Modern Metal, Melodic DeathПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CA6600DA69FCB1DE95FF2D4C18792C267CE4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551130   (590753) от 14.05.2022
-
-Игорь Акимушкин | Жил-был медведь (1989) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590753.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге автор рассказывает о медведях, кто такие и чем занимаются, на примере одного года из жизни медвежонка.
-Для детей дошкольного возраста. Иллюстрации С.Куприянова.Жанр: РассказФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B235E02FBED88361A840D70E0935853F86590B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551033   (590752) от 14.05.2022
-
-Graham Bonnet Band - Day Out In Nowhere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imposter
-02. 12 Steps To Heaven
-03. Brave New World
-04. Uncle John(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E545257C3E660AAD8397654006F30E27474240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551134   (590751) от 14.05.2022
-
-Brian Harold May - Another World (1998) 2CD, Deluxe Version, 2022, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_590751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Talks - A Tribute To Cozy Powell [00:01:14]
-02. The Business (Rock On Cozy Mix) [00:04:40]
-03. Hot Patootie [00:03:21]
-04. F.B.I. (Original Ruff Mix With Real Bass And Drums) [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:41:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551006   (590750) от 14.05.2022
-
-Рваные Раны - Лучшая проклятая вещь (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Проклятая вещь (00:01:32)
-02 - Строгий отец (00:03:48)
-03 - Слышишь сука! - (00:02:23)
-04 - Вы - закройте рты! (00:02:54)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50095E31BE979FD739B2BF738DA8516190D373A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550982   (590749) от 14.05.2022
-
-Winteria - Winteria (2022) [FLAC 2.0|44, 48/16, 24|WEB-DL|tracks] <Symphonic, Progressive, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Первый снег (00:02:03)
-02 - Крылья 2.0 (00:05:22)
-03 - В клетке времён (00:04:26)
-04 - Странник (00:03:25)(   Читать дальше...   )Жанр: Symphonic, Progressive, Gothic MetalПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F48B9FDE94D7753A8470EE0475A36F67D2EAF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550886   (590748) от 14.05.2022
-
-Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire Records [FLAC 2.0|44, 48/24|WEB-DL|tracks] <Progressive Death Metal, Progressive Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_590748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Death Metal, Progressive RockПродолжительность: 2 CD, 02:45:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551131   (590747) от 14.05.2022
-
-Пятеро на одного (14.05.2022) WEBRip [H.264/720p-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_590747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551115   (590746) от 14.05.2022
-
-Игорь Акимушкин | Жил-был ёжик (1986) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590746.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге автор рассказывает про жизнь ёжиков. Кто такие, их повадки и чем полезны...
-Для детей дошкольного возраста. Иллюстрации А.Келейникова.Жанр: РассказФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E92710C8AF83A2A39E6D859F464D42FBE9571AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550946   (590745) от 14.05.2022
-
-Church of The Cosmic Skull - There Is No Time (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Rays of Colour [04:08]
-02. Pleading With the Cosmic Mother [03:30]
-03. One More Step [05:50]
-04. Valleys and Hills Part I (Peel Away the Layers) [04:56](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C781D1DCBF558BB92436DC4425E74D5FE43EC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551157   (590744) от 14.05.2022
-
-Живая еда с Сергеем Малозёмовым (14.05.2022) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Секреты ферментированных напитков, необычные блюда из гуся и почему шоколад горит?
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FD8B7CFFA98120DED8A996BB447B1B5DEEADCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550930   (590743) от 14.05.2022
-
-The Garbage & the Flowers - Cinnamon Sea (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Alternative, Indie, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye Know Who You Are (4:34)
-02. Cinnamon Sea (4:40)
-03. Red Star (2:46)
-04. On The Radio (5:20)(   Читать дальше...   )Жанр: Alternative, Indie, GrungeПродолжительность: 00:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86E6D0D689A5DBD179809CF5BDA0A3BFE942F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551123   (590742) от 14.05.2022
-
-НХЛ. Кубок Стэнли 2021-2022. 1/4 финала - Восток. 6-й матч. Флорида Пантерз - Вашингтон Кэпиталз (13.05.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_590742.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 мая 2022, суббота. 02:30 МСК. 1/4 финала - Восток. 6-й матч. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:35:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550950   (590741) от 14.05.2022
-
-Siberian Meat Grinder - Join the Bear Cult (2021) 2022, Rebel Sound Records[FLAC|Lossless|WEB-DL|tracks] <Hardcore, Crossover, Thrash Metal Punk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into the Grinder (00:03:39)
-02 - Not Today (00:03:23)
-03 - Arise (00:03:13)
-04 - Fire It Up (00:04:10)(   Читать дальше...   )Жанр: Hardcore, Crossover, Thrash Metal PunkПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF59BBAD41AFA1CE47AB4809328DF177C54F68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551165   (590740) от 14.05.2022
-
-Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2022-05-12) [MP3|320 Kbps] <Big Room>
+VA - Black Hole House Music 07-17 (2017) [MP3|320 Kbps] <House>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590740.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dimitri Vegas & Like Mike & Azteck & Hayley May - Heaven
-02. Dimitri Vegas & Like Mike vs. Sander van Doorn - Project T
-03. Dimitri Vegas & Like Mike - Chattahoochee (Tomorrowland 2013 Anthem)
-04. Dimitri Vegas & Like Mike & Wolfpack - Ocarina (TomorrowWorld Anthem) (Bassjackers Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:59:47
+01.  Jes & Game Chasers - Carry Me Away (Game Chasers Deeper Mood Extended Mix)  5:46
+02.  Zoo Brazil And Dirty South - Never Had (Dirty South Remix) (feat. Niara)  7:29
+03.  Kokaholla - High With Me (feat. Quinn Bates)  3:39
+04.  Drop Department & SuitStatic - Sarod  5:11(   Читать дальше...   )Жанр: HouseПродолжительность: 01:31:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD2C0BCEBE5DA61E26BFB4A850BD627B474F0B62
+magnet:?xt=urn:btih:1B3BCBDF8EE1F54CA7BEFB9B58DD99E609398503
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551174   (590739) от 14.05.2022
+###  Публикация: 1150417   (594066) от 15.07.2017
 
-Своя игра (14.05.2022) WEBRip [H.264/1080p]
+VA - Italo Dance Rimini 2017 [MP3|320 Kbps] <Funky, Club House>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590739.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: РусскиеПродолжительность: 00:41:00
+01. Djane Redmadness - Can't You See (Housegeist Remix) 04:08
+02. Groovy Boyz - The Max Overtake (Radio Version) 03:26
+03. Christian Belt, Nora James - Believe 04:33
+04. Christian Belt, Samuel Mendes - Airwaves 06:15(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:07:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF22FA25B1571DADDF673DB020B3A04596883507
+magnet:?xt=urn:btih:4A022D5AEEDACD844100C7B3C2F8E5A8443C3204
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,28 +56,651 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550964   (590738) от 14.05.2022
+###  Публикация: 1150434   (594065) от 15.07.2017
 
-The Big Deal - First Bite (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Ю. Кучинский | История положения рабочего класса при капитализме. Мировой обзор (1970) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590738.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Never Say Never (00:03:06)
-02 - I Need You Here Tonight (00:03:39)
-03 - Sensational (00:04:06)
-04 - Top Heaven (00:04:13)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:10
+В книге академика Ю. Кучинского (ГДР) анализируется ряд закономерностей развития мирового капиталистического хозяйства, мировой торговли и международного разделения труда, обобщены результаты его многолетних исследований положения рабочего класса при капитализме.
+
+Автор рассматривает некоторые методологические вопросы исследования мирового хозяйства; отдельные положения (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53F6125FA131AD066FD3D3DEEB3B73E659FAFF7C
+magnet:?xt=urn:btih:251CE890831108B8BE1D35AC638B65FADF88FBA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150473   (594064) от 15.07.2017
+
+Формула 1. Сезон 2017. 10-й Этап. Гран-при Великобритании. Свободная практика 2 (14.07.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594064.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 июля 2017 года, пятница. 15:00 МСК
+Формула 1. Сезон 2017. 10-й Этап. Гран-при Великобритании. Сильверстоун (Великобритания)
+Свободная практика 2
+Арена: Автодром Сильверстоун (Сильверстоун, Великобритания)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D105D6D2D7EBFB88A118DCE2C6BF4D076C7C29AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150341   (594063) от 15.07.2017
+
+Рехаб (2017.07.13) WEB-DL [H.264/720p-LQ] (выпуск 9)
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они устали от жизни. Суицид, алкоголизм, нескончаемая депрессия для этих женщин сейчас – не страшные слова из социальной рекламы, а реальность. Шоу Рехаб дает им второй шанс! Через что нужно пройти, что вырваться из замкнутого круга и вернуться к нормальной, гармоничной жизни...Телекомпания: ПятницаЖанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150638   (594062) от 15.07.2017
+
+Футбол. Суперкубок России 2017. Спартак (Москва) — Локомотив (Москва) (14.07.2017) WEB-DL [H.264/720p-LQ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594062.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 июля 2017 года, пятница. 21:30 МСК
+Суперкубок России 2017.
+Спартак (Москва) — Локомотив (Москва)
+Стадион: Локомотив (Москва, Россия), 24444 зрителя (85 % при вместимости 28800)(   Читать дальше...   )Телекомпания: Наш Футбол HDЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:41:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150528   (594061) от 15.07.2017
+
+Журнал | The World of Interiors №8 (август 2017) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующееся большой популярностью издание из Великобритании о дизайне интерьера и оформлении прилегающей территории "The World of Interiors" в своих публикациях знакомит читателей с новейшими трендами интерьерной моды, сведениями об оригинальных новинках для дома, в т.ч. бытовых приборов, оборудования для кухни и ванной комнаты, оригинальных аксессуаров, (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EF4953594A6C9C4D66A908C5BD96D11A44ECEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150591   (594060) от 15.07.2017
+
+Ludvig & Stelar - Relax (2008) [FLAC|Lossless|image + .cue] <Chillout, Lounge, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relax (4:40)
+02. Reflection (4:38)
+03. Sunset (4:36)
+04. Signal (4:40)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3C923A216CF23D5E3096C065E80159D8E35144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150428   (594059) от 15.07.2017
+
+Я. И. Пеккер | О книге В. И. Ленина «Развитие капитализма в России» (1958) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая работа посвящена анализу произведения В.И. Ленина «Развитие капитализма в России», принадлежащего к числу гениальных творений человеческой мысли и представляющего выдающийся вклад в сокровищницу марксизма.
+
+В этой книге Ленин показал, как общие законы капитализма, открытые и обоснованные К. Марксом, проявлялись в экономике пореформенной России, вскрыл характерные (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CB771EAD2CBAE1CC54B438FE6EA85539B35740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150438   (594058) от 15.07.2017
+
+Б. Э. Быховский | Американский персонализм в борьбе против науки и общественного прогресса (1948) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стенограмма публичной лекции, прочитанной 18 февраля 1948 года в Центральном лектории Общества в Москве.
+
+«8 наше время, — писал В. И. Ленин в «Материализме и эмпириокритицизме», — нельзя философу не объявлять себя «реалистом» и «врагом идеализма» К Сорок лет назад реакционные философы старались скрыть свой идеализм и контрабандой протащить свой гнилой идеологический (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E3677994A1B337FB350C8E295C45AC48BDF5C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150465   (594057) от 15.07.2017
+
+Не спать! (2017.07.14) WEB-DLRip (выпуск 111)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594057.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 апреля в 00.30 на телеканале ТНТ состоится премьера нового шоу «Не спать!» Это будут настоящие, жесткие юмористические бои без правил с возрастным рейтингом «18+». В роли ведущего выступит резидент Comedy Club Сергей Гореликов. А судить и определять победителей будут три рефери. Среди судей можно будет увидеть Павла Волю, Вадима Галыгина, Тимура Батрутдинова, (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Вадим Галыгин, Тимур БатрутдиновСубтитры: ОтсутствуютПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F7B006636796F4D9D489EE4A62C1848FBDB6A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150327   (594056) от 15.07.2017
+
+VA - Electro Summer 2017 [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eckodeli - Kill Me & Evolution
+02. Pierce G - Clairvoyance (Original Mix)
+03. Stop The Voices - It's Playtime (Original Mix)
+04. Hypster - Horny Machine Orgy (Virtu Remix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCD686C3F605775AF9D54EC496A78ECAE3F4F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150426   (594055) от 15.07.2017
+
+М. И. Шахнович | Тайны Прометея (1988) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594055.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о возникновении и развитии мирового художественного образа Прометея, ставшего символом знаний и просвещения, а также о том, как возникло и развивалось в борьбе с религиозными суевериями научное знание.Жанр: История, политология, археология, философия, религиоведение, науковедениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78168122258B2B3A0E1324B124C3AD9D7F054FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150668   (594054) от 15.07.2017
+
+SlimBrowser 8.00 Build 002 + Portable [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Браузер на основе движка Trident, обладающий большим количеством полезных возможностей. В частности в SlimBrowser встроен настраиваемый блокиратор всплывающих окон, инструмент автозаполнения форм, менеджер паролей, присутствует возможность «на лету» исправлять ошибки в скриптах. Имеются опции контроля за загружаемым контентом: графикой, анимацией, звуками и т.д.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233167   (594052) от 28.06.2018
+
+Bill Perkins Quintet featuring Victor Feldman - Quietly There (1966) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quietly There [4:26]
+02. Emily [5:27]
+03. Groover Wailin' [5:32]
+04. A Time For Love [5:24](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC0BC01B7D5C526BD506AD8B0DA6F1615DFA32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233062   (594051) от 28.06.2018
+
+Лихия Гильен | Дети Никарагуа (1985) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о посильном участии детей Никарагуа в национально-освободительной борьбе своего народа. О мужестве и подвиге этих ребят, которые поняли, что борьба за счастье и свободу народа - это борьба за их счастье.Жанр: Детская прозаПеревод: Александр СосновскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75545D352BFA7F061E7E7FCBEC3C6BCDED3963B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233170   (594050) от 28.06.2018
+
+Bill Perkins, Art Pepper, Richie Kamuca - Just Friends (1956) Toshiba-EMI Japan [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Friends [5:12]
+02. A Foggy Day [3:57]
+03. All Of Me [4:35]
+04. Diane-A-Flow [3:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7691C35A1AD95E7773DD0B28672519EEB1B16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233190   (594049) от 28.06.2018
+
+Футбол. Чемпионат Мира 2018. Группа E. 3-й тур. Сербия — Бразилия (27.06.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594049.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 июня 2018 года, среда. 21:00 МСК
+21-й Чемпионат Мира по футболу 2018 года. Групповой турнир.
+Группа E. 3-й тур. Сербия — Бразилия
+Стадион: Открытие Арена (Москва, Россия), 44190 зрителей (97 % при вместимости 45360)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9473FA9E6B60CBBFB2367FF9553B48EF21CB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233219   (594048) от 28.06.2018
+
+Дмитрий Кайгородов | Дружба с природой (1897) [JPG]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дружба с природой. Птицы; Животные; Природа; Бабочки.
+Рассказы для младшего и среднего школьного возраста.Жанр: Обучение и развитие детейФормат: JPG
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233123   (594047) от 28.06.2018
+
+Журнал | AD / Architectural Digest [Germany] №6 (июнь 2018) [PDF] [De]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8E410B761FC5E56A7F5A77F69AFE6A195F742E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233061   (594046) от 28.06.2018
+
+Е.В. Щеголева | Как обрести спасение. Жизнь по замыслу Божьему (2011) [FB2, PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какими качествами должен обладать человек, чтобы спасти свою душу? Зачем нужны Рай и ад? Как прийти к Богу? В чём смысл невзгод и страданий? За ответами на эти и другие вопросы люди обращаются к афонским монахам век от века. В книге собраны тексты и высказывания священнослужителей и афонских старцев, адресованные православным людям в помощь их духовной жизни.Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233214   (594045) от 28.06.2018
+
+Николай Языков | Жар-птица (1901) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жар-птица. Сказки русских писателей.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150672   (594044) от 15.07.2017
+
+Icecream Screen Recorder Pro 4.90 RePack (& Portable) by elchupacabra  [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150640   (594043) от 15.07.2017
+
+Власти Китая открестились от полного запрета VPN
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пекин уверяет, что в прессу попало ложное сообщение о распоряжении правительства тотально запретить инструменты обхода блокировок.Поднебесная окончательно запутала западную прессу, выступив с официальным заявлением о том, что Министерство промышленности и информационных технологий не выпускало распоряжения государственным интернет-провайдерам о блокировке VPN. В (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150466   (594042) от 15.07.2017
+
+Не спать! (2017.07.14) WEB-DL [720p-LQ] (выпуск 111)
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594042.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 апреля в 00.30 на телеканале ТНТ состоится премьера нового шоу «Не спать!» Это будут настоящие, жесткие юмористические бои без правил с возрастным рейтингом «18+». В роли ведущего выступит резидент Comedy Club Сергей Гореликов. А судить и определять победителей будут три рефери. Среди судей можно будет увидеть Павла Волю, Вадима Галыгина, Тимура Батрутдинова, (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Вадим Галыгин, Тимур БатрутдиновСубтитры: ОтсутствуютПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150447   (594041) от 15.07.2017
+
+Вольтер | Избранные произведения (1947) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_594041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литературная деятельность Вольтера во всех ее формах и проявлениях была теснейшим образом связана с общественной борьбой его времени. Его историческое значение определяется значением этой борьбы и той совершенно исключительной ролью, которую Вольтер в ней играл. Вольтер, несомненно, принадлежал к числу инициаторов великого просветительного движения XVIII века. Он (   Читать дальше...   )Жанр: История, философия, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

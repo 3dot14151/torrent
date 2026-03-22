@@ -1,3 +1,32 @@
+###  Публикация: 1511126   (789250) от 20.11.2021
+
+VA - Weekend Play List (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789250.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Moltheni - Tutte Quelle Cose
+002. Willow Sage Hart - Cover Me In Sunshine
+003. Danna Paola - Tq Y Ya
+004. Yukika - Pung!(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FE1A00B23CD0EFFF4BEE8A98A8DD7B17415754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203029   (789059) от 31.01.2018
 
 Алимханов А. & Friends - Collection (2018) [MP3|320 Kbps] <Pop, Dance, Disco>
@@ -713,35 +742,6 @@ VA - Лучшая дискотека на Europa Plus. Выпуск № 6 (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B82688375EC03EE5BC1DF71A5434C9960A246B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123577   (786203) от 09.04.2017
-
-VA - Весенняя 100-ка популярных треков. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786203.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Натали Янковских - Ты Мой 3:34
-002. Слайд - Ближе И Ближе 3:31
-003. Сиран Агасаров - Для Тебя 3:33
-004. Катя Лель - Придумала 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4304E68DD1623A54374323CCDA41A2255D294638
 ```
 
 https://mybot314.ru/tekegram_catalog/

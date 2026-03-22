@@ -1,3 +1,119 @@
+###  Публикация: 1066729   (409931) от 27.10.2016
+
+Gram Rabbit - Miracles & Metaphors (2010) [MP3|256 Kbps] <Alternative Pop, Psychedelic Space Rock, Space Dance Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Of Our Lives
+02. Candy Flip
+03. Falling Debris
+04. Hyena(   Читать дальше...   )Жанр: Alternative Pop, Psychedelic Space Rock, Space Dance RockПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855E51F2CA54DAB6E471B72525873426A73380FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066463   (409907) от 27.10.2016
+
+VA - Shut Up And Dance (2016) 3CD [MP3|320 Kbps] <Electronic, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409907.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: HITS
+01. Alan Walker - Faded (3:30)
+02. Willy William - Ego (3:27)
+03. Flume feat. Kai - Never Be Like You (3:54)(   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 03:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F4DD9149DCEC636AB110849B095A4F992F6447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413372   (409575) от 03.10.2020
+
+Mariah Carey - The Rarities (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409575.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Here We Go Around Again (1990)
+2. Can You Hear Me (1991)
+3. Do You Think of Me (1993)
+4. Everything Fades Away (1993)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD0606918B96482B686C626B93C251E160206C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066850   (409528) от 27.10.2016
+
+VA - The Best Of Christmas Hits (2016) [MP3|320 Kbps] <Pop, Jazz, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fifth Harmony - All I Want for Christmas Is You 3:49
+02. Britney Spears - My Only Wish (This Year) 4:14
+03. Hall & Oates - Jingle Bell Rock 2:03
+04. Michael Bolton - Santa Claus Is Coming to Town 4:04(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67AC8C96AA68A78423EDE4DEC8A957DCF43419B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252176   (409096) от 05.10.2018
 
 VA - 101 Hits - Long Hot Summer (2018) 5CD [MP3|320 Kbps] <Pop>
@@ -647,128 +763,6 @@ VA - Reload The Summer Vol.4 (The Compilation) (2017) [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4A5E081DDBA752761E762724C5B86D9A014E8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172229   (393969) от 07.10.2017
-
-VA - Best Of 2017 - Die Hits Des Jahres (2017) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393969.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Luis Fonsi - Despacito (feat. Daddy Yankee)  3:48
-02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
-03.  Axwell & Ingrosso - More Than You Know  3:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC422BF8E449C975AEDBBD290EEA780A8CDFD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171985   (393922) от 07.10.2017
-
-Lara Fabian - Camouflage (2017) [MP3|320 Kbps] <Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing Wings (2:58)
- 02. Chameleon (3:19)
- 03. If I Let You Love Me (3:36)
- 04. Choose What You Love Most (Let It Kill You) (3:53)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33709A1AF627E93C33910E9F27A56B3F6C926935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172514   (393048) от 08.10.2017
-
-Gwen Stefani - You Make It Feel Like Christmas (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells
-02. Let It Snow
-03. My Gift Is You
-04. Silent Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A73A10756A194FC820E663D0E0B00FC830437BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568745   (392918) от 02.11.2012
-
-Jeanne Mas - Le Disque D'or (2012) [MP3|320 кб/с]<French Pop, Electropop, Disco, Chanson Francaise>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.En rouge et noir
-02.Toute première fois
-03.Johnny, Johnny
-04.Sauvez moi
-05.L'enfant
-06.Coeur en stéréo
-07.Tous les cris les S.O.S
-08.Femme d'aujourd'hui
-09.Lisa
-10.Lola(   Читать дальше...   )Жанр: French Pop, Electropop, Disco, Chanson FrancaiseПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD73A72CDA7381C547885D0873FF181D18EFDB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,334 @@
+###  Публикация: 509523   (673772) от 12.06.2012
+
+Dire Straits - Communiqué (1978) SHM-SACD [DSD 2.0 1bit/2822,4kHz |SACD-R]<rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673772.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Once Upon A Time In The West 05:25
+2. News 04:12
+3. Where Do You Think You’re Going? 03:49
+4. Communiqué 05:48
+5. Lady Writer 03:45
+6. Angel Of Mercy 04:35
+7. Portobello Belle 04:29
+8. Single-Handed Sailor 04:42
+9. Follow Me Home 05:53
+(   Читать дальше...   )Жанр: rockПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF89C00BA58A1CFFB3014FFF35760885F8EF3C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508510   (672215) от 13.06.2012
+
+Scorpions - Virgin Killer (1976) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+A1 Pictured Life [03:21]
+A2 Catch Your Train [03:32]
+A3 In Your Park [03:39]
+A4 Backstage Queen [03:10]
+A5 Virigin Killer [03:41]
+
+Side 1
+B1 Hell Cat [02:54]
+B2 Crying Days [04:36](   Читать дальше...   )1976Жанр: Hard RockФормат: VinylПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851D9C62DE90E60B757D8F2364EFF7595E12927E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290726   (672115) от 23.03.2019
+
+VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Euro House, Hip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.B. Milton - It's A Loving Thing
+02. Tranceformer Feat. Neil - Let Your Mind Dive
+03. Bad Boys Blue - My Love For You
+04. Tag Team - Whoomp! (There It Is)(   Читать дальше...   )Жанр: Disco, Euro House, Hip HopПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3C16641CB9BFC79448C46B8450579E0C82AC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030749   (671966) от 01.07.2016
+
+Isao Tomita - Okhotsk Fantasy (2016)  [DTS 4.0 CD-DA|44.1/16|image+cue|SACD] <Electronic, Ambient, Modern Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_671966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.    Okhotsk Fantasy    11:46
+2.    Pavane Pour Une Infante Dfunte    07:16
+3.    Ma Mere L’Oye Suite: Pavane De La Belle Au Bois Dormant    01:55
+4.    Petite Poucet    03:52(   Читать дальше...   )Жанр: ambientПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4563EAF03CA3A4E9C8CA406F8296137F448C16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030573   (671828) от 01.07.2016
+
+ППК - Воскрешение Hey DJ' (2001) [PPCM 5.1|96/24|DVD-Audio] [upmix, upsampling] <Classic Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_671828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ППК - Воскрешение (Space Club Mix) (8:03)
+02. ППК - Воскрешение (Wellenrausch Remix) (6:49)
+03. ППК - Воскрешение (B-Power Techstyle Mix) (5:29)
+04. ППК - Воскрешение (PartyZans Promo Mix) (9:41)(   Читать дальше...   )Жанр: Classic TranceПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3856276722A3F455A78E00D2DCAD31C812BD6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030761   (671730) от 01.07.2016
+
+Jean-Michel Jarre - Oxygene (1976) [PPCM 5.1|96/24|VinylRip] [upmix] <Electronic, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_671730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene (Part I) (7:40)
+02. Oxygene (Part II) (8:20)
+03. Oxygene (Part III) (2:50)
+04. Oxygene (Part IV) (3:50)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6C6B1F6B825B5251B494EAD1F747C035A28517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223644   (671210) от 06.05.2018
+
+Mike Oldfield - Five Miles Out (Deluxe Edition) (2013) 1982 [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <new age, pop/rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taurus II - 24:43
+02. Family Man - 04:00
+03. Orabidoo - 10:48
+04. Mount Teidi - 04:06(   Читать дальше...   )Жанр: new age, pop/rockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C5FD40A718AC872978FCEC0BD72086D26CA529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798239   (671197) от 21.06.2014
+
+Генрик Шеринг - Л. Бетховен (Концерт для скрипки с оркестром) (1987) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Ma Non Troppo  25:22
+Сторона 2
+1. Larghetto. Rondo, Allegro  20:02Жанр: ClassicalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537164   (669316) от 15.03.2022
+
+Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669316.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Well Known Lady
+A2 Good Loving Woman
+A3 Encore After Encore
+A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537150   (669264) от 15.03.2022
+
+Wes Montgomery - A Day In The Life (1967) 1984 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669264.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Day In The Life
+A2 Watch What Happens
+A3 When A Man Loves A Woman
+A4 California Nights(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136C5507E207F16C4F3C12B39B404209A033BEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537384   (667841) от 16.03.2022
+
+Stray - This Is Stray (1971) renamed album Saturday Morning Pictures, 1976 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Prog Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667841.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Our Song
+A2 After The Storm
+A3 Sister Mary
+A4 Move That Wigwam(   Читать дальше...   )Жанр: Prog Rock, Psychedelic RockПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47247469E0A25306EB49CF100F5E6AFA75D7969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137878   (665359) от 28.05.2017
 
 VA (Юрий Антонов, Сергей Беликов, Ольга Зарубина и Александр Серов) - На улице Каштановой (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
@@ -418,337 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D6D6EEB67041995F7BCF1A55D3711D31481A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140156   (655725) от 06.06.2017
-
-Александр Вертинский - Коллекция винила (1969-1989) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Chanson, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Минуточка
-02. Испано-Сюиза
-03. Над розовым морем
-04. Пред ликом Родины(   Читать дальше...   )Жанр: Chanson, Retro
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFEB989B4CD8C7BD61090E9C84943678829E540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514977   (655621) от 26.06.2012
-
-Yehudi Menuhin - Stephane Grappelli - Tea for two (1978)  [FLAC 2.0 24/96|image + cue (Vinyl rip)]<Classical, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655621.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Crazy Rhythm – Josef Meyer, Roger Wolfe Kahn [02:49]
-A2 - The Man I Love – George Gershwin [04:41]
-A3 - Tea For Two – Vincent Youmans [03:37]
-A4 - Highgate Village – Stephane Grappelli [04:54]
-A5 - Air On A Shoe String – Max Harris [03:38]
-A6 - A Foggy Day – George Gershwin 03:44]
-
-B1 - Viva Vivaldi – Max Harris [02:22]
-B2 - My Funny Valentine – Richard Rogers [04:05]
-B3 - Limehouse Blues – Philipp Braham [02:53](   Читать дальше...   )Жанр: Classical, JazzФормат: Vinyl 12"Продолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904948   (653000) от 04.06.2015
-
-Чернавский-Матецкий - Банановые Острова (1983) /2013, Мирумир/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653000.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Банановые острова (7:01)
-A2. Зебра (4:13)
-A3. Здравствуй, мальчик Бананан! (7:07)
-A4. Становитесь в очередь за мной (5:02)(   Читать дальше...   )Производство: МирумирЖанр: RockПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9DF6F41C7DB2AFED9DBC307CDCF51D06D307AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031631   (651363) от 04.07.2016
-
-Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody To Roll (3:59)
-02. Down Home Girl (5:06)
-03. Flying (4:23)
-04. Waiting For The Man (4:59)(   Читать дальше...   )Производство: Vertigo - BT-5286Жанр: Hard RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F170DB64E7AEDF65F7012F2B62263E60440339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905001   (650918) от 05.06.2015
-
-U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Speeder
-02 Decadent
-03 House Of Fake
-04 Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 13:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FE9E3F7F58B8107D2454FCDD6BE8573A955AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905762   (649060) от 06.06.2015
-
-The Alan Parsons Project - Pyramid (1978) [FLAC 2.0 24/96|image (Vinyl-Rip)] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649060.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Voyager (2:15)
-A2. What Goes Up (3:40)
-A3. The Eagle Will Rise Again (4:22)
-A4. One More River (4:17)(   Читать дальше...   )Производство: Arista / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3157EC06C0C2FD21A6FC73E8D6BEE6CB85CCD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904989   (647073) от 07.06.2015
-
-M.A.S.S. – Mysteria: An Electronic Journey Into Sound. 3 discs (2006) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <electronic music, ambient>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647073.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-1. Karakuri 06:17
-2. Metrosexual Zone 07:41(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:53:16 + 00:53:58 + 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381D115EAE8565989440DFDE3E5F4392A0E3EC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032459   (645567) от 07.07.2016
-
-Matthew Lien – Arctic Refuge (2004)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Environmental, World Music>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.   Among The Rafters Of The Earth [05:36]
-2.   Currents [05:01]
-3.   Under Mountain And Valley [06:06]
-4.   Moon Over Crow Mountain – Intro [01:51](   Читать дальше...   )Жанр: new ageПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62C7E8395415FEA0F6E3B8582EDF0D74856C0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032145   (645261) от 07.07.2016
-
-Jean Michel Jarre - Equinoxe (1978) [LPCM 2.0|192/24|Vinyl-Rip] <Electronic, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Equinoxe (Part 1) (2:23)
-2. Equinoxe (Part 2) (5:02)
-3. Equinoxe (Part 3) (5:16)
-4. Equinoxe (Part 4) (6:46)(   Читать дальше...   )Жанр: Electronic, AmbientФормат: DVD-AudioПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADE7CB1C58AEE8C79B6F5F374FCB18AEB89C67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541469   (644503) от 03.04.2022
-
-Phil Collins & Genesis - Collection (11 Albums) (1981 - 2010) restored, declipped [FLAC 2.0|44/16|tracks + .cue|hand made] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фил Ко́ллинз (англ. Phil Collins; полное имя Фи́лип Дэ́вид Ча́рльз Ко́ллинз, Philip David Charles Collins; 30 января 1951, Лондон) — английский рок/поп певец, барабанщик и автор песен, актёр, продюсер.1981 - Face Value
-1982 - Hello, I Must Be Going!
-1985 - No Jacket Required
-1989 - ...But SeriouslyЖанр: Pop, RockПродолжительность: 10:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265FC7EDDC3705EE2B5C48647E1EA823F44A1131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516996   (642757) от 03.07.2012
-
-The Rolling Stones - Metamorphosis (1975, 2002 Remaster) [DSD 2.0 1/2,8224 MHz | SACD-R]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642757.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.    Out Of Time    03:23
-2.    Don’t Lie To Me    02:02
-3.    Some Things Just Stick In Your Mind    02:27
-4.    Each And Every Day Of The Year    02:49
-5.    Heart Of Stone    03:48
-6.    I’d Much Rather Be With The Boys    02:13
-7.    (Walkin’ Thru The) Sleepy City    02:52
-8.    We’re Wastin’ Time    02:44
-9.    Try A Little Harder    02:20
-10.    I Don’t Know Why aka Don’t Know Why I Love You    03:03(   Читать дальше...   )Жанр: RockПродолжительность: 48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF778A404F00542887DBDF54E3751A79E5155D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

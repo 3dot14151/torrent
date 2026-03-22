@@ -1,3 +1,32 @@
+###  Публикация: 1382486   (813742) от 14.05.2020
+
+Modern Blues Band - Блюз опадающих листьев (2006) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайна
+02. Преследование
+03. Мамин блюз
+04. Его блюз(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FD2DC846DD8344DD1C9F66D66B0AA66D298E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 882916   (812835) от 31.03.2015
 
 Александр Чернецкий (Разные Люди) - Чёрный ворон - я не твой! Том I. Студия (2014) 21 CD box [FLAC|Lossless]<Rock>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C34E55C3414112DE854CDF41877D4FA09678BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121852   (799214) от 04.04.2017
-
-Сруб - По грибы (2013) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Малина (02:44)
-02. Хворь (02:29)
-03. В ту ночь звонили колокола (03:55)
-04. Бор (03:55)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F4CEE1AE328F2CEDD43CDA4535AD48C7261553
 ```
 
 https://mybot314.ru/tekegram_catalog/

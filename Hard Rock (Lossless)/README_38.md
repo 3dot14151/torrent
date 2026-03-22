@@ -1,3 +1,177 @@
+###  Публикация: 1547891   (600956) от 01.05.2022
+
+Ted Nugent - Detroit Muscle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detroit Muscle
+02. Come and Take It
+03. Born in the MotorCity
+04. American Campfire(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FEABEEE9F9089515453911EA6495C868B891CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038809   (599688) от 30.07.2016
+
+Howard Leese - Secret Weapon (2009) [APE|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive Again (vocals Joe Lynn Turner)
+02. Heal The Broken Hearted (vocals Paul Rodgers)
+03. Hot To Cold (vocals Deanna Johnston & Joe Lynn Turner)
+04. French Quarter (instrumental feat. Keith Emerson)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 0:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA97ED638720E7B395E55E9F5022E4492284C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299483   (598120) от 02.05.2019
+
+Pendulum Of Fortune - Return To Eden (2019) [FLAC|lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond In The Rough (04:13)
+02. We Stand For Rock n Roll (03:09)
+03. Lucky Man (04:27)
+04. Skin And Bones (03:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98C5BAE5A3DEC53B518E2F6B58C48ADE836C151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038889   (598073) от 31.07.2016
+
+Places of Power - Now Is The Hour (2009) [APE|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598073.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In Your Wildest Dream
+2. Make Me Believe
+3. Desires of Our Hearts
+4. One Day(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 0:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2454BC6CE5EB0899219DD23EB0831D71AA13B014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038991   (598068) от 31.07.2016
+
+Mammoth - XXXL (1997) [APE|Lossless|image + .cue] <Hard Rock, Heavy Metal, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Mammoth On The M1    02:38
+02. Fatman    04:10
+03. Dressed To Kill    03:03
+04. All The Days    03:28(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Classic RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93295412859A70DCAE3043698D7FB7A480A8A05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039057   (598047) от 31.07.2016
+
+Heavy Bones - Heavy Bones (1992) [APE|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hand That Feeds    04:05
+02. 4:AM T.M.    04:49
+03. Turn It On    04:58
+04. Anna    04:46(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D3CDEFC341B689E60F042DB65B59655892FFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548438   (598017) от 03.05.2022
 
 Witch Cake - Not If I See You First (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock>
@@ -575,180 +749,6 @@ Stinger - Expect The Unexpected (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E016EE2A845F594B6EAFE9B00EF3851A90ACCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550960   (590755) от 14.05.2022
-
-Junkyard Drive - Electric Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Burn (00:03:39)
-02 - Electric Love (00:04:16)
-03 - Mr. Rock N' Roll (00:03:34)
-04 - Home (00:04:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0DE364430BE89D070B4DD1287B99924FAE4466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551033   (590752) от 14.05.2022
-
-Graham Bonnet Band - Day Out In Nowhere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imposter
-02. 12 Steps To Heaven
-03. Brave New World
-04. Uncle John(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E545257C3E660AAD8397654006F30E27474240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550964   (590738) от 14.05.2022
-
-The Big Deal - First Bite (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Never Say Never (00:03:06)
-02 - I Need You Here Tonight (00:03:39)
-03 - Sensational (00:04:06)
-04 - Top Heaven (00:04:13)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F6125FA131AD066FD3D3DEEB3B73E659FAFF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551319   (590240) от 15.05.2022
-
-Jeff Scott Soto - Complicated (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last to Know (4:25)
-02. Disbelieving (3:38)
-03. Home Again (3:33)
-04. Love is the Revolution (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BF876FE9A0D40780655C95DBA986934A726EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551272   (590229) от 15.05.2022
-
-The Brave - Evie’s Little Garden (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evie’s Little Garden (4:34)
-02. Run To You (4:37)
-03. I’ve Always Wondered (4:17)
-04. We’re Not In Kansas Anymore (5:08)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DFFE0629C751D101E925143138EFE80C65AE4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551520   (589735) от 16.05.2022
-
-Romulox - The Three Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Samsara (00:03:14)
-02 - Howling Hellion (00:04:52)
-03 - Odin's Revenge (00:04:24)
-04 - Traitor's Gate (00:02:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8753153D47D706C875B3284FCF9BB335FA57B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1565210   (496648) от 22.07.2022
+
+Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Secret (6:32)
+02. Universe (6:40)
+03. Xtreme (5:10)
+04. Wormhole (4:23)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD1C215A2CAAEB693E5E7C158A9F6B006D536A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936216   (493859) от 12.09.2015
 
 Duran Duran - Paper Gods (2015) Deluxe Edition [MP3|320 кб/с]<New Wave, Pop Rock>
@@ -716,35 +745,6 @@ A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325933   (408692) от 17.09.2019
-
-Liaisons Dangereuses - Liaisons Dangereuses (1981) Reissue CD, 2002, Hit Thing [MP3|320 Kbps] <Electronic, Synth-pop, New Wave, EBM>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystere Dans Le Brouillard (4:27)
-02. Los Ninos Del Parque (5:03)
-03. Etre Assis Ou Danser (3:27)
-04. Aperitif De La Mort (3:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, New Wave, EBMПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3B629C910C3B30E7F606578F46195E06849C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

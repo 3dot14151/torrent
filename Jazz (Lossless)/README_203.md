@@ -1,3 +1,177 @@
+###  Публикация: 950148   (369888) от 26.10.2015
+
+James Last/Astrud Gilberto - Plus (1986) [FLAC|Lossless]<Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Do Soho
+02. I'm Nothin' Without You
+03. Champagne And Caviar
+04. Listen To Your Heart(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83636F0385AC0E639650E7152A8E798ABBD0439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416200   (369866) от 15.10.2020
+
+Poncho Sanchez - Para Todos (1994) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Brothers [5:56]
+02. Cold Duck Time [5:35]
+03. Ugetsu [5:12]
+04. Anque Tu [5:48](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE298010F804D6607EFE494D7F8DD6F00B025942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416198   (369863) от 15.10.2020
+
+Tito Puente - 50 Years Of Swing (1946 - 1995) 1997, 3CD, RMM Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369863.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Que No, Que No [3:01]
+02. Mambo Macoco [2:56]
+03. El Yoyo [2:59](   Читать дальше...   )Жанр: Latin Jazz, Mambo, Big BandПродолжительность: 03:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F09A597733C55E77B8CC6E2EE6E5FCE7415B664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416201   (369858) от 15.10.2020
+
+Donald Byrd - Places And Spaces (1975) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change (Makes You Want to Hustle) [5:11]
+02. Wind Parade [6:10]
+03. Dominoes [4:37]
+04. Places and Spaces [6:21](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFC1022EF81623990953312EB3FB624502427E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070425   (369381) от 06.11.2016
+
+Phat Phunktion - You and Me (2004) [APE|Lossless|image + .cue] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (Weekend Special) (3:30)
+02. You And Me (3:59)
+03. Higher (3:50)
+04. How Do I Get To Your Heart? (3:18)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9567827F7598079D21490A59D9433BA80AAF09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070231   (369380) от 06.11.2016
+
+Benny Carter - 4 Albums From The MusicMasters Catalogue (1987-1989) 4CD, 2011, Nimbus Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369380.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - In the Mood for Swing:
+01.I'm in the Mood for Swing [06:53]
+02.Another Time, Another Place [06:23]
+03.The Courtship [04:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 04:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A7C1DC428F489F3A9EC6D1522226D9740FDA0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070315   (369379) от 06.11.2016
 
 Arne Jansen - The Sleep of Reason Ode to Goya (2013) [FLAC|Lossless|tracks + .cue] <ACT, Jazz-Rock, Contemporary Jazz, Fusion, Guitar Jazz>
@@ -571,180 +745,6 @@ Fred Hersch - Breath By Breath (2022) Palmetto Records [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34C7E992414A6605BDBE3685A778B0788B1242D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576405   (366623) от 14.09.2022
-
-Clark Terry, Freddie Hubbard, Dizzy Gillespie Plus Oscar Peterson - The Alternate Blues (1980) 1992, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alternate One [5:33]
-02. Alternate Two [8:04]
-03. Alternate Three [9:06]
-04. Alternate Four [9:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DA8D489D9334C4F4DBEC7CB2013B216FA71FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328231   (366370) от 29.09.2019
-
-Chet Baker - The Pacific Jazz Collection (1953 - 1958) 4CD, 2016, Enlightenment [FLAC|Lossless|tracks + .cue] <Cool, Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366370.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Long Ago (And Far Away) [2:16]
-02. Band Aid [2:48]
-03. The Thrill Is Gone [2:47](   Читать дальше...   )Жанр: Cool, Bop, Mainstream JazzПродолжительность: 05:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23C26F9D01B9FAC1731D6F0C3273E1F3031C4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255307   (366233) от 17.10.2018
-
-Wayne Shorter - Emanon (2013 - 2016) 3CD, 2018, Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366233.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pegasus [14:55]
-02. Prometheus Unbound [8:19]
-03. Lotus [15:17](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 02:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745100DD534996DE3E5485DBE95B7E821CCB7740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950803   (366192) от 28.10.2015
-
-Herb Ellis & Jimmy Giuffre - Herb Ellis Meets Jimmy Giuffre (1959) /1999, Verve/[APE|tracks+.cue]<Mainstream Jazz, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Goose Grease [03:06]
- 02.When Your Lover Has Gone [05:58]
- 03.Remember [07:44]
- 04.Patricia [04:07](   Читать дальше...   )Жанр: Mainstream Jazz, West Coast JazzПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4694EC3E72CF57F91C6051886ACF91ABB033F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950567   (366190) от 28.10.2015
-
-Gerry Mulligan Quartet - Swiss Radio Days Jazz Series: Zurich 1962, vol.9  /2009, TCB Records/[FLAC|image+.cue]<Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Utter Chaos & Presentation [02:00]
-02.Open Country [05:38]
-03.Love in New Orleans [06:06]
-04.Seventeen Mile Drive [04:41](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C4D93469F2E1636D6A5C77856DA0B2A59DE8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951046   (366189) от 28.10.2015
-
-Les Double Six - Rencontrent Quincy Jones (1960) /1999, Columbia/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tickle-Toe [02:27]
- 02.Early Autumn [03:24]
- 03.Sweets [02:42]
- 04.Naima [04:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DB5D73438791B31B7FDBE9FDABAB0B3F0BFFB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

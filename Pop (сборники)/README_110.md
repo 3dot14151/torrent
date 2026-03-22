@@ -1,3 +1,183 @@
+###  Публикация: 587620   (220815) от 11.12.2012
+
+VA - Cборник популярной музыки (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Леся Ярославская - Сердце волнуется
+ 02. Michael Mind Project Feat. Dante Thomas - Nothing Lasts Forever (Radio Edit)
+ 03. Интонация (In2Nation) - Переверну мир
+ 04. Pet Shop Boys - Leaving
+ 05. Tom Mountain Feat. Nicco - Run It Back (Original Mix Edit)
+ 06. A-Dessa - Fire нет Wi-Fi
+ 07. Edward Maya Presents Violet Light - Love Story (Original Version)
+ 08. Serge Devant & Danny Inzerillo feat. Polina - When You Came Along (Radio Edit)
+ 09. Artik pres. Asti - Сладкий Сон
+ 10. Inna Feat. Play & Win - INNdiA (Radio Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 03:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40C4CB3B9E9D5CFD9D80A54C80351EB45CD55F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084245   (220596) от 18.12.2016
+
+VA - Новогодний Союз (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх - Когда Мы Были Молодыми
+02. Макс Барских - Неверная
+03. ВИА Гра - Кто ты мне
+04. Quest Pistols Show - Любимка(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457090A2F9551C64944F780438360547C7A5A76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084148   (220564) от 18.12.2016
+
+VA - Новогодняя дискотека Русского радио (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Швец - Новый Год (Marta Ray Remix)
+002. Дана Соколова - Разведи Небо
+003. Дядя Жора & Бигуди Шоу - С Новым Годом!
+004. Мулат - Включила Заднюю(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14935189309C85B226C58A945EFA739D2B92C40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084191   (220144) от 18.12.2016
+
+VA - Русские свежаки радиостанций. Топ новинок поп музыки. Сборник 3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220144.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Brainstorm & Musiqq - Небо Упало В Нас 4:04
+002.Юлия Морозова - Мираж 4:05
+003.Юлианна Караулова - Уникум 3:11
+004.Никита Ломакин - 3000 Карат 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F91CFC85BD565214CED135D6BC578964D1D713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343130   (219594) от 05.12.2019
+
+VA - Golden Hits Of Soulful Dynamics / Disco (2019) [MP3|320 Kbps] <Dance Disco, Pop, Disco House, Funky>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Double B - Disco Modulations
+002. 2lovers - El Sol (Radio Mix)
+003. Antoine Clamaran - Tonight (Original Mix)
+004. Luca Debonaire & Crazibiza - Dance (Crazibiza Mia Mix)(   Читать дальше...   )Жанр: Dance Disco, Pop, Disco House, FunkyПродолжительность: 12:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0755DF0AE03F42E6A5287343EDA165F202A9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585806   (219113) от 24.10.2022
+
+No Angels - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let`s Go To Bed
+02. Love You for Eternity
+03. Be My Man (The Plan)
+04. Still in Love with You (Acoustic Celebration Version)(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E848B60A5CF1D241DB397D14DBA804D0B34B3E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084660   (218925) от 19.12.2016
 
 VA - German Top 50 Official Dance Charts 16.12. (2016) [MP3|320 Kbps] <Pop, Dance>
@@ -577,180 +757,6 @@ Yaki-Da - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4992130CC3B373ABABFF817F8BB7FD3E51673BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645429   (209308) от 09.07.2023
-
-VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209308.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Udo Lindenberg & Apache 207 - Komet (2:47)
-002. Ski Aggu, Joost & Otto Waalkes - Friesenjung (2:26)
-003. Yung Yury & Damn Yury - TABU. (2:15)
-004. Luca-Dante Spadafora, Niklas Dee, Octavian, Peter Plate & Ulf Leo Sommer - Mädchen auf dem Pferd (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 04:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602BC7B897A08143667700273CF1C9844DD2421A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607567   (208925) от 27.01.2023
-
-VA - Workout Music 2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. twocolors - Heavy Metal Love (2:28)
-02. Glockenbach - Dirty Dancing (2:40)
-03. Felix Jaehn - Call It Love (2:34)
-04. MEDUZA - Bad Memories (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C90B74C02797877615E12634C08ADDA481433F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573274   (208873) от 05.09.2022
-
-VA - Вечеринка 'Ласковый Май' (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Шатунов - Седая ночь (DJ Pressure Remix) (7:12)
-02. Ласковый Май Next - Goodbye Baby (4:07)
-03. Илья Гусев - А я всё жду (3:46)
-04. Семён Розов - Абонент недоступен (3:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D1D9C9C79516C0EF211C3AA651413F48AC1250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574489   (208825) от 05.09.2022
-
-VA - Pop Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - I'm Good (Blue) (2:55)
-02. Elton John - Hold Me Closer (3:22)
-03. James Hype - Ferrari (Oliver Heldens Remix) (3:08)
-04. Lizzo - About Damn Time (Purple Disco Machine Remix) (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CDCB82ED9BA2379E24387F7F41D18BA7F39AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574444   (208796) от 06.09.2022
-
-VA - Workout Motivation (Retro Edition)[Mixed by Sergey Sychev ] (2018-2022) [MP3|320 Kbps] <Remix ,EuroDance ,90e ,80e>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Michael Jackson Vous - Billie Jean (80 s Cardio Workout Remix
-2. AC DC - Highway to Hell (KaktuZ Remix)
-3. Global Rockerz feat. Michael Reynaldo - Died In Your Arms
-4. C.C.Catch - Strangers By Night [2017 Remix](   Читать дальше...   )Жанр: Remix ,EuroDance ,90e ,80eПродолжительность: 03:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4299A9466A301300969419F33E57D2B80A0AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649369   (207811) от 28.07.2023
-
-Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lamb's Book Of Life [04:58]
-02. Troy [06:35]
-03. 'Til I Whisper U Something [06:08]
-04. Just Like U Said It Would B [04:32](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0369371CFF8ED0EAE69036342E9C6C61E1CDA989
 ```
 
 https://mybot314.ru/tekegram_catalog/

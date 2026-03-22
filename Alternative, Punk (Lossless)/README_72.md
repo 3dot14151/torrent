@@ -1,3 +1,118 @@
+###  Публикация: 1775061   (29901) от 24.01.2025
+
+Mogwai - The Bad Fire (2025) [FLAC|Lossless|Web-DL|tracks] <Post-Rock, Shoegaze, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Gets You Back (6:41)
+02. Hi Chaos (5:24)
+03. What Kind Of Mix Is This? (4:12)
+04. Fanzine Made Of Flesh (4:34)(   Читать дальше...   )Жанр: Post-Rock, Shoegaze, Instrumental RockПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FC1506F61EA2496DB36CA4FFEFEB8B58895F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777762   (28375) от 07.02.2025
+
+The Offspring - Anti-Valentine’s Day with The Offspring (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ok, But This Is The Last Time [3:24]
+02 - Why Don't You Get A Job [2:53]
+03 - Want You Bad [3:23]
+04 - We Never Have Sex Anymore [3:31](   Читать дальше...   )Жанр: Rock, Alternative Rock, PunkПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2430D2DCA99D113DF0D9F9EBE19E2D3F8F79941E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814111   (28119) от 10.02.2025
+
+Franz Ferdinand - 10 альбомов (2004 - 2025) [FLAC|Lossless|image + .cue, tracks + .cue]<Indie Rock, Brit Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_28119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как-то раз в конце 2001 года Роберт Гарди сидел у Алекса Капраноса на кухне и последний предложил ему сыграть что-нибудь на одолженной у приятеля бас-гитаре. Боб ответил, что он художник, а не музыкант, но попробовать все же решился. Примерно тогда же ребята пришли к идее создания собственной группы, причем Алекс хотел исполнять музыку, "под которую могли бы (   Читать дальше...   )Список альбомов:
+2004 Franz Ferdinand (Limited Edition)
+2005 You Could Have It So Much Better (Japanese Edition)
+2009 Tonight (Limited Edition)Жанр: Indie Rock, Brit PopПродолжительность: 09:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BF25DF23B412631F7B2C3A31C0B2F282B4AD43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228932   (25808) от 04.03.2025
+
+The Smashing Pumpkins - 13 Studio Albums, 1 Live, 4 Compilation, 5 EP, 1 Box Set (1991 - 2024) 41 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_25808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из всех альтернативных рок-групп начала девяностых Smashing Pumpkins менее всего находились под влиянием традиционного рок-андеграунда. Гитарист и автор песен Billy Corgan создавал смесь прогрессива, тяжелого металла, готики и психоделии, получая слоистый, мощный звук. Одна из самых знаменитых альтернативных команд мира. Запись первого альбома производилась на легендарной (   Читать дальше...   )1991 - Gish
+1993 - Siamese Dream
+1995 - Mellon Collie And The Infinite SadnessЖанр: Alternative RockПродолжительность: 31:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931C0781B37D1843A7137EF7B1CA26BA5F3FDF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783220   (25730) от 04.03.2025
 
 Venamoris, Dave Lombardo - To Cross or To Burn (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativa & Indie>
@@ -629,122 +744,6 @@ Linkin Park - From Zero (Deluxe Edition) (2024) U.S., 093624834908, 2025, 2xCD [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5F182A36F89F53F7FD89E303F4E164551A666A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815832   (4666) от 02.09.2025
-
-Linkin Park - From Zero (Expanded Deluxe Edition) (2024) U.S., 093624833468, 2025, 2xCD [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up From The Bottom * (3:03)
-02. Unshatter * (3:16)
-03. Let You Fade * (3:29)
-04. The Emptiness Machine (Live) * (3:18)(   Читать дальше...   )Тип издания: Slipcase With Digisleeve, Deluxe Edition, Expanded EditionЖанр: Alternative / Nu-Metal; Alternative RockПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C444DE8BE922D8D46DD3B9D3EA2CDE35E7D4F243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815968   (4640) от 02.09.2025
-
-Linkin Park - The Hunting Party (2014) Australia, 9362493698 [FLAC|Lossless|image + .cue] <Alternative Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keys To The Kingdom (3:39)
-02. All For Nothing (Feat. Page Hamilton) (3:34)
-03. Guilty All The Same (Feat. Rakim) (5:54)
-04. The Summoning (1:00)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Nu-MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290F8465F828F83377EACA2301A70C0F374255C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816000   (4424) от 04.09.2025
-
-The Offspring - Running & Cycling with The Offspring (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking Out For #1 [00:03:16]
-02. Hit That [00:02:49]
-03. You Can't Get There From Here [00:03:54]
-04. Special Delivery [00:03:00](   Читать дальше...   )Жанр: Rock, Alternative Rock, PunkПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E41FBBE6EC07C7C8CB5586D011A5147B809B83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362403   (3416) от 11.09.2025
-
-Kasabian - 10 альбомов (2004 - 2024) 15 CD [FLAC|Lossless|tracks + .cue, image + .cue]<Alternative, Elecronic, Neo-Psychedelia>
-
->>След.
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kasabian — британская рок-группа, образовавшаяся в 1999 году в Лестере, Англия, и исполняющая электронный рок с элементами брит-попа, паб-/панк-рока, даба и клубной танцевальной музыки. Предлагаемый группой удивительный гибрид рок-н-ролла и электроники заставил критиков и слушателей по иному взглянуть на современную рок-музыку. Kasabian не склонны спекулировать модной (   Читать дальше...   )Список альбомов:
-2004 - Kasabian
-2006 - Empire
-2009 - West Ryder Pauper Lunatic Asylum(   Читать дальше...   )Жанр: Alternative, Elecronic, Neo-PsychedeliaПродолжительность: 15:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE74A4137C62C1B2366E7222F4DC897CE3C7CD78
 ```
 
 https://mybot314.ru/tekegram_catalog/

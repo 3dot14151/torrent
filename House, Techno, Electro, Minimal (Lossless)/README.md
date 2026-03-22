@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1860169   (1061771) от 
+
+VA - Pool Lounge (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorbunoff - Emotional (3:00)
+02. N.E.O.N - Think Twice (4:07)
+03. Elegant Ape - My Moment (3:15)
+04. The Fly - No Go Back (2:43)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A433EAAFF5353A5B0222034A6F6065D00B3746FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859880   (1061403) от 
+
+VA - Ibiza Afro Beats (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - Careless Whisper (3:21)
+02. Cristian Ferrer - Alright (5:58)
+03. Cristian Ferrer - Osupa Ti (3:52)
+04. Elegant Ape - Desert Bloom (3:09)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E40823D672092EE88140D4AC58CEF590954215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858043   (1060337) от 09.03.2026
 
 DJ Slon (Олег Азелицкий) - 5 Albums (2022-2026) [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Experimental, downtempo>
@@ -687,63 +745,6 @@ VA - Dance EDM Workout 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734BBCD0B68D65959FBB6523D8B85B63BE1E096E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852952   (1056509) от 12.02.2026
-
-cv313 - Altering Illusions (Chapter One) (2014) 2CD [FLAC|Lossless|tracks + .cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longing For Darkness	12:32
-02. Hypnosphere	9:53
-03. Standing StillЖанр: Dub Techno, AmbientПродолжительность: 01:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8491F988FA0233114953F517BE0877B3FBFEA57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853157   (1056416) от 11.02.2026
-
-VA - Lounge Hits February 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faraón - With Her (3:55)
-02. Gorbunoff - Keep Falling In Love With You (2:09)
-03. Lino Tenerife - Tell Me Why (Extended Mix) (4:50)
-04. Micheletto - Love (Radio Edit) (3:23)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7779F188F2F79C814736A05E8822D67D03BDDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

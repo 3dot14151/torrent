@@ -1,3 +1,177 @@
+###  Публикация: 1234465   (571151) от 05.07.2018
+
+Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatcha Know Joe? [2:41]
+02. Red Wagon [2:35]
+03. You Ain't Nowhere [2:56]
+04. Please Say The Word [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867F6CD465C8E98F271CCA5E556F7B7C749BC984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234463   (571147) от 05.07.2018
+
+Kenny Barron Quintet - Concentric Circles (2018) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DPW [4:52]
+02. Concentric Circles [7:28]
+03. Blue Waters [5:41]
+04. A Short Journey [5:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B14ACE7367FDD5E3B4C8A7334A5D3F3B7C8B36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303680   (570963) от 22.05.2019
+
+Take 6 - Iconic (2018) SoNo Recording Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Love Again [4:15]
+02. Can't Stop The Feeling [4:05]
+03. Change The World [4:15]
+04. Sailing [4:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C93FE3C45E9181688386C93479F47C9B2BCD1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151773   (570834) от 20.07.2017
+
+Michael Garrick Sextet - Promises (1965) 2008, Vocalion [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promises [03:35]
+02. Parting Is Such [07:26]
+03. I've Got Rhythm [03:35]
+04. A Thing of Beauty [05:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE6D08F25A87CD1649E2644A3CB403F40EF4B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151760   (570832) от 20.07.2017
+
+The Gerry Mulligan Quartet - What Is There To Say (1959) Remaster, 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is There To Say [04:08]
+02. Just In Time [04:15]
+03. News From Blueport [05:08]
+04. Festive Minor [06:18](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B152453A894C4641B1C251F13025185030D6DAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303644   (570829) от 22.05.2019
+
+Cynthia Tauro - Moments (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570829.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dancin' on My Own (03:35)
+2. Someday My Prince Will Come (03:30)
+3. Cara Valente (04:13)
+4. Like That (04:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67256B931BECBC9ECDE1974D1106962D6FAC4342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151762   (570751) от 20.07.2017
 
 Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
@@ -583,186 +757,6 @@ CD1 - Blues For Dracula & Drums Around The World:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C6EB4F6014830D8940CBEF756FB4070C7BC8604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043969   (568933) от 18.08.2016
-
-Naomi & Goro - Bossa Nova Songbook 1 & 2 (2008,2009) [FLAC|Lossless|image + .cue] <Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568933.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008 - Bossa Nova Songbook 1:
-01. Aguas De Marco
-02. So Tinha De Ser Com Voce
-03. Samba De Uma Nota So (One Note Samba)Жанр: Bossa Nova, Vocal JazzПродолжительность: 01:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED0EE6095BB9556810839C06BBF3EBF480C8DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527646   (568869) от 30.07.2012
-
-Bohuslan Big Band - Dont Fence Me In (2011) [FLAC|Lossless]<Modern Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From This Moment On
-02. Too Darn Hot
-03. What Is This Thing Called Love
-04. I Love Paris
-05. Begin The Beguine
-06. Love For Sale
-07. Prelude To Miss Otis Regrets
-08. Miss Otis Regrets
-09. Don't Fence Me In
-10. I've Got You Under My Skin(   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922781   (568354) от 29.07.2015
-
-Jimmy Smith - Stay Loose (1968) /2000, Verve/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Move to the Outskirts of Town [04:45]
-02. Stay Loose [03:56]
-03. If You Ain't Got It [03:08]
-04. One for Members [06:48](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E201C2EED5EA537CD63B544047EACEA775EBD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922511   (568188) от 29.07.2015
-
-Jacques Loussier - Bach to the future (Jacques Loussier Trio) (1986) [FLAC|image +.cue]<Jazz, Third Stream, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in C Minor, BWV.1060
-01. Allegro (05:40)
-02. Adagio (05:42)
-03. Allegro (05:38)(   Читать дальше...   )Жанр: Jazz, Third Stream, Piano JazzПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8ECA4EAE67F675B0B8CC02C37A7E5602454CF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044284   (567589) от 19.08.2016
-
-Freddie Redd - In Sweden (1955, 1956) 2007, Lone Hill Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dawn Mist [02:56]
- 02.Beautiful Adela [03:19]
- 03.I'll Remember April [04:30]
- 04.Reminiscing [02:35](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF4D72CA29192502D259D306EEE8F0AAD9D44AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152239   (567587) от 22.07.2017
-
-Buck Clayton - Tenderly (1959) 2009, Inner City Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got My Love To Keep Me Warm [04:26]
-02. Rosetta [02:49]
-03. Lonesome [03:10]
-04. Tenderly [03:24](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F98D5BED548C45F75B0C98E95FD9376293498A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

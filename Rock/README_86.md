@@ -1,3 +1,148 @@
+###  Публикация: 1590047   (189486) от 12.11.2022
+
+Stratovarius - Will The Sun Rise? (1996) Single, Remastered, T&T [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will The Sun Rise (Album Version)
+02. Speed Of Light (Live Version)
+03. Will The Sun Rise (Live Version)
+04. Eternity (Live Version)(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12702F1B0EA5CDD53257A102F90B42B12DBD3E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589852   (189367) от 12.11.2022
+
+Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only the Strong Survive [00:02:59]
+02. Soul Days [00:03:58]
+03. Nightshift [00:04:56]
+04. Do I Love You (Indeed I Do) [00:02:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF4146C04F7A3EAC43FEA40F572CDA26686D3C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657823   (189305) от 13.09.2023
+
+Roxy Music - The Thrill Of It All (1995) 4CD [MP3|320 Kbps] <Art Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - The Thrill Of It All (1972-1982)
+CD-02 - The Thrill Of It All (1972-1982)
+CD-03 - The Thrill Of It All (1972-1982)(   Читать дальше...   )Жанр: Art Rock, Glam RockПродолжительность: 05:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416FFC723E226CF98656EE14961036A2A28C3CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590284   (189188) от 13.11.2022
+
+Stratovarius - Darkest Hours (2010) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkest Hours
+02. Infernal Maze
+03. Darkest Hours (Demo Version)
+04. Against The Wind (Live)(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5C23B9BEADA0B283CA476EB50681395CED0929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590292   (189174) от 13.11.2022
+
+Stratovarius - Unbreakable (2013) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbreakable
+02. Falling Star
+03. The Game never Ends
+04. Freedom(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C991C3BB1F872622E29805215F26106D0C5005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590419   (189119) от 13.11.2022
 
 Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [MP3|320 Kbps] <Rock>
@@ -600,151 +745,6 @@ Jethro Tull - RokFlote (Alternative Mixes) (2023) [MP3|320 Kbps] <Prog Folk, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1923AE1523486D1D8BAE0ADA889102D42F7AD7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427673   (182250) от 29.11.2020
-
-Omega - Testamentum (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sotetseg Kapuja (Nyitany) (02:18)
- 02. A Fold Arnyekos Oldalan (04:24)
- 03. A Langolo Huszadik Szazad (03:32)
- 04. Varazslatos, Feher Ko (06:19)(   Читать дальше...   )Жанр: Progressive Rock, Hard Rock, Symphonic RockПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE4C0A27D74496D319484E21AF3A0519E6E6C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592959   (181873) от 25.11.2022
-
-Berlin - Count Three & Pray (1986) [OGG Vorbis|480 Kbps] <Electronic, Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will I Ever Understand You
-02. You Don't Know
-03. Like Flames
-04. Heartstrings(   Читать дальше...   )Жанр: Electronic, Rock, Soft RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A89E52E127756C910F4F2C572AA7DD8A2E2C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427991   (181523) от 30.11.2020
-
-M-Opus - Origins (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181523.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Overture (03:44)
- 02. Accidents Will Happen (03:21)
- 03. Please Don't Let Me Go (03:26)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9E17F0E2A45FADD781026121638B69C42BCB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665704   (181346) от 01.10.2023
-
-Jon Lord - Live (2023) [MP3|320 Kbps] <Symphonic Rock, Rock, Classical>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures Of Home [08:26]
-02. The Sun Will Shine Again [04:31]
-03. Bouree [05:37]
-04. Pictured Within [10:04](   Читать дальше...   )Жанр: Symphonic Rock, Rock, ClassicalПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F813AEDBE4BE4AED6DD9CA292598E4509734AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665562   (181311) от 01.10.2023
-
-Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Wot You Dun [02:56]
-02. Gudbuy T'Jane [03:31]
-03. My Friend Stan [02:40]
-04. The Bangin' Man [04:10](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89538C0F989B3F2EFD04BE67E0902E0A20C0519B
 ```
 
 https://mybot314.ru/tekegram_catalog/

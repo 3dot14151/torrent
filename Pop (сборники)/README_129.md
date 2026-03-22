@@ -1,3 +1,177 @@
+###  Публикация: 1817722   (2646) от 15.09.2025
+
+Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Neverending Story
+ 02 - Moonlight Whispers
+ 03 - Love in Bloom
+ 04 - Frozen Tears(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96270272C507A69EE491FB395ABFBF7E811D633F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818286   (2644) от 15.09.2025
+
+Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Con Te, Sono a Casa (Club Version)
+ 02 - L’estate Addosso
+ 03 - Solo Io
+ 04 - Giochi Di Cuore(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92E96B1683480C41DDF3D79E598F2F6CA3011D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817408   (2630) от 15.09.2025
+
+Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Borrowed Kisses
+ 02 - Always Yours
+ 03 - True Love Forever
+ 04 - It's Magic Tonight(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32773D72484D4A72230BD327F875B6A9074A0FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818115   (2618) от 15.09.2025
+
+Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Can't Stop This Love Inside (C.C.Catch - I Can Lose My Heart Tonight)
+ 02 - Midnight Heartbeat
+ 03 - Baby, Baby, Hold Me 2 (Modern Talking - Cheri Cheri Lady)
+ 04 - You're My Heaven (Alternate Version) Bad Boy Blue - You're a Woman(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5ED598F293968B3A6D491A1C60A3710BA49EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817866   (2612) от 15.09.2025
+
+Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Numero Uno
+ 02 - Pasta Con Te (Dream Version)
+ 03 - Non Mi Amava Più (Club Version)
+ 04 - Bella Bavaria(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0697099B1E10B7126623E25EA8FABA2B1ACB505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818850   (2000) от 19.09.2025
+
+Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's Your Fault
+ 02 - More Than Words
+ 03 - Good Night My Darling
+ 04 - Endless Love(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F8CDE6E794897F0DC720E0DB097C7FA3342509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818876   (1974) от 19.09.2025
 
 Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco, Vocal, Other>

@@ -1,3 +1,351 @@
+###  Публикация: 1703547   (115048) от 29.02.2024
+
+Автограф - Рок-группа "Автограф" (1985) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. S.O.S. (А.Ситковецкий) — 4:25
+02. Реквием (памяти Джона Леннона) (А.Ситковецкий – М. Пушкина, Б. Баркас) — 8:29
+Сторона 2:(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703210   (115029) от 29.02.2024
+
+Los Angeles - Лос Анхелес (1974 (1967)) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01 - Дорога к тебе / Noventa Y Ocho Punto Seis (G. Fischoff / T. Powers / J. M. Pater);
+02 - Любила ли ты когда-нибудь? / Has Amado Alguna Vez? (Have You Ever Loved Somebody?) (A. Clarke / T. Hicks / G. Nash);
+03 - Молчание-золото / El Silencio Es Oro (Silence Is Golden) (Bob Gaudio / Bob Crewe);(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE35D1AFDD151E2DE09DB6AB3AF0FF0B27DD3CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703448   (115026) от 29.02.2024
+
+Army of Lovers - Massive Luxury Overdose (1993 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+1. We Stand United
+2. Crucified
+3. Candyman Messiah(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150755A436A964C98B5487901B92D73EDA2A024E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703592   (115020) от 29.02.2024
+
+Александр Барыкин - Букет (1988) [FLAC 24/192|Lossless|tracks] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01-Букет (Н. Рубцов) — 3.38
+02-Дождь и снег (М. Рябинин) — 4.36
+03-Осенний парк (Б. Дубровин) — 5.05(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE54B21CD285E88C05B2FCD7A20FA74B73BF13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703590   (114998) от 29.02.2024
+
+AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Deeds Done Dirt Cheap
+02. Ain't No Fun (Waiting Round to Be a Millionaire)
+03. There's Gonna Be Some Rockin
+04. Problem Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7C58CF7641C37D42FBA92A43F49D18BBE43C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703542   (114996) от 29.02.2024
+
+AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Long Way to the Top (If You Wanna Rock 'n' Roll)
+02. Rock 'n' Roll Singer
+03. The Jack
+04. Live Wire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35446AD24DA6384B1BC64871208B6EA7AAD1B28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703485   (114991) от 29.02.2024
+
+Автограф - Каменный край (1989) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01-Город.
+02-О, мой мальчик.
+(Группа "Автограф" - С.Патрушев)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5238997836B32FA01B1BE91F11FF12AFC0456B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703571   (114989) от 29.02.2024
+
+Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Melodic Death/Pagan Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brymir — финская мелодик-дэт-метал/симфоник-метал группа из Хельсинки, основанная в 2006 году.2011 - Breathe Fire to the Sun
+2016 - Slayer Of Gods
+2019 - Wings Of Fire
+2022 - Voices in the SkyЖанр: Symphonic/Melodic Death/Pagan MetalПродолжительность: 03:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CD34E232C0EB34F4C42508B817BA2C6EAF8130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703782   (114835) от 01.03.2024
+
+VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01 - Найти и потерять (музыка и слова Г. Рябцева) — 4.57
+Г. Рябцев
+02 - Выше голову (музыка и слова С. Попова) — 3.31(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12858237BB9964ACC8017741E3EEE09B53C42B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703725   (114834) от 01.03.2024
+
+Андрей Миронов - Это песня для близких друзей... (Песни Яна Френкеля) (1987) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Я выхожу на сцену (Р. Рождественский)
+02. Так повелось... (В. Меньшиков)
+03. Он и она (Р. Рождественский)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530D5158AD88D58F909DD53534403C9BDAB68689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703643   (114821) от 01.03.2024
+
+AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby, Please Don't Go
+02. She's Got Balls
+03. Little Lover
+04. Stick Around(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCDA12DE92B4F5CACDA3A02105382AA30DC6532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703794   (114816) от 01.03.2024
+
+AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Down
+02. Dog Eat Dog
+03. Let There Be Rock
+04. Bad Boy Boogie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE34ABBA70E1C841DD8D119D9370AE48E0560634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703685   (114809) от 01.03.2024
 
 Александр Барыкин - Эй, смотри! (1990) [FLAC 24/192|Lossless|tracks] <Rock>
@@ -397,354 +745,6 @@ Deep Purple - Дым над водой. Архив популярной музы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D0B97578B507A2B7FA2C3FDAE59E9C857FB1EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704215   (114350) от 04.03.2024
-
-Black Sabbath - Sabotage (1975) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-01 - Hole In The Sky.
-02 - Don't Start (Too Late).
-03 - Meglomania.(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134DA743B3E5EA056A658A993E824857432432C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704306   (114347) от 04.03.2024
-
-Creedence Clearwater Revival - Бродячий оркестр. Архив популярной музыки 3 (1988) [FLAC 24/96|Lossless|tracks] <Blues-Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - На углу. - Down On The Corner. (J.C.Fogerty). Запись 1969 г.
-02 - Хлопковые поля. - Cotton Fields. (H.Ledbetter). Запись 1969 г.
-03 - Счастливый наследник. - Fortunate Son. (J.C.Fogerty) Запись 1969 г.(   Читать дальше...   )Жанр: Blues-Rock, Classic RockПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0EDD3DB65BD7823C32CAF16928EDE16D79CBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704412   (114345) от 04.03.2024
-
-Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A.
-01 - Once Upon A Time In The West
-02 - News
-03 - Where Do You Think You're Going?(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0184865B738942EBFE389D32E8EFE0C87AB21C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704406   (114335) от 04.03.2024
-
-Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC 24/192|Lossless|tracks] <Pop, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Будь готов встретить любовь. Gettin' Ready For Love. (T.Show-F.Golde)
-02 - Ты получил это. You Got It. (J.Ragovoy-L.Laurie)
-03 - Бэби, это я. Baby It's Me. (D.Dann-C.Smith)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4EBB4911A66D40EF8F0AEB5334F6439C66E785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704212   (114316) от 04.03.2024
-
-Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-01. Sabbath Bloody Sabbath
-02. A National Acrobat
-03. Fluff(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECF220750FF2BE1B10594E48D10660F18EDFDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704178   (114299) от 04.03.2024
-
-AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock 'n' Roll Damnation
-02. Down Payment Blues
-03. Gimme a Bullet
-04. Riff Raff(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1900260B7544077A876F8BDC733B2192B28E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704427   (114297) от 04.03.2024
-
-Бонни Дзякс (Япония) - Квартет "Бонни Дзякс" (1982) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A
-01 - Море В Чашке Кофе
-02 - Ресторан Для Птиц
-03 - Продаются Золотые Рыбки(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBA5551A2B8AC030160016A0D5A8C5D91AD9066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704448   (114295) от 04.03.2024
-
-Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Euthanasia
-03 - Illusions of life
-04 - Hangman's confession(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5D1A82E8F3555CAD98E54477CD7F95461A6B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704591   (114235) от 05.03.2024
-
-AC/DC - Flick of the Switch (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Rising Power"
-02. "This House Is on Fire"
-03. "Flick of the Switch"
-04. "Nervous Shakedown"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948933FC27F32699A1A98FAC5D46B3BFFEF95CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704665   (114232) от 05.03.2024
-
-AC/DC - Fly On The Wall (1985)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Fly on the Wall"
-02. "Shake Your Foundations"
-03. "First Blood"
-04. "Danger"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F5858B3C4CD2E6CE89C410C576A028F85C5136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704596   (114200) от 05.03.2024
-
-Московский камерный оркестр, Р. Баршай - J.S.Bach - Brandenburgische Konzerte BWV 1048, 1049 (И. С. Бах - Бранденбургские концерты №3, 4) (1958) [FLAC 24/96|Lossless|tracks] <Classical, Concerto ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114200.jpg" />
-</div>
-
-
-###  Подробнее
-
-сторона 1
-Бранденбургский концерт № 3, соль мажор
-01. Часть: Аллегро
-02. Часть: Аллегро(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A388896F1208DC7B6D063A92FB140D23AA9D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704530   (114158) от 05.03.2024
-
-AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "For Those About to Rock (We Salute You)"
-02. "I Put the Finger on You"
-03. "Let's Get It Up"
-04. "Inject the Venom"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
 ```
 
 https://mybot314.ru/tekegram_catalog/

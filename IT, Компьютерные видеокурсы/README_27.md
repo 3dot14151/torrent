@@ -1,3 +1,58 @@
+###  Публикация: 970867   (988255) от 01.01.2016
+
+Google Analytics Academy | Основы аналитики мобильных приложений / Mobile App Analytics Fundamentals (2015) HDTV [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mobile App Analytics Fundamentals
+"Основы аналитики мобильных приложений" на русском языке.
+Курс состоит из 13 уроков, средняя продолжительность каждого 2-3 минуты.
+(   Читать дальше...   )Производство: Google Inc.Жанр: образовательная программаПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA71ABF9BDC9A38FF5EF8AE7A1098CFD1CE6D94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970798   (988246) от 01.01.2016
+
+Google Analytics Academy | Основы цифровой аналитики / Google Analytics Platform Principles (2015) HDTV [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеокурс Analytics Academy - Google Analytics Platform Principles поможет вам подготовиться к индивидуальной сертификации по Google Analytics. Официальное видео от Google, неофициальная озвучка.Производство: Google Inc.Жанр: образовательная программаПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BABDE7508B4EBB7AC77D08E709836A2FDAC239D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970860   (988219) от 01.01.2016
 
 Google Analytics Academy | Аналитика в электронной торговле: От данных к решениям / Ecommerce Analytics: From Data to Decisions (2015) HDTV [H.264/720p]
@@ -632,60 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977883   (963238) от 23.01.2016
-
-Google Best Practices | Расширения в Google AdWords (Ad extensions Google AdWords) (2015) HDTV [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс Google Best Practices. Расширения в Google AdWords (Ad extensions Google AdWords) позволяют донести до пользователей дополнительную важную информацию о вашей компании или вашем бренде. Также расширения в Google AdWords влияют на рейтинг объявления, который влияет на стоимость клика по объявлениям, чем выше рейтинг, тем дешевле клики! Расширения объявлений (   Читать дальше...   )Производство: Google Inc.Жанр: РекламаПродолжительность: 00:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA82F15386657F2DE3F284B7422940BA11AF22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977558   (963170) от 23.01.2016
-
-Udemy | The Ultimate Web Designer and Developer Course | Brad Hussey (2015) [H.264/720p] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы пройдете путь от "понятие не имею" до создания более 23 великолепных веб-сайтов и приложений, и все это шаг за шагом с самым интересным и влюбленным в код инструктором.
-
-Мы начнем с изучения Визуализации и Веб-дизайна, как пользоваться Adobe Photoshop и как рисовать профессиональные каркасы. Затем мы научимся кодить с HTML5, CSS3, Javascript и JQuery. (   Читать дальше...   )Жанр: Вёрстка, HTML5, CSS3, Bootstrap, WordPress, Photoshop,  jQuery, PHPПродолжительность: 32:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BB5FC9C96C4B290A79841A679E9D732CAA4FEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

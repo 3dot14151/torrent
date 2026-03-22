@@ -1,3 +1,32 @@
+###  Публикация: 1621343   (245073) от 25.03.2023
+
+Babymetal - The Other One (2023) [FLAC|Lossless|WEB-DL|tracks] <J-Metal, Modern Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. METAL KINGDOM (5:51)
+02. Divine Attack - Shingeki - (3:38)
+03. Mirror Mirror (3:50)
+04. MAYA (3:23)(   Читать дальше...   )Жанр: J-Metal, Modern MetalПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB93C0FE70533125BA81C5E8979A955E52FAF4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548105   (240902) от 02.05.2022
 
 Heterogeneous Andead - Chaotic Fragments (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Symphonic Metal>
@@ -772,35 +801,6 @@ Sun Flower Field - 4 альбомa (2009-2011) [FLAC|Lossless] <Touhou, Vocal, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A938DAEA635B1356FF5D09913F32BB186B2DEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736904   (221668) от 21.12.2013
-
-Bloody Sword - 3 альбома (2011-2013) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-Metal, Death Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.10.11 (BS-0001) 東方歌劇曲 (Kouroumu 5)
-2009.12.30 (BS-0002) 東方歌謡メタル (C77)
-2010.03.14 (BS-0003) 東方妖艶録 (Reitaisai 7)Тип издания: DoujinЖанр: J-Metal, Death MetalФормат: Touhou VocalПродолжительность: 00:01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB207A07180EBBDE83CF0805AD1801463FFAE7CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

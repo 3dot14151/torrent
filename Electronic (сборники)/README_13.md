@@ -1,3 +1,61 @@
+###  Публикация: 1839213   (1003322) от 27.11.2025
+
+VA - Viral Beats (2025) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003322.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kase Kochen - Images Of The Divine (00:06:02)
+002. Ghost In The Metaverse - Ahora Noto (00:02:05)
+003. Zeskullz - Acid Bastards (00:06:08)
+004. Cyberpunkers - Aetherion (00:05:38)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C54E81DA4E9D41CFB4301B4C519A9052599E5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349958   (1003299) от 06.01.2020
+
+VA - Vibrant Color Sound: Top 100 Dj Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003299.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Angelo & Don Argento - Entrance Of The Underworld
+002. Verve - Freedom (Apo Tulup Remix)
+003. Divorosso - Boxy Baby
+004. Lessovsky - Fluids(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4670BF7C40B18A4A5E224E43DE871A3241B0F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350678   (1003020) от 07.01.2020
 
 VA - Neurochemistry: Psychedelic Trance (2020) [MP3|320 Kbps] <Psy Trance>
@@ -687,64 +745,6 @@ VA - Uplifting Urban Sounds: Trance Set (2021) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770ABAD4D4F5EA480205A79E163F3B75C321CAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488954   (1001182) от 14.08.2021
-
-VA - Epic Trance: Progressive Edition (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vyacheslav Sketch - Light
-002. Radioactive Project - Talking To The Moon
-003. Milad E And David Deere - Angelic
-004. Solid Sleep - Heaven(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3666985B0CABF4B00931CB5561A9E72E29D20F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488965   (1001166) от 14.08.2021
-
-VA - Vocal Chillout Music: Relax Session (2021) [MP3|320 Kbps] <Chillout, Relax Electro, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Costa & Emma Horan - New Dawn Breaking
-002. Fine. - Asking For A Friend
-003. Anna Of The North - Believe
-004. Aurosonic - They Wait For Us(   Читать дальше...   )Жанр: Chillout, Relax Electro, DowntempoПродолжительность: 06:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661D38818C7B51D09D708D16F1152DBE88DEA339
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,323 @@
+###  Публикация: 1667052   (178209) от 06.10.2023
+
+Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore / Alt. Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_178209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got [00:00:55]
+02. Nowhere To Go [00:03:03]
+03. Erase The Pain [00:03:27]
+04. Let Me Drown [00:03:18](   Читать дальше...   )Жанр: Post-Hardcore / Alt. RockПродолжительность: 00:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E595F46D5797EB11C307525A15FD41ACE723720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666732   (178126) от 06.10.2023
+
+Van Halen - The Collection II (2023) Remaster [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Pop Rock, AOR, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_178126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1: 5150
+Disc 2: OU812
+Disc 3: For Unlawful Carnal Knowledge(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Pop Rock, AOR, Glam MetalПродолжительность: 5CD, 03:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5563382293A439E8328F8A83C971CB98A2FA9BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663991   (177947) от 06.10.2023
+
+Владимир Кузьмин - Три Альбома (1987-1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Борисович Кузьмин (род. 31 мая 1955, Москва, СССР) — советский и российский музыкант, гитарист, мультиинструменталист, автор песен, звукорежиссёр, вокалист. Один из основателей и лидеров группы «Карнавал», лидер группы «Динамик», народный артист РФ (2011).
+Владимир Кузьмин — талантливый рок-музыкант, композитор и исполнитель, который сумел покорить сердца (   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1254A68D021771EDD4B767628C7B63A639EA2EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594487   (177838) от 01.12.2022
+
+Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pretty Maids — датская рок-группа, основанная в 1981 году в Хорсенсе, Дания.
+Стиль группы можно определить как достаточно мелодичный, с использованием клавишных, хэви-метал и пауэр-метал, несколько более мягкий, нежели у Running Wild или Helloween, но более жёсткий, чем у Europe.
+Группа была создана гитаристом Кеном Хаммером и вокалистом Ронни Аткинсом в 1981 году (   Читать дальше...   )1983 - Pretty Maids (EP)
+1984 - Red, Hot And Heavy
+1987 - Future World
+1990 - Jump The GunЖанр: Melodic Heavy MetalПродолжительность: 13:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873528554EF0589C946A6845EDFF0D18AC897748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319188   (177798) от 06.10.2023
+
+Игорь Тальков - Навсегда (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнце уходит на Запад
+02. Война
+03. Стоп! Думаю себе
+04. Россия(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA055BF15DF1DD31930B4F60AD90124BCF337410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667196   (177613) от 07.10.2023
+
+Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177613.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Nth
+A2 - Esp Ion Age
+A3 - Husk
+A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death MetalПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415153   (177080) от 02.12.2022
+
+Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177080.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1a Sweet Dreams (Ghosts)
+A1b Night Light (Ghosts)
+A1c Guardian Angel (Ghosts)
+A2 Lemon Pie(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E3B0F168FE5E6E8835206CDAC244C27EA38642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594850   (177050) от 02.12.2022
+
+VA - The Absolute Sound (TAS) (2012) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Njaalkeme (04:54) - Garmana
+02. Sakura Sakura (03:24) - Nicki Parrott
+03. Down The Years I Travelled (04:02) - Allan Taylor
+04. There You Are (05:44) - Brooke Miller(   Читать дальше...   )Жанр: Jazz, Pop, ClassicalПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFABD737768B2AA99CD20F5C35BE1FF78E246BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667431   (177006) от 08.10.2023
+
+Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_177006.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Somewhere, My Love
+A2 Yesterday
+A3 My Best Beau (My Best Girl)
+A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667428   (176509) от 08.10.2023
+
+Мираж - Снова Вместе (Черновик) (1988-1989) hand made, remastered [FLAC|44/16|tracks|MB-Rip] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176509.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1 (48:51)
+
+[4:33] 01. Млечный путь
+[4:45] 02. Где Я(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595115   (176404) от 03.12.2022
+
+Демонстрационный диск DTS 5.1 CD-Audio #10 (2022) [DTS 5.1 CD-DA| 44.1/16|image+.cue|DVD-Audio] <Rock, Demo>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176404.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вот, наконец, и мой десятый, юбилейный диск, являющийся продолжением предыдущих раздач этой серии. Материал в нем - в основном - рок различных авторов, исполнителей и годов выпуска.
+Все треки имеют шесть полноценных каналов звука.При подготовке использовался материал, представленный ув. meloman, который, впрочем, не скрывал, что и сам нашел его на просторах Сети (   Читать дальше...   )01. America - Ventura Highway
+02. Chicago - 25 or 6 to 4
+03. The Corrs - Breathless
+04. Crowded House - Don't Dream It's Over(   Читать дальше...   )Продолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D01822FF13DE433B4100F1E1E46B6215FB5735A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667708   (176155) от 09.10.2023
 
 Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
@@ -424,325 +744,6 @@ Trivium - Vengeance Falls (2013) Remaster, 2023, Road Runner Entertainment [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2337DCE919CDF85B0F206F7599BA1F7B4A505481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668017   (175328) от 10.10.2023
-
-Заточка - Острые края (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Острые края (4:50)
-02. Старый я (3:59)
-03. Дамы и господа (3:58)
-04. Братское сердце (3:09)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2253F5417C05EF4DDC2915228512D39FD14AE552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667997   (175321) от 10.10.2023
-
-Tardigrade Inferno - Burn the Circus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Cabaret Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ringmaster Has to Die [00:04:32]
-02. Clockwork God [00:04:26]
-03. Rats [00:03:13]
-04. Cholera [00:04:06](   Читать дальше...   )Жанр: Dark Cabaret MetalПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1340F88A08569D9138EB509C75138F9238CC1D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667866   (175276) от 10.10.2023
-
-Arabs In Aspic - Arabs In Aspic - 4 Albums (2020-2022) [FLAC 24/44.1/48|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Madness and Magic
-2022 - Far out in Aradabia
-2022 - Progeria(   Читать дальше...   )Жанр: Progressive Rock, Hard Rock, Symphonic RockПродолжительность: 4 CD, 02:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79EFF9A063CFAEFA91279D538DDB63EBF0B1304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668144   (174595) от 11.10.2023
-
-Чёрный Кофе - Белый Ветер (2002) [FLAC|Lossless|image + .cue] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Убытие
-02. Я Не Ранен - Я Убит
-03. Девятый День(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F14EE1F259D198B5DC0EF4D437637AA29DCA3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430188   (174233) от 09.12.2020
-
-VA - Ленинградский Рок-клуб (1988) Записи 1986 - 1987 гг. [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Alternative Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174233.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Игры - Освобождение (I Want To Be Free)
-A2 Алиса - Мое Поколение (My Generation)
-A3 Присутствие - Выйди Вон (Get Out)
-A4 АВИА - Шла Машина Грузовая (The Passing Lorry)(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668444   (174113) от 12.10.2023
-
-Fraction - Moon Blood (1971) Reissue, 2023, RidingEasy Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanc-Divided [00:03:51]
-02. Come Out Of Her [00:04:56]
-03. Eye Of The Hurricane [00:08:56]
-04. Sons Come To Birth [00:05:26](   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6BE4763BF603F1841D0AD24D92C9BD36FC4A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668283   (174097) от 12.10.2023
-
-Living Dead Girl - Exorcism (2021) Deluxe Edition, 2023, Buried Alive Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Metal, Female Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive [00:03:32]
-02. Beautiful [00:03:31]
-03. Give Up [00:04:14]
-04. Exorcism [00:03:53](   Читать дальше...   )Жанр: Alternative Metal, Female VocalsПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903528549CE04CA1320BE4C22C5DD6A5BAD4F5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668550   (174070) от 12.10.2023
-
-Ronnie Atkins - Trinity (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trinity (4:30)
-02. Ode To A Madman (4:33)
-03. Paper Tiger (4:00)
-04. Soul Divine (5:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A146A1325DD9A95DDF512B851D48FD38F8097640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668447   (173960) от 12.10.2023
-
-John Lennon - Imagine (1971) The Raw Studio Mixes, 2023, UMC [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (Take 10 / Raw Studio Mix) [00:03:12]
-02. Crippled Inside (Take 6 / Raw Studio Mix) [00:03:50]
-03. Jealous Guy (Take 29 / Raw Studio Mix) [00:04:21]
-04. It's So Hard (Take 11 / Raw Studio Mix) [00:02:42](   Читать дальше...   )Жанр: RockПродолжительность: 01:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A348C11DC79094EEEDC9EE0B6648E8279737794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668448   (173945) от 12.10.2023
-
-John Lennon - Imagine (1971) The Elements Mixes, 2023, UMC [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (Elements Mix) [00:02:14]
-02. Crippled Inside (Elements Mix) [00:03:39]
-03. Jealous Guy (Elements Mix) [00:04:14]
-04. It's So Hard (Elements Mix) [00:00:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B5383F6E86C8D4C7AB8884962048B1C04B4D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085375   (173820) от 21.12.2016
-
-Александр Барыкин - Букет (1988) [WavPack|192/24|image + .cue|Vinyl-Rip] <Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Букет (3:38)
-02. Дождь И Снег (4:36)
-03. Осенний Парк (5:05)
-04. Голос Твой (5:26)(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
 ```
 
 https://mybot314.ru/tekegram_catalog/

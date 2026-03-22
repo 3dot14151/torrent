@@ -1,3 +1,116 @@
+###  Публикация: 1349650   (1004226) от 02.01.2020
+
+Mark Knopfler - More BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Folk, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dixie Flyer (ft. Randy Newman)
+02. Roll with Punches (ft. Randy Newman)
+03. You Better Move On (ft. Randy Newman)
+04. Blue Monday (ft. Dave Bartholomew)(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:054C02C5F8CA409E60B32D47EF82557AB2F65316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487131   (1004143) от 03.08.2021
+
+Anekdoten - Until All the Ghosts Are Gone (2015) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shooting Star
+02. Get Out Alive
+03. If It All Comes Down to You
+04. Writing On the Wall(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DE5EE12BADBFD6A843084A8529400A0930EB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657158   (1003831) от 04.08.2021
+
+The Steamboat Band - Runners And Riders (1995) [FLAC|Lossless]<Rock, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE4DC231C5D52F3E9D5A7E0D8FB0BDE4FB9A777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839238   (1003372) от 27.11.2025
+
+Queen - Live At The Rainbow '74 (1974) 2xCD, SHM-CD, Japanese Edition, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Prog Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Queen II Tour Live At The Rainbow, March '74:
+01. Procession
+02. Father to Son
+03. Ogre Battle(   Читать дальше...   )Жанр: Classic Rock, Prog Rock, GlamПродолжительность: 02:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE89F4C7CFCBE288D220B5CE759DB4B9D6F187A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350331   (1003332) от 06.01.2020
 
 The Troggs - From Nowhere (1966) 1989, DJM Records [FLAC|Lossless|tracks + .cue] <Rock>
@@ -651,122 +764,6 @@ Sting - Fifteen Healing Bites (2012) сборник [FLAC|Lossless]<Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353100   (993118) от 16.01.2020
-
-Queen - Greatest Hits In Japan (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody To Love (2011 Mix)
-02. Don’t Stop Me Now (2011 Mix)
-03. Teo Torriatte (Let Us Cling Together) (2011 Mix)
-04. Spread Your Wings (2011 Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC2C8AA242BF8FFF0EF20B10DE0EE2D2ED6C5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431140   (993049) от 03.01.2012
-
-Toto - The Seventh One (1988) [FLAC|Lossless]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pamela :: 05:10
-02. You Got Me :: 03:13
-03. Anna :: 04:55
-04. Stop Loving You :: 04:30(   Читать дальше...   )Жанр: Pop Rock      |Продолжительность: 00:54:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353441   (991979) от 18.01.2020
-
-Scandal - Warrior (1984) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The warrior [4:03]
- 02 - Beat of the heart [4:46]
- 03 - Hands tied [4:08]
- 04 - Less than half [4:18](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3F28374F4F66F88E2AA957E0B53A7221B0446F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354076   (989832) от 20.01.2020
-
-VA - Prog Rocks! (2011) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Prog-Rock, Blues-rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лейбл EMI всегда отличает вдумчивый подход ко всему, что выпускается под этими тремя буквами. Не стал исключением и этот релиз, посвященный такой интереснейшей ветви рока, как прог-рок. Конечно, у настоящих любителей (и профессионалов) рока всё, что здесь в треклисте есть в домашних коллекциях. Но когда из каждого диска или группы взято самое интересное с 1969 по (   Читать дальше...   )CD1:
-01. Jethro Tull - Cross Eyed Mary  (4:10)
-02. Van der Graaf Generator - Darkness  (7:26)
-03. Rare Bird - Sympathy  (2:46)(   Читать дальше...   )Релиз состоялся: 26 сентября 2011 годаЖанр: Prog-Rock, Blues-rock, RockПродолжительность: 02:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFDD929BCA8A7468801E603F252AE238182775A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1651596   (221277) от 07.08.2023
+
+Sam Rucker - In Position, The Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Position (4:00)
+02. Unspeakable (3:48)
+03. Be Thankful For What You Got (5:01)
+04. One Touch (4:19)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F001F7DA4D7DAC29CA3540E2ED8FD6989AC5C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651595   (221270) от 07.08.2023
+
+Patrick Yandall - Dance in the Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Boy (4:22)
+02. Find Your Purpose (4:25)
+03. Dance In The Rain (4:17)
+04. House Party (4:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71800411A4B48A0995FF8BF3F1A4426A4195F149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651594   (221263) от 07.08.2023
+
+Everett B Walters - Funkin Under the Chicago Skyline (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Minutes 2 Funk (5:07)
+02. On The Upside (5:35)
+03. Where Did Time Go (3:09)
+04. It's So Amazing (4:41)(   Читать дальше...   )Жанр: Smooth Jazz, FunkПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96A1AFBF4B3051A6E30373EDED2B85D85EDD6C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651599   (221233) от 07.08.2023
+
+Thom Rotella - Say Hey! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virtual Insanity (3:35)
+02. Patti Cake (4:29)
+03. Sugar (4:23)
+04. Somethin’ about You (3:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83CBB63BC2D266B17F67B1200BA64BA1DAE11C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651606   (221161) от 07.08.2023
+
+VA - Jazzin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_221161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong - What A Wonderful World (2:18)
+02. Etta James - At Last (3:03)
+03. Nina Simone - Feeling Good (2:55)
+04. Nat King Cole - L-O-V-E (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A566FA421EECB047C29430F943E72E2A2BE6384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084545   (221033) от 18.12.2016
+
+Babylon Circus - La Belle Etoile (2009) [WavPack|Lossless|tracks + .cue] <Ska-Jazz,Punk,Variete>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Des Fois
+02. Marions-Nous Au Soleil
+03. L'Envol
+04. Sur La Tete(   Читать дальше...   )Жанр: Ska-Jazz,Punk,VarieteПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEE1B2F65D167883B65AF2970E13A04C08A07B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425539   (220977) от 21.11.2020
 
 The Thad Jones / Mel Lewis Orchestra - The Complete Solid State Recordings of The Thad Jones / Mel Lewis Orchestra (1966 - 1970) 1994, 5CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop ...
@@ -571,180 +745,6 @@ Sonny Cox - The Wailer (1966) Remaster, 1998, Universal[FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B59E816B14828EC82B0293D3DB29BAB23E29437A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084776   (219224) от 19.12.2016
-
-Coleman Hawkins - Bouncing With Bean (1926-1949) 2CD, 2010, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219224.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.The Stampede [03:18]
-02.Miss Hannah [03:03]
-03.Hello Lola [03:20](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F808BE7E44077714EA155F01925458E3796CEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425784   (219164) от 22.11.2020
-
-Mal Waldron - You And The Night And The Music (1983) 2005, King Record [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way You Look Tonight [6:16]
-02. Bags' Groove [6:20]
-03. 'Round Midnight [6:21]
-04. You and the Night and the Music [4:54](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B586935B184A00CD8A994C672FF01FB81AE6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966375   (219066) от 18.12.2015
-
-VA - 'That's What I Call Sweet Music': American Dance Orchestras of the 1920s (1928-1929) 2000, EMI[APE|image+.cue] <Early Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Specht & His Orchestra/ That's What I Call Sweet Music [1929] (3:18)
-02. Red Nichols' Stompers/Make My Cot Where The Cot-Cot-Cotton Grows [1927] (3:23)
-03. Blue Steele And His Orchestra/ Be My Baby [1928] (2:57)
-04. The Red Hot Mamas, Herman Kenin And His Ambassador Hotel Orchestra /I'm The Last Of [1929] (2:42)(   Читать дальше...   )Жанр: Early Jazz, Swing, Big BandПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAF7066FD018F1902B909C0DD522C64B54841FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425781   (219051) от 22.11.2020
-
-Big Band Brothers - A Jazz Celebration of The Allman Brothers Band (2019) New West Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Statesboro Blues [5:14]
-02. Don't Want You No More [3:48]
-03. It's Not My Cross to Bear [7:52]
-04. Hot 'Lanta [5:15](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Straight-Ahead JazzПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77ECE808F539AADE14BA1E451E561F85247BB894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652148   (219015) от 10.08.2023
-
-Oscar Pettiford - Another One (1955) 2000, Bethlehem [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kamman's A' Comin' [4:12]
-02. Minor Seventh Heaven [4:11]
-03. Stardust [3:32]
-04. Bohemia After Dark [5:35](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C7AEAAD776E6F7A7B06E227F404C56F2C46A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084767   (218991) от 19.12.2016
-
-The Ray Conniff Singers - Christmas With Conniff (1959) 1990, Columbia[FLAC|Lossless|tracks + .cue] <Jazz-Pop, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jingle Bells [02:47]
- 02.Silver Bells [02:31]
- 03.Frosty The Snowman [02:22]
- 04.White Christmas [02:50](   Читать дальше...   )Жанр: Jazz-Pop, Easy ListeningПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E840FE9B94F5027FECE09C2D0597BF3BB290B7AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

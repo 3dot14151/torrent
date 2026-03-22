@@ -1,3 +1,148 @@
+###  Публикация: 1074364   (338425) от 19.11.2016
+
+Легендарные Пластилиновые Ноги - В духе времён (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игреки-иксы
+02. Кино
+03. Паразит
+04. Без прикрас(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934382E25824671B46F28D32AA08EC7812973215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181074   (338011) от 05.11.2017
+
+Lone Star Hippie - Mind Ride (2017) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Ride (03:52)
+02. Love Street (03:37)
+03. Uncle Sam's Death March (03:37)
+04. Ain't No Wrong Man (03:46)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F58F81E23F303F15FEEBA941CC23C3C9C497C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954929   (337358) от 09.11.2015
+
+we.own.the.sky - Earths Collide (2015) [OGG| 429-502 кб/с]<Experimental Instrumental Post Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. УВБ-76
+02. Transmissions Of Static
+03. Muzzle
+04. Penny For Your Thoughts(   Читать дальше...   )Жанр: Experimental Instrumental Post Metal, Post RockПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7A271877FC477564394BE55ADA1629222674D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955109   (337357) от 09.11.2015
+
+VA - Southern Rock Christmas (2015) [MP3|320 кб/с]<Christmas, Southern Rock, Blues Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outlaws - What Child Is This
+02. Artimus Pyle Band - God Rest Ye Merry Gentlemen
+03. Steve Morse - We Three Kings of Orient Are
+04. Point Blank - Merry Christmas Baby(   Читать дальше...   )Жанр: Christmas, Southern Rock, Blues Rock, Country RockПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEAE6E6CFC35411E36C7423E94EC9FE3C781E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954993   (337349) от 09.11.2015
+
+VA - Keep Calm and Salute Queen (2015) [MP3|320 кб/с]<Rock, Hard Rock, Metal, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tie Your Mother Down - Lemmy Kilmister & Ted Nugent
+02. We Will Rock You - L.A. Guns
+03. Bohemian Rhapsody - John Wetton
+04. Killer Queen - Glenn Hughes & Carmine Appice(   Читать дальше...   )Жанр: Rock, Hard Rock, Metal, PopПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A031BAD2C707DC1D17A81A87AD61D1A5600C2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579431   (336497) от 27.09.2022
 
 Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
@@ -600,152 +745,6 @@ Roadhouse - Roadhouse (1991) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C8E0F84C8AF8C128C96F5A6D8C29E44252A45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580473   (330802) от 01.10.2022
-
-Def Leppard - CD Collection Volume 3 (2021) (6 CD), Remastered, Compilation, 2021, UMC [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Now
-02. 	Unbelievable
-03. 	You're So Beautiful
-04.	Everyday(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 04:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEA0780C209445396D56E9CFC404E372C40D1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956515   (330213) от 14.11.2015
-
-Zdob Si Zdub - Белое вино / Красное вино (2010) [MP3|320 кб/с]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стоп, мафия! feat. Сергей Михалок (02:46)
-02. Гооол! (03:59)
-03. Невеста (03:28)
-04. Молдавский хардкор (04:09)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DF8FE3893658DFFE9225E0D0F5D40C4BA0B75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580741   (329984) от 02.10.2022
-
-Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Hard The Hunter
-02. Animal
-03. Excitable
-04. Foolin.(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339783475BE2C91BF8CD2BB00A6541178AA79824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580559   (329924) от 02.10.2022
-
-B.O.W. (Brotherhood Of Wolves) - A Dump Of Twisted Destinies (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dump of Twisted Destinies (04:56)
-02. We Were Fools (05:49)
-03. Golden Ball (04:30)
-04. Bosss Girl (04:31)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06810596176D74BE367D81243F11EB25BF3F66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579743   (329836) от 02.10.2022
-
-Arena - 12 Albums LP (2022) [MP3|320 Kbps] <Arena Rock, Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Capsule [00:05:30]
-02. The Equation (The Science of Magic) [00:06:28]
-03. Twenty-One Grams [00:06:34]
-04. Confession [00:02:20](   Читать дальше...   )Жанр: Arena Rock, Progressive Rock, Neo-Prog
-Country: United Kingdom, SolikamskПродолжительность: 13 CD, 11:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC3D3CF507DEDECA73D6ECB151F93C9C3C4C714
 ```
 
 https://mybot314.ru/tekegram_catalog/

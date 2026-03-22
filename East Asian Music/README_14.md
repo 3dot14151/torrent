@@ -1,3 +1,29 @@
+###  Публикация: 581148   (337437) от 27.11.2012
+
+Meisa Kuroki - 4 альбома, 8 синглов (2008-2012) [MP3|320 кб/с]<J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337437.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-PopПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D944AC779E689ED01D6C554546B24462002702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579478   (336413) от 27.09.2022
 
 The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -729,35 +755,6 @@ PSY - The 7th Album (2015) [MP3|320 кб/с]<K-Pop, Dance, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFA75361A7C1006CEAC3D78CB68C07DEED9A0ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078783   (297805) от 02.12.2016
-
-Crystal Lake - True North (2016) [MP3|320 Kbps] <Metalcore>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha
-02. Omega
-03. Hatred
-04. Metro(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9128C9A472A401B56B75FD740D6E911BF5B32D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

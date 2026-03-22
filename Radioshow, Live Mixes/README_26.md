@@ -1,3 +1,90 @@
+###  Публикация: 1774087   (71560) от 19.01.2025
+
+VA - Ori Uplift - Uplifting Only Episode 623 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parcker Montivero – Farewell of the Heart (Intro Mix)
+02. AYDA – ATLAS (Fan Favorite (618))
+03. Kelly Andrew – Xanadu (Orchestral Trance Mix) (Orchestral Uplifting Classic)
+04. LinMou – Sound of the Sea (Fan Favorite (622))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1600E32E5BDB81CD384494664CF03C227703DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774245   (71544) от 21.01.2025
+
+Vintage Culture - One World Radio Residency 038 (2025-01-17) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CIOZ ft. Bludropp - These Accordi
+02. Oliver Huntemann & Marc Romboy - Schwarze Witwe
+03. Vintage Culture ft. Izzy Bizu - If I Live Forever (Arodes Remix)
+04. ID - ID(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2270CADD78909FB9AB0ED2AD5B069F9A876D34AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774982   (71510) от 24.01.2025
+
+VA - Ori Uplift - Uplifting Only Episode 624 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. REX.W – We Are All Stars (Intro Mix)
+02. Jericho Frequency feat. Emma Chatt – Do You See Me?
+03. Illitheas – Echoes in the Dark (Fan Favorite (616))
+04. Factor B – The Girl With Her Head In The Clouds (Ellie’s Song)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E065D18BBB5F7C7BCE998E8710C33E38AF3CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775106   (71469) от 25.01.2025
 
 Eric Prydz - Live @ 20 Years Of Pryda, HISTORY Toronto, Canada (2025-01-18) [MP3|320 Kbps] <Progressive House>
@@ -657,93 +744,6 @@ VA - Ori Uplift - Uplifting Only Episode 631 (2025) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFEE435AC59F0E2E6ACACEBDA0FA43C8AED134C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785047   (69394) от 14.03.2025
-
-VA - Armin van Buuren - A State Of Trance 1216 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Karen Overton - Your Loving Arms (BLR Remix)
-02.	Cosmic Gate & James French - I'm On Fire
-03.	John Grand presents ODYSSIUS – Moss
-04.	SOLOUR - Take Me(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768287CD9084280B19F4A0EC696C5EBC5521A0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785216   (69350) от 15.03.2025
-
-Sub Zero Project - Tomorrowland Friendship Mix (2025-03-13) [MP3|320 Kbps] <Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sub Zero Project ft. Bryant Powell - Refuse To Speak
-02. Brennan Heart & Wildstylez - Lose My Mind (Sub Zero Project Remix)
-03. Sub Zero Project & Rebelion - Save Me
-04. Max Enforcer - Lost In Paradise(   Читать дальше...   )Жанр: Hard DanceПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B592E1D0EAE6844597201E051F2DCF2E1A0E462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786546   (68985) от 21.03.2025
-
-VA - Armin van Buuren - A State Of Trance 1217 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Punctual ft. EVALINA - Angels (VIP Mix) (Tune Of The Week)
-02. Oliver Smith & Midnite Amity - Breathe
-03. Ørjan Nilsen - Babylon
-04. ARTBAT & Benny Benassi - Love Is Gonna Save Us (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B5777C0BC7649B6D9409CC9C3DD76537A2181B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 553859   (441530) от 29.09.2012
+
+Alvin Lee - Still On The Road To Freedom (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still On The Road To Freedom
+02. Listen To Your Radio Station
+03. Midnight Creeper
+04. Save My Stuff
+05. I'm A Lucky Man
+06. Walk On, Walk Tall
+07. Blues Got Me So Bad
+08. Song Of The Red Rock Mountain
+09. Nice & Easy
+10. Back In 69(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDED31788E81E7AFB1B74E453277E761F059D4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553444   (441349) от 29.09.2012
+
+Tori Amos - Gold Dust (2012) [MP3|320 кб/с]<Alternative Rock, Piano Rock, Baroque Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flavor(from Abnormally Attracted to Sin; 2009)
+02. Yes, Anastasia(from Under the Pink; 1994)
+03. Jackie’s Strength(from From the Choirgirl Hotel; 1998)
+04. Cloud on My Tongue(from Under the Pink; 1994)
+05. Precious Things(from Little Earthquakes; 1992)
+06. Gold Dust(from Scarlet’s Walk; 2002)
+07. Star of Wonder(from Midwinter Graces; 2009)
+08. Winter(from Little Earthquakes; 1992)
+09. Flying Dutchman(from “China” single; 1992)
+10. Programmable Soda(from American Doll Posse; 2007)(   Читать дальше...   )Жанр: Alternative Rock, Piano Rock, Baroque PopПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077F3D59DB7120062498F3B89FB805D005DF6025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944386   (440506) от 07.10.2015
+
+Cold Chisel - The Perfect Crime (2015) Deluxe Edition [OGG| 456-523 кб/с]<Classic Rock, Pub Rock, Hard Rock, Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone For You
+02. The Backroom
+03. All Hell Broke Lucy
+04. The Perfect Crime(   Читать дальше...   )Жанр: Classic Rock, Pub Rock, Hard Rock, Rock and RollПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52975D163C2DBA70C176B8320A524254D651EF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248897   (440176) от 21.09.2018
+
+Blitzen Trapper - Furr (2008) 10th Anniversary Deluxe Edition, 2018, Sub Pop [MP3|320 Kbps] <Folk Rock, Country Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepytime in the Western World (3:30)
+ 02. Gold For Bread (2:47)
+ 03. Furr (4:08)
+ 04. God & Suicide (2:21)(   Читать дальше...   )Жанр: Folk Rock, Country Rock, Alternative RockПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E8B546503DDEE6A3E6F46409EF7CB9B97297EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248660   (440025) от 21.09.2018
+
+Hush - Aloud 'n' Live (1973) [MP3|320 Kbps] <Glam Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Us Home
+02. Three Blind Mice
+03. Make luv to You
+04. Honky Tonk Woman(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4DF27732E149DCCEDDC91F93F0AC94FF919C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248797   (439833) от 21.09.2018
 
 Trubetskoy - Трафик (2018) EP [MP3|320 Kbps] <Rock>
@@ -610,151 +767,6 @@ The Rolling Stones - Steel Wheels Live (Live From Atlantic City, NJ, 1989) (2020
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F66B8008A116026ED55A3432B149F7050679E3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411314   (427519) от 25.09.2020
-
-Fish - Weltschmerz (2020) 2xCD [MP3|320 Kbps] <Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427519.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Grace of God (08:16)
- 02. Man With a Stick (06:30)
- 03. Walking on Eggshells (07:15)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2872046F9A774F7E488ADD189661765D890BA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946387   (427358) от 13.10.2015
-
-Rehab Allstars - Feel The Blues (2015) [OGG| 521-558 кб/с]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Next To You
-02. Jesus Just Left Chicago
-03. Burden
-04. Look On Yonder Wall(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5E12F159DBAED59D2552A331CA98F151A24FC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946371   (427312) от 13.10.2015
-
-THR3E - 30 Day Hop (2015) [OGG| 505-529 кб/с]<Rock'n'Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 30 Day Hop
-02. Drive Like Crazy
-03. Matter of Time
-04. Blues for the Modern Man(   Читать дальше...   )Жанр: Rock'n'BluesПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EB93649F10A8EEE84E13E685FB791EB34BDA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250367   (426874) от 27.09.2018
-
-Rod Stewart - Blood Red Roses (2018) Deluxe Version [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look In Her Eyes
-02. Hole In My Heart
-03. Farewella
-04. Didn't I (Feat. Bridget Cady)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93131E1441FF4E4E3C12D4B1823958CAB77B192A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166029   (426636) от 16.09.2017
-
-VA - Now That's What I Call Driving Rock (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426636.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01 - Queen - Another One Bites The Dust (Remastered).mp3
-02 - The Clash - Should I Stay Or Should I Go.mp3
-03 - The Killers - Mr. Brightside.mp3(   Читать дальше...   )Жанр: RockПродолжительность: 03:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CF14909A2852D95C051CC3D41478D0F1E1017E
 ```
 
 https://mybot314.ru/tekegram_catalog/

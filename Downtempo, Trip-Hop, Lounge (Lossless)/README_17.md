@@ -1,3 +1,61 @@
+###  Публикация: 1248573   (442239) от 20.09.2018
+
+V.A. - Buddha-Bar XX (2018) 2CD [FLAC|Lossless|tracks + .cue] <Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Danit - Naturaleza (Mose Edit)
+02. Tim Schaufert - Fallin
+03. Steen Thottrup - Something To Say feat. Lunamila(   Читать дальше...   )Жанр: Lounge, Chillout |Продолжительность: 02:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482A7A66EF0FF4F1B3522A8EBE860CF3F2D4F028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410062   (440595) от 19.09.2020
+
+VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Bronco, Tenor Turner - Atlantis (Original Mix)
+02. Schwarz & Funk - La Otra Cara (Remastered)
+03. Marco Moli - A Piano and a Trumpet (Original Mix)
+04. The Soul Crusaders - When the Night Falls(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAF16B91DEB0793C931CECED06E33BDD373741A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944861   (437902) от 08.10.2015
 
 VA - Buddha-Bar XVII (By Ravin) (2015) 2CD [FLAC (tracks+.cue)|Lossless]<Lounge, Chillout>
@@ -689,64 +747,6 @@ Richard Clayderman - The Andrew Lloyd Webber Collection (2017) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4419BCF2E107DBBD33A678E88300D67D7F243508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168847   (404885) от 25.09.2017
-
-Richard Clayderman - The ABBA Collection (2017) [FLAC|Lossless|tracks] <Instrumental, Piano, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma Mia
-02. Knowing Me, Knowing You
-03. Dancing Queen
-04. S.O.S(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B740BB0E710C72AFC54726F0B4E2A94C1A16E620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171538   (395707) от 05.10.2017
-
-VA - Autumn Chill: Ecliptic (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kasstedy - Comedown (Original Mix)  5:45
-02.  Seven24 - Believe In A Better Future (feat. Soty) (Original Mix)  5:45
-03.  Alexander Volosnikov - Ancient Shores (Original Mix)  5:09
-04.  Soty - The Assent (Original Mix)  3:46(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8D06B523E0BCAD8F97C75183559906E4126185
 ```
 
 https://mybot314.ru/tekegram_catalog/

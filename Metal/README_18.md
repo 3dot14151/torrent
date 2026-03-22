@@ -1,3 +1,32 @@
+###  Публикация: 1098956   (907334) от 31.01.2017
+
+Silent Circus - Rise and Fall (2017) [MP3|320 Kbps] <Groove Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Voice
+02. Affection
+03. My Return
+04. Indifferent(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D07A6CE3802426805DF5EEB3307B6CEC465E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989773   (906429) от 28.02.2016
 
 Balfor - Barbaric blood (2010) [MP3|320 кб/с] <Progressive Death Metal, Black Metal>
@@ -717,35 +746,6 @@ Singularity - [E]llusion (2016) [MP3|320 кб/с] <Progressive Deathcore, Djent>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C39B6B171B7792AB9D6759258B0D8ECEDD5F518F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993898   (893968) от 06.03.2016
-
-Lethal Injektion - Sex Is Power (2016) EP [MP3|320 кб/с] <Rap Metal, Rapcore, Alt. Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Define (03:59)
-02. Strength Through Struggle (03:25)
-03. Verbal Warfare (feat. Tech N9ne & Twista) (04:20)
-04. Voices (03:12)(   Читать дальше...   )Жанр: Rap Metal, Rapcore, Alt. Metal, DjentПродолжительность: 00:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BEA6B3AFBF4C1FB81435130E953022177BE416
 ```
 
 https://mybot314.ru/tekegram_catalog/

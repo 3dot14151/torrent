@@ -1,3 +1,155 @@
+###  Публикация: 1227326   (646588) от 26.05.2018
+
+Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Away 03:55
+02. Keep It Simple 04:58
+03. Storm Boy 03:59
+04. Honeymoon Bay 03:44(   Читать дальше...   )Жанр: Folk, Singer-songwriterПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECF3743EAB6E77EF98917463810E71D7672C71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142022   (646417) от 12.06.2017
+
+The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most Beautiful Melodies (1996) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкость необыкновенная! Это не цитата из "Ревизора", а именно так можно назвать этот диск. Он возвращает нас к истокам той музыки, которая родилась во время бунтарей и романтиков. На волне популярности популярной (уж простите за тавтологию) музыки того времени сейчас стали появляться различные ностальгические музыкальные шоу, но The Romantic String Orhcestra (   Читать дальше...   )01. The Romantic String Orhcestra - You Light Up My Life  (4:04)
+02. The Romantic String Orhcestra - Touc Me in The Morning  (4:03)
+03. The Romantic String Orhcestra - Yesterday Once More  (3:28)
+04. The Romantic String Orhcestra - Killing Me Softly with His Song  (2:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6992F07E1D5CC5525E64320DF6BD0ECB81CE5A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799218   (646156) от 26.06.2014
+
+The New Paul Mauriat Grand Orchestra - Still Blue (Best Collection Dedicated to Paul Mauriat) (2013) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как известно, оркестровая музыка до сих пор пользуется завидной популярностью в Японии и странах Азии, а после смерти Поля Мориа в 2006 году интерес поклонников к его творчеству только растет.
+Представляемый альбом французского оркестра, пока не известного широкой публике, дебютный. Однако не удивляйтесь, ведь он называется "Новый оркестр Поля Мориа". Почему (   Читать дальше...   )01. Pegase (3:41)
+02. Minuetto (2:38)
+03. La chanson pour Anna (2:59)
+04. Prelude 59 (3:54)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533FC8CE9F1A0F7607FDF743E829EE15F470178B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679761   (645610) от 15.07.2013
+
+Enigma - Enigma 4 - Metamorphosis (2013) Reworked Bootleg [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - IV Chapter (3:43)
+02. - Light Of Your Smile (5:42)
+03. - Metamorphosis (9:28)
+04. - Start-To-End (6:02)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A6E980DE39110DF61F8422770C4830E7EEF0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517975   (645454) от 02.07.2012
+
+Henry Mancini - Trail Of The Pink Panther / След Розовой Пантеры (2011) [MP3|320 кб/с]<Score, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Main Title (5:03)
+ 2. The Easy Life In Paris – Long Version (2:56)
+ 3. Salute To Balls (3:17)
+ 4. The Bagman (2:19)
+ 5. Scotland Yard (0:29)
+ 6. In A Mist (2:16)
+ 7. The Message (1:34)
+ 8. One On One (1:21)
+ 9. The Easy Life In Paris No. 1 (1:29)
+ 10. Bruno’s Tune (1:19)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA18428E0F1D0C97D60BBD46F0B77F3865B9710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906230   (645428) от 08.06.2015
 
 VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
@@ -629,163 +781,6 @@ VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772F9DE3D19AC1A9C2E856E106BAC0CB7A24D2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032781   (641916) от 09.07.2016
-
-The Northern Lights - City Of Angels (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dream Pop, Chillwave, Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Of Angels (3:16)
-02. Without You (3:34)
-03. Lift Off (3:20)
-04. Oxygen (3:34)(   Читать дальше...   )Жанр: Synthwave, Dream Pop, Chillwave, ElectronicПродолжительность: 00:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A8D7DB654BFB84CEE1DD25EE29FAF4CE9A7606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032870   (641795) от 09.07.2016
-
-Argishty - В начале было дыхание (2016) [MP3|320 Kbps] <Armenian Duduk, Folk, Relax>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hadn't Known Grief
-02. I Heard A Voice
-03. Fikra
-04. Secret Garden(   Читать дальше...   )Жанр: Armenian Duduk, Folk, RelaxПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9095617590D2FE1178A2D251A63B4A72F6AE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906894   (641624) от 10.06.2015
-
-Michael Giacchino - Мир Юрского периода / Jurassic World (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bury the Hatchling (01:56)
-02. The Family That Strays Together (01:00)
-03. Welcome to Jurassic World (02:08)
-04. As the Jurassic World Turns (05:30)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B752D0EBDC7F62614A0818AA3BB54C0559FC45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516960   (641458) от 04.07.2012
-
-VA-African Tribal Music And Dances - African Tribal Music And Dances (2008) [MP3|320 кб/с]<Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641458.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01]. Festival Music
-[02]. Solo For The Seron
-[03]. Hymn Of Praise
-[04]. Percussion Instruments
-[05]. Festival Of The Circumcision
-[06]. Dance Of The Hunters
-[07]. Dance Of The Women
-[08]. Invocation, Entrance And Dance Of The Glaou
-[09]. Duet For Flutes
-[10]. Solo For Musical Bow(   Читать дальше...   )Жанр: Ethnic, FolkПродолжительность: 01:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699C458FBCCC404DE8A7F6EF1DAF6A65739AC468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518759   (641398) от 04.07.2012
-
-VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paco Morena - Concierto De Aranjuez [03:18]
-02. Paco Morena - Hombrecito [02:38]
-03. Festiva! - La Arboleda Anaranjada [01:05]
-04. Max Marino - Espana Cani [03:56]
-05. Festiva! - Alfombras Fangosas [03:59]
-06. Festiva! - Almas delSalido [04:36]
-07. Antonitas D'Havila - Recuerdos D'Havila [02:03]
-08. Max Marino Y - Viva Espana [01:58]
-09. Julio Cortazon - Gardensof Andalucia [02:26]
-10. Festiva! - Poco Burro de la Paja [04:29](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

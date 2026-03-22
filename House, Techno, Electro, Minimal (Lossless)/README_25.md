@@ -1,3 +1,61 @@
+###  Публикация: 1280525   (760628) от 03.02.2019
+
+Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, Bedrock Records [FLAC|Lossless|tracks+.cue, tracks] <Progressive House, Breaks, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Radio Edit) (03:49)
+ 02. Imagine (Imagination 1) (06:42)
+ 03. Imagine (Chris Fortier Dub) (08:29)
+ 04. Imagine (Chris Fortier Remix) (10:42)(   Читать дальше...   )Тип издания: CD, WebЖанр: Progressive House/Breaks/Deep HouseПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BC443775FFBD0ECB1A0B570127AA91425895F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215572   (758228) от 26.03.2018
+
+S.A.M. - Retrospect One (2018) Delaphine [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, House, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perucica (7:29)
+02. Sunday Morning (10:34)
+03. Don't Confuse A Smile With Weakness (3:01)
+04. How Far From The Sun Are We Talking (1:42)(   Читать дальше...   )Жанр: Dub Techno, Ambient, House, ExperimentalПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E33282E0BA474694A2833DBD6836E267E010BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215453   (758220) от 26.03.2018
 
 Steve Parker - Interplanetary Dust LP (2018) Planet Rhythm [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -317,6 +375,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522955   (755171) от 09.01.2022
+
+Sascha Dive - Back 2 Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_755171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispering Voices (Original Mix) (6:30)
+02. This Is My Journey (Original Mix) (7:06)
+03. My Life (Original Mix) (7:03)
+04. In the Darkness  (feat Messy MC) (Original Mix)  (7:33)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C833E1FA959E6F7AF31A8584AF2F347967D14A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281407   (753594) от 07.02.2019
 
 Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Electro, Techno>
@@ -451,6 +538,35 @@ Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E919C585E1B6268D7FF0F4FC162B49855583B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216459   (749578) от 31.03.2018
+
+Soul Button - Ojas (2018) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_749578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ojas (Original Mix) (7:30)
+ 02. Ojas (Clawz SG Remix) (8:06)
+ 03. Ojas (BLANCAh Remix) (7:38)
+ 04. Ojas (Simon Doty Remix) (7:32)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F00CB01DFB6CBAF01252ACD370AD930E31E2E8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,122 +738,6 @@ Matt Fax - Contrast (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42E2B8EAE24EDC27C641E93650EF689E1986CF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396601   (745579) от 16.07.2020
-
-Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax - Vanishing (1:16)
-02. Matt Fax & LEVV - Always You (4:17)
-03. Matt Fax - Light On (4:29)
-04. Matt Fax - Abenaki (3:20)(   Читать дальше...   )Жанр: Progressive House, Tech House, ElectroПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FA38206333A3C74635312A330C576C6FB98EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282422   (745407) от 12.02.2019
-
-Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land Of The Highway (05:55)
- 02. Sonar Conversation (08:15)
- 03. Robotic Arm Wrestle (07:32)
- 04. Love Hate (08:10)(   Читать дальше...   )Жанр: Techno, Electro, Dub TechnoПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282490   (745406) от 12.02.2019
-
-Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teryan 1 (08:02)
- 02. Arpa River (07:03)
- 03. Opposition Crowd (07:17)
- 04. Teryan 1 (Saphileaum's Second Sky) (05:51)Жанр: TechnoПродолжительность: 00:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4A50F897DB3EAA446E378A12054A61413B7008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282338   (745401) от 12.02.2019
-
-David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narciso (08:40)
-02. D'Angelo (06:28)
-03. 33Chants (05:34)
-04. Florence (01:40)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A08D5F951836D29675927AA1881A7FB112C27A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

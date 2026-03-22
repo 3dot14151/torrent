@@ -1,3 +1,38 @@
+###  Публикация: 806153   (598828) от 19.07.2014
+
+Modern Talking - Music & Video Stars (2013) [MP3|320 кб/с]<Pop, Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598828.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You're My Heart, You're My Soul
+2. You Can Win If You Want (Special Single Remix)
+3. Cheri Cheri Lady
+4. Brother Louie
+5. Atlantis Is Calling (S.O.S. For Love)
+6. Geronimo's Cadillac
+7. Jet Airliner (Radio Version)
+8. In 100 Years (Long Version - Future Mix)
+9. You Are Not Alone
+10. Sexy Sexy Lover (Vocal Version)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5207E9845BD4AAF4CC7718B9B55CA4FCE104EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 806178   (598757) от 19.07.2014
 
 Modern Talking - Milestones (2013) Compilation [MP3|320 кб/с]<Pop>
@@ -749,35 +784,6 @@ Didier Marouani - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C12D50263D04AE0A117663C0AC59868B96F4DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552212   (588529) от 19.05.2022
-
-Elen Cora - House of Cards (2012) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me Why (3:35)
-02. Forgive Me (4:14)
-03. Astronomers in China (4:41)
-04. Wanna Be Real (4:20)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579D4027DDA0CDAEE3F4845F2EE185932523D6F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

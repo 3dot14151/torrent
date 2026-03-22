@@ -1,3 +1,203 @@
+###  Публикация: 475692   (85467) от 31.03.2012
+
+Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sphere (6:31)
+02. Oblivion (8:13)
+03. Botero (4:55)
+04. Lovers in Moonlight (6:17)
+05. April (5:19)
+06. The Wild Comes (7:53)
+07. Love me as though there were no tomorrow (6:02)
+08. Luiza (4:45)
+09. Dream with You (6:17)2009Жанр: Jazz, Acoustic, FusionПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475587   (85463) от 31.03.2012
+
+VA - The Electro Swing Revolution Vol.2 (2011) [APE|Lossless]<Electro Swing, Nu Jazz, Modern Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bebo Best & The Super Lounge.. - Sing Sing Sing (3:26)
+02.Bart & Baker feat. Slim Gail.. - Communications (Swing Brothe.. (3:16)
+03.AlgoRythmik - Andrew's Break (3:35)
+04.Andrej Hermlin & his Swing D.. - God Save The Swingking (Elec.. (3:10)
+05.Tape Five feat. Henrik Wager - Dixie Bisquit ( 42 Smiles Mix) (3:46)
+06.Coco & Kike - Diamond Ring (3:20)
+07.Movits! - Va Dom An Sager (3:12)
+08.Markscheider Kunst meets Cla.. - Manoush V Gorah (3:44)
+09.Rotfront - Sigaretta (Globalution meets.. (3:32)
+10.Nekta - Listen (3:42)(   Читать дальше...   )2011Жанр: Electro Swing, Nu Jazz, Modern JazzПродолжительность: 02:14:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475039   (85269) от 30.03.2012
+
+Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop, Hard Bop, Fussion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_85269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strawberry Hill (4:09)
+02. High Heel Sneakers (4:03)
+03. King Tubby Meets The Rockers Uptown (6:02)
+04. Eleuthera (5:57)
+05. Sweet Georgia Brown (5:09)
+06. Freddie Freeloader (Riddim) (2:08)
+07. The Heathen (4:57)
+08. Compasssion (5:03)
+09. Running Away (6:47)
+10. Day-O (Banana Boat Song) (5:25)(   Читать дальше...   )2011Жанр: Jazz, Bop, Hard Bop, FussionПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472603   (84093) от 24.03.2012
+
+VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84093.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010Жанр: JazzПродолжительность: 02:27:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472474   (84063) от 24.03.2012
+
+Don Burrows & The Mell-O-Tones - Non-Stop Flight: Great Music of the Swing Era (2005) [FLAC|Lossless]<Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84063.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACT 1
+1. Let’s Get Together (Edgar Simpson / Chick Webb)
+2. Non-Stop Flight (Artie Shaw)
+3. All or Nothing at all (Jack Lawrence / Arthur Altman)
+4. Don’t be that way (Mitchell Parrish / Benny Goodman / Edgar Simpson)
+5. At Last (Mack Gordon / Harry Warren)
+6. Honeysuckle Rose (Andy Razaf / Thomas "Fats" Waller)
+7. Moon Glow (Eddie De Lange / Will Hudson)
+8. No Love, No Nothin’ (Mack Gordon / Harry Warren)
+9. Amapola (Albert Gamse / James Lacalle)(   Читать дальше...   )2005Жанр: Jazz, SwingПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472360   (84029) от 24.03.2012
+
+Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84029.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Swing Suspens
+2. Ma Référence
+3. Fiso Place
+4. Douce Ambiance
+5. Them There Eyes
+6. All the Things You Are
+7. Passion
+8. Pont de Venise
+9. Ruby
+10. Joshua Fit the Battle of Jericho(   Читать дальше...   )2006Жанр: JazzПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472159   (83835) от 23.03.2012
 
 Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<Jazz,Post-Bop>
@@ -658,180 +858,6 @@ VA - Pop International Hits (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB566380E082D87BC6E2A1403922570C350122E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771571   (71826) от 07.01.2025
-
-Enrico Pieranunzi & Bert Joris - Afterglow (2021) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siren's Lounge [4:24]
-02. Afterglow [3:31]
-03. Millie [3:18]
-04. Cradle Song for Mattia [2:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5188B8CA70F1A5FC22E324C24779F124C80E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771846   (71801) от 08.01.2025
-
-Enrico Pieranunzi & Marc Johnson - Yellow & Blue Suites (1990) 2008, Challenge Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je Ne Sais Quoi [8:35]
-02. I Hear a Rhapsody [10:00]
-03. I Should Care [8:35]
-04. Frame Line 1 [1:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3275B52B820C7B00767A44D57C2CFE7837B813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772582   (71744) от 12.01.2025
-
-David "Fathead" Newman - Four Classic Albums (1958 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Batista's Groove [7:27]
-02. Skylark [4:40]
-03. Night Of Nisan [7:59]
-04. Cousin Slim [7:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EB858AEB51F4BDB6A7D09242E1FCC13C08252A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772852   (71734) от 12.01.2025
-
-VA - Boogie Woogie & Blues Piano: Milestones of Legends (1920-e -1960-e) 10CD, 2017, The Intense Media [FLAC|Lossless|image + .cue] <Boogie Woogie, Stride, Piano Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Champion Jack Dupree - Gamblin' Man Blues [2:48]
-02. Champion Jack Dupree - Warehouse Man Blues [2:49]
-03. Champion Jack Dupree - Chain Gang Blues [2:32]
-04. Champion Jack Dupree - New Low Down Dog [3:00](   Читать дальше...   )Жанр: Boogie Woogie, Stride, Piano BluesПродолжительность: 11:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A100CE0B237B06CC462525A9718EB58614CE4BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773019   (71727) от 13.01.2025
-
-Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing in a Ring [3:41]
-02. Soft [6:49]
-03. Le Sue Ali [4:23]
-04. African Flowers [6:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AD7F990BDA1EB33AAE3987C271C475094236CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773187   (71725) от 14.01.2025
-
-Enrico Pieranunzi Trio - New Visions (2019) Storyville [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Visions 1 [3:25]
-02. Night Waltz [3:20]
-03. Anne Blomster Sang [6:47]
-04. You Know [6:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9582FFF17E0616D257CAEA256E4584AFA4FD6FA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

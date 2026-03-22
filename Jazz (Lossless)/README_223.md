@@ -1,3 +1,177 @@
+###  Публикация: 962279   (295355) от 04.12.2015
+
+David Liebman Quintet - Doin' It Again (1979) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Doin' It Again [09:46]
+ 02.Lady [09:41]
+ 03.Stardust [09:27]
+ 04.Cliff's Vibes [08:57]Жанр: Post-Bop, Jazz FusionПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A5F3E783F8C9D19CB52DB2E25DD9259060726C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185240   (295208) от 20.11.2017
+
+Ruby Braff - For The Last Time (2002) 2CD, 2009, Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295208.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sometimes I'm Happy [12:16]
+02. Why Shouldn't I? [04:58]
+03. Just You, Just Me [12:25](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B6FC7BCBC62E327F16BDCFCCA1E51521CE7D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262448   (295174) от 15.11.2018
+
+Tal Farlow - Tal (1956) 2016, Universal [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isn't It Romantic [10:15]
+02. There Is No Greater Love [4:00]
+03. How About You [6:06]
+04. Anything Goes [5:13](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB89FCE3EBC655D84CF77EC9AC8B7B0B084284D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262443   (295029) от 15.11.2018
+
+Dick Hyman & Ray Kennedy - What Is There To Say? (2003) Victoria Company [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes Sir, That's My Baby [4:57]
+02. What Is There To Say? [3:59]
+03. Idaho [4:39]
+04. These Foolish Things [6:22](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDCA95C4541AFD3A83A9D1DD2C2471F54A5BC832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334488   (294976) от 29.10.2019
+
+Billy Eckstine - Cocktail Hour 1940-e (2001) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294976.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I'm in the Mood for Love [2:56]
+02. Love Is the Thing [2:50]
+03. Prelude to a Kiss [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862853F2D764DAC973FEFF8138D377A9B1267BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334426   (294872) от 29.10.2019
+
+Music for Quiet Moments - Rainy Autumn Night Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Aperitif 03:46
+02. Date Night Ballroom 03:26
+03. Anniversary Dining 03:05
+04. Restaurant Harmony 03:27(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEED87B534199CA7B1DD73F2ADFDBE9FCC215DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079352   (294541) от 04.12.2016
 
 Paris Jazz Big Band - Source(s) (2012) Cristal Records[FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz>
@@ -571,180 +745,6 @@ Max Roach & Abdullah Ibrahim - Streams Of Consciousness 1977 (2003) Piadrum Reco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FE19D7DE69C87970F464A95D2DF088FB4B2823E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262869   (291591) от 17.11.2018
-
-Gene Ammons - Up Tight! (1961) 1994, Prestige [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Breeze and I [6:27]
-02. Carbow [6:10]
-03. Moonglow [5:05]
-04. I'm Afraid the Masquerade Is Over [6:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B106D90351AD5AD65703598F2EB2D298E7E071F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262971   (291585) от 17.11.2018
-
-Ralph Sharon Trio - The Magic Of George Gershwin (2000) Avid Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fascinating Rhythm [3:02]
-02. They All Laughed [2:27]
-03. Medley: Somebody Loves Me/'S Wonderful/But Not for Me/Soon [2:51]
-04. I Loves You, Porgy [3:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4DFB4DE21D28ADE49B3B55B9201F57522268CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262865   (291582) от 17.11.2018
-
-Casiopea - Platinum (1987) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Access [3:49]
-02. Akasha [4:05]
-03. Magnetic Vibration [4:24]
-04. Me Espere [3:19](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C3263A85CC737C4A6FB3069D247875F89CDABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262867   (291576) от 17.11.2018
-
-Casiopea - Euphony (1988) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taiyo-Fu (The Wind from the Sun) [4:13]
-02. Shadow Man [4:07]
-03. Super Sonic Movement [3:54]
-04. Inishie (Old Times) [3:44](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C496F8A213CAA2F531E120F8196FE0CE79BCE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963057   (291491) от 06.12.2015
-
-Mark Murphy - Links (2001) HighNote[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In the Land of Oo-Bla-Dee [05:40]
- 02.The Lady's in Love With You [07:17]
- 03.Don't Ask Why [07:31]
- 04.Wheelers and Dealers [05:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFC663A455D938834B88822B10B646A9E171CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080285   (290447) от 06.12.2016
-
-Zoot Sims & Al Cohn - Zoot Case (1982) 1991, Sonet Records[FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Exactly Like You [01:35]
- 02.Zoot Case [08:25]
- 03.Do Nothing Till You Here From Me [13:19]
- 04.Girl From Ipanema [09:20](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7882733583EC33748CC2BB3FF87A4BB445B85E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

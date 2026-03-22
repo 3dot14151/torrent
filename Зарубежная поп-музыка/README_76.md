@@ -1,3 +1,119 @@
+###  Публикация: 1664789   (183966) от 28.09.2023
+
+Fantasy - Das Beste (2023) Deluxe Edition [MP3|320 Kbps] <Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_183966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ein weisses Boot (2023)
+2. Darling (2023)
+3. Blinder Passagier (2023)
+4. Bonnie & Clyde (2023)(   Читать дальше...   )Жанр: Dance PopПродолжительность: 02:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77766E170DBF111AF561A73D789052E0AD65C2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592304   (183123) от 23.11.2022
+
+Mariah Carey - Greatest Hits (2001) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision Of Love
+02. Love Takes Time
+03. Someday
+04. I Don't Wanna Cry(   Читать дальше...   )Жанр: Hip Hop, Funk / Soul, PopПродолжительность: 02:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72BA3BA0806DB1EDE0BF76C19BA83C69D71D543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592153   (183113) от 23.11.2022
+
+Mylene Farmer - Cendres De Lune (1986) Reissue, Repress, 1994, Polydor [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Libertine
+02. Au bout de la nuit
+03. Vieux bouc
+04. Tristana(   Читать дальше...   )Жанр: Electronic, Pop, 	ChansonПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9986FA7A4FA83E30DB31218F6AE5AB7A528F573C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191518   (182726) от 23.11.2022
+
+Secret Service - 8 Studio Albums (1979-2022) [MP3|320 Kbps] <Electronic, Pop Rock, Euro-Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_182726.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Secret Service» (с англ. - «Тайная служба») - одна из наиболее известных музыкальных групп Швеции в жанре популярной музыки в 80-х годах. Более полная информация о группе предложена в ..Список альбомов:
+1979 - 'Oh Susie
+1981 - Ye Si Ca
+1982 - Cutting Corners(   Читать дальше...   )Жанр: Electronic, Pop Rock, Euro-Pop, Synth-popПродолжительность: 04:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32747B6EFD086E59266F7DF4894F03DC5F7BDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592868   (182387) от 24.11.2022
 
 VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
@@ -628,122 +744,6 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Super Deluxe Edit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A316B959113C202093B8D92063A7CCF91FEA3A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430819   (169749) от 11.12.2020
-
-MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169749.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. kyivstyle
-2. sirena
-3. zvonok
-4. domoi(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9A16A46F4AE10461877BFF9B17D60D59BA27B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430818   (169656) от 11.12.2020
-
-Taylor Swift - evermore (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169656.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. willow
-2. champagne problems
-3. gold rush
-4. ‘tis the damn season(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67547EF3E16CCF50A7AADB0005CB0F52D2036B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672491   (169430) от 28.10.2023
-
-Rainbow Train - Accompanied By (1978) LP [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Band (3:41)
-02. Let It Happen Let It Be (5:33)
-03. Good Morning Bad Day (11:10)
-04. Heaven On Earth (3:25)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7880B704DACF44BA9C52DBCB8D127B7A1E62A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672502   (169325) от 28.10.2023
-
-VA - Hit News Vol. 4 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Box Of Laces - Happy Nation
-02. Jamal - Up And Down
-03. V.I.P. - I Like Chopin
-04. Marc Davis - Movie Star(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F48385D06E3AB26E5532BE6A7A55C1CF57D36DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

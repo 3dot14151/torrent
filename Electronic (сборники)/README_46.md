@@ -1,3 +1,61 @@
+###  Публикация: 1115758   (826651) от 18.03.2017
+
+VA - Electro Swing of Berlin (2016) [MP3|320 Kbps] <Electro Swing, House, Nu Jazz>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Chris - Touch of Jazz (6:40)
+02. Andy Roberts - Noodle (AR's Tech Jazz Mix) (8:03)
+03. Sofa Tunes & Sino Sun - Jazz My Ass (Stefan Jurrack Remix) (6:27)
+04. Miki Hernandez - Jazz Swing (5:36)(   Читать дальше...   )Жанр: Electro Swing, House, Nu JazzПродолжительность: 02:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0F9589B0C8927510480EB8CB9BDA666A37F2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196110   (825790) от 01.01.2018
+
+VA - Record Super Chart - Итоговый Суперчарт (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825790.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Tiesto & Sevenn  -  Boom  3:03
+002.  Don Diablo  -  Momentum  3:28
+003.  Malaa  -  Notorious  3:58
+004.  CamelPhat & Elderbrook  -  Cola Denis First Remix  4:16(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69913D6D41AA65BE99B4F817C7539399D2C5967B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006697   (825585) от 13.04.2016
 
 VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
@@ -690,64 +748,6 @@ VA - Best Electronic Of All Time (2020) [MP3|320 Kbps] <Electro, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F70C6B8A53957A3A20CEC63C8B79E120E53AF9DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007607   (819903) от 16.04.2016
-
-VA - Progressive Line Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Meduer - Progressive Strings (Original Mix) 08:23
-02. Artem Olenev - Tropical (Original Mix) 02:34
-03. Chesterbeat - Freedom (Original Mix) 04:23
-04. Dj RIO - Euphoria (Original Mix) 03:42(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCB688D5FCD31E1DD7B026E44D143B3374D810F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007826   (819821) от 16.04.2016
-
-VA - Super Bomb Electro: Classic 2 (2016) [MP3|320 кб/с] <Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack - Fatility (Original Mix) (4:47)
-02. Bingo Players - L’Amour (Original Mix) (4:49)
-03. Black Spark - Give It Up Now (Original Mix) (4:39)
-04. Candyland & DirtyRock - Four Loko (Original Mix) (3:52)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFB45C685D265F2E92F170C5541F355D1C97442
 ```
 
 https://mybot314.ru/tekegram_catalog/

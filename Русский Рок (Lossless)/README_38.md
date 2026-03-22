@@ -1,3 +1,264 @@
+###  Публикация: 1332401   (313882) от 20.10.2019
+
+Amatory - Doom (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Nu-Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сигнал (prod. by BOGUE) (2:01)
+02. Космо-камикадзе (3:25)
+03. Звёздная грязь (3:27)
+04. Черно (3:10)(   Читать дальше...   )Жанр: Alternative, Nu-Metal, Modern MetalПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C47339EBF3F0F3E8ED08227FF52FADA04DBD8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332532   (313880) от 20.10.2019
+
+LaScala - Agonia (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Манеж
+2. Без правил
+3. Пьяная
+4. Контроль(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31656F7362A8418FDE03C0A444776586E9D01389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076115   (313855) от 25.11.2016
+
+Бахыт-Компот - Лучшие баллады в алфавитном порядке (2002) Compilation [APE|Lossless|image + .cue] <Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бог есть! 4:04
+02. Бухгалтер Иванов 3:23
+03. Дьявольская месса 4:14
+04. Империя 4:03(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D750C8FE7C666BFD89E3903E6142857208BEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422143   (313274) от 07.11.2020
+
+Бахыт-Компот - Пьяная помятая пионервожатая (1994) [FLAC|Lossless|image + .cue] <Rock, Rock'n Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чесотка (04:55)
+02. Мы не пойдем в кино (04:02)
+03. Курящая мать (04:17)
+04. Анархистка (03:07)(   Читать дальше...   )Жанр: Rock, Rock'n RollПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75C876F37D4B7116B390CB10EB73301FCA325E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182947   (312585) от 12.11.2017
+
+Sergey Golovin - Changes (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cynical Tesla Fury
+02. Changes
+03. Headbreaker
+04. Chaos Machine(   Читать дальше...   )Жанр: Progressive Metal, Djent, Instrumental RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF11AF5336999C529EDE9514B0FAC98A9C44A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260263   (312182) от 07.11.2018
+
+Svartby - Elemental Tales (2012) [FLAC|Lossless|image + .cue] <Folk Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Impby (1:28)
+02-Scum From Underwater (2:53)
+03-Boulder Massacration (3:33)
+04-Sleepy Devils (3:59)(   Читать дальше...   )Жанр: Folk Black MetalПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1163D301ABA589BFD522246F597AE0103E64D69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959765   (312128) от 26.11.2015
+
+Александр Градский - Несвоевременные Песни (1993) [FLAC|image + .cue]<Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Экспедиция (песенка членов геологоразведочной партии) (1987)
+02. Песня о друге (о В. Высоцком) (1980)
+03. Баллада о лицах 'страдальцев' (1987)
+04. О поэтах (1981)(   Читать дальше...   )Жанр: Rock, VocalПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39DE7ADAB0810978D7C1DB7FC66E3D0CF4E55D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422381   (310614) от 08.11.2020
+
+Андрей Макаревич - И т. д. (2002) [FLAC|Lossless|image + .cue] <Rock, Jazz, Latin>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало
+02. Через Стекло
+03. Тем, Кто Ушёл
+04. Наливай(   Читать дальше...   )Жанр: Rock, Jazz, LatinПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F222151D3843B001F2A279E565B120CD9F2E392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960043   (310097) от 27.11.2015
+
+Александр Градский - Ностальгия/Флейта и Рояль (1998/1998) [FLAC|image + .cue]<Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ах, угонят их в степь, Арлекинов моих…
+02. По четвергам старик приходит…
+03. Как буду в этой же карете…
+04. Люби лишь то, что редкостно и мнимо…(   Читать дальше...   )Жанр: Rock, VocalПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4CB0AFF4B6D834F43C3B0C87A9DD702A72E17B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960046   (310070) от 27.11.2015
 
 Александр Градский - Русские Песни/Звезда Полей (1980/1986) [FLAC|image + .cue]<Rock, Vocal>
@@ -482,266 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6110D439D4CA8E28E8F72BAB4710DF79176127F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424088   (295560) от 15.11.2020
-
-Александр Барыкин и Карнавал - Карнавал (1995) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Актер
-02. Я Играю Для Вас
-03. Звездный Карнавал
-04. Остров(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7C2E9045219BF5A789385E1AF5494D04DF4209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334569   (294773) от 29.10.2019
-
-Ленинград - Аврора (2007) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москоу [02:24]
-02. Музыка для мужика [03:10]
-03. Паганини [02:09]
-04. Бухло [02:50](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4CAAD77B9DC5CD739B543E1C923530A2E51742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262467   (294697) от 15.11.2018
-
-Ария - Проклятье Морей (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гонка За Славой
-02. Варяг
-03. Эра Люцифера
-04. Трудно Быть Богом(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A205313C5B818EF453B29E4B9442D91892BF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962304   (294614) от 04.12.2015
-
-Кипелов - Непокорённый (2015) Single [FLAC|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь 70-летия Победы в Великой Отечественной войне группа Кипелов представляет новый сингл «Непокоренный». Песня посвящена подвигу людей, переживших блокаду Ленинграда, отстоявших страну и свой город.01. Непокорённый
-02. Власть огня (Записано в "Arena Moscow" 08.12.2013)
-03. Закат (Записано в "Arena Moscow" 08.12.2013)Жанр: Heavy MetalПродолжительность: 00:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39FA177BBE557391353980E7A5D6CC0609C0F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079403   (293651) от 04.12.2016
-
-Порнофильмы - Русская Мечта. Часть 2 (2016) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нищих Убивай!
-02. Роди Мне 1000 Детей!
-03. Не Доверяйте Правительству! (feat. Лёха Никонов)
-04. Велосипед(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3473259B989B0173A86094F5FD3759E7C6E607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262819   (293154) от 16.11.2018
-
-Браво - Unrealised (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наш Дом
-02. Blues De Moscou
-03. Тишина
-04. Замок Из Песка (New 2018 Edit)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB6590C572A0BCBA9F8B456EA2125406F2CA23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334766   (293032) от 30.10.2019
-
-Animal ДжаZ - Время любить (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Так надо
-02. Апрель
-03. Мистика
-04. Чувства(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18592DFF7EBDBD138CDC53A17D8F5170682288FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963083   (291343) от 06.12.2015
-
-REKI - Безвремя (2015) [FLAC|Lossless|Tracks] <Instrumental, Rock, Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:11)
-02. Странник (03:57)
-03. Крылатый Цветок (04:21)
-04. The Shift (04:56)(   Читать дальше...   )Жанр: Instrumental, Rock, Metal, IndustrialПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F66A491F701E56620D1EA9E6EC698AAFFB8440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185564   (291205) от 22.11.2017
-
-Эдуард Артемьев - Тепло Земли (1985) Japanese Edition, Remastered, 2009, Belle Antique [FLAC|Lossless|image + .cue] <Art Rock, Electronic, Retro>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рождение Земли / Birth of Earth
-02. Кто я? / Who I Am?
-03. Тепло Земли / Warmth of Earth
-04. На берегу Млечного Пути / On The Bank Of The Milky Way(   Читать дальше...   )Жанр: Art Rock, Electronic, RetroПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1381F8B9611FF7FDE897D33695ACACA26AC59F
 ```
 
 https://mybot314.ru/tekegram_catalog/

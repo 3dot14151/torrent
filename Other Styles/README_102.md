@@ -1,3 +1,160 @@
+###  Публикация: 538889   (504061) от 28.08.2012
+
+Мельница - Знак четырёх (4CD) (2012) [FLAC|Lossless] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Опасное лето (04:24)
+02. Далеко (04:13)
+03. Шелкопряд (04:14)
+04. А если бы он (04:01)
+05. Ведьма (04:54)
+06. Кувшин (04:27)
+07. Княже (05:46)
+08. Ветер (04:46)
+09. Шаман (06:15)
+10. Волкодав (05:01)(   Читать дальше...   )Жанр: Folk |Продолжительность: 01:06:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934251   (503668) от 04.09.2015
+
+Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World of Discovery
+02. Rainforest
+03. Glistening Waters
+04. Keepers of the Veldt(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA631367D74ECE1A1F6FF2953EA90B530BD5CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538340   (503601) от 29.08.2012
+
+Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - If I Fell                                                          [02:27]
+ 02. - Winding Road                                               [03:45]
+ 03. - When I'm 64                                                 [02:38]
+ 04. - Yesterday                                                      [02:02]
+ 05. - And I Love Her                                              [02:36]
+ 06. - Ob-La-Di, Ob-La-Da                                       [03:13]
+ 07. - Here, There And Everywhere                         [02:33]
+ 08. - The Fool On The Hill                                       [02:53]
+ 09. - Michelle                                                          [03:04]
+ 10. - Blackbird                                                        [02:22](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470BF2385BF6972C8C53B994BD9306650742AD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317027   (503286) от 29.07.2019
+
+VA - Modern Sound Orchestras - Ave Maria (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orchestra Charles Monet - Ave Maria (2:21)
+02. Wave's Computer Orchestra - Amadeus Sky-Blue Dreams (3:49)
+03. Philharmonics Of London - Romantic Waltz (2:38)
+04. Philharmonic Orchestra London - Yesterday (2:45)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A308FED9265DCFDCDA4E44B34F1E245DD69BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316920   (503284) от 29.07.2019
+
+Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. I Miss You India
+03. Temple Of The Sun
+04. Undergraund Source(   Читать дальше...   )Жанр: New age, ChilloutПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1460CDE8A281209113D1AA3353F5C13019D687DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317163   (502503) от 30.07.2019
 
 David Osborne - What the World Needs Now (2019) [MP3|320 Kbps] <Instrumental, Piano>
@@ -624,169 +781,6 @@ VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543115   (496433) от 05.09.2012
-
-Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496433.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:18) 01. Too Late
-(3:56) 02. The Tree In The Heaven
-(3:03) 03. Beautiful Bride
-(4:29) 04. In Love With You
-(4:14) 05. A Letter To Myself
-(3:40) 06. Just When I Needed You Most
-(4:54) 07. There Is Not So Easy
-(4:34) 08. Zhuyingtai
-(4:28) 09. Flower Sea
-(4:23) 10. Song Of Praising For Love(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543094   (496339) от 05.09.2012
-
-Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496339.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:40) 01. Preludes
-(6:34) 02. April Morning
-(6:24) 03. Bubbles
-(5:07) 04. Aurora
-(5:31) 05. Healing Waters
-(6:23) 06. Rebirth
-(5:43) 07. Bliss
-(5:28) 08. Kama
-(6:29) 09. Aqua
-(3:36) 10. Sanctuary(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543054   (496086) от 05.09.2012
-
-WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Twist Again (3:04)
-02. Peppermint Twist (3:20)
-03. Blackbird (2:18)
-04. Jailhouse Rock (2:32)
-05. For You (3:17)
-06. Hello, Mary Lou (3:29)
-07. Heart of the Country (2:39)
-08. Bad Case of Lovin' You (Doctor, Doctor) (3:12)
-09. Baby Boy (3:12)
-10. AC/DC (3:25)(   Читать дальше...   )Жанр: Parody, Country, Bluegrass, Western-and-CountryПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381868   (495301) от 31.08.2011
-
-Anthony Ventura And His Orchestra - 5 альбомов (1979-1993) [MP3|320 kbps]<Instrunental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1979 - Music For Making Love
-01. I Can't Stop Loving You 	(04:21)
-02. I'd Love You To Want Me 	(03:38)
-03. Don't Cry For Me, Argentina (02:20)(   Читать дальше...   )Жанр: Instrunental, Easy ListeningПродолжительность: 03:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CD5416FD3FB3D17EA01094EB4E84BA4EC7B06A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936736   (494267) от 12.09.2015
-
-Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World Music, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imana Piano
-02. Nafsha
-03. Manau Gavra
-04. Alma(   Читать дальше...   )Жанр: New Age, World Music, VocalПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F95216BDC3CFF190A85EF39B8DDDFBB58EC3387
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1122166   (799158) от 04.04.2017
+
+T. Rex - Greatest Hits (2012) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get It On (04:27)
+02. Metal Guru (02:28)
+03. Children of The Revolution (02:29)
+04. Twentieth Century Boy (03:41)(   Читать дальше...   )Жанр: Glam RockПродолжительность: 02:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B933B949134B13DB4A79BE655A8BDFCBB83C58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506849   (799084) от 02.11.2021
+
+The Doobie Brothers - Liberte (2021) [FLAC|Lossless|image + .cue] <Soft Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается они все еще записывают музыку и выпускают новые альбомы. Встречайте Liberté - 15-й студийный альбом от classic southern rock band THE DOOBIE BROTHERS, новая работа с абсолютно оригинальным материалом за последние 7 лет! На пластинке есть пара треков в стиле старого southern rock, однако в целом - это разноплановый альбом с разнообразными по стилю (   Читать дальше...   )01. Oh Mexico (3:21)
+02. Better Days (3:22)
+03. Don't Ya Mess With Me (3:32)
+04. Cannonball (3:44)(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E2E5C3E1251D7167CCFE17EFCA6A9B750F5B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122247   (798827) от 05.04.2017
+
+The Delta Saints - Monte Vista (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California (03:42)
+02. Sun God (02:54)
+03. Burning Wheels (03:04)
+04. Are You? (03:40)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5860E71D149083A5E99AA07448191E4D9096B04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507725   (798290) от 05.11.2021
+
+Cat Stevens - Teaser And Firecat (1971) Reissue, 1987 [FLAC|Lossless|tracks + .cue]<Folk Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wind
+02. Rubylove
+03. If I Laugh
+04. Changes IV(   Читать дальше...   )Жанр: Folk Rock, Pop RockПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC4CC4F1B4E9F5EA99AB42FCF58B11F07AFB154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507727   (798278) от 05.11.2021
 
 The Byrds - The Very Best Of The Byrds (1988) [FLAC|Lossless|tracks + .cue]<Classic Rock>
@@ -462,6 +578,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509413   (795009) от 12.11.2021
+
+Groundbreaker - Soul To Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_795009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing On The Edge Of A Broken Dream
+02. Soul To Soul
+03. Captain Of Our Love
+04. Evermore(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C185907390D51142BA38C5C64C943427992546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509428   (794959) от 12.11.2021
 
 T. Rex - Bolan Boogie (1988) [FLAC|Lossless|image + .cue]<Glam Rock>
@@ -600,151 +745,6 @@ VA - Essential Collection - Rock and Roll volume 1 (1995) 2CD [APE|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCF3C317E920AE1E690A596EB2DE78E73E5D4F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012320   (794638) от 30.04.2016
-
-Zucchero - Black Cat (2016) [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Partigiano reggiano (3:00)
-02. 13 buone ragioni (3:25)
-03. Ti voglio sposare (3:08)
-04. Streets Of Surrender (S.O.S.) (feat. Mark Knopfler) (3:56)(   Читать дальше...   )Жанр: Rock, Blues Rock, Pop RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F171D08BF618845390939A5409700039A90E16BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122715   (794306) от 05.04.2017
-
-VA - Capital Gold British Legends (2003) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот боксет ещё раз нам напоминает, кто родоначальник того рока, который мы так любим. Что ни трек - то действительно легенда. Иногда полезно вернуться к истокам, чтоб понимать глубину и ширину реки в устье!CD1:
-01. Queen - Bohemian Rhapsody  (5:55)
-02. Robbie Williams - Angels  (4:27)
-03. David Bowie - Life On Mars  (3:51)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31ABFAC8DCD1299C05525D47D2C306167C84113A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509648   (794113) от 13.11.2021
-
-Robert Reed - Sanctuary II 2 CD+DVD (2016) [FLAC|Lossless|tracks + .cue]<Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794113.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Salzburg
-2. Pen Y Fan
-3. Les Penning Section ( Single Edit )
-4. Marimba ( Single Edit )(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CC18597036DBF2D12F601E1AA1ACB5BECDBF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509765   (794083) от 13.11.2021
-
-Brain Echoes - Blackbird (On A White Oak Tree) (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (01:08)
-02. Time Capsule (05:58)
-03. Stranger (03:27)
-04. Seven Years (03:59)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE68C41BD2007265244B3B39E8DF56727C1218B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509659   (794076) от 13.11.2021
-
-Nancy Wilson - You And Me (2021) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You And Me (feat. Sue Ennis)
-02. The Rising
-03. I'll Find You
-04. Daughter(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B858C65748F6806A7DFF0E72D9C236EA5E0E5B21
 ```
 
 https://mybot314.ru/tekegram_catalog/

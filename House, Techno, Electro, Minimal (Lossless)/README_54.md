@@ -1,3 +1,148 @@
+###  Публикация: 1072513   (244197) от 13.11.2016
+
+Doubtingthomas - The Changes (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurelio Buen Día (7:36)
+02. Low.Fi Osaka (feat. Odd Soul) (8:34)
+03. White Post Lane (feat. Santiago Posada) (7:54)
+04. The Changes (7:06)Жанр: Tech HouseПродолжительность: 00:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62753DD31F64325CD4BAABCA6F0ED20935848D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456293   (243306) от 21.03.2021
+
+Valentino Mora - Underwater (2021) Spazio Disponibile [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Tribal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hadal Zone (07:04)
+ 02. Mass Frequenz (08:11)
+ 03. Spiral Falls (07:31)
+ 04. Absorption (06:18)(   Читать дальше...   )Жанр: Ambient, Techno, TribalПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1195B8920777A0A5DFEEC3BAA80A379BF3428613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352734   (243242) от 15.01.2020
+
+Tiga - You Gonna Want Me (2005) [FLAC|Lossless|image + .cue] <House, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243242.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 You Gonna Want Me (Radio Edit) 3:09
+2 You Gonna Want Me (12 Inch Dance Mix) 5:44
+3 You Gonna Want Me (Isolee In-My-Bee Remix) 6:13
+4 Do It Don't Stop 4:15Жанр: House, Techno, ElectroПродолжительность: 00:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF00F3F5BDCCE6654A28803360736DEA641429B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627279   (243138) от 18.04.2023
+
+Florian Kruse - Nordic Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:32)
+ 02. Nordic Soul (4:54)
+ 03. Don't Even Let Up (ft. Tesla Nix) (5:16)
+ 04. Heart Soul Mind - Interlude (0:14)(   Читать дальше...   )Жанр: Progressive House, Techno, Tech HouseПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2509FC32EB605F4BADB5E2FDD9F0B32672191FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457093   (242986) от 25.03.2021
+
+Truncate & Dotdat - HYD (2021) Truncate [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PNQ (05:48)
+ 02. HYD V1 (05:03)
+ 03. HYD V2 (05:04)
+ 04. HYD V3 (05:05)Жанр: TechnoПродолжительность: 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63C8BADE439F5C50A3C2AD4117131B880B8F6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634945   (242272) от 23.05.2023
 
 Mandy, Indiana - i've seen a way (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic>
@@ -594,151 +739,6 @@ Above & Beyond - 10 Years of Group Therapy (Part 2) (2022) Compilation [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F3E4D10F68E47259C8DC5173440874EDE9D17E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268022   (229829) от 09.12.2018
-
-Justice - Woman Worldwide (2018) 2CD, Japan [FLAC|Lossless|tracks + .cue] <Electro House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waters of Nazareth x We Are your Friends x Phantom 2 (WWW) (06:26)
-02. Chorus (WWW) (06:04)
-03. Audio, Video, Disco (WWW) (06:13)
-04. Stop (WWW) (04:26)(   Читать дальше...   )Жанр: Electro House, Nu-DiscoПродолжительность: 01:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457E65A2A43AB25DAE5DF66D1C617423BA15178F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341654   (229385) от 29.11.2019
-
-Droneghost - Curse (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curse One (06:44)
- 02. Curse Two (08:21)
- 03. Curse Three (05:49)
- 04. Curse Four (08:00)Жанр: Techno, AmbientПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30E55CE2C47AD4FA756C69213AC4AEFE6B925C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341586   (229251) от 29.11.2019
-
-VA - Anjunabeats The Yearbook (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond – Homecoming (1:26)
-02. Rolo Green – Miracle (6:11)
-03. Tinlicker – The Walk (5:09)
-04. Grum – Stay (feat Natalie Shay) (7:52)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BFB706BEB09CAB43D4F321200A0B0A90B44FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268315   (228200) от 10.12.2018
-
-Valentino Mora - Transmagnetic (2018) Spazio Disponibile [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Tribal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yant Suea (06:28)
- 02. Hualien (07:33)
- 03. Transmagnetic (07:34)
- 04. Second Skin (05:07)Жанр: Techno, Ambient, TribalПродолжительность: 00:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2069837F914BF2C81021D5AD7D318341BDD8736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424508   (227982) от 17.11.2020
-
-Carl Finlow - Boolean (2018) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <Electro, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronos (06:06)
- 02. Boolean (05:21)
- 03. Marauders (04:33)
- 04. Exige (04:57)(   Читать дальше...   )Жанр: Electro, BreaksПродолжительность: 00:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E832A5E3C53C16BF6561CA41CA873AB24E027E89
 ```
 
 https://mybot314.ru/tekegram_catalog/

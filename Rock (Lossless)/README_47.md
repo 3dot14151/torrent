@@ -1,3 +1,148 @@
+###  Публикация: 1390840   (782249) от 17.06.2020
+
+David Bowie - Hunky Dory (1971) Remastered, 1990, EMI [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changes (3:38)
+02. Oh! You Pretty Things (3:12)
+03. Eight Line Poem (2:56)
+04. Life On Mars? (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112AC54ED5053597DA7662E50EC6473D88A1233C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390735   (782239) от 17.06.2020
+
+Janis Joplin - Janis (1962-1970) 3CD Boxset, 1993, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дженис Лин Джоплин (англ. Janis Lyn Joplin; 19 января 1943, Порт-Артур, Техас, США — 4 октября 1970, Лос-Анджелес, Калифорния, США) — американская рок-певица, выступавшая сначала в составе Big Brother and the Holding Company, затем в Kozmic Blues Band и Full Tilt Boogie Band. Джоплин, выпустившая лишь четыре студийных альбома (один из которых — посмертный релиз), (   Читать дальше...   )01. Me And Bobby McGee (4:49)
+02. One Night Stand (3:11)
+03. Tell Mama (5:48)
+04. Try (Just A Little Bit Harder) (8:16)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEDE1024EBD388221D1435F5E487A2F9BF622AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206775   (781671) от 15.02.2018
+
+Pink Floyd - Animals (1977) Unofficial Release, Reissue, 1986, Harvest [FLAC|Lossless|image + .cue] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pigs On The Wing (Part One) (1:25)
+02. Dogs (17:04)
+03. Pigs (Three Different Ones) (11:22)
+04. Sheep (10:24)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DA1DBBDFF60FB8D5C1B705531D1CD0C628E1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391152   (781441) от 19.06.2020
+
+Neil Young - Homegrown (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate Ways (03:33)
+02. Try (02:49)
+03. Mexico (01:41)
+04. Love Is A Rose (02:17)(   Читать дальше...   )Жанр: Folk Rock, Singer-SongwriterПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C071A5E04EAB5747AB2FC72F39EA9069C5E6F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391155   (781421) от 19.06.2020
+
+Bob Dylan - Rough and Rowdy Ways (2020) [FLAC|Lossless|tracks] <Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Contain Multitudes (04:36)
+02. False Prophet (06:00)
+03. My Own Version of You (06:41)
+04. I've Made Up My Mind to Give Myself to You (06:32)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84264F10511C282B85D116F0501E012DA20E172B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391367   (781023) от 20.06.2020
 
 Bob Dylan - Rough and Rowdy Ways (2020) 2CD [FLAC|Lossless|tracks + .cue] <Rock, Folk>
@@ -592,151 +737,6 @@ Creedence Clearwater Revival - 6 альбомов (1968 - 1986) 6CD, 24 Karat Go
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E13511EA4012375EF5356658F99824D30EF8590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213181   (773353) от 15.03.2018
-
-Blueneck - Discography 12 Releases (2006-2018) Don't Touch, Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Beyond (Rapture Mix) (06:15)
- 02. Ghosts (Jovian Mix) (03:41)
- 03. Hypnos (Dark Waters Mix) (05:58)
- 04. Rats In The Wall (Liberation Mix) (05:15)(   Читать дальше...   )Тип издания: CD, Web |Жанр: Post Rock •Продолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53525A141AC133482610CA6CDB34AC4408E3E74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277746   (773169) от 24.01.2019
-
-Missy Higgins - 18 Releases (2003-2018) Коллекция [FLAC|Lossless|tracks + .cue, tracks] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All For Believing (03:29)
-02. Don't Ever (02:54)
-03. Scar (03:36)
-04. Ten Days (03:48)(   Читать дальше...   )Тип издания: CD, Web •Жанр: Soft Rock, Pop Rock •Продолжительность: 09:37:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F8C6FC5B7B2F70DF2D42404311FB0B6AFE2A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015750   (772823) от 12.05.2016
-
-John Carpenter - Lost Themes II (2016) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Electronic Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Dream
-02. White Pulse
-03. Persia Rising
-04. Angel's Asylum(   Читать дальше...   )Жанр: Cinematic Post Rock, Electronic Rock, AmbientПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB130A681AA21956DE6B27212B216036AB3B15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278527   (771992) от 25.01.2019
-
-Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Fantasy (6:45)
- 02. Little Kingdom (6:40)
- 03. A Riot of Color (5:27)
- 04. On the Wings (7:49)(   Читать дальше...   )Жанр: Acoustic, Psychedelic Rock, Prog RockПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C7C88037F9B02838C06DA5D607B59CF91E35C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016698   (769686) от 15.05.2016
-
-Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Civilized Man
-02. There Goes My Baby
-03. Come On In
-04. Tempted(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1992253158365C41564DD10923C669F84682A315
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1428800   (178480) от 04.12.2020
+
+TDW - The Days The Clock Stopped (2020) [MP3|320 Kbps] <Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crashscape (02:01)
+ 02. Clockstop - Insight X (03:31)
+ 03. Code of Conduct (06:13)
+ 04. Clockstop - Insight, Pt. 2 (09:31)(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9AED182F16CA2A5EBF32202DBF235CB3A523F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428777   (178377) от 04.12.2020
+
+Paradise Lost - Draconian Times (1995) 25th Anniversary Edition, 2020, Music For Nations [MP3|320 Kbps] <Doom-Metal, Gothic-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowkings (BBC Live Session) [00:04:35]
+02. Sweetness (BBC Live Session) [00:04:15]
+03. Once Solemn (BBC Live Session) [00:02:54]
+04. Yearn for Change (BBC Live Session) [00:04:14](   Читать дальше...   )Жанр: Doom-Metal, Gothic-MetalПродолжительность: 2 CD, 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2FE558BB1CE1189A1618155BB6B83A966A4360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428720   (178345) от 04.12.2020
+
+Evil Seeds - Theory Of Fear (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King of the Ring (04:59)
+ 02. Stronger (04:39)
+ 03. Inside the Vipers' Nest (03:22)
+ 04. Theory of Fear (05:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F3BE57B98BF5330D3B66F133279FCA3015C1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594329   (178258) от 01.12.2022
+
+Tzompantli - 2 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_178258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yaohuehuetl [00:01:18]
+02. Tlatzintilli [00:04:33]
+03. Tlazcaltiliztli [00:04:29]
+04. Eltequi [00:04:40](   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 2 CD, 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E725015B54E8F9E9C5097C43FB980FE20F341D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594317   (178249) от 01.12.2022
 
 Gutlocker - To Be Alive (2022) [MP3|320 Kbps] <Groove Metal, Sludge Metal>
@@ -629,122 +745,6 @@ Saclas - Achamoth (2023) [MP3|320 Kbps] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8C3F88058286EA370662D73C86770C58E4CEB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669933   (172319) от 19.10.2023
-
-Arena - Lifian Tour MMXXII (2023) [MP3|320 Kbps] <Progressive Metal, Neo Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Don't Forget To) Breathe [00:05:57]
-02. The Tinder Box [00:05:28]
-03. The Visitor [00:07:41]
-04. Serenity [00:02:51](   Читать дальше...   )Жанр: Progressive Metal, Neo Progressive RockПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A0C380F0B7E3AC8CD4C2BF9B20C61C323185F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670595   (171945) от 21.10.2023
-
-Silence Phobia - Living In Darkness (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Of Resurrection
-02. Fall Of The Brave
-03. Valley Of The Kings
-04. Voyager(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFF5F670EBF8F39DFFB5B25F718D978636D36D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671215   (171442) от 24.10.2023
-
-Bragging Rights - Orphan Source (2023) [MP3|320 Kbps] <Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do Not Go Gentle
-02. Orphan Source
-03. The Wretch
-04. Burn Bright(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2E5ECFD1288DDCCBD6BD4EF0DD29307D525F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671188   (171433) от 24.10.2023
-
-Thunderstick - Lockdown (2023) [MP3|320 Kbps] <Heavy Metal/Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cortege of the Dark Princess [00:03:00]
-02 - Torn 'n' Twisted [00:04:29]
-03 - Snakebite [00:03:53]
-04 - I'm a Rockstar (In My Head) [00:06:56](   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B8702FC3AAD2B6C75BE17F3F16B1000383FDFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

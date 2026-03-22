@@ -1,3 +1,148 @@
+###  Публикация: 1029692   (680341) от 27.06.2016
+
+VA - Summer Sessions 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk & Sugar - My Lovin (Mat.Joe remix) (6:48)
+02. Ucha - Shosholoza (original mix) (7:33)
+03. Coeo - Humbled (original mix) (7:32)
+04. Karol XVII & MB Valence - What's That Say (original mix) (9:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B0C35339F97CA1EA5AFF7B993B1D1CB59E9A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029652   (680152) от 27.06.2016
+
+VA - Get Physical Music Presents: Body Language, Vol. 18 by Tim Green (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Green - Body Language, Vol. 18 (Continuous Mix)
+02. Sven Laux - Off You Go!
+03. Ole Biege - Justus
+04. Landside - Still There(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D74F80A61738B3D391FC704D0CB2D1F8493E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223138   (679367) от 02.05.2018
+
+PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natu (Original Mix) (10:40)
+ 02. Cecilia (Original Mix) (7:10)
+ 03. Magnolia (Original Mix) (8:11)
+ 04. Natu (El Mundo Remix) (8:31)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34877643729E8AE8E8F3222F5054CB1B5A473940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290434   (678481) от 20.03.2019
+
+Lakker - Época (Epoca) (2019) R & S Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoulder to the Bat (04:21)
+02. 100 Bar (03:02)
+03. Nest (03:19)
+04. A Juggling of Numbers (05:07)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA08AF10B354781549A4A0C0F147B19DEB42908C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223244   (677281) от 03.05.2018
+
+Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Sun (Original) (8:23)
+ 02. Burning Sun (DAVI Remix) (6:58)
+ 03. Burning Sun (Be Svendsen Remix) (8:41)
+ 04. Burning Sun (Just Emma's Just Take Me Back Mix) (10:30)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD48892E4A2CD26CF1BEFF8B3E319DF7BBFFD016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030136   (676530) от 29.06.2016
 
 Solid Stone - Introspection (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House>
@@ -598,145 +743,6 @@ VA - Neotrance Essentials (2007) [FLAC|Lossless]<Minimal, Tech House>
 08. Peltier - Graustufe [05:25]
 09. Salee - Impressed [05:48]
 10. Booka Shade - Darko [04:07](   Читать дальше...   )2007Жанр: Minimal, Tech HouseПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224107   (668189) от 08.05.2018
-
-VA - Electrosounds Vol. 1 (1998) Globe [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Breakbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Bug & Acid Maria - Electro Sex (06:09)
- 02. Dr. Mottes & Euphorhythm - Patrik (DJ Hell Rmx) (05:33)
- 03. Genlog - More Music (07:19)
- 04. Electro Nation - Fist-Man (06:02)(   Читать дальше...   )Жанр: Techno, IDM, Electro, BreakbeatПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CDB562A443DE221808DF187F70F4C33A4C50EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224064   (668112) от 08.05.2018
-
-Carl Craig - Versus & Remixes Vol. 1 & Vol. 2 (2017-2018) Infiné | Beat Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Neo-Classical, Experimental, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Melody (Henrik Schwarz Remix) (07:42)
- 02. The Melody (Ishmael Ensemble Remix) (06:25)
- 03. At Les (Abul Mogard Remix) (10:26)
- 04. Desire (Secret Of Elements Remix) (09:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Tech House/Ambient/Techno/Deep HouseПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D55956C2264C5800B87F53829AC584A7B28409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339069   (667412) от 20.05.2011
-
-Class B Band - Movie T (2011) /WRL005CD/ [FLAC|Lossless]<Tech House, Nu-Disco, Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Nu-Disco, Techno, ElectronicПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224324   (667184) от 09.05.2018
-
-VA - The Sound Of NYLO, Vol. 2 (Compiled & Mixed By Vicent Ballester & The Nurk) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Vicent Ballester - The Sound Of Nylo (Non Stop DJ Mix) [01:07:55]
-02 Studio Deep - Happy End (ft. Oli Head) (Original Mix) [04:57]
-03 DJ Ixsxi - Chasing Sunrise (Misharev Remix) [03:30]
-04 Medsound - I Dont Wanna Be In Love (Original Mix) [05:03](   Читать дальше...   )Жанр: Deep House, Nu Disco, DowntempoПродолжительность: 05:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79592B2F750F7A69E57AEAC92DC9D5128BE7244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512028   (665857) от 17.06.2012
-
-Eric Prydz Presents Pryda ‎ - Pryda (2012) [FLAC|Lossless]<House , Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_665857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 01:15:22
 
 ## Скачать торент
 ```bash

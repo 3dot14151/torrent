@@ -1,3 +1,148 @@
+###  Публикация: 849063   (282849) от 12.12.2014
+
+VA - Enigmatic I & II (2006) [FLAC (tracks+.cue)|Lossless]<New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terry Oldfield - Majesty (5:35)
+02. Midori - Gregorian Soul (5:12)
+03. Phil Thornton - The Mask of Seduction (Short Version) (5:00)
+04. John Richardson - Spiritual Rhythms (Short Version) (5:00)(   Читать дальше...   )Жанр: New Age, EnigmaticФормат: 2хCD, CompilationПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2581FBFF95E71FFED2791A5643424320D6A7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081199   (282795) от 10.12.2016
+
+Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние между мечтами (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack, Electronica>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranded (05:54)
+02. The Shore (09:58)
+03. The Workx (06:27)
+04. Always Ready (05:18)(   Читать дальше...   )Жанр: Score, Soundtrack, ElectronicaПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292D554381620911379E748BEF4AB5E0A7ED6787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081201   (282686) от 10.12.2016
+
+Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние между мечтами (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronica>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranded (05:54)
+02. The Shore (09:58)
+03. The Workx (06:27)
+04. Always Ready (05:18)(   Читать дальше...   )Жанр: Score, Soundtrack, ElectronicaПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0777982C371AA9710F74CE837D3038A827B1768B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336000   (282582) от 05.11.2019
+
+Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Dunes (02:11)
+02. The Dry Creek (02:14)
+03. Crow's Eye (03:02)
+04. Sandfall Basin (02:32)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA3AFD35EA77F5B7BAFA62CDC466A957A5000F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964459   (282427) от 11.12.2015
+
+Niall & Juliana - Angelic Reiki (2012) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels Open the Gates
+02. Elysian Meadows
+03. Golden Pathways
+04. Angels Calling(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC0570D94DA5F6CA6ECC0664606A8261C8121CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336009   (282202) от 05.11.2019
 
 Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -597,148 +742,6 @@ Jim Brickman - Soothe, Vol. 3: Meditation - Music for Peaceful Relaxation (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BC548BE74876FBA697DC1F1DE0B157BAB3BEA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263516   (279352) от 24.11.2018
-
-James Newton Howard - Фантастические твари: Преступления Грин-де-Вальда / Fantastic Beasts: The Crimes of Grindelwald (2018) [FLAC|Lossless|tracks + .cue]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Thestral Chase (8:05)
-02. Newt and Leta (2:32)
-03. Dumbledore (2:11)
-04. The Kelpie (1:33)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01EA540646AD4B42F56FE2C78BB0A9A84263477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263527   (279349) от 24.11.2018
-
-James Newton Howard - Фантастические твари: Преступления Грин-де-Вальда / Fantastic Beasts: The Crimes of Grindelwald (2018) [MP3|320 Kbps]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Thestral Chase (8:05)
-02. Newt and Leta (2:32)
-03. Dumbledore (2:11)
-04. The Kelpie (1:33)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA096BD4D8C8225312775C8F4CBA906B4E18BD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336489   (279159) от 07.11.2019
-
-Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Family (04:52)
-02. Kait’s Theme (04:24)
-03. New Ephyra (02:07)
-04. Burned Up (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A087964F5B9963BF193923267D40A955961349C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336491   (279153) от 07.11.2019
-
-Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Family (04:52)
-02. Kait’s Theme (04:24)
-03. New Ephyra (02:07)
-04. Burned Up (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66027107FD7C9667FAFD9D8D3188F34C90BCCB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241716   (279117) от 24.11.2018
-
-Иван Ребров - Kalinka (1999) [MP3|320 kbps]<Vocal, Classic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279117.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Kalinka MalinkaЖанр: Vocal, Classic, FolkПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E055CCC5B8CDE1F4C4F6F356CB4FFEDE9F586936
 ```
 
 https://mybot314.ru/tekegram_catalog/

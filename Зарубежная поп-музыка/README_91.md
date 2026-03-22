@@ -1,3 +1,119 @@
+###  Публикация: 1792778   (67639) от 20.04.2025
+
+VA - Grew Up in the 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Christopher Cross - Arthur's Theme (Best That You Can Do) (03:54)
+002 Fleetwood Mac - Everywhere (2018 Remaster) (03:43)
+003 John Parr - St. Elmo's Fire (Man in Motion) (04:12)
+004 Tina Turner - What's Love Got to Do with It (03:50)(   Читать дальше...   )Жанр: Pop, Rock, Dance>Продолжительность: 06:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EADEB37074CB2C03E0D07B5C06FB466FD638359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799298   (66478) от 27.05.2025
+
+Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heut’ ist alles gut [3:10]
+02 - Wilde Nächte [2:29]
+03 - Souvenir [2:33]
+04 - FICKA [2:25](   Читать дальше...   )Жанр: Pop, Rhythm and Blues, SoulПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7541C0F8AA0216966561AC55081DC52EF126248B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802034   (66112) от 14.06.2025
+
+slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neck High (3:49)
+02. Crazy (3:04)
+03. Lay Low (3:07)
+04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0089E996EFECE66D25A679E0B94F567ACFD8808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808459   (64963) от 25.07.2025
+
+VA - R&B Throwbacks 90s & 00s. 100 Classic Hits (2025) [MP3|320 Kbps] <Pop, Pop Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. B.O.B - Nothin’ on You (feat. Bruno Mars)(04:28)
+002. All Saints - Take the Key(04:12)
+003. Musiq Soulchild - Teachme(04:21)
+004. Trey Songz - Say Aah (feat. Fabolous)(03:28)(   Читать дальше...   )Жанр: Pop, Pop Rock, BalladПродолжительность: 07:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C8F1602A1819095A2D0F733D812660A6AEA357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705587   (63491) от 09.03.2024
 
 Bananarama - Glorious - The Ultimate Collection (2024) [MP3|320 Kbps] <Disco, Pop>
@@ -628,122 +744,6 @@ VA - 80s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B72F2BD6F80C8F7F230F55E95BD99DBB04A9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737083   (49945) от 15.07.2024
-
-Nancy Sinatra - California Girl (2002) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская певица и актриса, родилась 8 июня 1940 года, дочь певца / актера Фрэнка Синатры и остается наиболее известной благодаря своему фирменному хиту 1966 года "These Boots Are Made for Walkin'". Другие определяющие записи включают "Sugar Town", песню номер один 1967 года "Somethin'Stupid" (дуэт с ее отцом), заглавную песню из (   Читать дальше...   )01. How Are Things In California? (2:31)
-02. San Fernando Valley (2:52)
-03. 99 Miles From LA (5:10)
-04. California Girls (3:10)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E97AA64439D0BB7621DB23CF161547E6EA8FCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736877   (49941) от 15.07.2024
-
-VA - Super Disco Hits 1989 (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morgana - C'est Cupidon - Le Roi Absolute De L'Amour
-02. Pat & Bel - Sophisticated
-03. Don Pablo's Animals - Ibiza
-04. Novecento - Broadway(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 02:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DC1C0BEEC18EA725ACC852694D46F4CD05C538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737258   (49805) от 16.07.2024
-
-VA - 100 hits just classics (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49805.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran, Justin Bieber - I Don't Care
-002. Fleetwood Mac - Dreams (2018 Remaster)
-003. Alphaville - Forever Young
-004. Dua Lipa, DaBaby - Levitating (feat. DaBaby)(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3801F5415F169810073A07CA4306B288D17C1913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737322   (49703) от 17.07.2024
-
-VA - 80s Mixtape (The Ultimate Collection) (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Jazz, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human League - Don't You Want Me
-02. Abc - The Look Of Love (Part 1)
-03. Blondie - Heart Of Glass
-04. Kurtis Blow - The Breaks(   Читать дальше...   )Жанр: Electronic, Pop, Jazz, RockПродолжительность: 06:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3122CF91D32D5EA974ACF16CDF6CF5C927219EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

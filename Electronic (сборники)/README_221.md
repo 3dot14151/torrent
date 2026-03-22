@@ -1,3 +1,235 @@
+###  Публикация: 1758476   (38497) от 02.11.2024
+
+Jumanov - Compilation CD 1 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Found
+ 02.  Time is Short
+ 03.  Golden Autumn
+ 04.  Will Pass(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1E7FD3C0E97A5B6D72EE981AAF0A3137B6A6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758610   (38402) от 03.11.2024
+
+Jumanov - Compilation CD 2 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dry Music
+ 02.  Lie
+ 03.  Knockin on Heavens Door
+ 04.  Wrong(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E2A49A27BB2EF5453DE353DEFFDD7EB3B96517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758942   (38183) от 05.11.2024
+
+Jeem DJ - Compilation (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Canada
+ 02.  Stop Waiting
+ 03.  Alone
+ 04.  Only You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA191388FC85B2828DBB714BF05F6A61A1D1122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759129   (38104) от 06.11.2024
+
+VA - DOWN LOW 7 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Libercio - DESTROY (1:29)
+02. FanEOne, Benz Boyz - Pull Up (1:31)
+03. FNVFICK - Luxury (1:54)
+04. QUATTROTEQUE, DVRVIX - Base (2:02)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 04:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DA4311198D765BA37CB8826C57A71BB037759C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759430   (37895) от 08.11.2024
+
+VA - Compilation part 130 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jambeats - Finally
+02. Jumanov - Tears
+03. Jumanov - Don't Go
+04. Menda - Infinity(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC6D527CA48B77E57BD31178390283D7E04122A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759429   (37891) от 08.11.2024
+
+VA - Compilation part 129 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isskoy - Galaxy
+02. Jambeats - Baby
+03. Zerrid - Imagination
+04. Menda - Fallen(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1C949DB1382611E279512EB2E59D2F7A667FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759818   (37689) от 10.11.2024
+
+VA - Melodic Techno 1 2024 [MP3|320 Kbps] <Melodic Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture; Kevin de Vries; Yellowitz - Just Like Home (Kevin de Vries Remix) (5:03)
+02. Armin van Buuren; Agents of Time; ORKID - Love Is Eternity (3:33)
+03. John Summit; Kaskade; Julia Church - Resonate (4:01)
+04. Reverse; DeepMe; Ubo; Sāde Frame - Heat (4:13)(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 04:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D28681AEE29117A3B4B6EBDBE233C960C24D683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759731   (37651) от 10.11.2024
+
+VA - Record Super Chart 09.11.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugel, Topic, Arash, Daecolm - I Adore You (3:34)
+02. Sophie and the Giants - Shut Up And Dance (2:57)
+03. Tayna, Marshmello & UKAY - Si Ai (3:04)
+04. Edward Maya feat. Yohani - Diamonds (2:08)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED305C1A8F52067366989D401D9979CC7B924166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759905   (37611) от 11.11.2024
 
 VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
@@ -513,238 +745,6 @@ VA - Compilation  Part 131 Electronic (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6FA54F3B8A420EFF5D5E1A67B311B6CDAE7EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764143   (35104) от 05.12.2024
-
-VA - Compilation  Part 132 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vayro - Lovers Melody
-02. Riltim - Beloved
-03. Isskoy - Calling
-04. Davit Barqaia - Windy Night(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B60A27A798E9DC6268758C19DAA712E80400612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764564   (34906) от 07.12.2024
-
-DJ Lava - Continuation Compilation (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Path Traveled
- 02.  I Won't Forget You
- 03.  It Was Impossible to Return
- 04.  Going Beyond the Horizon(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E249A2F3D9F9530CA8A2F7902F32A9C04D69DEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764677   (34819) от 08.12.2024
-
-VA - Record Super Chart 07.12.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugel & Topic & Arash & Daecolm - I Adore You (3:34)
-02. Hugel, Topic, Arash, Daecolm - I Adore You (Narkoteq reMix) (5:34)
-03. Tayna - Si Ai (2:46)
-04. R3hab & Sophie And The Giants - All Night (2:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF96EE866DC7C5E53974EB27AE66E329666B807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764700   (34793) от 08.12.2024
-
-VA - Compilation Part 133 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davit Barqaia - My Way
-02. Dndm & Dova Music - Echoes in the Night
-03. Davit Barqaia - Sweet Memory
-04. Muvi - Crave(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C060C18933DA3147F4FEA8C0E14F0BBD88B2B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764824   (34722) от 09.12.2024
-
-VA - Intellectual Lounge Music (2024) [MP3|320 Kbps] <Lounge, Downtempo, Chillout, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hints Of Soul - Invisible Mirror [04:31]
-002. Aaron Parks - Flyways [04:03]
-003. Dj. Juliano Bgm - Falling [03:57]
-004. Lovers In Motion - Gushing [04:30](   Читать дальше...   )Жанр: Lounge, Downtempo, Chillout, ElectronicПродолжительность: 09:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0924F8F02347D9F20CE0B7C48A77A350E73F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764927   (34706) от 09.12.2024
-
-VA - Vocal Trance NNM 3 (2024) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Hemsley - Tidal (3:51)
-02. Ben Nicky - Alive (2:53)
-03. Ben Gold - Half Light (3:49)
-04. Lost Witness - Happiness Happening '09 (8:39)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA8274F26ADBDE7191C393FF17147EAB1EB9A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765202   (34551) от 11.12.2024
-
-VA - Collection Winter Chillout (2024) [MP3|320 Kbps] <Lounge, Downtempo, Chillout, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Digby Jones - Dinner [02:07]
-002. Medwyn Lindstaed - Winter Is Coming (Glory Chillout Mix) [04:21]
-003. Strategic Love - Winter Lounge [02:44]
-004. Michael e - Andiamo (Original Mix) [04:42](   Читать дальше...   )Жанр: Lounge, Downtempo, Chillout, ElectronicПродолжительность: 07:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F418BDF53D5449C8ADDDB003927415A4810E1378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765790   (34076) от 15.12.2024
-
-VA - Musical kaleidoscope part 17 Electronic, Instrumental, Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Boychenko - Out of Time
-02. Sisco Le Voyageur - Enigma French 35
-03. Dj Polkovnik - Pro Sinus
-04. Dj Artur - Thundery Night(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD68077A1B3D604140B356AADE45DB3F66C0375
 ```
 
 https://mybot314.ru/tekegram_catalog/

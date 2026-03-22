@@ -1,3 +1,32 @@
+###  Публикация: 1368007   (914255) от 17.03.2020
+
+Kreator - London Apocalypticon - Live at the Roundhouse (2020) 3CD [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choir of the Damned (0:42)
+02. Hordes of Chaos (5:27)
+03. Phobia (3:56)
+04. Satan Is Real (5:24)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 3 CDr 03:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0B7E3F22FB5421CE80ADDF847B362401014332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097533   (914120) от 27.01.2017
 
 Betraying the Martyrs - The Resilient (2017) [MP3|320 Kbps] <Symphonic Metalcore, Deathcore>
@@ -717,35 +746,6 @@ Dark Arena - Worlds of Horror (2021) [MP3|320 Kbps] <Progressive, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4FE40466BF19BF35F90D30D6F5D140546BE0542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098956   (907334) от 31.01.2017
-
-Silent Circus - Rise and Fall (2017) [MP3|320 Kbps] <Groove Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Voice
-02. Affection
-03. My Return
-04. Indifferent(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D07A6CE3802426805DF5EEB3307B6CEC465E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

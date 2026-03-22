@@ -1,3 +1,265 @@
+###  Публикация: 593960   (134864) от 24.12.2012
+
+VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Control 98 - Super Sax
+02. Francesco Demegni - Don't Forget
+03. Continental Groove - Bawls of Prayer
+04. Montecarlo Dream - Del
+05. P Project - Modart
+06. Paul V - Cutdown
+07. Double T Project - Behind the Mirror
+08. Shin Elto - Deep Mundo
+09. Lounge Dam - Cap
+10. DJ Ambient P - Sweet and Sexy(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F3A09A5DB8AB46FE73C23CF5CF05B2308B56AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592721   (134853) от 24.12.2012
+
+VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Since Yesterday
+02. Lazy Hammock - Was I Anyone to You
+03. Lemongrass - Ton Parfum
+04. Michiko - Fly Away With You
+05. Viv de la Rosa - Andalucia - Sunny Del Mar Mix
+06. Albert St.Barth - Cafe Au Lait - Gigolo Edition
+07. Claude Chagall - Balearic Waves - Christmas Attack
+08. Martinique le Souffleur - ST.Tropez - 100% Deluxe Edit
+09. Marga Sol - Tocca Me
+10. DJ MNX - Chill Out Rock N Rolla(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679752   (134831) от 27.11.2023
+
+AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Night City
+02. Juliette
+03. Starfighter
+04. From Dusk Till Dawn(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BC18B1EA3031BC80AE7EC2F02A7E81742311B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679899   (134823) от 27.11.2023
+
+VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omer Bukulmezoglu - ROE (4:33)
+02. Oliver Koletzki Felix Lorusso - Bones (Deep Control MashUp) (4:29)
+03. Mzade - Come On Over (4:18)
+04. JAVAD - I am alone (7:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E025311AEBBB00DB9F139CE4037981ED631971C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593910   (134779) от 24.12.2012
+
+VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Quantum Of Soul - Greece - The Solace Remix (3:44)
+2. Liquido - Violetta - Ultra Lounge Dub (5:06)
+3. Joerdi - Dolphins - Tomtempi Mix (4:19)
+4. Anna Goda - Sweetest Dreams - Terra Incognito Mix (3:29)
+5. Clara Bell - Looking Forward - Bargrooves Edit (3:38)
+6. Jost Hohenberg - Space Design - Inner Peace Remix (4:31)
+7. Lauren Lee - Strandbar - Re-Jazzed Mix (3:46)
+8. Cafe Paraiso - Don't Sleep - Jon Del Mar Dub (3:09)
+9. Jenny Casparius - Thank You Darling - Nu Cool Ibiza Mix (3:19)
+10. Tom Lang - Babyclock - Fluxxx Remix (3:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016726E05C3FBBCE33E37CED0CCB04C33241B8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593892   (134272) от 25.12.2012
+
+VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz Feat. Ana Diaz - Nothing Without Me (Antillas & Dankann Club Mix) 06:32
+ 02. Krazy Sandi - Insanity (Dj John Spider Remix) 07:03
+ 03. Poshout, Aelyn - Thank You Club Dub Mix 07:01
+ 04. Yahel, Liya - Creatures (Radio Edit) 03:37
+ 05. Manuel Rocca - Bittersweet (Lence & Pluton Remix) 07:07
+ 06. Roger Shah, Adrina Thorpe - Island Feat. Adrina Thorpe (Antillas Vocal Edit) 04:54
+ 07. Summer Channel Ft Fisher - A Thousand Miles (Joys Dub Remix) 08:12
+ 08. Dash Berlin Feat Kate Walsh - When You Were Around (Lange Radio Edit) 04:10
+ 09. Orkidea - Liberation (Mystery Islands Remix) 06:45
+ 10. Walsh & Mcauley Feat David Berkeley - Sail On The Waves (Future Disciple Remix) 08:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AABA7CEECCEAD0CFC017E039FDFB29B9396A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594359   (134230) от 25.12.2012
+
+VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aperitif Quartet - Another Drink
+02. Lounge Lovers - Piano Pianoforte
+03. Jazz Bar - Indelette
+04. Funkalova - Samvise
+05. Cool John - With the Trumpet
+06. Beach Groove Ensemble - Vibrations
+07. Novo Som - Acapulco Express
+08. The Chiller - Chiller
+09. Examination - Maginot
+10. Gold Lounge Project - Vibes(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6339BCE0111CF52DEBA2B11CF5D380A76412182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680332   (134185) от 29.11.2023
+
+VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxing>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estragur - North Wind [05:06]
+02. Magmatunes - You [05:17]
+03. Ludwig A.F. - Glass [04:34]
+04. The Big Port - Another World [04:40](   Читать дальше...   )Жанр: Chillout, Lounge, RelaxingПродолжительность: 03:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594727   (133287) от 27.12.2012
 
 VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
@@ -581,238 +843,6 @@ VA - 60 Minutes. Old School Dance Music vol.6 (2021) mixed by Dj V [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE06CC1DD19204A0EE4E6BEE31460A03E4E0F360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525574   (129229) от 21.01.2022
-
-VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Candys, Jack Holiday - Insomnia (Rework) (3:00)
-02. W&W, Blasterjaxx - Dynamite (Bigroom Nation) (2:50)
-03. Timmy Trumpet, Azteck, Darren Styles - Dance Tonight (2:57)
-04. Sam Feldt, Justus, Georgia Ku - Call On Me (3:27)(   Читать дальше...   )Жанр: Big Room, Dance, Hands UpПродолжительность: 04:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525407   (129210) от 21.01.2022
-
-VA - Colored Clouds: Deep House Soft Session (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спокойная и плавная музыка отлично подойдет для меланхоличных ребят, любящих наблюдать из окна за зимними пейзажами. Особенную атмосферу создает аранжировка, в которой напрочь отсутствуют жесткие ударные – это свойство предает композициям уникальный шарм комфорта001. Rico Rosario - Hit Hop
-002. Blue Avenue - The Floor Is On Fire
-003. Alexander Paris - Shining Night
-004. Leeman Brothers - Belisa(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5D5B451906E35F71D33A4C41A044BFAE63A93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525382   (129205) от 21.01.2022
-
-VA - Beatport Deep House: Sound Pack #397 (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая известная в музыкальных кругах  медиа площадка Beatport не перестает радовать своих почитателей музыкальными новинками. Вот и на этот раз она преподносит нам "Подарок" в виде 397-го электро саунда - микс самых известных композиций клубного дип хауса со всего мира.001. Junktion - Tribute
-002. Awsi - Lo Que Faltaba
-003. Efe Goroglu - There For You
-004. Peter Brown - This Feeling(   Читать дальше...   )Жанр: Deep House, Soft ElectroПродолжительность: 10:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6319632BDA2F8A0E2FD136B92962D69CB2E54499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525418   (129196) от 21.01.2022
-
-VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это те приятные мелодии, благодаря которым человек растворяется в обволакивающей его музыке и предаётся теплым объятиям спокойствия и умиротворения вспоминая приятные моменты летнего отпуска на море.001. Lafoliedamour - Lollygagging
-002. Memorio - Grace
-003. Subdream - Monsonoom
-004. Buddha Bar - Cold Phase(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525376   (129191) от 21.01.2022
-
-VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
-002. Simone D Jay - Move Your Feet
-003. DJ Planet Express - Wanted U 2 Kno
-004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525426   (129188) от 21.01.2022
-
-VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы погружаемся в Техно туннели, собираем лучшие музыкальные работы и упаковываем их в подарочную упаковку специально для Вас. Целых сто треков техно любви доступны уже сейчас во втором релизе "The Techno Streaming Sound" от Electro Voice!001. Lorenzo Chi - Underground Chicago
-002. Theo De Tank - Make Me Feel
-003. Jürgen Degener - Rhyme
-004. Heathered Pearls - Utica(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9E694EE9CC0AEC955E15BDAEF3A4374A022889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525414   (129162) от 21.01.2022
-
-VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта музыка для тех. кто максимально отрешиться от проблем и уйти в себя, или познать что-то новое и расширить границы зоны комфорта. Для многих людей лучшим способом провести это время становится путешествие и не важно большое или маленькое, но обязательно под хорошую музыку.001. DJ D Redd - Sloppy Top
-002. Plasma2097 - Wayne Train
-003. Goncalo M - Operation Friction
-004. Makaja Gonzales - Silver Bullet(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 09:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065B4C3CD76B5A9C40BB99D449552BDB4BC0C803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525431   (129146) от 21.01.2022
-
-VA - Winter Break: Electro House Session (2022) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы являетесь откровенным поклонником Electro House и не одна более менее значимая клубная тусовка не выпадает из вашего поля зрения , то здесь обязательно найдёте для себя не один десяток треков в свою фонотеку.001. Velvet Valley - Kb3k
-002. Peter Paul - Festivalia
-003. Alex Greenhouse - Do You Know
-004. Stan Seba & Bynomic - Miracle(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D345D01C7D24A9FFE669C77026B179880E70EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

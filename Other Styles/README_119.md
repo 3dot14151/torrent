@@ -1,3 +1,147 @@
+###  Публикация: 1174543   (385325) от 15.10.2017
+
+Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385325.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beneath an Autumn Moon 10.20
+2. Whispers in the Trees 8.56
+3. To Dance with Falling Leaves 10.44
+4. Between Two Worlds 10.32(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7438BE386621625A59994911D554B6EC6BF1F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174635   (385250) от 15.10.2017
+
+Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing on Water
+02. Waterfall
+03. Rainfall to Rivers
+04. Reaching for You(   Читать дальше...   )Жанр: New Age, Piano, AmbientПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60AB1AA32780EBF99C30F14351A942CEF070058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572932   (383646) от 06.09.2022
+
+Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Roi Est Mort, Vive Le Roi!	1:57
+02. Morphing Thru Time	5:47
+03. Third Of Its Kind	0:19
+04. Beyond The Invisible	5:00(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419659B5305E843B52266522C5B2D2273178233A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248905   (383563) от 09.10.2018
+
+Covarino/Incorvaia - Chiodi (2018) [FLAC|Lossless|tracks + .cue] <Acoustic, Ambient, Experimental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I (16:23)
+ 02. II (14:39)
+ 03. XI (6:46)Жанр: Acoustic, Ambient, Experimental, Modern Classical, Guitar, Free ImprovisationПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3065B6AA03A1E71BCA4B08EA307F95AFC3391F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572830   (383547) от 06.09.2022
+
+Paul Mauriat - The Ultimate Paul Mauriat (2013), (3CD) [OGG Vorbis|485 Kbps] <Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Blue	2:33
+02. Toccata	2:39
+03. Minuetto	2:27
+04. Amore Grande Amore Libero	2:57(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F426B14B04B9476B79D4B9CE68FB7B09F967306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414579   (383305) от 09.10.2020
 
 Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Darkwave, Synthwave, Soundtrack>
@@ -606,148 +750,6 @@ Constance Demby - Sanctum Sanctuorum (2003) [FLAC|Lossless|tracks + .cue] <NewAg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F1BACB0D4DCE1F28F69510B93D1C652ABC09374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253769   (379613) от 11.10.2018
-
-Constance Demby - Faces of the Christ (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1 (14:57)
-02. Part 2 (13:11)
-03. Part 3 (15:21)
-04. Part 4 (15:14)Жанр: NewAgeПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BCD102FD0796A839FC42D11DD8C786684B5E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253809   (379526) от 11.10.2018
-
-Constance Demby - Spirit Trance (2004) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend (06:56)
-02. Cosmos (07:37)
-03. Paths to Prayer (World Religions) (08:08)
-04. Ave's Trance (05:45)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5245C61519C01704976B7E658DB8EB00F2B9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253816   (379525) от 11.10.2018
-
-Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waltz of Joy (04:45)
-02. Tribal Gregorian (04:19)
-03. Jungle Jam (06:13)
-04. Javalon (04:19)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF95A4C93DE08DC0EAC38EB49EF2418C64B73C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253817   (379442) от 11.10.2018
-
-Constance Demby - Ambrosial Waves – Healing Waters (2011) [FLAC|Lossless|image + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambrosial Waves - Healing WatersЖанр: NewAgeПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C8F772DF2B43634CD07823DED3B3B88EE88448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068728   (377887) от 02.11.2016
-
-Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selections from the HBO® Series) - EP (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Theme – Westworld (01:43)
-02. Black Hole Sun (02:29)
-03. Paint It, Black (05:45)
-04. No Surprises (04:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBE165FBA5E37CC229DDD753489E87F63E3F222
 ```
 
 https://mybot314.ru/tekegram_catalog/

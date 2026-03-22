@@ -1,3 +1,61 @@
+###  Публикация: 1436896   (1042813) от 02.01.2021
+
+The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Duguid feat. Julie Thompson - Falling
+02. Michael Cassette - Zeppelin
+03. Cicada - Beautiful (Michael Gray Remix)
+04. Andrew Bayer - Counting The Points(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBA998E0FA597EA1FA67C9079A7BD06A5F1A74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436867   (1042728) от 02.01.2021
+
+David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
+02. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
+03. Jack Back - Performance
+04. David Guetta & MORTEN & Lovespeake vs. Fatboy Slim - Save My Life vs. Sunset (Bird Of Prey) (David Guetta & MORTEN Edit)Жанр: Electro House, Progressive HouseПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260313   (1041866) от 05.01.2021
 
 Arika Lane - TopTrance Radioshow (2011-2021) [MP3|256 - 320 Kbps] <Uplifting Trance, Trance>
@@ -682,64 +740,6 @@ Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0386CF16C06C6BF626EC470DE4CC3D5941594427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457980   (1024258) от 27.03.2021
-
-Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard Dance, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludwig van Beethoven - Moonlight Sonata (Blasterjaxx Remix)
-02. Danimal - Wolves
-03. Justin Prime & Vito Mendez - Rebirth Of Sound
-04. Darius & Finlay - Superbeast(   Читать дальше...   )Жанр: Hard Dance, Big RoomПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E39E889367E116784186A36CAA0BC2412AAF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457976   (1024254) от 27.03.2021
-
-David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cardi B ft. Megan Thee Stallion - WAP (David Guetta Bootleg)
-02. Cloverdale - Open Up
-03. David Guetta & MORTEN - Kill Me Slow
-04. Danny Avila ft. Ruby Prophet & PollyAnna - My Blood(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E494584251F792C1455EDBED5FDE0C21DA3974
 ```
 
 https://mybot314.ru/tekegram_catalog/

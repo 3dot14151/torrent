@@ -1,3 +1,235 @@
+###  Публикация: 1758685   (38373) от 03.11.2024
+
+VA - The Echo Of The Heart Strings (2024) [MP3|320 Kbps] <Rock, Soft rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Santa Ana Winds - E.S.P
+002. Tina Turner - Private Dancer
+003. Frankie Valli - Sometimes Love Songs Make Me Cry
+004. America - Ventura Highway(   Читать дальше...   )Жанр: Rock, Soft rockПродолжительность: 09:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C9D681E6C52E4FD024269F96E8B97040820322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760253   (37400) от 13.11.2024
+
+VA - Autumn In the Mirror (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37400.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Dreams - (04:18)
+ 002. Maude Latour - Heaven - (03:01)
+ 003. Why Bonnie - Wish On The Bone - (03:53)
+ 004. America - Ventura Highway - (03:32)(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 11:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7DFACCFB0A4455D0DE798F8036694DE953393A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761635   (36578) от 21.11.2024
+
+VA - In ecstasy from metal (2024) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Accept - Humanoid [04:35]
+002. Metallica - 72 Seasons [07:39]
+003. BABYMETAL, Tom Morello - METALI!! (feat. Tom Morello) [03:29]
+004. Megadeth - We’ll Be Back [04:30](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 11:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB02427F24F99DB6987E30AD7D78C01167EE33F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762278   (36279) от 24.11.2024
+
+Tommy J (Tommy Johansson) - Metal Covers (2024) [MP3|320 Kbps] <Metal, Covers>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 18 and Life (4:02)
+02. Aces High (4:13)
+03. Africa (4:09)
+04. After the War (3:53)(   Читать дальше...   )Жанр: Metal, CoversПродолжительность: 03:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60A0FA62D4369F75062445B2D8C3061430D782D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762227   (36214) от 25.11.2024
+
+Лучшие хиты Русского Рока (2012) [MP3|128-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lumen – Гореть
+02. Lumen – Пора орать
+03. Lumen – С4
+04. Lumen – Сид и Нэнси(   Читать дальше...   )Жанр: RockПродолжительность: 13:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A115DADA24614FF9ADC122237E1687B38DE270B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762450   (36160) от 25.11.2024
+
+VA - Christmas Rock Santa's Secret (2024) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36160.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. L.A. Guns - The Bills/Christmas Is The Time To Say I Love You [03:01]
+002. Queen - Thank God It's Christmas [04:19]
+003. Slade - Merry Xmas Everybody [03:44]
+004. Band Aid - Do They Know It's Christmas? (1984 Version) [03:43](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8050F4280E3F92715F25451043B238FBC43E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762866   (35617) от 30.11.2024
+
+Alanis Morissette - Compilation (1987-2020) [MP3|320 Kbps] <Alternative, Post grunge, Pop rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21 Things (Under Rug Swept 2002)
+02. All I Really Want (Jagged Little Pill 1995)
+03. Celebrity (Havoc & Bright Lights 2012)
+04. Edge Of Evolution (Havoc & Bright Lights 2012)(   Читать дальше...   )Жанр: Alternative, Post grunge, Pop rockПродолжительность: 03:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49728ADB417DBC177C63E500FD0771C9F74724F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763604   (35458) от 02.12.2024
+
+VA - Christmas Glam Santa's Secret (2024) [MP3|320 Kbps] <Rock, Glam>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T. Rex - Christmas Bop [04:00]
+02. Slade - Here's to ... (The New Year) [03:11]
+03. Bay City Rollers - Money Honey [03:17]
+04. New York Dolls - 'Cause I Sez So [03:07](   Читать дальше...   )Жанр: Rock, GlamПродолжительность: 04:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AA4EEB3A17A48ECE60B8B0250223B16F8B2F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763753   (35328) от 03.12.2024
 
 VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
@@ -513,238 +745,6 @@ Manowar - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A8419E00DF2207755D77427880D1C0D5469C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774802   (30028) от 23.01.2025
-
-W.A.S.P. - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animal (Fuck Like A Beast) [03:08]
-02. I Wanna Be Somebody [03:44]
-03. L.O.V.E. Machine [03:52]
-04. The Flame [03:42](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 07:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484830FB0AC50D22A64F0DB8A786E62B07BDE2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774598   (29813) от 25.01.2025
-
-Accept - Compilation (1979-2024) [MP3|320 Kbps] <Heavy metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stampede (Blind Rage 2014)
-02. Stalingrad (Stalingrad (Brothers In Death) 2012)
-03. Dying Breed (Blind Rage 2014)
-04. The Best Is Yet To Come (Too Mean To Die 2021)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 09:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED6E0F907D7AC6B0FDDA8EC4E9F5D302B06FF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775126   (29780) от 25.01.2025
-
-U.D.O. - Compilation (2025) 2 CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29780.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isolation Man [04:51]
-002. Midnight Mover (Live) [03:24]
-003. The Flood [04:04]
-004. Rebel Town [05:31](   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 15:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299355F2049AF6936A408F1AD516F1C1956D2DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776064   (29278) от 30.01.2025
-
-Ronnie James Dio - Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29278.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Along Comes A Spider [03:33]
-002. Golden Rules (2019 - Remaster) [04:52]
-003. Master Of The Moon (2019 - Remaster) [04:18]
-004. Black (2019 - Remaster) [03:08](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 07:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBEBDF8B993F8529B106BB0D30AB87495EC6D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776803   (28885) от 02.02.2025
-
-VA - Light And Shadows (2025) [MP3|320 Kbps] <Rock, Alternative Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Angels - Brahma - 04:50
-002. Letdown - Dead Right - 02:43
-003. Phantogram - Jealousy - 03:02
-004. Garbage - Starman - 04:09(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 14:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B0CCE257F0CA130BA3C056813D9134CA9497F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776952   (28709) от 04.02.2025
-
-VA - Time Of Rock & Metal от ALEXnROCK Part 1 (2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переделал и улучшил выпущенный ранее сборник, по просьбе одного очень хорошего человека. На тот момент выпуска, всё что у меня было из звука — это простенький музыкальный центр SONY подключённый к компу. Сборник составлял для себя, так как мне категорически не нравились официальные сборки, ещё со времён кассет. В основном пихают скучный, однообразный или заезженный (   Читать дальше...   )01. Firehouse - Get In Touch
-02. Suicidal Tendencies - Get Whacked
-03. Bon Jovi - In These Arms
-04. Helloween - Sole Survivor(   Читать дальше...   )Жанр: RockПродолжительность: 04:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3BC52CD95AC066C196DAC3F5CA861492277219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777245   (28589) от 05.02.2025
-
-VA - Classic Glam Rock (2025) [MP3|320 Kbps] <Rock, Glam>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. T. Rex - Bang a Gong (Get It On) [04:23]
-002. The Darkness - I Believe In a Thing Called Love [03:38]
-003. Mungo Jerry - In the Summertime [03:36]
-004. Queen - Killer Queen (Remastered 2011) [03:00](   Читать дальше...   )Жанр: Rock, GlamПродолжительность: 07:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C297676EFA3FD9F789752433AB0A239FDC8480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777327   (28569) от 05.02.2025
-
-Bloodhound Gang - Compilation (1995-2015) [MP3|320 Kbps] <Alternative, Comedy rock, Pop rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell Yeah (Hooray For Boobies 1999)
-02. The Bad Touch (Hooray For Boobies 1999)
-03. Fire Water Burn (One Fierce Beer Coaster 1996)
-04. I Hope You Die (Hooray For Boobies 1999)(   Читать дальше...   )Жанр: Alternative, Comedy rock, Pop rockПродолжительность: 03:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B11E20FFC9C485BAE652090A8AA82A669730A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

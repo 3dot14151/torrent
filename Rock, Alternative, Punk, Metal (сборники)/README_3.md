@@ -1,3 +1,32 @@
+###  Публикация: 1484688   (1005187) от 27.07.2021
+
+VA - Technical & Progressive Death Metal 6 (2017-2021) from Domovoy767 [MP3|320 Kbps] <technical death metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005187.jpg" />
+</div>
+
+
+###  Подробнее
+
+abstract mechanism. Vol.1
+
+1. Depth - Eyes Of Eternity
+2. Desecrate - Tears Of Blood And Sand(   Читать дальше...   )Жанр: technical death metal, progressive death metal, technical thrash metalПродолжительность: 40:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FBE1E7A5A16B6D777A4FF61B3F2783826D0279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486089   (1004838) от 30.07.2021
 
 VA - 100 Greatest Soft Rock Songs (2021) [MP3|320 Kbps] <Rock>
@@ -713,35 +742,6 @@ AC/DC - Brian Johnson Hits (2016) Bootleg [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1B618910226B2638D3819463EE596DC0D47A5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972056   (981848) от 06.01.2016
-
-VA - The Best Of Alterportal HITS (2015) [MP3|256- 320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981848.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Enter Shikari - Anaesthetist
-2. Periphery - Alpha
-3. Папа Роач - Дьявол
-4. Blue Stahli - Not Over Til We Say So (feat. Emma Anzai of Sick Puppies)(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEC7DA452A0AC451A45714AC6FE6C78E5CE1648
 ```
 
 https://mybot314.ru/tekegram_catalog/

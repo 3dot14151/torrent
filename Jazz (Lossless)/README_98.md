@@ -1,3 +1,148 @@
+###  Публикация: 1400016   (723166) от 03.08.2020
+
+Chet Baker Quartet featuring Phil Markowitz - Live at Nick's (1989) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Thing for You Is Me [9:44]
+02. Broken Wing [9:56]
+03. This Is Always [8:27]
+04. Beautiful Black Eyes [17:11](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242D1CC7ACD2970E7404573EB595981419862EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400014   (723163) от 03.08.2020
+
+Bebop & Beyond - Plays Thelonious Monk (1990) Bluemoon [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Francisco Holiday [7:12]
+02. Brilliant Corners [7:02]
+03. Think of One [7:30]
+04. Crepescule with Nellie [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953EAE00F23D1EC8A7C5077BB71C98C09D849FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400018   (723153) от 03.08.2020
+
+Chet Baker - Peace (1982) 1989, Enja Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 + 1 = 5 [7:38]
+02. Peace [4:10]
+03. Lament for Thelonious [10:12]
+04. The Song Is You [7:08](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDA9E6C7F63CD8B6DB8B8570568DCD94276599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285267   (722874) от 25.02.2019
+
+Jack Sheldon - The Quartet & The Quintet (1954, 1955) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contour [5:36]
+02. It's Only a Paper Moon [7:21]
+03. Leroy's Blues [5:58]
+04. Cheek to Cheek [3:33](   Читать дальше...   )Жанр: Cool, Bop, Mainstream JazzПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AAC108D21DB3C3D072410EE1483316EA334304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129455   (722718) от 28.04.2017
+
+Slide Hampton - Jazz With A Twist & Explosion! (1962) 2001, Atlantic [FLAC|Lossless|image + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jazz Twist [02:35]
+02. Mack The Knife [03:05]
+03. Gorgeous George [02:11]
+04. Strollin' [03:59](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49827E5F097245189AFC8798FB8B054A7E9DF39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129453   (722715) от 28.04.2017
 
 Pee Wee Russell - Ask Me Now! (1963) 2002,  Universal [APE|Lossless|image + .cue] <Dixieland, Swing>
@@ -194,6 +339,35 @@ Art Blakey And The Jazz Messengers - In My Prime Vol. 1 (1977) Remaster, 2015, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E44E1E50699254C4E2A4E6E8C39C395771658D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023839   (722465) от 06.06.2016
+
+Shirley Scott - Soul Song (1968) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_722465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Think [08:07]
+ 02.When A Man Loves A Woman [07:00]
+ 03.Mr. Businessman [03:13]
+ 04.Blowin' In The Wind [06:24](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65A41F6E3B7E41D74D92990FE9705BD1F7ECB50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,180 +745,6 @@ Ella Fitzgerald - The Best Of... (1996) Reissue, Remastered, Recordings from 193
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF1A17C8EE7762A43B44560F5FF267A0D56AE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024071   (720442) от 07.06.2016
-
-Konstantin Klashtorni - Smooth Jazz III (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irresistible
-02. Walking on Dream
-03. Humble and Kind
-04. Good to Be Alive(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1C1176964BCA802B8330D6C00ECB3F728EA60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218804   (719643) от 11.04.2018
-
-Bud Powell - Swingin' With Bud (1957) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Dozen  [03:33]
-02. Like Someone In Love [05:02]
-03. Salt Peanuts [02:28]
-04. She  [05:14](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F3958846EF198250363047F73BC6DE75665898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400463   (719402) от 05.08.2020
-
-Sauter-Finegan Orchestra - Four Classic Albums Plus (1952 - 1958) 2017, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719402.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Doodletown Fifers [3:17]
-02. April In Paris [3:01]
-03. Midnight Sleighride [3:01](   Читать дальше...   )Жанр: Modern Big Band, Progressive Jazz, Mainstream JazzПродолжительность: 02:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CBDFCCEF5A62286C8E9F86C367F6BE99B51583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400467   (719400) от 05.08.2020
-
-Hank Mobley - The Complete Blue Note Sessions (1963 - 1970) 2019, 8CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719400.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Up a Step [8:32]
-02. Old World, New Imports [6:09]
-03. East of the Village [6:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 08:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D089BBD482067F5C8ED7D62BCB0F6C69BEDB8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285672   (719163) от 27.02.2019
-
-Bob Graf - At Westminster (1958) 1992, Delmark Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [7:31]
-02. Street of Dreams [6:30]
-03. Dear Old Stockholm [14:06]
-04. Funky Ride [5:15](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5A6766F7EDABF3122CF2931311EBECE0B6EC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285677   (719162) от 27.02.2019
-
-Humphrey Lyttelton - In Canada (1983) 2015, Sackville [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Thing [5:00]
-02. Sprauncy [7:43]
-03. Squiggles [4:44]
-04. Looking for Turner [5:02](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8159097C286DD02384266F0814B411575D71B7F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

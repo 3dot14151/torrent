@@ -1,3 +1,177 @@
+###  Публикация: 1024071   (720442) от 07.06.2016
+
+Konstantin Klashtorni - Smooth Jazz III (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irresistible
+02. Walking on Dream
+03. Humble and Kind
+04. Good to Be Alive(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1C1176964BCA802B8330D6C00ECB3F728EA60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218804   (719643) от 11.04.2018
+
+Bud Powell - Swingin' With Bud (1957) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Dozen  [03:33]
+02. Like Someone In Love [05:02]
+03. Salt Peanuts [02:28]
+04. She  [05:14](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F3958846EF198250363047F73BC6DE75665898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400463   (719402) от 05.08.2020
+
+Sauter-Finegan Orchestra - Four Classic Albums Plus (1952 - 1958) 2017, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719402.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Doodletown Fifers [3:17]
+02. April In Paris [3:01]
+03. Midnight Sleighride [3:01](   Читать дальше...   )Жанр: Modern Big Band, Progressive Jazz, Mainstream JazzПродолжительность: 02:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CBDFCCEF5A62286C8E9F86C367F6BE99B51583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400467   (719400) от 05.08.2020
+
+Hank Mobley - The Complete Blue Note Sessions (1963 - 1970) 2019, 8CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719400.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Up a Step [8:32]
+02. Old World, New Imports [6:09]
+03. East of the Village [6:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 08:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D089BBD482067F5C8ED7D62BCB0F6C69BEDB8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285672   (719163) от 27.02.2019
+
+Bob Graf - At Westminster (1958) 1992, Delmark Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernie's Tune [7:31]
+02. Street of Dreams [6:30]
+03. Dear Old Stockholm [14:06]
+04. Funky Ride [5:15](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5A6766F7EDABF3122CF2931311EBECE0B6EC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285677   (719162) от 27.02.2019
+
+Humphrey Lyttelton - In Canada (1983) 2015, Sackville [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Thing [5:00]
+02. Sprauncy [7:43]
+03. Squiggles [4:44]
+04. Looking for Turner [5:02](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8159097C286DD02384266F0814B411575D71B7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285687   (719158) от 27.02.2019
 
 Kim Mills - The Ruby And The Pearl (2005) Jazz Karma Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -571,183 +745,6 @@ Richard Niles Bandzilla - Bandzilla Rises!!! (2016) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5DCABB9582487F42B19B120CDBC3CA741CCC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531952   (716633) от 18.02.2022
-
-Bill Charlap Trio - Street Of Dreams (2021) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Duke [6:49]
-02. Day Dream [6:16]
-03. You're All the World to Me [4:49]
-04. I'll Know [5:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF674E7C8CA35FC4D5F1FD82AC2E4364DF8AE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130229   (716328) от 01.05.2017
-
-Nicki Parrott - Unforgettable ~The Nat King Cole Songbook (2017) [FLAC|Lossless|image + .cue] <Easy Listening, Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nicki Parrott (Ники Парротт), ныне всемирно известная контрабасистка, родилась в городе Ньюкасл, Австралия. Начала свое музыкальное обучение на фортепиано в возрасте четырех лет. Она также изучала игру на флейте и продолжала играть на ней всей ее школьные годы. В возрасте 15-и лет, Ники переключила свое внимание на бас, создала группу со своей старшей сестрой Лизой (   Читать дальше...   )01. Walkin' My Baby Back Home (2:57)
-02. Let's Fall In Love (4:50)
-03. The Very Thought Of You (5:17)
-04. Hit That Jive Jack (3:20)(   Читать дальше...   )Жанр: Easy Listening, Smooth Jazz, Vocal JazzПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E62162748B792BB6400AEF13779B67C7091B922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024433   (716215) от 09.06.2016
-
-Masabumi Kikuchi - Black Orpheus (2012) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tokyo Part I [05:53]
- 02.Tokyo Part II [03:58]
- 03.Tokyo Part III [05:34]
- 04.Tokyo Part IV [07:28](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2358137E7BF219478D1F90B47286204980DF9727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024618   (716210) от 09.06.2016
-
-Art Blakey And The Jazz Messengers - In My Prime Vol. 2 (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lift Every Voice And Sing [02:17]
- 02.Free For All [04:58]
- 03.Hawkman [09:39]
- 04.People Who Laugh [06:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB54CCCABBEBB02200CC369406476336ABEF45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024326   (716134) от 09.06.2016
-
-Shirley Bassey - That's What Friends Are For (1993) Re-Recordings [APE|Lossless|image + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's What Friends Are For
-02. I Am What I Am
-03. I (Who Have Nothing)
-04. I Want To Know What Love Is(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADA4A21A4403C3433143A298887BAB230875022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024411   (715947) от 09.06.2016
-
-Tony Levin (King Crimson) & Pete Levin - Levin Brothers (2014) [FLAC|Lossless|image + .cue] <Cool jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassics (3:12)
-02. Brothers (3:36)
-03. Mysterioso (3:18)
-04. Not So Square Dance (2:50)(   Читать дальше...   )Жанр: Cool jazz, FusionПродолжительность: 00:56:15
-
-Pete Levin: Piano, organ (model:Nord C-1)
-Tony Levin(King Crimson): cello, bass(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32C5BB237DD6E99E27CFE5F029A30474334E50D
 ```
 
 https://mybot314.ru/tekegram_catalog/

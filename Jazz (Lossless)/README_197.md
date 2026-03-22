@@ -1,3 +1,176 @@
+###  Публикация: 1173298   (390621) от 11.10.2017
+
+Quincy Jones - Complete Recordings 1960-1962 (2014) 4CD, Enlightenment Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390621.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pleasingly Plump [02:18]
+02. G'Wan Train [06:22]
+03. Moonglow [02:50](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Pop, Big BandПродолжительность: 04:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8FADC3FC07E3217750831C36CAF4AF10FFE417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 151048   (390544) от 07.11.2009
+
+Paul Brown - The City (2005) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_390544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Monkey 04:37
+02. Hello Again 03:58
+03. Side Steppin' 03:35
+04. The City 05:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173583   (389783) от 12.10.2017
+
+Eddie Heywood - 1944-1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just You, Just Me [03:14]
+02. Save Your Sorrow [01:43]
+03. Begin The Beguine [03:24]
+04. Blue Lou [03:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A9FD435C96F4AE803701CE75C0E670BC29CAF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173589   (389781) от 12.10.2017
+
+James Carter - Gardenias for Lady Day (2003) Columbia [WavPack|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria [06:02]
+02. Sunset [05:25]
+03.Жанр: Post-BopПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B726404DEE5710D55CDAC84A498DB866CFC78D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173899   (389056) от 13.10.2017
+
+Toshiko Akiyoshi Trio - Four Seasons (1990) 1999, Nippon Crown [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Is Here [06:57]
+02. Suddenly It Is Spring [06:21]
+03. Summer Time [05:01]
+04. Indian Summer [06:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B630814041B9C075A16D8814ACA02350A6EE5212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173912   (389054) от 13.10.2017
+
+New York Unit - Tribute To George Adams (1993) King Record [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus [06:22]
+02. A Nightingale Sang In Berkeley Square [07:14]
+03. Fly Me To The Moon [05:59]
+04. Moritat [06:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71852B1A0092C2489C40021373874DEAA1950658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252964   (388034) от 07.10.2018
 
 Willie Lewis - 1941 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -577,180 +750,6 @@ John Pizzarelli  (featuring Daniel Jobim) - Sinatra & Jobim @ 50 (2017) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0BF7940FB2ED7A5F061E27A03034B01CB0AFBC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174528   (385568) от 15.10.2017
-
-Boney James - Honestly (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kicks
-02. Tick Tock
-03. On The Prowl
-04. Low And Slow(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8232475715C505AF11506D03070E6271E5984B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253273   (385555) от 08.10.2018
-
-Louie Bellson - Don't Stop Now! (1984) 1994, Capri Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Stop Now! [4:57]
-02. Lover Man [6:19]
-03. Indian Summer [4:58]
-04. Cipriana [5:13](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F339E7510914A80521E943738E69B81ED797E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253092   (385548) от 08.10.2018
-
-Rebekka Bakken - Things You Leave Behind (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer 3:54
-02. Black Shades 3:28
-03. Things You Leave Behind 4:06
-04. Time After Time 3:34(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A3FC9D40675ECCCFE996ABEF0B9CB78F0B1015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067952   (385229) от 30.10.2016
-
-Walt Weiskopf - A World Away (1993) 1995, Criss Cross Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A World Away [07:36]
- 02.Heads in the Clouds [07:47]
- 03.Immortal Soul [07:21]
- 04.Mercenary [06:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC5689A9705FAFEA693234B4064FECFF9E91BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326439   (385225) от 20.09.2019
-
-Gunnar Svensson - Head, Fingers & Heart (1995) Phono Suecia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' Feet [3:08]
-02. Hercules' Tune [3:17]
-03. The Topsy Theme [3:27]
-04. Karl Bertil Jonsson's Christmas Eve [5:19](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6776AFF1046958696AD15A0EC18A69B284993203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326443   (385221) от 20.09.2019
-
-Mose Allison - Lessons In Living (1982) 1994, Discovery Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Mind [2:50]
-02. Wild Man on the Loose [2:22]
-03. Your Mind Is on Vacation [3:28]
-04. You Are My Sunshine [4:43](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0ABBF05574B6D134145B8BA2829FB063ADCBD42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,349 @@
+###  Публикация: 1637929   (13718) от 23.06.2025
+
+Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal).2008 - Captain Morgan's Revenge
+2009 - Black Sails at Midnight
+2011 - Back Through Time
+2014 - Sunset On The Golden AgeЖанр: Folk/Power MetalПродолжительность: 07:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09C05E399CFB1186F78012C64093F1FDB5723D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716189   (13571) от 24.06.2025
+
+Хаме-леоН - Студийные альбомы (6 изданий) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаме-леоН — российская метал-группа из Курска. Основана в 2005 году.2013 - Попробуй на вкус эту душу!
+2016 - Ночь шальных машин в городе тьмы
+2020 - К.О.Д
+2022 - Крики!Жанр: Heavy/Power MetalПродолжительность: 05:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF88EF00B39667AE01FD73368402D1B3FAA0154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553929   (13315) от 27.06.2025
+
+Sodom - Studio Albums (17 releases) (1986-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sodom — немецкая трэш-метал-группа из Гельзенкирхена, коллектив был образован в 1981 году. Sodom принадлежат к пионерам и одним из наиболее успешных классиков немецкой экстремальной метал-сцены наравне с Kreator, Destruction и Tankard. Эти четыре группы составляют так называемую «большую тевтонскую четверку трэш-метала». Манера игры музыкантов, в значительной степени (   Читать дальше...   )1994 - Get What You Deserve
+1995 - Masquerade In Blood
+1997 - 'Til Death Do Us Unite
+1999 - Code Red(   Читать дальше...   )Жанр: Thrash metalПродолжительность: 17:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CCC08F48EB63226F419B6061A47285E48372F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551410   (12565) от 04.07.2025
+
+Pop Evil - Studio Albums (8 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative metal, post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pop Evil — американская рок-группа, основанная в 2001 году в Северном Маскегоне, штат Мичиган.2009 - Lipstick On The Mirror
+2011 - War Of Angels
+2013 - Onyx
+2015 - UpЖанр: Alternative metal, post-grungeПродолжительность: 06:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF4F3DB26B4C3F7460DBC43AABCE3E7E42683BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641923   (12546) от 04.07.2025
+
+Coheed And Cambria - Studio Albums (11 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coheed And Cambria — американская прогрессив рок (нью-прог) команда со всех уголков штата Нью-Йорк, США. Группа образовалась в 1995 году, под именем Beautiful Loser, с 1996 года стали называться Shabutie, с 2001 года называются Coheed And Cambria. Пишут композиции по мотивам историй, написанных фронтменом группы Клаудио Санчесом, и с 2006 года издающихся в виде комиксов.2002 - The Second Stage Turbine Blade
+2003 - In Keeping Secrets Of Silent Earth: 3
+2005 - Good Apollo, I'm Burning Star IV, Volume One: From Fear Through the Eyes of Madness
+2007 - Good Apollo, I'm Burning Star IV, Volume Two: No World for TomorrowЖанр: Progressive RockПродолжительность: 11:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D85613A83D7B137D82F85CDED1252C4737C551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695379   (12519) от 04.07.2025
+
+Warkings - Studio Albums (5 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warkings - австрийская пауэр-метал/хэви-метал группа. Основана в 2018 году.2018 - Reborn
+2020 - Revenge
+2021 - Revolution
+2022 - MorganaЖанр: Power MetalПродолжительность: 03:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC843D52C0EFCBF0CFBE4110AC37BE23A0C64BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805150   (12438) от 05.07.2025
+
+Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Self-released) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Vaporwave, Nu-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Intro
+02. Iyo
+03. Akemi(   Читать дальше...   )Жанр: Electronic, Vaporwave, Nu-DiscoПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455290FFBE9DA7993E990CDA59335B32BD3D213E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804961   (12418) от 05.07.2025
+
+Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. My Neighbor Totoro (Captured Near Me 1988 Kazuto)
+02. Carrying You: A Fatty Call (Azure Sky Castle - 1986)
+03. Valley of the Wind Oinoya (Iriinoya - 1984)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723409   (12236) от 07.07.2025
+
+Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Wreck — канадско-американская рок-группа, созданная Яном Торнли в Бостоне, штат Массачусетс, в 1994 году. Группа распалась в 2002 году, и Ян Торнли продолжил сольную карьеру в своей собственной группе Thornley. В 2010 году Ян Торнли и Брайан Доэрти воссоединились для тура по Канаде, исполнив песни Big Wreck и Thornley.
+Big Wreck снова начали выпускать новую музыку (   Читать дальше...   )1997 - In Loving Memory Of...
+2001 - The Pleasure and the Greed
+2012 - Albatross
+2014 - GhostsЖанр: Progressive RockПродолжительность: 11:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1DB891FAFCBDBF5BB5438068941DB9FC9B593D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805762   (12066) от 09.07.2025
+
+VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A17B8B0F50F991395096614B7BF544291753A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805914   (12047) от 09.07.2025
+
+Slade - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12047.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Far Far Away
+02. Let's Call It Quits
+03. Everyday(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8A09DD43A06A0E201E0C3CD24970643E4C9F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805948   (12033) от 09.07.2025
+
+Ozzy Osbourne - Night Terrors (2024) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12033.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Flying High Again
+A2 I Don't Know
+A3 Crazy Train
+A4 Believer(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0F2142130DC3800D13C567AC2C80EC241EAF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806191   (11817) от 11.07.2025
 
 Mariah Carey - The Best (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Funk, Soul, Pop>
@@ -396,356 +742,6 @@ Boney M. (Бони Эм.) — диско-группа, созданная в 197
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80E497E45FC1067CF3A187122EB9B623ED2B2C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810108   (9547) от 02.08.2025
-
-Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disco, funk, reggae, electronic, rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9547.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Supermax» — музыкальный проект австрийского композитора Иогана Курта Хауэнштайна (1949—2011), созданный в сотрудничестве с продюсером Петером Хауке на студии «Europasounds Studio» (Франкфурт-на-Майне, ФРГ) в 1976 году. Пик популярности проекта пришелся на период 1977-83 гг., период активного студийного развития на 1977-93 гг. Недостаточный объём достоверной информации (   Читать дальше...   )1977 - Don't Stop The Music (Germany, Atlantic – ATL 50 325)
-1977 - World Of Today (Germany, Atlantic – ATL 50 423)
-1979 - Fly With Me (Germany, Elektra – ELK 52 128)
-1980 - Types Of Skin (Germany, Elektra – ELK 52 253)Жанр: Disco, funk, reggae, electronic, rockПродолжительность: 00:41:29
-Источник/релизер:
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DF6D39AE8A45904FA395B0ABE78E0191C99F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810155   (9424) от 03.08.2025
-
-Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft rock, pop rock, jazz, new wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стинг (англ. Sting; настоящее имя — Гордон Мэттью Томас Самнер (англ. Gordon Matthew Thomas Sumner); родился 2 октября 1951, Уоллсенд (англ.)русск.) — британский музыкант-мультиинструменталист, певец и автор песен, актёр, общественный деятель и филантроп. Лидер группы The Police в 1976—1984 годах. С 1984 года выступает сольно. На протяжении своей музыкальной карьеры (   Читать дальше...   )1985 - The Dream Of The Blue Turtles (Germany, A&M Records – 393 750-1)
-1987 - ...Nothing Like The Sun (Germany, A&M Records – 393912-1)
-1991 - The Soul Cages (UK, A&M Records – 396 405-1)
-1993 - Ten Summoner's Tales (UK, A&M Records – 540 075-1)Жанр: Soft rock, pop rock, jazz, new waveПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82900E2275BEF4CFCCC364933E049698093EE7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810505   (9276) от 05.08.2025
-
-Pink Floyd - Collection (+Solo) (1967-2018) [DSD 128|tracks, image + .cue|Vinyl-Rip] < Progressive rock, psychedelic rock, alternative rock, jazz rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pink Floyd — одна из самых великих групп в истории рок-музыки, знаменитая своими философскими текстами, акустическими экспериментами, инновациями в оформлении альбомов и грандиозными шоу. Является одной из влиятельных и наиболее успешных групп в рок-музыке — 74,5 млн проданных альбомов в США (седьмое место), в мире же было продано около 300 млн (не считая сольных (   Читать дальше...   )1967 - The Piper At The Gates Of Dawn, PFRLP1, Germany, 2016,
-1968 - A Saucerful Of Secrets, PFRLP2, Germany, 2016,
-1969 - Soundtrack From The Film "More", PFRLP3,
-1969 - Ummagumma, 2LP, PFRLP4,Жанр: Progressive rock, psychedelic rock, alternative rock, jazz rockПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6315DB1502077BAA5A1EC716C15CE0D8591D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810345   (9258) от 05.08.2025
-
-Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1983) [DSD 128|tracks|Vinyl-Rip] <Jazz, Vocal, Ballad, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Синатра (Frank Sinatra) - легендарный американский певец, актёр и одна из наиболее выдающихся фигур в музыкальной индустрии 20 века. Родился 12 декабря 1915 года в Хобокене, Нью-Джерси, и ушёл из жизни 14 мая 1998 года в Лос-Анджелесе, Калифорния. Синатра стал известным благодаря своему потрясающему голосу, уникальному стилю исполнения и широкому музыкальному (   Читать дальше...   )LP1, Swing Easy/ Songs for Young Lovers, MFSL 1-130, (mono)
-LP2, In The Wee Small Hours, MFSL 1-131, (mono)
-LP3, Songs For Swingin' Lovers, MFSL 1-146, (mono)
-LP4, Close To You, MFSL 1-132, (mono)Жанр: Vocal, Ballad, SwingПродолжительность: 00:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EFF431D62180F064DFD29AFE03DE9621067AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741971   (8892) от 08.08.2025
-
-Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chaos Magic - хэви-метал проект, созданный Катериной Никс и Тимо Толкки.2015 - Chaos Magic
-2019 - Furyborn
-2020 - Desert Rose (EP)
-2022 - EmergeЖанр: Symphonic MetalПродолжительность: 03:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515607   (8865) от 09.08.2025
-
-Evanescence - Дискография (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Nu Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evanescence («исчезание», «мимолётность») — американская рок-группа, основанная в г. Литл-Рок, штат Арканзас, в 1995 году.1998/1999 - Evanescence/Sound Asleep (EP)
-2000 - Origin
-2003 - Fallen
-2006 - The Open DoorЖанр: Gothic Rock, Nu Metal, Symphonic MetalПродолжительность: 11:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F98183A290A7421AFFC6F6F64DC463CAE7B4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643464   (8784) от 09.08.2025
-
-Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover Progressive>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Presto Ballet — прогрессив-рок-группа, основанная гитаристом Metal Church Курдтом Вандерхофом.2005 - Peace Among The Ruins
-2008 - The Lost Art of Time Travel
-2011 - Invisible Places
-2012 - Relic of the Modern World(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 06:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA23955C9229958F8F94D6C8E3BB1722BC335FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518693   (8707) от 10.08.2025
-
-Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motograter — американская метал-группа, образована в 1995 году Брюсом Батлером (известным как Grater), в Санта Барбаре, Калифорния.
-Основное отличие Motograter от других групп в том, что они используют так называемый «мотогрэйтер» — инструмент собственного производства, составленный из промышленного кабеля и частей электрогитары, выдающий очень глубокие басовые звуки. (   Читать дальше...   )2000 - Indy
-2003 - Motograter
-2009 - Pre-Release (EP)
-2017 - DesolationЖанр: Nu Metal, Industrial MetalПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8FAE7F357EBC168F1DF10B2D5702C6196A815F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626818   (8517) от 30.09.2025
-
-Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8517.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Shylina
-A2 Back Stage
-A3 Midnight Blues
-A4 Pisces(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C00C372180E6E3E917A5629FBEF4DFACD0D3B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811675   (8441) от 11.08.2025
-
-Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Leah - (Leah McHenry) Лиа МакГенри, известная под псевдонимом Лиа — канадская исполнительница хэви-метала. Её иногда называют "Enya of heavy metal", поскольку она исполняет музыку, сочетающую симфонический и кельтский метал с фолком и этнической музыкой.2012 - Of Earth & Angels
-2013 - Otherworld (EP)
-2015 - Kings & Queens
-2018 - The Quest(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 06:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB48463A61754806ED3BA12E4EA291E05A389F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811592   (8383) от 11.08.2025
-
-My Dying Bride - A Map Of All Our Failures (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Doom, Death Metal, Gothic, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8383.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Kneel Till Doomsday
-A2 - The Poorest Waltz
-B1 - A Tapestry Scorned
-B2 - Like A Perpetual Funeral(   Читать дальше...   )Жанр: Doom, Death Metal, Gothic, Doom MetalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F593CED2C587AC2E79F1DA820378594F985D6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811758   (8350) от 11.08.2025
-
-Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tracks|Vinyl-Rip] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am The Black Wizards (06:26)
-02. Wrath Of The Tyrant (04:15)
-03. Night Of The Graveless Souls (03:15)
-04. Cosmic Keys To My Creations And Times (06:23)Жанр: Symphonic Black MetalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

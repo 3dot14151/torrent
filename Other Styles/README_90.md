@@ -1,3 +1,148 @@
+###  Публикация: 1554789   (572324) от 02.06.2022
+
+Vartra - Luna Noua (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Flori (00:02:47)
+02 - Primovara (00:04:17)
+03 - Luna Noua (00:05:14)
+04 - Mrza (00:02:14)(   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7CD6B0FEF44F6E8D49723DED58157380439533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043422   (572309) от 16.08.2016
+
+VA - Mirror's Edge (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (05:34)
+02. Edge & Flight (06:56)
+03. Jacknife (06:25)
+04. Heat (07:01)(   Читать дальше...   )Жанр: Score, Soundtrack, Psybient, IDM, Downtempo, Ambient, Breakbeat, Electro •Продолжительность: 07:35:16 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD0A59C54F4EB4A537772B5F4414991658DA40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554988   (572250) от 02.06.2022
+
+Olga Stankevich - Alone With the City (2014) [FLAC 2.0|48/24|WEB-DL|tracks] <Instrumental Pop, Piano>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moscow Midnight (3:26)
+02. Beyond the Time (4:33)
+03. Smile (3:09)
+04. Recalcitrance (5:17)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04380B740E6D18E8CB38BA41C8E69E5A5663669F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043142   (572203) от 16.08.2016
+
+Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечность (Music From The Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logo And Prosper (01:45)
+02. Thank Your Lucky Star (02:13)
+03. Night On The Yorktown (05:34)
+04. The Dance Of The Nebula (02:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BA5EEEC4903FC8D84EB663643F1AA5EEEB5F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303466   (571990) от 21.05.2019
+
+Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music from the HBO Series) (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title (From Game Of Thrones: Season 8) (01:52)
+02. The Rains of Castamere (03:44)
+03. Arrival at Winterfell (03:44)
+04. Flight of Dragons  (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A8F9004BD3D07D9C02ADFA08E034A490EC98F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922191   (571750) от 27.07.2015
 
 Piano Dreamers - Indie Pop Piano (2015) [MP3|320 кб/с]<New Age, Piano, Classical>
@@ -639,148 +784,6 @@ Wil Bolton - Under A Name That Hides Her (2012) [MP3|320 кб/с]<Meditative, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93AF65E4A428142D768A2F17E29CFE161A0DBD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120070   (567127) от 22.07.2017
-
-Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [MP3|320 Kbps] <Disco, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152189   (566849) от 22.07.2017
-
-Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - The Mole (05:36)
-02. Hans Zimmer - We Need Our Army Back (06:28)
-03. Hans Zimmer - Shivering Soldier (02:52)
-04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B6391B532DC859FF29DD1DB3E9A4A741E397DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152190   (566821) от 22.07.2017
-
-Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - The Mole (05:36)
-02. Hans Zimmer - We Need Our Army Back (06:28)
-03. Hans Zimmer - Shivering Soldier (02:52)
-04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B57E9D06CFA17781CAACC15FB888616775B333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235025   (565994) от 08.07.2018
-
-Sammy Kershaw - Labor Of Love (1997) [FLAC|Lossless|image + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honky Tonk America (3:57)
-02. Shootin' The Bull (In An Old Cowtown) (3:02)
-03. One Day Left To Live (2:56)
-04. Cotton County Queen (3:37)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6A0D5C1F648FF385275A78DFE83AE6B1E06A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234957   (565916) от 08.07.2018
-
-Nawang Khechog - The Tibetan Healing Music (2013) [MP3|320 Kbps] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Harmony in Balance
-02 – Kindness Phrase Endorsed and Blessed by Ten Nobel Peace Laureates
-03 – 1st Movement Sentient Beings
-04 – Dance of Innocents(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 02:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614B3443D20ED2BD8212341D7608CE36D801FE67
 ```
 
 https://mybot314.ru/tekegram_catalog/

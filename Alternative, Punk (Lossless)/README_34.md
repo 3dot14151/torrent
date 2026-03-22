@@ -1,3 +1,119 @@
+###  Публикация: 1315927   (510987) от 22.07.2019
+
+Biffy Clyro - Only Revolutions (2009) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Captain (03:43)
+02. That Golden Rule (03:50)
+03. Bubbles (05:01)
+04. God & Satan (03:10)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C709CEC9998D5744B58970A1F98A3ABFE508ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316005   (508903) от 23.07.2019
+
+Oxford Collapse - Some Wilderness (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land! (04:45)
+02. 1991 Kids (03:42)
+03. The Money You Have Is Maybe Too Little (03:33)
+04. Cumberland Gap (04:24)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C8C3765911406540CEE04046B0C217E3A411E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316033   (508897) от 23.07.2019
+
+Craig Finn - Faith in the Future (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie I've Been Searching For Our Son (04:02)
+02. Roman Guitars (04:05)
+03. Newmyer's Roof (04:42)
+04. Sarah, Calling From A Hotel (03:15)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A67562409097125CF3BADE3D5469DA1A70032A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316030   (508838) от 23.07.2019
+
+Craig Finn - We All Want The Same Things (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jester & June (03:59)
+02. Preludes (04:16)
+03. Ninety Bucks (03:41)
+04. Birds Trapped In The Airport (04:41)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7B9F62228A305B69EE4BE1FE35EA9614AA8535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316000   (508837) от 23.07.2019
 
 Craig Finn - I Need a New War (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -627,130 +743,6 @@ Stereophonics - Decade in the Sun: The Best of Stereophonics (2008) 2CD, Deluxe 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3AAC67C21EE8671C95867D079545430D4959375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541967   (493157) от 06.09.2012
-
-Archive - With Us Until You're Dead (2012) Special Edition [FLAC|Lossless]<Alternative Rock, Downtempo, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая пластинка одной из самых необычных групп в Европе
- Archive – одна из немногих групп, творчество которых сложно отнести к определенному жанру. В их музыке слышны отголоски прогрессив-рока, трип-хопа, электроники и даже соула, и “With Us Until Your Dead” – кульминация экспериментального звучания группы. Альбом - уже 8-й в дискографии группы - по признанию самих музыкантов, является новым этапом в творческом развитии Archive.
- Первым синглом с “With Us Until Your Dead” стал трек “Violently”, видео на который уже набрало более 85 тысяч просмотров на YouTube.01. Wiped Out :: 06:20
-02. Interlace :: 04:42
-03. Stick Me in My Heart :: 03:57
-04. Conflict :: 05:01
-05. Violently :: 06:24
-06. Calm Now :: 03:53
-07. Silent :: 05:39
-08. Twisting :: 04:01
-09. Things Going Down :: 01:51
-10. Hatchet :: 04:15(   Читать дальше...   )Жанр: Alternative Rock, Downtempo, Indie RockФормат: CD, Album, DigipackПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A60A4DEDCD9273A65AABA214042D86E5B3882BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318691   (492841) от 07.08.2019
-
-Gene Loves Jezebel - Voodoo Dollies: The Best Of Gene Loves Jezebel (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave, 80s>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upstairs (3:17)
- 02. Bruises (3:40)
- 03. Influenza (Release) (3:46)
- 04. Always a Flame (4:33)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, New Wave, 80sПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552165209756096B791D6F2ABA7DF708565CE268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318570   (492836) от 07.08.2019
-
-Elliott Smith - Figure 8 (2000) 50th Birthday Deluxe Edition, 2019, UMG Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son of Sam (03:04)
-02. Somebody That I Used to Know (02:09)
-03. Junk Bond Trader (03:49)
-04. Everything Reminds Me of Her (02:37)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D169D0C31DF3D3277DC42967FA52915C92F0D8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054154   (492237) от 20.09.2016
-
-The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] <Industrial Rock, Synth-Gothic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over (04:03)
-02. Remember Me (04:59)
-03. Under the Stairs (03:59)
-04. The Birthday Massacre (03:36)(   Читать дальше...   )Жанр: Industrial Rock, Synth-GothicПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D55B6095EE505F09560EA9053B315E742E1C0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

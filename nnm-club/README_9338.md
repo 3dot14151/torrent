@@ -1,22 +1,24 @@
-###  Публикация: 899634   (672933) от 19.05.2015
+###  Публикация: 1290406   (678476) от 20.03.2019
 
-Auslogics Disk Defrag Free 5.4.0.0 RePack by RedGrant [Ru/En]
+Х. Чойбалсан | Краткий очерк истории монгольской народной революции (1952) [DJVU]
 
->>Архив торрентов
->>Архив Программ
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672933.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Auslogics Disk Defrag - программа, призванная помочь избавиться от часто возникающей проблемы жестких дисков - фрагментации. Программа очень проста в использовании и работает достаточно быстро, поскольку не требует много времени на анализ. После завершения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Настоящая работа маршала Чойбалсана представляет собой краткий очерк истории монгольской народной революции, в результате которой монгольский народ под руководством народно-революционной партии сбросил власть феодалов и иноземных колонизаторов и встал на путь строительства народно-демократического государства.
+
+Борясь за свободу и независимость монгольского народа, (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D31B13AD6C5A7BE9AB00D39549FA201E94D7CBA
+magnet:?xt=urn:btih:FA090C34F744AEC83CAADAB09B6528AA1A4BF2A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +26,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 899594   (672930) от 19.05.2015
+###  Публикация: 1290591   (678475) от 20.03.2019
 
-Opera 29.0.1795.60 Stable [Multi/Ru]
+Журнал | Story [Россия] №4 (122) (апрель 2019) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672930.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
+Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF34105366D2B76A1C9F7612CD0AE34E1F935106
+magnet:?xt=urn:btih:4A1E7BC69DDF18CC028F4B3060BDD127C68AA5E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 885085   (672929) от 19.05.2015
+###  Публикация: 1029602   (678474) от 28.06.2016
 
-Причуды науки / Perversions of Science (1997) VHSRip (сезон 1, серии 1-10 из 10) Андрей Дольский
+Elephant Plaza - Momentum (2016) [FLAC|Lossless|tracks] <Progressive Rock>
 
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672929.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал является спин-оффом более успешного проекта HBO — «Байки из склепа». Фантастические истории связаны между собой только рассказчиком — «сексуальным, но металлическим» роботом женского пола по имени Хром.Кошмарные истории, сфокусированные в основном на вторжении инопланетян и путешествиях во времени.Производство: США , HBOЖанр: фантастика, ужасыРежиссер: Тоуб ХуперАктеры: Морин Тифи, Жанетт Льюис, Адам Аркин, Кит Кэрредин, Лолита Давидович, Питер Джейсон, Гретхен Палмер, Лин Шэй, Джереми Лондон, Джефф Фэйи и др.Перевод: Одноголосый, авторский - Андрей ДольскийПродолжительность: ~00:25:00 серия
+01. Naked
+02. Southwest
+03. Paralyzed
+04. All The Way(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5CA0BD1EFB6B66D435159BE632C52A51E62A2E4
+magnet:?xt=urn:btih:A36B35E7E23860087810709945B7DBB4E3167022
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,113 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 899301   (672927) от 19.05.2015
+###  Публикация: 1029453   (678473) от 28.06.2016
 
-Скандал / Scandal (2015) WEB-DLRip [H.264/1080p] (сезон 4, серия 15 из 22) [EN / EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия 15 - The Testimony of Diego Munoz
-Специалист по связям с общественностью Оливия Поуп, ранее работавшая на президента США, создает свое антикризисное агенство, цель которого — устранять проблемы высокопоставленных клиентов до того, как они станут всеобщим достоянием. Но если Вы посвящаете 24 часа в сутки решению проблем других людей, у Вас просто не будет времени, (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, детективРежиссер: Том Верика, Оливер Бокельберг, Эллисон Лидди, Стив Робин, Жанно Шварц, Рэндолл Зиск, Марк Тинкер, Тони Голдуин, Пол МакКрейн, Стивен КреггАктеры: Керри Вашингтон, Дэрби Стэнчфилд, Кэти Лоус, Гильермо Диас, Джефф Перри, Джошуа Малина, Беллами Янг, Тони Голдуин, Коламбус Шорт и др.Перевод: отсутствуетЯзык субтитров: английскийПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10ADF2B51122DDA6626C15CEE461DDF12B010014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899650   (672924) от 19.05.2015
-
-Windows Repair (All In One) 3.2.0 Pro + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Repair - инструмент все-в-одном для ремонта системы . Предназначен для восстановления различных параметров Windows к их значениям по умолчанию. Помогает исправить большинство известных проблем, в том числе ошибки реестра и права доступа к файлам, а (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8509DBC36FAA9291F735A282AE2BA29AAD2E6A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899608   (672921) от 19.05.2015
-
-Reg Organizer 7.12 DC 19.05.2015 + Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8610ED78C09FB95443B96A7A0624C76DA8D097A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509963   (672916) от 13.06.2012
-
-VA - Asia Lounge (2012) [MP3|320 кб/с]<Ethnic, Lounge, Relax>
+VA - The Dome Summer  [2CD] (2016) [MP3|320 кб/с] <Pop>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672916.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Dubsahara - Zentropy (7:11)
-2. Seoan & Friends - Mystery Of God feat. Seoan (3:54)
-3. Rain In Eden - Rumi (5:06)
-4. Bally Sagoo - Dil Cheez (4:07)
-5. Summer Chill - Journei (5:41)
-6. Red Buddha - Preaching of Buddha (5:27)
-7. James Asher - Red desert (5:39)
-8. Natacha Atlas - Amulet (Aywah Remix) (5:21)
-9. Jef Stott - Junjura (5:45)
-10. Aquila - Song of Laya (2:54)2012Жанр: Ethnic, Lounge, RelaxПродолжительность: 04:32:36
+CD1
+Пpодолжительность: 01:12:11
+
+01. Justin Timberlake - Can't Stop The Feeling!(   Читать дальше...   )Жанр: PopПродолжительность: 2:28:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC90E022A3900DBBF15C4343B4F1E54B21138E3B
+magnet:?xt=urn:btih:942A4B20BE93B50E55D5E90AE9B3961D32C75D1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 510057   (672912) от 13.06.2012
+###  Публикация: 1029872   (678472) от 28.06.2016
 
-[Wallpapers]Зимняя сказка
+Семейная группа Родня - Маленькое семейное чудо (1991) [MP3|320 Kbps] <Pop>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672912.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+01. Вступление (01:36)
+02. Дискобар (03:20)
+03. Оксана (03:43)
+04. Дождик (02:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0695CE3C49F360D436539D3F66E5F20AACDF0F86
+magnet:?xt=urn:btih:2F4D8FFA5BDDFAD48E04C9D41393253A92D95815
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,34 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 510141   (672901) от 13.06.2012
+###  Публикация: 1029689   (678471) от 28.06.2016
 
-Querembas - Pornocracia (2012) [MP3|320 кб/с]<Alt. Metal/Nu-Metal>
+VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Club>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672901.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Orgia En El Convento
-02. Hay Que Matarlos A Todos
-03. Toxic Love
-04. El Mundo Gira
-05. Amanecer
-06. Clandestina
-07. Prefiero Morirme
-08. Sex Machine
-09. Another Life
-10. No Me Importa(   Читать дальше...   )2012Жанр: Alt. Metal/Nu-MetalПродолжительность: 00:32:18
+001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma (Instrumental Edit) 3:17
+002. KSHMR & Felix Snow feat. Madi -  Touch (Runway Remix) 4:56
+003. Hardwell feat. W&W -  Jumper (Madd Dave Bootleg) 4:53
+004. Robin Schulz feat. Akon -  Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:43:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4598A83A5B9B0AA8B34181765565A4715BC5751A
+magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,276 +169,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536656   (672898) от 13.03.2022
+###  Публикация: 1029415   (678470) от 28.06.2016
 
-Bastard of Loran - Beckoning the Red Moon (2021) [FLAC|Lossless|image + .cue] <Symphonic, Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embraced by Her Queer Scent 04:34
-02. Blood Rapture Under Twilight 04:31
-03. The Hunter 05:59
-04. Beckoning 03:03(   Читать дальше...   )Жанр: Symphonic, Melodic Black MetalПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D4BFBC0E3117D151F77237CAC50ABEE301A696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536731   (672897) от 13.03.2022
-
-XCap 1.2.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита XCap - создана специально для цифровых микроскоповТип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 SHIH-CHUEH CHENПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Традиционный китайский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73521719E66D1DBF8AB6BD926DCA8745128779E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536749   (672896) от 13.03.2022
-
-Nevercenter CameraBag Pro 2021.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672896.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 NEVERCENTERПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0489391E50668DACCF025D8B3A5F7F738DD830F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536574   (672895) от 13.03.2022
-
-Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude To (00:35)
-02. The Void (07:33)
-03. Backlash (05:26)
-04. Never Look Back (03:29)(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Stoner MetalПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5321DE8081FD420CEBD82B2F0FB37826DB6EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536687   (672894) от 13.03.2022
-
-The Bob Dorough Quartet - An Excursion Through "Oliver!": Songs From The Hit Show (1954) 2009, Classic Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Food, Glorious Food [5:24]
-02. Oliver! [4:26]
-03. Boy for Sale [4:19]
-04. Where Is Love? [2:06](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B499CAEA9A427D7D698B7ACD31D3F3B9C1038B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536714   (672893) от 13.03.2022
-
-VA - Il Caffe Italiano Trieste (Italian Lounge Espresso Music) (2016) [AAC|~336 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocktail Martino, Federico Straga' - E la Chiamano Estate (3:12)
-02. Tonisterical - Frogs (2:22)
-03. Montefiori Cocktail - Sunny (4:33)
-04. Orchestra Volare - Arriva la Bomba (2:34)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32822E4179D58A9F484D5AB7049AF3DB0FFD9F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536712   (672892) от 13.03.2022
-
-VA - Il Caffe Italiano Roma (Italian Lounge Espresso Music) (2016) [AAC|~335 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orchestra Volare - Roma Nun Fa la Stupida Stasera (3:20)
-02. Italian Secret Service - Via Beato Angelico (7:46)
-03. Matteo Brancaleoni, Rosario Fiorello, Fabrizio Bosso - L'italiano (3:28)
-04. Cocktail Martino, Francesca Gramegna - Estate (3:56)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9728479AE295E52F87BA3AF7B70D87EB0CAFF068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536755   (672891) от 13.03.2022
-
-Obsidian Black - Judgement Day (2022) EP [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Life in a Beautiful Storm (04:23)
-02. Judgement Day (05:16)
-03. Lights in the Dusk (Re-Recorded) (03:59)
-04. Gates of Babylon (03:46)(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C55B1A8B216F6F013F0E985231A1DC9A5A1F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536716   (672890) от 13.03.2022
-
-VA - Il Caffe Italiano Bologna (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montefiori Cocktail - Riviera Beat (5:02)
-02. Matteo Brancaleoni - Cosa hai messo nel caffè (3:20)
-03. Massimo Guerra Xtet - Futura (6:33)
-04. Italian Secret Service - Italian melody (4:50)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C950F2B4E8EE9C0018BFDCDE96642C50E2CB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536842   (672889) от 13.03.2022
-
-EdgeView 3 v3.3.8 [En]
+Chicago - Take Me Back To Chicago (1989) Unofficial Release [APE|Lossless|image + .cue] <Jazz-Rock, Pop Rock, Funk, Classic Rock>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672889.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_678470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+01. Baby, What a Big Surprise
+02. Happy Man
+03. Take Me Back to Chicago
+04. If You Leave Me Now(   Читать дальше...   )Жанр: Jazz-Rock, Pop Rock, Funk, Classic RockПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
@@ -532,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536730   (672888) от 13.03.2022
+###  Публикация: 1029997   (678469) от 28.06.2016
 
-VA - Class of '87 (2022) [AAC|~339 Kbps] <Pop, Rock, Alternative>
+VA - Outburst presents Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefano) (2016) [MP3|320 Kbps] <Trance, Progressive House, Techno>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672888.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. R.E.M. - It's The End Of The World As We Know It (And I Feel Fine) (4:07)
-02. Sting - Englishman In New York (4:27)
-03. Public Image Limited - Seattle (2011 Remaster) (3:41)
-04. The Northern Pikes - Teenland (4:00)(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 01:49:58
+01. Mauro Picotto - Eterea (Mark Sherry Remix)
+02. Mark Sherry & Dark Fusion Feat Jan Johnston - Deja Vu (Outburst Vocal Mix)
+03. Solarstone - Lost Hearts (Mark Sherry Remix)
+04. Mallorca Lee & Stephen Kirkwood - 2029 (Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive House, TechnoПродолжительность: 06:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:165830AAC72E060BB2DE8910ECD4F32DBCB0042E
+magnet:?xt=urn:btih:B22E3EB39667DEA21B430BE0C1E2C5872B2ACD37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536715   (672887) от 13.03.2022
+###  Публикация: 1029856   (678468) от 28.06.2016
 
-VA - Il Caffe Italiano Milano (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
+Gary Burton - Conception (1960-1962) 2CD, 2014, Cherry Red Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672887.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Papik, Alan Scaffardi - Prendila così (3:40)
-02. Matteo Brancaleoni - Una Carezza In Un Pugno (3:07)
-03. Zerosospiro - C'èun Tic (2:55)
-04. Parma Brass Quintet - Via con me (3:15)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:41:22
+CD1:
+01.Storm [04:18]
+02.I've Just Seen Her [04:19]
+03.Fly Time Fly (Sigh) [04:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:37:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8D06AF6C583EAEA85B6073206E5D547066D7691
+magnet:?xt=urn:btih:905C167AD05D5F9831D75E9922B38DA64436B684
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,28 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536732   (672886) от 13.03.2022
+###  Публикация: 1029687   (678467) от 28.06.2016
 
-De-Arrow - De-Arrow (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672886.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock 'N' Roll Nights (3:47)
-02. We've Got The Wings (4:27)
-03. First Break Of The Heart (4:30)
-04. Feelin' Fine (4:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:18
+СборникЖанр: House, Dance PopПродолжительность: 01:09:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E90F9ABE9C8DEA81CF89E0E564737893001A6AC
+magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,115 +282,439 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536724   (672885) от 13.03.2022
+###  Публикация: 1029373   (678466) от 28.06.2016
 
-VA - Electronica Royale, Vol. 1 (Organic Downtempo Vibes Deluxe) (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Warrior - Excalibur (Electronic Dub Mix) (4:45)
-02. Intergalactic Traveller - Ursa Major (Minimal Mix) (5:05)
-03. Once Upon A Time - Feel Alone (4:38)
-04. Electric Echoes - I Go Now (3:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, AmbientПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB39FCA160F438ACF8F8AB1521AC1EF2F87EFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536719   (672884) от 13.03.2022
-
-VA - Il Caffe Italiano Torino (Italian Lounge Espresso Music) (2017) [AAC|~333 Kbps] <Jazz, Nu Jazz, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matteo Brancaleoni - Volare (Nel Blu Dipinto di Blu). (2:48)
-02. Papik, Alan Scaffardi - Che Sarà (4:05)
-03. Giuseppe Milici - Dimmi cos'è (3:45)
-04. Melania - Caruso (4:42)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D05E09A1A8F311F8911116414BBBC83FC63BFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536728   (672883) от 13.03.2022
-
-Edge Of Forever - Seminole (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up Your Feet Again (4:24)
-02. On The Other Side Of Pain (3:56)
-03. Made It Through (4:45)
-04. Shift The Paradigm (4:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC852109DEA1553427D2FB505EA1CFFBC42F20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536721   (672882) от 13.03.2022
-
-Lana Lane - Neptune Blue (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, Prog Related>
+Billy Joel - 2000 Years: The Millennium Concert (2000) 2xCD [APE|Lossless|image + .cue] <Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672882.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Remember Me (5:16)
-02. Under The Big Sky (5:19)
-03. Really Actually (5:34)
-04. Come Lift Me Up (6:27)(   Читать дальше...   )Жанр: Melodic Rock, Prog RelatedПродолжительность: 01:02:29
+01. I Go to Extremes
+02. Goodnight Saigon
+03. We Didn't Start the Fire
+04. Big Man on Mullberry Street(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:08:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05772E49DF1ABAF9AF1319EB2D91C0120F0ECB93
+magnet:?xt=urn:btih:331AE317D9F59ADDFA8A22266143E4849238C120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029663   (678465) от 28.06.2016
+
+VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Newell And Jess Glynne And Dj Cassidy - Kill The Lights (Audien Remix)
+02. Andy Vayel - Pleasant Pain (Original Mix)
+03. Anthony Vince - Want To Dance (Radio Mix)
+04. Antoine Clamaran Feat. Lulu Hughes - Hallelujah (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029599   (678464) от 28.06.2016
+
+Найдены вирусы, поражающие иммунную систему при помощи "украденных" CRISPR-цепочек
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_678464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые-микробиологи из университета Британской Колумбии (University of British Columbia), Канада, обнаружили, что вирус типа Cyanophage N1, который заражает некоторые виды бактерий, обитающих в пресноводных водоемах, использует "украденные" раньше части ДНК "хозяев" для того, чтобы подавить реакцию их же иммунной системы. Этот тип вируса имеет (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029779   (678463) от 28.06.2016
+
+Funky DL - Out Of Touch b/w Le Jazz Courant Noir (The Jazz Lounge Remixes) (2016) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazzy Hop, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of Touch (The Jazz Lounge Remix) (4:03)
+02. Le Jazz Courant Noir (The Jazz Lounge Remix) (2:59)Производство: Washington ClassicsЖанр: Hip-Hop, Jazzy Hop, LoungeПродолжительность: 00:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E037FE25AA9D6D685C5DCBBC5AD6341448BF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029889   (678462) от 28.06.2016
+
+Газета | 1000 секретов [Украина] №10 (Май 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678462.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE52E0DE4246A786528485E19DC56C8276E5C3F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029715   (678461) от 28.06.2016
+
+Эмиль Габорио | Убийство в Орсивале (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский писатель Эмиль Габорио — один из основателей и признанный мастер детективного жанра. Его романы переведены почти на все языки мира, ему подражали в своем творчестве такие великие авторы, как Роберт Льюис Стивенсон и Артур Конан-Дойль. Роман «Убийство в Орсивале» принес Габорио необычайную популярность. В нем он знакомит читателя с благородным и ловким (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BAC5D9309C4FCF7B8CC7AAB0EF551C7CD1D7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029770   (678460) от 28.06.2016
+
+Funky DL - Autonomic (2016) Single [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autonomic (Explicit) (4:58)
+02. Autonomic (Clean) (4:58)Производство: Washington ClassicsЖанр: Hip-Hop, BeatsПродолжительность: 00:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E086316657937316925E7C7392B4416F18D4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029457   (678459) от 28.06.2016
+
+Chicago - The Heart Of Chicago (1989) Unofficial Release [APE|Lossless|image + .cue] <Pop Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Leave Me Now
+02. Baby What a Big Surprise
+03. Where Did the Loving Go?
+04. Take Me Back to Chicago(   Читать дальше...   )Жанр: Pop Rock, Symphonic RockПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15885126A24E822C9C25BD6CAE793A573020F794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029804   (678458) от 28.06.2016
+
+36 - Seconds & Forever (2016) 3six Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seconds & Forever (Part 1) (18:00)
+ 02. Seconds & Forever (Part 2) (18:00)Жанр: AmbientПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55B7372C78B3F86545CB15D1139164AB6051187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029772   (678457) от 28.06.2016
+
+Funky DL - The Rhapsody (2016) Single [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rhapsody (3:06)
+02. The Rhapsody (Instrumental) (3:06)Производство: Washington ClassicsЖанр: Hip-Hop, Beats, InstrumentalПродолжительность: 00:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0B66AA1BE45D346A844B4FC51B555F4172BFA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029847   (678456) от 28.06.2016
+
+Aura - Observations (2016) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Day Of My Life
+02. Pirates Of Caribbean
+03. Observations
+04. Ticking Bomb(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D598694A4949F6AB0BA0A04928BEF4A40D29E6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029964   (678455) от 28.06.2016
+
+Dj Sveta - Beautiful people (2016) [MP3|320 Kbps] <Progressive House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibiza Club Toys - Love & Money (Soulful Lounge instrumental mix)
+02. Lexer - Forgive Me (Original Mix)
+03. Nora En Pure - Lake Arrowhead (Original Mix)
+04. Anton Ishutin - Feebleminded Feat. Irina Makosh (Monoteq Remix)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645D5B61DAE98844B84005146B826BF8E4178D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135819   (678454) от 20.05.2017
+
+Ashampoo Movie Studio Pro 2.0.15.7 RePack by вовава [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Movie Studio Pro - это идеальное многофункциональное приложение для создания и редактирования видео. Нарезайте, конвертируйте и делитесь Вашими видео, объединяйте фотографии и видео с помощью элегантных переходов. Благодаря высоко интуитивному управлению, каждый без проблем может применить эффекты или добавить логотип. Используйте прямой путь в простом режиме, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CEC4514A3B14D3E27C77DEFCECA7159525A02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135536   (678453) от 20.05.2017
+
+Илья Лаурс | Стартап. Модель для сборки (2016) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество вовлечено в удивительное приключение, в котором знание и воображение могут изменить общество, страну, а может, и весь мир.
+Илья Лаурс
+
+О чем книга(   Читать дальше...   )Жанр: Бизнес, СтартапФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199E308085DC26A900B9701FBB72D3714B7743C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135876   (678452) от 20.05.2017
+
+Олег Казаков | Поход (2017) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Альтерра».
+
+Жители нового мира, избежав одичания, собирают остатки прежней цивилизации, восстанавливают по памяти прежние технологии. Колония растет, но приходит новая беда. С юга надвигается нашествие, новые варвары, бывшие когда-то жителями мегаполиса, пытаются захватить развитое устойчивое общество. Сражения, шпионаж, предательство — все идет (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9380CB215E2207B5B494751E0DFBE9D68E213BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135718   (678451) от 20.05.2017
+
+Семейное ограбление / Mes tresors (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анжела и Анжелика — две абсолютно разные девушки, которые не имеют ничего общего. Кроме, разве что, отца, которого они никогда не видели. И вот однажды он появился в их жизни. Вор международного масштаба решил наверстать упущенное, создав с дочерьми безумную команду, чтобы совершить ограбление века. И все бы ничего, только гениальный план Патрика дает сбой, и все (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Паскаль БурдьоАктеры: Жан Рено, Рем Кериси, Камиль Шаму, Бруно Санчес, Паскаль Демолон, Жан Ренес, Марион Брие, Юже Тьерри, Зина ЕсепчукПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F881836A8DD50218D97EDEEE1C244A84B61221
 ```
 
 https://mybot314.ru/tekegram_catalog/

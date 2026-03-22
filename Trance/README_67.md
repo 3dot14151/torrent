@@ -1,3 +1,235 @@
+###  Публикация: 1748676   (43874) от 11.09.2024
+
+VA - Uplifting Only Top 15: September 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astral Zephyrus - Lune (Intro Mix) [5:46]
+02. HALIENE & Maratone - Make It To Tomorrow (Astuni & Manuel Le Saux Extended Remix) [6:37]
+03. Deme3us - You (Extended Mix) [7:09]
+04. DreamLife & Drunk Breeze - Rurouni Kenshin (Extended Mix) [7:08](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27C3E8CBB4D13CAD42F5F8E7B93E831A031C0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748750   (43770) от 12.09.2024
+
+VA - Summer Trance Vibes (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artyom Kitsenko - Sense (Original Mix) [4:10]
+02. Sunvision - Magnum (Original Mix) [5:41]
+03. AREO - Jupiter (Original Mix) [6:45]
+04. Cold Stone - Extract (Original Mix) [6:44](   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4462FB86E45CDBD218F352BFC878FE1C0BB12CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748904   (43766) от 12.09.2024
+
+VA - Anjunabeats presents BPM 01 (DJ Mix) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Buzz (Buzztalk Extended Mix) [8:06]
+02. Daniel Kandi - Venice Beach (Lifted Extended Mix) [7:26]
+03. Evbointh - One Wish (Extended Mix) [7:20]
+04. SØNIN - Nano (Extended Mix) [5:12](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E436A5D05D4D66FCE9D4BCA7305E3617BA2E609C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749317   (43674) от 13.09.2024
+
+VA - Black Hole Trance Music 09-24 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jordan Suckley & Irlanya - Ways Of The World (Extended Mix) [4:04]
+02. Dennis Sheperd x KITA - Outer Space (Extended Mix) [4:14]
+03. Driftmoon & Hel:Sløwed - Orion (Extended Mix) [6:56]
+04. Richard Durand & Sarah De Warren - Like You (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C8F54A8DE0217C6E9379DBB48EE2B93E5CF2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750920   (42728) от 22.09.2024
+
+VA - Trance Emotions, Vol 13 (Best Of EDM Playlist Compilation 2025) (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CO1N & Darkingz - Winter Sea (TE13 Extended Mix) [8:33]
+02. Sonic Range - Emotion (Tomorrowland Aftermovie Remix) [6:40]
+03. Vikram Prabhu - Soyra's Dream (Extended Mix) [6:58]
+04. JINGYAN - Azure Above (TE13 Extended Mix) [6:55](   Читать дальше...   )Жанр: TranceПродолжительность: 05:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4B650B4F7CD8836C12E8A9F4461968DFBBDAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751803   (42224) от 27.09.2024
+
+VA - Vocal Trance Classix Vol. 1 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeon Flux - The Sun In Dreams (Original Mix) [5:23]
+02. Air Diver - Yesterday Becomes Tomorrow (Original Mix) [7:02]
+03. Aj Antares - The Dreamer (4AM Mix) [7:02]
+04. Alex Krav - People (Original Mix) [5:34](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682B2615C1D3DC642541C08CDC95DD428E9D9EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751797   (42198) от 27.09.2024
+
+VA - This Is Uplifting Trance Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kellerraum Projekt - Beginning Of A New Era (Original Mix) [5:36]
+02. 7 Baltic - Summer Dreams (Original Mix) [6:43]
+03. A.k.m - Timeless (Original Mix) [9:27]
+04. A.u.d.i.e.n.c.e. - God & the Devil (Original Mix) [6:18](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C151E22826320D86B2DCCD0A5CAF2F73AB21836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752448   (41887) от 30.09.2024
+
+VA - Rated Revisited Vol. 1 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Curtis - Jeremiah 11:11 (Original Mix) [7:38]
+02. Laura May - Aunt Acid (Original Mix) [6:22]
+03. Felix R - Banshee (Original Mix) [5:55]
+04. MiSinki - Theta (Original Mix) [8:44](   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221C7D21CF0609599D464DDED04277327AA2DB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752362   (41882) от 30.09.2024
 
 VA - Entrance Music Legends Top 25 (2024) [MP3|320 Kbps] <Trance>
@@ -507,238 +739,6 @@ VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE56D27138D2E00517966AFEF4DF80A28FEB4FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763660   (35412) от 02.12.2024
-
-VA - Gert Records 1000 - Celebration Dj Mix (Mixed By Vito Von Gert) (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vito Von Gert - Gert Records 1000 (Continuous Mix) [02:25:19]
-02. Arcanum - Aeternum (AFTERUS Extended Remix) [05:37]
-03. Nitesonik - Comet (Extended Mix) [06:01]
-04. Fredix - Between Heaven and Moon (Extended Mix) [06:12](   Читать дальше...   )Жанр: TranceПродолжительность: 05:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D73D636CA9F95C189602843AB46910BDCA7FDDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763699   (35402) от 02.12.2024
-
-VA - Progressive Trance Awakening, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AaYmin - By Your Light (For Saylee) (Extended Mix) (05:53)
-02. Kinesthetics - Mish (05:46)
-03. Alex007 - Satellite (06:47)
-04. Michael Alan - Dark Matter (03:52)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E287CB921993268EFEE7BCF804DE6BB400D4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763915   (35209) от 04.12.2024
-
-VA - Future Sound of Egypt Best of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila, Philippe El Sisi, Omar Sherif & Jaren - Count On Me (Extended Mix) (08:56)
-02. John O'Callaghan - Autumn Avenue (Extended Mix) (07:00)
-03. Aly & Fila & Lostly - The Unknown (Extended Mix) (06:08)
-04. Aly & Fila & Richard Durand - Nebula (Extended Mix) (07:19)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0973B313837E1283AB25A18A9779DAA194FBA1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763917   (35208) от 04.12.2024
-
-VA - The Best Of Trance 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abigail Noises & Shabboo Harper - Kama Sutra (09:19)
-02. Theo S.Y. - Stardust (Extended Mix) (07:26)
-03. Dj Grom - One Touch (Extended mix) (06:34)
-04. Martin Bakfly - Among The Stars (Extended mix) (05:41)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AABC8C06D9AE2BF206771A983907261C6974EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765043   (34589) от 10.12.2024
-
-VA - Elliptical Sun Recordings 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brych (BR) & Isaac Blum - Push Me Away (extended mix) (07:36)
-02. GÆO & Low Contrast - Earth (extended mix) (06:25)
-03. Johan De Kock & Elsuane - Embrace (extended mix) (07:32)
-04. John Grand - Metanoia (extended mix) (06:39)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68413736F93024ED5C72522DBD50EEB03488684E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765234   (34499) от 11.12.2024
-
-VA - Best Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elgfrothi - Believe (Vocal Mix) (05:35)
-02. Andy Newtz & Olya Gram - Take Me To The Stars (Gayax Remix) (05:52)
-03. Masaru Hinaiji & Kayumai - We Will Shine (Pink Pig Remix) (08:36)
-04. Iberian & Poetry Maiden - Hideaway (Mehran Vedadi Remix) (07:48)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFBB5D058AE49E3D5566BCDE6E1B5BE4F4CCA424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765415   (34381) от 12.12.2024
-
-VA - Anjunabeats presents Vocal Trance 02 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond & Zoë Johnston - My Own Hymn (Mixed) (feat. Zoë Johnston) (05:22)
-02. Grum & Natalie Shay - Don't Look Down (Mixed) (feat. Natalie Shay) (05:03)
-03. Sunny Lax & Aneym - Everything's A Lie (Mixed) (05:45)
-04. Andrew Bayer & Alison May - Open End Resource (In My Next Life Extended Mix Mixed) (feat. Alison May) (06:00)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF988625E04CF7C37C736900AC4291AEC1B4341C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765531   (34292) от 13.12.2024
-
-VA - A State Of Trance Year Mix 2024 (DJ Mix) (Mixed By Armin Van Buuren) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34292.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Moby - The Road Ahead (A State of Trance Year Mix 2024 Intro)
-002. Armin van Buuren & Moby - Extreme Ways
-003. Jerome Isma-Ae - Hold That Sucker Down (Hel:sløwed Remix)
-004. Hel:sløwed & Amber Revival - Wildfire(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3342A8C5F89CE6FF93FC78AF5938C3E377A3E45C
 ```
 
 https://mybot314.ru/tekegram_catalog/

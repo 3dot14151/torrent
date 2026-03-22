@@ -1,3 +1,177 @@
+###  Публикация: 1599698   (159663) от 24.12.2022
+
+Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Come Eleven [2:48]
+02. Wholly Cats [3:05]
+03. Good Enough to Keep (Air Mail Special) (first version - alternate take) [2:57]
+04. Flying Home (alternate take) [3:17](   Читать дальше...   )Жанр: Swing, Bop, Guitar JazzПродолжительность: 00:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE52CE632A9AF6DAD5FD48DE39234B7A48948B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599405   (159662) от 24.12.2022
+
+Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Tho't You Ought to Know [2:55]
+02. It Only Happens Once [2:57]
+03. Black Market Stuff [2:46]
+04. Laguna Leap [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1321046A3A57EEB1522BAE467EC75A087AAE0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599625   (159660) от 24.12.2022
+
+Oscar Peterson - Plays Porgy and Bess (1959) 1993, PolyGram [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Plenty o'Nuttin' [6:26]
+02. I Wants to Stay Here (aka I Loves You Porgy) [6:22]
+03. Summertime [3:51]
+04. Oh Dey's So Fresh and Fine (Strawberry Woman) [0:56](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314DCEF42C5AAC716E4F34C5BAE86DD8BF15EE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599629   (159659) от 24.12.2022
+
+Carol Kidd - Dreamsville (2008) Linn Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Never Entered My Mind [5:40]
+02. A Nightingale Sang In Berkeley Square [2:45]
+03. How Deep Is The Ocean [4:04]
+04. How Long Has This Been Going On [5:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3019F8454806F34691B5950CE666827EE6C515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599878   (159433) от 25.12.2022
+
+Pete Rugolo - Adventures In Rhythm (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's Pete [2:25]
+02. My Funny Valentine [2:49]
+03. Mixin' The Blues [3:13]
+04. Poinciana (Song Of The Tree) [2:17](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B1678BD3E3ADABB59B2BA89F806D4849222F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599876   (159427) от 25.12.2022
+
+Nat King Cole - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe That You're in Love with Me [3:05]
+02. The Way You Look Tonight [3:10]
+03. Airiness a la Nat [2:38]
+04. My Old Flame [3:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17B0A8C76C72C9C950DCB506F68C0C8055034BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599874   (159386) от 25.12.2022
 
 Donald Byrd & Pepper Adams - The Complete Blue Note Donald Byrd/Pepper Adams Studio Sessions (1958 - 1967) 4CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -570,180 +744,6 @@ Django Reinhardt - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Sw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CA50B69916341DF5DD0BE92F455E1357A697A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676426   (157728) от 13.11.2023
-
-Jack DeJohnette - Sound Travels (2012) Entertainment One [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Here [2:24]
-02. Salsa For Luisito [6:56]
-03. The Dirty Ground [4:50]
-04. New Muse [6:06](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333F54659EC55D7AD6B593CD790F74F1008BD03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433686   (157434) от 21.12.2020
-
-Stone Raiders - Truth To Power (2012) [FLAC|Lossless|tracks + .cue] <Eclectic Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power to Spirit (07:11)
-02. Funktokomatik (04:26)
-03. Truth to Power (05:24)
-04. The Radiance of Pure Reality (05:36)(   Читать дальше...   )Жанр: Eclectic FusionПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF710F4A6BDC48C594C1DAFEF7B8BF509068DEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968130   (157401) от 23.12.2015
-
-Eddie Cano & His Quintet - Brought Back Live From P.J.'s (1967) 2014, Universal[FLAC|tracks+.cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slip, Slip [02:39]
- 02.La Bamba [03:24]
- 03.Wack Wack [02:43]
- 04.Mira Como Es [03:44](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82C2298A69EA6A77790CBB15B3339E1F977B55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968310   (157365) от 23.12.2015
-
-Kenny Dorham - Quiet Kenny (1959) 2001, Prestige[FLAC|tracks+.cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lotus Blossom [04:39]
- 02.My Ideal [05:06]
- 03.Blue Friday [08:45]
- 04.Alone Together [03:11](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86CB899A4DF19ECC62A8C58A2B02E9E3E5FC2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968054   (157295) от 23.12.2015
-
-The Dutch Swing College Band - The Best Of Dixie (1999) MasterTone Multimedia Ltd.[FLAC|tracks+.cue] <Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You Made Me Love You [05:30]
- 02.On The Banks Of The Wabash [03:43]
- 03.Hindustan [03:51]
- 04.Just A Closer Walk With Thee [04:46](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB62814A91D5E805131D44FB5C8C1A60A67C50A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968283   (157228) от 23.12.2015
-
-Archie Shepp Quartet - I Didn't Know About You (1990) 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Go Down Moses (Let My People Go) [11:06]
- 02.I Didn't Know About You [10:15]
- 03.Billie's Bossa [05:54]
- 04.Hot House [07:37](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB04D94C3732F9A42192055ABE3258C2FBA0A2FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

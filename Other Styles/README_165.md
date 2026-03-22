@@ -1,3 +1,148 @@
+###  Публикация: 1698383   (117805) от 13.02.2024
+
+Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечности) (2001) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bare Bare
+02. Hashir Prabhat
+03. Bahir Haite
+04. Ogo Mor(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A782736ED7EE4CA8F18EF458C05C3247872F84EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697514   (117799) от 13.02.2024
+
+Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dodet
+02. Andro
+03. Barentanz
+04. Quant je suis mis au Retour & Douce Dame Jolie(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01F3D890BB0602C07B85477A970F7B0B78DC67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699088   (117798) от 13.02.2024
+
+ЗОР - Буу Ай (2022) [MP3|320 Kbps] <Buryat Ethnic Music, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дэрсу
+02. Нарин хухы
+03. Хадын хураса
+04. Зандан ташуур(   Читать дальше...   )Жанр: Buryat Ethnic Music, FolkПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F567C68E1927F5275C3B5E0309CD88D752F0C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700874   (116890) от 18.02.2024
+
+Corbetta, Izhar Elias - La Guitarre Royalle (2018) [FLAC|Lossless|image + .cue] <Classical, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Autre Chacone in C major
+Suite A minor
+2. Prelude
+3. Allemande(   Читать дальше...   )Жанр: Classical, GuitarПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB88557275DA7A3DD1DC1F4B3AAA74F08120EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700932   (115549) от 26.02.2024
+
+Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, Chorus>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterday [04:03]
+02. Hey Jude [05:29]
+03. Love Me Do [04:17]
+04. Nowhere Man [04:15](   Читать дальше...   )Жанр: Gregorian, A Capella, ChorusПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B540D379F35A081455A5A6DB891BE1859E6F1927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700143   (115534) от 26.02.2024
 
 Oliver Scheffner - Ambient Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age,Ambient>
@@ -599,150 +744,6 @@ El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B0C900CF92DC58C92668DC371AFE5652EE9D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720924   (109797) от 10.05.2024
-
-Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woledto [02:03]
-02. Ganeni [02:57]
-03. Callin' U (Tamally Maak) [01:57]
-04. Al Sham [02:46](   Читать дальше...   )Жанр: World, Arabic, R&BПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C61B4F7B790846A18C1DBE245093B3737E48D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722754   (109604) от 14.05.2024
-
-Mark Ashley - Instrumentals Vol. 2 (2024) [MP3|320 Kbps] <Instrumental Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are the One (Karaoke Version) (3:36)
-02. Like an Angel (Instrumental) (3:16)
-03. The Fans of Modern Talking (Karaoke Version) (3:23)
-04. Hot Like Fire (Instrumental Extended Remix) (7:21)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9942F2D9C91A584A05F6BCDF6B2C378D82C02815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722755   (109601) от 14.05.2024
-
-Mark Ashley - Instrumentals Vol. 3 (2024) [MP3|320 Kbps] <Instrumental Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All Over (Instrumental) (4:17)
-02. You and Me ( The Power of Love ) (Instrumental Version) (3:56)
-03. I'll Be There for You Tonight (Karaoke Version) (3:36)
-04. Mareen (New Instrumental Version) (3:59)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F9B55CE126B27ECD19BA6FEC06F5DD1D74659C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722534   (109551) от 15.05.2024
-
-Asian Meditation - Meditationsmusik (2007) [WavPack|Lossless|image + .cue] <Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eststic Fullness Experiense. . .37:20
-02. To Tusan Takk. . . . . . . . . .04:40
-03. The Light Behind Dark Clouds . .23:50Жанр: RelaxПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39876765DE500BE78F02B629A0A12A3195134691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723972   (109395) от 17.05.2024
-
-Combichrist - No Redemption (Official DMC Devil May Cry Soundtrack) (2013) [FLAC|Lossless|WEB-DL|tracks] <OST, Industrial, Neo-Classical, Experimental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age of Mutation [00:02:31]
-02. Zombie Fistfight [00:02:00]
-03. Feed the Fire [00:03:59]
-04. Gimme Deathrace [00:03:55](   Читать дальше...   )Жанр: OST, Industrial, Neo-Classical, ExperimentalПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E506487F985029777EA8C5E09A68CDC61A5EB00A
 ```
 
 https://mybot314.ru/tekegram_catalog/

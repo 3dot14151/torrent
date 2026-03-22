@@ -1,3 +1,119 @@
+###  Публикация: 1545109   (614912) от 19.04.2022
+
+Cancer Bats - Psychic Jailbreak (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiate
+02. The Hoof
+03. Lonely Bong
+04. Friday Night(   Читать дальше...   )Жанр: Post-Hardcore, Southern RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FB2E50BFE76A7DA8D9F4A642D74DF9995A0B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296267   (613378) от 16.04.2019
+
+Hands Off Gretel - I Want The World (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss Me Girl
+02. S.A.S.S
+03. Big Boy
+04. It's My Fault(   Читать дальше...   )Жанр: Alternative Rock, Grunge, Pop PunkПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA5E86C93A773196E76C812CA7232D5F5449166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296795   (608722) от 19.04.2019
+
+Lisa Germano - Geek the Girl (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Secret Reason (04:31)
+02. Trouble (02:21)
+03. Geek the Girl (03:40)
+04. Just Geek (02:43)(   Читать дальше...   )Жанр: Alternative Rock, Art RockПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C429D9DF72EDF923282C66DAB5B835A5DE697DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296820   (608533) от 19.04.2019
+
+Cage The Elephant - Social Cues (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Boy (2:43)
+02. Social Cues (3:39)
+03. Black Madonna (3:47)
+04. Night Running (3:28)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776FAE1F61EEEF4B95859706B6DD13A43326FA7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296822   (608532) от 19.04.2019
 
 The Tallest Man on Earth - I Love You. It's a Fever Dream. (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
@@ -629,122 +745,6 @@ The Mountain Goats - In League With Dragons (2019) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34AE7B98EF1547075A328BDABE625A290CB70701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299758   (595057) от 04.05.2019
-
-Yours Truly - Afterglow (2019) EP [FLAC|Lossless|tracks + .cue] <Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595057.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Circles (2:51)
-2. I Can't Feel (2:57)
-3. High Hopes (3:51)
-4. Delusional Paradise (3:35)(   Читать дальше...   )Жанр: Rock, Pop PunkПродолжительность: 00:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDD40A23928EC5170D348E5995B2FBD1217E30A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299656   (594975) от 04.05.2019
-
-Millencolin - SOS (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SOS (03:19)
-02. For Yesterday (02:46)
-03. Nothing (02:58)
-04. Sour Days (03:07)(   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85C673583EE36E39A4D9E2FD7334875FEE54AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039696   (594700) от 02.08.2016
-
-CiG (Chad I Ginsburg) - Rock N Roll Alibis (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive With Overdrive 03:23
-02. Dead To You 04:26
-03. Beyond The Barricade 04:26
-04. Somethin' To Hide 04:33(   Читать дальше...   )Жанр: Alternative Metal, Alternative Rock, Hard RockПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C238BBE30FCC0BFACB407F1CD09B6B2F73C5BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300062   (594586) от 04.05.2019
-
-Cigarettes After Sex - Cigarettes After Sex (2017) Partisan Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. K. (5:20)
- 02/10. Each Time You Fall In Love (4:50)
- 03/10. Sunsetz (3:35)
- 04/10. Apocalypse (4:50)(   Читать дальше...   )Жанр: Indie Rock, Dream Pop, AmbientПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B76A64F47FD495034044F2632E4C653EE9817A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 950587   (369892) от 26.10.2015
+
+Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|image+.cue]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine
+02. You Owe Me
+03. Tempted
+04. All of This and Nothing(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A29B0B0E0AA07FD4828B74BD5D1FB402C3A5156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950276   (367897) от 27.10.2015
+
+The Stranglers - Aural Sculpture (1984) [FLAC|Lossless]<Punk, Post-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367897.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ice Queen 4:02
+2.Skin Deep 3:53
+3.Let Me Down Easy 4:13
+4.No Mercy 3:39(   Читать дальше...   )Жанр: Punk, Post-punkПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0210F5E8D6AED8F85789EB7576C7F7506D520C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416113   (367836) от 16.10.2020
+
+XURL - Deity (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oversight [00:03:28]
+02. Vivid Recollections [00:04:25]
+03. Hypnos [00:02:32]
+04. Senseless [00:04:28](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BA25047454FE5B2A9321BC5C3F91C2319D05C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255397   (366246) от 17.10.2018
+
+Collective Soul - Collective Soul (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome All Again (3:55)
+ 02. Fuzzy (4:00)
+ 03. Dig (3:18)
+ 04. You (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C838790A491DB628387D92F02B5AB54EF6B9037D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950896   (365983) от 28.10.2015
 
 Born Of Osiris - Soul Sphere (2015) [FLAC|Lossless]<Progressive Metalcore,Electronic>
@@ -629,122 +745,6 @@ A Silent Film - A Silent Film (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D2A7D37FECF0718C8E3884A8CF3A9E89EDBC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577277   (357162) от 18.09.2022
-
-Starcrawler - 3 Albums, 1 Single (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357162.jpg" />
-</div>
-
-
-###  Подробнее
-
-2018 - Starcrawler
-2019 - Devour You
-2022 - If You're Gonna Be Dumb, You Gotta Be Tough (From "Jackass 4.5") Single
-2022 - She SaidЖанр: Alternative RockПродолжительность: 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F122DAB9CCBD51B2EAD0EAE6DADE6061D2AB8BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256382   (357051) от 21.10.2018
-
-Carpathian - Nothing To Lose (2006) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of The 1980's (2:18)
- 02. Drop It Like It's Hot (2:05)
- 03. Who The Fuck Taught You Snaps? (2:31)
- 04. Six Months (2:26)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411E56CC4BD1866A6173E5403C34810441CFFD37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256403   (357049) от 21.10.2018
-
-Carpathian - Isolation (2008) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isolation (1:43)
- 02. Cursed (3:03)
- 03. Spirals (2:00)
- 05. The Cold Front (2:58)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D318D19CCA54112AA582C210B53E17774B0F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577323   (357036) от 18.09.2022
-
-The Black Angels - Wilderness of Mirrors (2022) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without a Trace (4:07)
-02. History of the Future (3:45)
-03. Empires Falling (3:31)
-04. El Jardín (3:45)(   Читать дальше...   )Жанр: Alternative Rock, Psychedelic RockПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909EC80C639AFE2D9BC86C93C16E7E20B0F3B775
 ```
 
 https://mybot314.ru/tekegram_catalog/

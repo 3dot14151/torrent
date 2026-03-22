@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1859977   (1061590) от 
+
+Margenta - Prologue (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жестокий роман (2026) [00:03:15]
+02. Восьмёрка (2026) [00:04:50]
+03. Эти игры в любовь (Acoustic) [00:04:23]
+04. Плач белой чайки (Остров воронов) [00:04:07](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, RockПродолжительность: 00:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EE49717B6A5C8551D8C3A419B0B874B641D476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858091   (1060327) от 09.03.2026
 
 Moongates Guardian - Come Shadow Of My End (2026) [FLAC|Lossless|WEB-DL|tracks] <Epic-Metal, Black-Metal>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C629B19CB5481FC4B165EDEBE5F1E8BFFF9C64C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846113   (1051178) от 05.01.2026
-
-Ансамбль Христа Спасителя и Мать Сыра Земля (АХСиМСЗ) - Задорные танцы в намордниках (2021) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Храмы Твери, я иду! [00:04:25]
-02. Любимая Полиция Твери [00:05:25]
-03. На митинги [00:03:37]
-04. Вкусный и недорогой [00:02:44](   Читать дальше...   )Жанр: Hardcore Punk, DiscoПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46DF5893FD266AB41992FE84AB610E7C62A81D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

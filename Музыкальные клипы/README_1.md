@@ -1,3 +1,142 @@
+###  Публикация: 599449   (999323) от 06.01.2013
+
+BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB805082B038CC709C10B92564052C8D76E2D99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599120   (999314) от 06.01.2013
+
+Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отЖанр: Club, House, DanceПродолжительность: 00:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C32BCDBB7493B94317AA898CA5BE18BF67CA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599450   (999303) от 06.01.2013
+
+Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D15367268E625CE3A0973F7760FFE811F4034FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599949   (999109) от 07.01.2013
+
+Slade At The BBC (1969-1991) (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ретроспективная передача канала BBC4 от 21 декабря 2012 года. Коллекция студийных видеозаписей BBC 1969-1991 годов и01.Intro
+02.Martha My Dear /Monster Music Mash 1969/
+03.Wild Winds Are Blowing /Monster Music Mash 1969/
+04.Coz I Luv You /TOTP 1971/
+05.Mama Weer All Crazee Now /TOTP 1972/
+06.Gudbuy T' Jane /TOTP 1972/
+07.Cum On Feel The Noize /TOTP 1973/
+08.My Friend Stan /TOTP 1973/
+09.Everyday /TOTP 1974/
+10.How Does It Feel /Crackerjack 1975/(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A116B664E6A9BEBE4480ECDFD6937C5A023954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600635   (998559) от 09.01.2013
+
+Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600638   (998531) от 09.01.2013
 
 Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
@@ -590,140 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608230   (994136) от 24.01.2013
-
-Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDA80117DED8D81924E99BC708AA50428D2FDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608232   (993983) от 24.01.2013
-
-Lindsey Stirling and the Piano Guys - Mission Impossible (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F770213C624E07B409C58831D3E3F9A0389BB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352346   (993278) от 16.01.2020
-
-Весёлая Месса (2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Глухов даёт развернутое интервью о своей группе, о Российской Национал-большевистской партии, революции и религии. Ему аккомпанируют музыкальные группы: Группа 418  и Тотальный Геноцид. В конце бабушка из АХСМСЗ даёт стриптиз!Производство: Смерчь-ИнфоЖанр: Chanson, Post-PunkПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C664D1164C1972C2043EF4BE132FEE04F5F49AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352242   (993219) от 16.01.2020
-
-Чёрный огонек (2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993219.jpg" />
-</div>
-
-
-###  Подробнее
-
-В беспросветном мраке новогодней пошлятины единственный луч света – Чёрный огонек 2020!
-Исполнители: Михаил Трофименков,  Бранимир,  Александр Аронов,  Михаил Елизаров,  Children Slyness,  РИЧ,  Ансамбль Христа Спасителя,  Тотальный Геноцид,  418, Олег Купер, Самай, НаотрезПроизводство: Смерчь-ИнфоЖанр: Chanson, Post-PunkПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91D305D346CF2244699F404FD6F9D43E61C474F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352456   (993218) от 16.01.2020
-
-Александр Константинов и проект Babooshka (Старуха Изергиль) Music Videos 5X (2019) WEB-DL [H.264/720p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993218.jpg" />
-</div>
-
-
-###  Подробнее
-
-2019 Babooshka - Детей надо пороть! [1080p]
-2019 Babooshka - Надо больше церквей! [1080]
-2019 Babooshka - Отмороженные во Христе [720]
-2019 Babooshka - Стань скином! [1080](   Читать дальше...   )Жанр: Chanson, Post-PunkПродолжительность: 00:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FE6744D0EB8153E1A8D37D726E9E2EB570585F
 ```
 
 https://mybot314.ru/tekegram_catalog/

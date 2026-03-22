@@ -1,3 +1,127 @@
+###  Публикация: 1414341   (383167) от 09.10.2020
+
+Charles de Wolff - J.S.Bach. Grote Orgelmis: Schnitger-orgel Grote - of St. Michaëlskerk - Zwolle (2007) [FLAC|Lossless|image + .cue] <Classical, Organ>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Charles de Wolff - голландский органист и дирижер, родился 19 июня 1932 года в Mussel, Onstwedde, Нидерланды, умер 23 ноября 2011 года в Zwolle, Нидерланды.
+Изучал фортепиано и орган в консерваториях Амстердама и Утрехта (в том числе у Anthon van der Horst), затем учился в Париже у Jeanne Demessieux.
+Директор хора Netherlands Bach Society с 1965 по 1983 год. В 1983 (   Читать дальше...   )01. Praeludium pro Organo pleno, E flat major, BWV 552, 1 (09:13)
+02. Kyrie, Gott Vater in Ewigkeit, BWV 669 (03:59)
+03. Christe, aller Welt Trost, BWV 670 (04:26)
+04. Kyrie, Gott heiliger Geist, BWV 671 (04:52)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F252473FDC8B66F85E2AC8F8BAE40E0C7D00D018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174999   (382999) от 16.10.2017
+
+Benny Andersson - Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый фортепианный альбом участника группы ABBA. В альбом вошли композиции, написанные музыкантом на протяжении всей карьеры. Нестареющие хиты одного из лидеров ABBA Бенни Андерссона любимы миллионами меломанов по всему миру. Как демонстрирует этот альбом, выпущенный лейблом Deutsche Grammophon, в должном прочтении свободно льющиеся мелодии хитов поп-квартета превращаются (   Читать дальше...   )01. I Let The Music Speak (3:33)
+02. You And I (6:43)
+03. Aldrig (4:04)
+04. Thank You For The Music (3:43)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA800CA1E2A9F8FB2E5CF6E6FF77D912D68BD8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572878   (382753) от 09.11.2012
+
+Academia Bizantina: A. Vivaldi - Il Cimento dell'Armonia e dell'Inventione op. 8 (2007 (1999)) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_382753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in Mi maggiore op. 8 No. 1 - RV 269 - La Primavera
+1. Allegro
+2. Allegro e pianissimo sempre
+3. Danza pastorale. Allegro
+Concerto in sol minore op. 8 No. 2 - RV 315 - L'Estate
+4. Allegro non molto
+5. Adagio-Presto
+6. Presto
+Concerto in Fa maggiore op. 8 No. 3 - RV 293 - L'Autunno
+7. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:45 + 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D650DEA05E1C9A9BF0C6FA0B5DE739993C8C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326710   (380785) от 22.09.2019
+
+Ludovico Einaudi - Seven Days Walking (Day 7) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Campfire Var. 1 (Day 7) (6:05)
+ 02. Ascent (Day 7) (5:25)
+ 03. A Sense Of Symmetry (Day 7) (3:23)
+ 04. Cold Wind Var. 1 (Day 7) (3:03)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3520B867C0DC040DBFBACAD284F1B6D87F596594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068449   (380142) от 01.11.2016
 
 Stokowski / London S. O. / Rca: Bach - Stokowski: Transcriptions / Handel: Music for the Royal Fireworks (1961 & 1974) [FLAC|Lossless|image + .cue] <Classical>
@@ -619,117 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88DE99DCCD1E7D978EF6A5EEA48081C2FD1149BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950260   (362490) от 29.10.2015
-
-Amira Willighagen - Amira (2014) [FLAC|Lossless]<Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O Mio Babbino Caro
-02. Nella Fantasia
-03. Voi Che Sapete
-04. Pie Jesu(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CB6001426B325426D39D3558F9D643EC1E22C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576373   (362425) от 17.11.2012
-
-Beethoven - Complete Symphonies, Ouvertures (Bohm - Wiener Philharmoniker) (1995) [MP3|320]<Classical, Symphony, Ouverture>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все симфонии Бетховена и его увертюры в исполнении оркестра Венской Филармонии под управлением дирижёра Карла Бёма, изданные на шести дисках.1 1 01-04Жанр: Classical, Symphony, OuvertureПродолжительность: 06:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED212C60A126900661F26F548F41379D3820C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070782   (361533) от 09.11.2016
-
-Arturo Benedetti Michelangeli - Beethoven: Piano Sonata No.32, Op.111  (1965) 1988, Decca [FLAC|Lossless|image + .cue] <Classical, Piano >
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ludwig van Beethoven:
-Piano Sonata No.32 in C minor, Op.111
-01. I. Maestoso.Allegro con brio ed appassionato (9.23)
-02. II. Arietta.Adagio molto, semplice e cantabile (17.14)Жанр: ФортепианоПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94A23C6B4E1BEF86D2CE370898EA355098C56B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566457   (360368) от 30.10.2015
-
-Giuseppe Verdi - Un Ballo in Maschera: Herbert von Karajan, Vienna Philharmonic Orchestra, &c. (1989) 2CD [FLAC|Lossless]<Classical, Romantic Period, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, OperaПродолжительность: 01:03:16 - CD1
-01:12:14 - CD2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDCA6250A137A3CA42106CFE0DC95D904AADE486
 ```
 
 https://mybot314.ru/tekegram_catalog/

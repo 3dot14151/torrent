@@ -1,3 +1,32 @@
+###  Публикация: 1364471   (936257) от 03.03.2020
+
+Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May It Be
+02. Ballroom Of Romance
+03. Granuaile's Dance
+04. Dulaman(   Читать дальше...   )Жанр: Celtic, New ageПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5946B06C6FB016DD528D1E1EE47F7AA5EAEFD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984495   (935463) от 11.02.2016
 
 NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc Records, Inc. [FLAC|Lossless|tracks + .cue] <Downtempo>
@@ -722,35 +751,6 @@ Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094237   (929052) от 18.01.2017
-
-Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic [5:43]
-02. Occulta Mysteria [5:23]
-03. Hypnosis [6:04]
-04. Lakota Myths [5:23](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009398BCB51C39B0BA364C2404DD8EE21DBF2869
 ```
 
 https://mybot314.ru/tekegram_catalog/

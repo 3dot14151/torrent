@@ -1,3 +1,148 @@
+###  Публикация: 1297509   (603548) от 23.04.2019
+
+VA - The Very Best of Legends II (2019) 3CD, Box Set [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603548.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Queen - We are the champions
+02. ABBA - Waterloo(   Читать дальше...   )Жанр: RockПродолжительность: 03:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF1C24B7788CBF7F04E51B9262F5D5B17BAF2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296619   (603084) от 24.04.2019
+
+Frank Zappa - Dancin' Fool (2019) (Live) [MP3|320 Kbps] <Avantgarde, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chunga’s Revenge (Live)
+02. Keep It Greasey (Live)
+03. Outside Now (Live)
+04. City Of Tiny Lites (Live)(   Читать дальше...   )Жанр: Avantgarde, Psychedelic RockПродолжительность: 01:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACBD5F36D8CFCFECDC9339DA841FE3CA5D9D01F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297777   (603064) от 24.04.2019
+
+The Cranberries - In The End (2019) [MP3|320 Kbps] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Over Now
+02. Lost
+03. Wake Me When It’s Over
+04. A Place I Know(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42921FD145F4F83292EA608ED287D6F0D8C7F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297835   (602656) от 25.04.2019
+
+The Boss Tweeds - Hot Rods To Hell (2019) [MP3|320 Kbps] <Rockabilly, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Rods To Hell (03:16)
+02. She Creature (03:31)
+03. Big Doll House (03:44)
+04. Your True Love (02:48)(   Читать дальше...   )Жанр: Rockabilly, Rock & RollПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF946AB9A4E8CAA42E0A9C3D06F89F36F01B0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148863   (602542) от 09.07.2017
+
+VA - Ramble On (2017) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Star Riders - When The Night Comes In (3:15)
+02. Rival Sons - Thundering Voices (2:51)
+03. Supersonic Blues Machine - Miracle Man (4:25)
+04. Danny Worsnop - Anyone But Me (4:10)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C62D7A88824DDF3DA8C8991FDE8E98D07D4E1C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149311   (601159) от 10.07.2017
 
 Haley & Alexis - All In (2017) [MP3|320 Kbps] <Rock>
@@ -610,148 +755,6 @@ Brian Harold May - 2 Albums (2021-2022) Deluxe Version, Remastered, Expanded and
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:999A2FE0E8C3C27C39AA9FDA2FCA29605AB23464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916107   (591434) от 07.07.2015
-
-Astro Zombies - Frogs Legs (2015) [MP3|320 кб/с]<Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frogs Legs (02:20)
-02. Alligator Man (04:05)
-03. Use My Axe (03:01)
-04. Zombie Now (03:27)(   Читать дальше...   )Жанр: PsychobillyПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28013D370D13A43ACAFDF38972F049586D501DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916367   (590983) от 08.07.2015
-
-Raccoonies - Raccoonies (2015) [MP3|320 кб/с]<Folk Rock, Blues, Country, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Around You (05:30)
-02. Your Arms (04:54)
-03. Bird Inside the Clock (03:30)
-04. My Way Back (04:07)(   Читать дальше...   )Жанр: Folk Rock, Blues, Country, Female VocalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446006430054A7B4C0493EEA954EE1EDFF2FC796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916597   (590449) от 09.07.2015
-
-Ronnie Montrose - Music From Here (1994)/2014/ [OGG|481-538 кб/с]<Classic Hard Rock, Instrumental Rock, Guitar Virtuoso>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Walker
-02. Primary Function
-03. Largemouth
-04. Road To Reason(   Читать дальше...   )Жанр: Classic Hard Rock, Instrumental Rock, Guitar VirtuosoПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95ADAD4985706EA8A33A1FAD651B38C33BB11F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917355   (589591) от 11.07.2015
-
-The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n'roll, Rockin'blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Rockin’ PartyЖанр: Rockabilly, Rock'n'roll, Rockin'bluesПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98311ED22979C2C1D508E2B3A1405586BB04928C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917630   (589122) от 12.07.2015
-
-The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Rock, Juke Joint Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moses
-02. The Big Finnish
-03. Her
-04. Colorblind(   Читать дальше...   )Жанр: 70's Rock, Juke Joint BluesПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B939A41F766877190F20594D5817E1215AE15D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

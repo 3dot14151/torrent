@@ -1,22 +1,25 @@
-###  Публикация: 1745293   (105136) от 25.08.2024
+###  Публикация: 1730075   (107957) от 14.06.2024
 
-Журнал | Химия и жизнь №6 (июнь 2024) [PDF]
+Xeneris - Eternal Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
->>Журналы
->>Научно-популярные журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105136.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Химия и жизнь» – это не обычный научно-популярный журнал, а произведение искусства, которое заключает в себе сущность современного знания о нашем мире. Журнал в значительной мере ориентирован на преподавателей и школьников. В журнале опубликованы статьи по проблемам образования и материалы, которые могут быть использованы как дополнительные к школьному курсу.Жанр: Научно-популярный журналИздательство: АНО Центр "НаукаПресс"Формат: PDFКачество: Обработанный скан
+01. Barbarossa
+02. Before The River Of Fire
+03. Eternal Rising
+04. Pandora's Box(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3CA9C0970735E88EE1A4F61D298C4E555056E9A
+magnet:?xt=urn:btih:DB0CC004950CFB0E3F9709412B5A2B6BA0FAAE34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745394   (105135) от 25.08.2024
+###  Публикация: 1730141   (107956) от 14.06.2024
 
-Н.С. Ахметов | Лабораторные и семинарские занятия по неорганической химии (1988) [PDF]
+The Andy MacFarlane Two Man Orchestr - My Old Suitcase (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Научная и техническая литература
->>Учебники
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105135.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пособии вопросы теории и практики соединены в единую форму занятий. Выполнение опытов построено как самостоятельное научное исследование: постановка задачи, ее теоретическое обоснование и экспериментальная проверка. Используются квантово-механические и структурные представления, а также основные термодинамические и кинетические закономерности протекания химических (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+01. I Did (3:04)
+02. Vicky Straightaway (3:49)
+03. Over the Hill (3:22)
+04. Still Drunk, Still Crazy, Still Blue (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F238308496D90168EBF3AA4A6F57F11EDA51B81A
+magnet:?xt=urn:btih:090D98EC37AAF56430E9482DDFEFE46759BE4E03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745188   (105134) от 25.08.2024
+###  Публикация: 1730136   (107955) от 14.06.2024
 
-CareUEyes 2.4.3.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
+Marcela de Campos - Dimmed Lights (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105134.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вы проводите перед экраном компьютера по 8-12 часов в день, порой засиживаясь за клавиатурой допоздна, имеет смысл подумать о сохранении зрения. Поможет в этом деле программа CareUEyes.
-CareUEyes служит для изменения цветовой температуры и яркости изображения на экране компьютера, а кроме того способна напомнить пользователю о необходимости сделать перерыв и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Spoonful (5:14)
+02. Blues With a Feeling (4:59)
+03. Nobody Knows You When You're Down and Out (4:51)
+04. Dimmed Lights (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84894B1EC4BF82DCA150E449A6D9BE970D537151
+magnet:?xt=urn:btih:EB36EC5C754A1EEC7686CCAFAAF54893CAE8FB8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745276   (105133) от 25.08.2024
+###  Публикация: 1729970   (107954) от 14.06.2024
 
-Ю.Г. Фролов (ред.) | Лабораторные работы и задачи по коллоидной химии (1986) [PDF]
+Veil of Tears - Emo Diaries (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 
->>Научная и техническая литература
->>Учебники
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105133.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представлены лабораторные работы, контрольные вопросы и задачи по основным разделам курса коллоидной химин: поверхностные явления и поверхностное натяжение, адсорбционные равновесия, методы исследования дисперсных систем, образование и свойства лнофильных и лно-фобных дисперсных систем. В каждом разделе приведены краткие теоретические сведения и примеры решения задач (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
+01. In the Aftermath (2:23)
+02. Whispers in the Dark (2:35)
+03. Lost in the Shadows (3:33)
+04. Down the Rabbit Hole (3:34)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:42:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B5B4A26540E9FDA9849643CFBD8E51AFE8A892D
+magnet:?xt=urn:btih:A027516A770AF74038773A733FFCB4C959BDA449
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745198   (105132) от 25.08.2024
+###  Публикация: 1730246   (107953) от 14.06.2024
 
-Sugar Bytes - DrumComputer 1.3.5 Standalone, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
+Azrael - Dimensión V (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed, Power, Heavy Metal>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105132.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DrumComputer - это новый специалист по синтетическим барабанам, сочетающий классический и современный синтез с гибкими модуляциями и роскошным секвенированием. Интеллектуальные рандомизаторы, элегантное редактирование паттернов и импорт ваших собственных сэмплов - это лишь некоторые из невероятных возможностей. Наслаждайтесь новыми барабанами каждый день и вдохновляйтесь (   Читать дальше...   )Язык интерфейса: Английский
+1. Ad Aeternum 02:00
+2. Vivir - morir 03:11
+3. Sueños rotos 04:23
+4. Trece rosas 04:42(   Читать дальше...   )Жанр: Speed, Power, Heavy MetalПродолжительность: 00:39:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:715A1D27B8EF15F9AC292002B6611A40510ECF94
+magnet:?xt=urn:btih:5133B7E303F3E10598AF99C288864EA308770C36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,28 +143,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745301   (105131) от 25.08.2024
+###  Публикация: 1730103   (107952) от 14.06.2024
 
-Vanessa Williams - Survivor (2024) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
+PhotoRoom 5.0.1 (b1446) Mod by Maximoff [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107952.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 13.06.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D263CE8F69AF4C5B1D533F1B8727C8B2BF37923F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730099   (107951) от 14.06.2024
+
+Max Greger - Wirtschaftswunder-Stars: Ein Leben Mit Musik (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Big Band, Swing, Pop-Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - American Patrol (00:03:11)
+02 - Blue Tango (00:02:14)
+03 - Brazil (00:01:48)
+04 - Red Roses For A Blue Lady (00:02:03)(   Читать дальше...   )Жанр: Big Band, Swing, Pop-JazzПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69829ADADFBFA0D92EE3752F1B879446D48DAF39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730104   (107950) от 14.06.2024
+
+PhotoRoom 4.9.9 (b1439) Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107950.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.06.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00A09F370F539305A43DE3BA45CFC626A24FC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730123   (107949) от 14.06.2024
+
+Adrienne Pauly - Et Comment Tu Trouves Que J'me Trouve ? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La nuit (00:04:34)
+02 - Anecdotique (00:03:41)
+03 - Message (à tous les mecs !) (00:03:43)
+04 - P'tite cherie (00:04:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFA4625576063DD7A6CB93CF38C44B62491CB1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730092   (107948) от 14.06.2024
+
+VA - DJ Hits Vol. 53 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105131.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. iLike Moonlight [00:04:17]
-02. Legs (Keep Dancing) [00:03:07]
-03. BOP! [00:03:26]
-04. Survivor [00:03:28](   Читать дальше...   )Жанр: R'n'B, PopПродолжительность: 00:47:57
+01. Sir Prise - Love is the answer
+02. Ex-It - Night Fever
+03. Blaxone - Good thimes
+04. Captain Jack - Soldier soldier(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:13:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EBEC8A7D86E5208ABC667E2D83718527B5C1036
+magnet:?xt=urn:btih:A2D7FB787A8600233301E27839C6D3C4F6C59536
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745216   (105130) от 25.08.2024
+###  Публикация: 1729995   (107947) от 14.06.2024
 
-Ventusky: Прогноз погоды v36.2 Mod by youarefinished [Ru/Multi]
+Black Country Communion - V (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105130.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.08.2024Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+01. Enlighten (5:20)
+02. Stay Free (4:30)
+03. Red Sun (6:33)
+04. Restless (5:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25BAB413D51387E5393FA92B1B235EF34EFE3ED0
+magnet:?xt=urn:btih:64D76EBAA4E4AEB443D2021F7D139BAB02216573
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,28 +311,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745250   (105129) от 25.08.2024
+###  Публикация: 1730009   (107946) от 14.06.2024
 
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 6 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
+Aetherian - Studio Albums (3 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105129.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frankman - Sunrise (2015) (6:03)
-02. Jose Padilla - Day One (2015) (6:07)
-03. Alex Niggemann - Boujuma (Matthias Meyer remix, 2012) (7:20)
-04. Groove Cartell - Waiting in Vain (Boddhi Satva Afriki soul remix, 2014) (6:01)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:07:24
+Aetherian — мелодик-дэт-метал группа из Афин, Греция, образованная осенью 2013 года.2015 - Tales Of Our Times
+2017 - The Untamed Wilderness
+2023 - At Storm's EdgeЖанр: Melodic Death MetalПродолжительность: 02:24:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C80F5C45EF1297AF4D22CF237C3E791327041C28
+magnet:?xt=urn:btih:9C11AED30D94D4AEFA5B933CD125A9D2EC342AC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,25 +339,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745219   (105128) от 25.08.2024
+###  Публикация: 1730245   (107945) от 14.06.2024
 
-Все коды регионов. Штрафы ГИБДД v10.00.03 Mod от Alex.Strannik [Ru]
+Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Roots Rock>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105128.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Узнать откуда машина - не проблема! 🚗🚙. По гос.номеру автомобиля вы можете определить из какого региона этот автомобиль, к какому роду войск принадлежит, или за посольством какой страны закреплен. Удобный инструмент для определения региона регистрации автомобиля по индексу в номере. Встроена база по регионам СНГ. Присутствует встроенная игра на запоминание (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 24.08.2024Разработчик: RunIQ SoftПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+01. The Greatest (3:30)
+02. Angel of Mercy (3:44)
+03. Dare to Dream (feat. Graham Nash) (4:09)
+04. Hands Are Tied (4:12)(   Читать дальше...   )Жанр: Classic Rock, Roots RockПродолжительность: 00:43:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F924774A8940C550512E45C3539FBE049A2B2687
+magnet:?xt=urn:btih:44D4590F6596840BDE222E45E64B5D005719AC5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,25 +368,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745255   (105127) от 25.08.2024
+###  Публикация: 1730081   (107944) от 14.06.2024
 
-После. Навсегда / After Everything (2023) BDRip [H.264/720p]
+New Horizon - Conquerors (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105127.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бестселлер об отношениях с Тессой принес Хардину деньги и успех, но оставил с разбитым сердцем. В попытках исправить ошибки давнего прошлого Хардин отправляется из Лондона в знойный Лиссабон, но попадает в новый водоворот страстей. Когда же судьба дарит Хардину и Тессе шанс на счастливый финал, только от них зависит, какой станет последняя глава их истории любви.Производство: США / Voltage Pictures, WattpadЖанр: мелодрамаРежиссер: Кастиль ЛэндонАктеры: Джозефин Лэнгфорд, Хиро Файнс Тиффин, Мими Кин, Луиза Ломбард, Стивен Мойер, Виктория Пейдж Уоткинс, Бенжамин Масколо, Кора Кирк, Лаура Дутра, Наталия РоссеттиПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:33:22
+01. Against The Odds
+02. King Of Kings
+03. Daimyo
+04. Shadow Warrior(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4D8DFC99D785FBA3C3A2E5B5EE7FDDADDAEF688
+magnet:?xt=urn:btih:0FA7FB52203AACC32A5086A5C353C16A2DC0DF0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,25 +397,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745150   (105126) от 25.08.2024
+###  Публикация: 1730062   (107943) от 14.06.2024
 
-R-Studio Network / Technician 9.4 Build 191349 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Ensiferum - From Afar (2009) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105126.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-R-Studio - основанная на новейшей уникальной технологии анализа информации на носителе и обработки данных, R-STUDIO является наиболее исчерпывающим программным решением из доступных на рынке утилит восстановления для файловых систем NTFS, NTFS5, ReFS, FAT12/16/32, exFAT, HFS/HFS+ (Macintosh), Little and Big Endian variants of UFS1/UFS2 (FreeBSD/OpenBSD/NetBSD/Solaris) (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. By The Dividing Stream
+02. Fram Afar
+03. Twilight Tavern
+04. Heathen Throne(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:56:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ADC3E4DB2791BC5B4A2BA1D8E39E2481F77184D
+magnet:?xt=urn:btih:25C4ADECB2FB4D4A4FA96B19A424FA5BA37343A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,210 +426,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745346   (105125) от 25.08.2024
+###  Публикация: 1730129   (107942) от 14.06.2024
 
-Double Commander 1.1.17 gamma + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Double Commander - это свободный, с открытым исходным кодом, кроссплатформенный файловый менеджер с двумя панелями. Целью данного проекта является создание файлового менеджера, аналогичного по функциональности Total Commander и совместимого с его плагинами.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5401D3A2134A417398DE52773900CF21C300EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745379   (105124) от 25.08.2024
-
-WinTools.net Premium 24.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105124.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3844ED4844B049D8DFC541B2B999CDD3FA35C6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745317   (105123) от 25.08.2024
-
-Wondershare PDFelement Pro 11.0.5.3099 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739A92DA5C816C37560A9543068BAB415657B7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745343   (105122) от 25.08.2024
-
-Без любви / The Loveless (1981) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Байкер Вэнс приезжает в небольшой южный городок на встречу с членами своей банды. У ребят есть цель - они собираются поучаствовать в гонках в местечке под названием Дэйтон, но у них барахлит один байк, и они решают задержаться в этом тихом городке, чтобы заняться ремонтом. А пока ребята занимаются ремонтом байка, Вэнс флиртует с дочкой богатенького горожанина...Производство: США / Pioneer FilmsЖанр: драмаРежиссер: Кэтрин Бигелоу, Монти МонтгомериАктеры: Уиллем Дефо, Роберт Гордон, Марин Кантер, Дж. Дон Фергюсон, Тина Л’Хоцки, Лоуренс Матаресе, Дэнни Розен, Филлип Кимбро, Кен Колл, Лиз ГэнсПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397ADAA416D451F5E87866328360C04DBB0FF592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745380   (105121) от 25.08.2024
-
-WinTools.net Premium 24.8.1 Classic / Professional / Premium RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105121.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA16C00E311D227214578BB5F54561814F42256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745313   (105120) от 25.08.2024
-
-Vivaldi 6.8.3381.57 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37EA1B7977F88C023A9318753FB87BA516F968B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745328   (105119) от 25.08.2024
-
-Сообщение от мамы / Nachricht von Mama (2022) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восьмисерийная драма «Сообщение от мамы» рассказывает историю молодого вдовца, потерявшего жену из-за рака. Перед смертью жена оставила ему и их детям сотни видеообращений. «Я смирилась с тем, что умираю. Но не с тем, что оставляю вас одних. Благодаря этим видео я все ещё немного с вами, если хотите», — это одно из многих видеопосланий, которые Элли записала для (   Читать дальше...   )Производство: Германия / Pyjama PicturesЖанр: драмаРежиссер: Феликс Биндер, Sabrina RösselАктеры: Джессика Гинкель, Голо Ойлер, Матильда Смидт, Клаудиа Решель, Юлия Голдберг, Marlene Morreis, Тим Оливер Шульц, Карла Ньине, Люк Мэтт Рёнтген, Matteo Hilterscheid и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1A9F757C197D4A9775EDCFE91257157DD30E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745265   (105118) от 25.08.2024
-
-Carter the Unstoppable Sex Machine - Post Historic Monsters (1983) Remaster, 2024, Chrysalis Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Indie Rock, Alternative Rock>
+VA - Black Hole House Music 06-24 (2024) [MP3|320 Kbps] <House, Progressive House>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105118.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 2 Million Years B.C. (Live in Portsmouth 19/10/1993) [00:00:59]
-02. Spoilsports Personality Of The Year (Live in Portsmouth 19/10/1993) [00:03:59]
-03. Mid Day Crisis (Live in Portsmouth 19/10/1993) [00:03:15]
-04. My Second To Last Will And Testament (Live in Portsmouth 19/10/1993) [00:02:51](   Читать дальше...   )Жанр: Synth-pop, Indie Rock, Alternative RockПродолжительность: 3 CD, 02:58:46
+01. ZOYA & Dennis Sheperd - Purple Skies (Extended Mix) [6:24]
+02. Milkwish - Dynamite (Extended Mix) [5:51]
+03. Funkagenda & Christian Burns - Lost In Chemistry (Extended Mix) [5:02]
+04. Markus Schulz & HALIENE - Death Of A Star (Kris O'neil Extended Remix) [5:45](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:14:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD2D247F68934EE82689556B88FC37940EB76738
+magnet:?xt=urn:btih:21852255DD02CC2D45299358C2AD0872929B2E3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,25 +455,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745350   (105117) от 25.08.2024
+###  Публикация: 1730132   (107941) от 14.06.2024
 
-PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by Dodakaedr [Ru/En]
+Caligula's Horse - Charcoal Grace (2024) 2 x CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105117.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+CD1:
+1. The World Breathes With Me (10:00)
+2. Golem (05:20)
+3. Charcoal Grace I: Prey (07:48)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 02:04:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:494C5617E81FE178FE273A121EBD747B652D03AF
+magnet:?xt=urn:btih:EDD97F3C7CADFF666D780669DF98EAAC0BB2B282
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,25 +484,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745149   (105116) от 25.08.2024
+###  Публикация: 1730112   (107940) от 14.06.2024
 
-Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012, TV, 52] WEBRip 1080p rus
+VA - Armin van Buuren - A State Of Trance 1177 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105116.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История о приключениях суперкоманды из четырех мастеров фантастической игры Надо. С помощью волшебных волчков игроки получают необыкновенную силу, которую используют для борьбы со злом. Надо – это больше, чем игра. Это самое популярное соревнование в мире, во время которого бойцы устанавливают связь с магическими волчками, таящими в себе сверхъестественную силу.Производство: Alpha Animation (Китай)Жанр: ПриключенияЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 52 серии по 24 мин
+01. SMR LVE & Christina Novelli - Serenity
+02. The WLT pres. AlterDNA - Synthesis
+03. P.O.U. & Scott Forshaw - Castles In The Sky
+04. Jeef B - Iconic (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAE36631CF3E062B43F63E5129B04C7EA1317004
+magnet:?xt=urn:btih:0CC69470C3714A0B564E785B9FA6F3E23829EFC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,27 +513,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745179   (105115) от 25.08.2024
+###  Публикация: 1730146   (107939) от 14.06.2024
 
-Крис Колер | Power up! Как Япония вдохнула в игровую индустрию новую жизнь (2023) [MP3, Егор Браун]
+Ensiferum - Victory Songs / From Afar (2017) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105115.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2000-е годы – время расцвета японских видеоигр. Именно тогда были созданы культовые шедевры, знакомые каждому геймеру. Но почему игровые вселенные, придуманные Сигэру Миямото и другими японскими разработчиками, невозможно спутать ни с чем? Эта книга – уникальный рассказ о главных героях игровой индустрии Японии.
-Вы узнаете:
-— Что общего между Mario и сериалом Star (   Читать дальше...   )Жанр: ИгрыИздательство: БОМБОРАПродолжительность: 12:45:50
+Жанр: Epic Folk MetalПродолжительность: 01:47:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8721C1AB362E40BF5447F19BC12C192E90808B0A
+magnet:?xt=urn:btih:82692E7A2750CFD9B924D0A24A66E9B6A3829B58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,25 +539,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745382   (105114) от 25.08.2024
+###  Публикация: 1730125   (107938) от 14.06.2024
 
-WinTools.net Premium 24.8.1 Classic / Professional / Premium RePack (& Portable) by TryRooM [Multi/Ru]
+Campbell & Johnston's Black Market Band - Paisley Hearts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105114.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
+01. Find Your Way (3:53)
+02. Righteous (2:58)
+03. Regrets I've Had a Few (4:49)
+04. Hash and Black Coffee (2:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DA63FA4F273100D42BE5A7865175C3A4A23D5DF
+magnet:?xt=urn:btih:8B65F12003BF81DBDCE93D91AA6992F06D2A775B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,25 +568,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745138   (105113) от 25.08.2024
+###  Публикация: 1730122   (107937) от 14.06.2024
 
-PrivaZer Pro 4.0.92 Portable by 7997 [Multi/Ru]
+Anders Osborne - Picasso's Villa (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Americana, Blues, Singer-Songwriter>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105113.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Dark Decatur Love (6:32)
+02. Reckless Heart (3:58)
+03. Real Good Dirt (6:43)
+04. Picasso's Villa (3:08)(   Читать дальше...   )Жанр: Americana, Blues, Singer-SongwriterПродолжительность: 00:40:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF01D527A676051699EE23C91444B4569351195F
+magnet:?xt=urn:btih:29EED56F2AE6ACEAD8A58D089305B14ED47FDC87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +597,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745206   (105112) от 25.08.2024
+###  Публикация: 1730119   (107936) от 14.06.2024
 
-Суперсемейка 2 / Incredibles 2 (2018) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+Amar Sundy - Homme Bleu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Мультфильмы
->>Мультфильмы (3D)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105112.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БёрдВ ролях: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: дублированныйЯзык озвучки: русский, казахский, английскийСубтитры: русские, английскиеПродолжительность: 01:52:58
+01. Rahala (3:31)
+02. Men'na (4:25)
+03. Rab'ka (4:18)
+04. Ya'nass (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:161A1DBCEA006CD0BD7CC8346F9082AA055DAB35
+magnet:?xt=urn:btih:2028811882361B221A1CC14C4A8A77C5665480F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +626,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745286   (105111) от 25.08.2024
+###  Публикация: 1730008   (107935) от 14.06.2024
 
-Extreme Picture Finder 3.66.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
+Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105111.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для автоматического поиска, скачивания и сохранения любых файлов (картинки, видео, музыка, архивы, флэш и т.д.) с Интернет сайтов, а также для поиска картинок в Интернет по ключевым словам. Extreme Picture Finder позволит Вам автоматически скачать только нужные Вам файлы, избавив от просмотра назойливой рекламы, всплывающих окон и т.д. Просто укажите начальный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Ad Victoriam
+02. Blood Is the Price of Glory
+03. Deathbringer from the Sky
+04. Ahti(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:49:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:856CEA154CC48F480AD72E11A49D850CF860EB5C
+magnet:?xt=urn:btih:64D6FDCD32DC8E10EB165B687A40B67F0CE0FFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730093   (107934) от 14.06.2024
+
+Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symbols
+02. In My Sword I Trust
+03. Unsung Heroes
+04. Burning Leaves(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991272E0858EF8EFAC4C69FD8205EC17D1F90C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730137   (107933) от 14.06.2024
+
+Walt Disco - The Warping (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seed (00:00:57)
+02 - Gnomes (00:03:34)
+03 - Come Undone (00:03:39)
+04 - The Warping (00:03:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAC5556A9A264B9423BAA8C1CF271E05DD33361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730108   (107932) от 14.06.2024
+
+Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107932.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ajattomasta Unesta
+A2 For Those About To Fight For Metal
+A3 Way of the Warrior
+A4 Two Paths(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C21E15A7E0AA1E82F13AE0520D1622A5C0A9E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

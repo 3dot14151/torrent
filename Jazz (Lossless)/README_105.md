@@ -1,3 +1,178 @@
+###  Публикация: 704461   (700554) от 09.05.2017
+
+VA - George Gershwin Songbook (Jazzclub Highlights) (2010) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж Гершвин (настоящее имя Jacob Gershowitz) прожил короткую (1898—1937), но очень яркую жизнь. Перемешавшаяся одесская, петербургская и еврейская кровь бурлила в нем и выходила наружу гениальными произведениями. В 18 лет первый дебют на Бродвее, в 20 - ошеломляющий успех там-же и до смерти в 39 лет великолепные работы, получившие мировое признание.
+С его именем (   Читать дальше...   )01. Billie Holiday - They Can't Take That Away from Me (4:13)
+02. Helen Merrill - Summertime (3:28)
+03. Ella Fitzgerald and Louis Armstrong - Let's Call the Wohle Thing Off (4:15)
+04. Sarah Vaughan - Embraceable You (4:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A421B3A7F3602BE5570851680C7C365E7F789C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402544   (700056) от 15.08.2020
+
+The David Angel Big Band - Camshafts And Butterflies (1973, 1975) 2015, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early Morning Fog Bank/Early Morning Sunrise [5:46]
+02. Camshafts and Butterflies [2:03]
+03. For B and D [7:50]
+04. Perk's Tune [8:34](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83DEC27E658FC3890E55DF8AF429A56FF143CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533938   (699666) от 27.02.2022
+
+Duke Ellington - Things Ain't What They Used To Be (1966, 1969) 1996, LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smada [2:59]
+02. La Plus Belle Africane [12:20]
+03. Azure [7:17]
+04. Satin Doll [5:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039B202BB75B51A977E3A618C2F4D0CDB5F147C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132813   (698982) от 10.05.2017
+
+Johnny Smith Trio - Designed For You (1959) Remaster, 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fools Rush In [02:41]
+02. I'll Remember Clifford [04:09]
+03. The Lady Is A Tramp [02:50]
+04. There Will Never Be Another You [03:11](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12596D6D802815DE46D925D34DDD4D5E9F16A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220828   (698810) от 22.04.2018
+
+Martial Solal - At Newport '63 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poinciana [04:34]
+02. Clouds [03:06]
+03. Suite Pour Une Frise [11:56]
+04. Stella By Starlight [04:21](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A961D30259745987C4732FE23D5A0FB181A5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221056   (698809) от 22.04.2018
+
+Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burt's Pad [09:47]
+02. Marcel The Furrier [06:01]
+03. Ondine [03:10]
+04. Stardust [05:11](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F45EBC89606A5228F6D164D39876F77767F64A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221059   (698808) от 22.04.2018
 
 Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -570,180 +745,6 @@ Jarod Bufe - New Spaces (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94898197900989633E75DE49398413E82FE2A4C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288365   (695929) от 11.03.2019
-
-KAVver. - Vv (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vvozduh (7:11)
-02. Vvoron (6:10)
-03. Vvint (5:00)
-04. Vviujit (4:46)(   Читать дальше...   )Производство: Cuntroll - Cuntroll100Жанр: Dark Jazz, Post Jazz, Post Rock, Kraut Rock, Trip Hop, Guitar AmbientПродолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23892C25EEB78EB7439817DA11887330FA2504A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288459   (695927) от 11.03.2019
-
-Jens Haack - Smokers Lounge (2011) Stunt Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Ballads>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn in New York [7:46]
-02. Smokers Lounge [6:53]
-03. Skylark [5:33]
-04. It's All About Love [7:58](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Pop, BalladsПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1C0CC4E54D151DB2539973F584CB6895BD955B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288446   (695925) от 11.03.2019
-
-Roxy Coss - Restless Idealism (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cross the Coss (04:12)
-02. Waiting (06:33)
-03. Push (05:11)
-04. Perspective (05:30)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE992861826FF32B137E54213868FB27B2103527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133447   (695202) от 12.05.2017
-
-Chet Baker - Cool Cat (1989) [WavPack|Lossless|image + .cue] <Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695202.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Swift Shifting (7:25)
-2. 'Round Midnight (10:19)
-3. Caravelle (5:54)
-4. For All We Know (5:14)(   Читать дальше...   )Жанр: Cool JazzПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089CA7FFB50959161BBB87307C29F05256CEC901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133149   (695187) от 12.05.2017
-
-Freddie Hubbard - Live In Warsaw (1991) 2001, Past Perfect [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolivia [13:00]
-02. God Bless The Child [12:54]
-03. All Blues [17:11]
-04. Dear John [17:02]Жанр: Hard Bop, Post-BopПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8F8BBEDA7C02628A6FE92E9B0C1D9407438F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027865   (694937) от 20.06.2016
-
-David “Fathead” Newman - Fathead: Ray Charles Presents David Newman (1958) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hard Times [04:42]
- 02.Weird Beard [04:47]
- 03.Willow Weep For Me [04:57]
- 04.Bill For Bennie [04:15](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8472777CBBCAC55AD89123DBDB287A553ED8C41C
 ```
 
 https://mybot314.ru/tekegram_catalog/

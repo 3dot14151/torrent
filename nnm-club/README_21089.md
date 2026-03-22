@@ -1,396 +1,25 @@
-###  Публикация: 1661597   (188554) от 15.09.2023
+###  Публикация: 1588676   (191429) от 05.11.2022
 
-VA - Nothing But...Ibiza Closing Party 2023 Deep House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack District - Want You [06:27]
-02. Manager - I Can Feel It [06:34]
-03. Isaac Nightingale - On The Floor (Extended Mix) [04:11]
-04. George Kafetzis - Sailing (Radio Edit) [03:35](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89CFA6653CA662584058A14145CAAA09C69C2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590656   (188553) от 15.11.2022
-
-In Grief - An Eternity of Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Dark Veil (07:38)
-02. Ярна (06:28)
-03. Curse My Soul (05:34)
-04. Queen of Babylon (05:18)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FF69A2764CCD757275AADBD45CB0E18AA1EB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661538   (188552) от 15.09.2023
-
-Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anticipation (3:22)
-02. It Was So Easy (3:10)
-03. Alone (Demo) (3:08)
-04. The Best Thing (4:24)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D773C40C9E2ADA422DC40E6C00C4168E02C4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590654   (188551) от 15.11.2022
-
-Feleth - 2 Albums (2020, 2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ember (feat. Karl Øystein Langedahl) [00:04:13]
-02. Hollow Words [00:03:26]
-03. Ravenous [00:04:11]
-04. Arise [00:04:19](   Читать дальше...   )Жанр: Melodic Death, Doom, Technical Death MetalПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE97F2B9F0B4B94586F87944FCDC5ED6B128BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590741   (188550) от 15.11.2022
-
-Pieces Of Molly - Pieces Of Molly (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Atomic Fuzz
-02 I Don't Wanna
-03 Banshee
-04 Don't Shine A Light Into The Dark(   Читать дальше...   )Жанр: Heavy Rock'n'Roll, StonerПродолжительность: 00:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC04CBECCBF11F21B6514378EA6444E244AB25D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661631   (188549) от 15.09.2023
-
-Журнал | Юность №2 (февраль 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188549.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
-До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F423DC6D61D58AA2F4A6991F56716E7FAF108261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661593   (188548) от 15.09.2023
-
-V.A. - Beach Bar Chill Grooves, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive - Run
-02. Project Blue Sun - Don't Leave Me
-03. Sunset Boulevard Project - Pearl In A Shell
-04. Nexus 5 - Skydancing(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 02:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0A8DF6CEBFF3FD784541E70B1B1ED5DD7C6A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590742   (188547) от 15.11.2022
-
-Hydranaut - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock n Roll Rabbit hole [00:01:51]
-02. Sweller [00:02:32]
-03. Who put the gutter here? [00:03:32]
-04. Chaser [00:02:52]Жанр: Heavy Rock'n'Roll, Psych, StonerПродолжительность: 2 CD, 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A435C615A2D6AFDD59F29645E821BEC2E1CB44B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661490   (188546) от 15.09.2023
-
-Эдит Холл | Счастье по Аристотелю (2022) [MP3, Никита Карасов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слова «счастье», «счастливый» мы слышим на каждом шагу. Мы хотим быть счастливыми. Но что такое счастье? Аристотель первым из философов занялся изучением этой субъективной модели. Автор книги, полностью соглашаясь с утверждением Аристотеля о том, что главный долг человека и его великий дар – это стремление к личному счастью, помогает нам пройти путь к его обретению (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: ЛитРес: чтецПродолжительность: 08:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42D389107AA11225F8F01936B1CDAEE267CC8E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590716   (188545) от 15.11.2022
-
-Eyes Wide Open - Through Life and Death (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World on Fire (1:16)
-02. Devastation (3:40)
-03. Fallout (3:28)
-04. Burn 'Em (3:19)(   Читать дальше...   )Жанр: Modern Metal, Melodic Death MetalПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8BDD5A5CF43695190ED75B29483BB38204B623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661630   (188544) от 15.09.2023
-
-Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave You Or Forsake You
-02. Reason To Rock
-03. It's Not Late For Love
-04. Somebody's Watching You(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590651   (188543) от 15.11.2022
-
-Jerky Dirt - Chirality (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrift On Synaptic Seas
-02. Through The Mirror
-03. This Seems Familiar
-04. Another Life(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, GrungeПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F520D838B9E6C03543A083135FDDF9F661F943F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661638   (188542) от 15.09.2023
-
-Opera GX 102.0.4880.55 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B2A5BDFA951ADB9424E8CD08E0F132B9E23042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590729   (188541) от 15.11.2022
-
-The Grey Curtain - The Florist (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+STEAMER - Phoenix Lepidoptera (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188541.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191429.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Florere 00:43
-02. Crippled 04:37
-03. Burn That Bridge 03:41
-04. White Picket Fence 04:08(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:07:52
+01. Wildside [00:05:26]
+02. Run [00:04:30]
+03. From the hills [00:06:04]
+04. Love or Pain [00:04:13](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDAE1703714F6DBB2E2F46BC59D4CCEB3FD73A2A
+magnet:?xt=urn:btih:6B4029A4206FC5874D1EC2D0A4F0308DAE5732BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590744   (188540) от 15.11.2022
+###  Публикация: 1588586   (191428) от 05.11.2022
 
-Desert Dragon - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Пятеро на одного (29.10.2022) WEBRip [H.264/720p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188540.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bad Luck [00:03:51]
-02. God Bless Miss America [00:04:42]
-03. Swamp Thing [00:04:53]
-04. What It Means to Me [00:04:46](   Читать дальше...   )Жанр: Hard RockПродолжительность: 3 CD, 01:47:23
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB2AE3061CB7B7ACE3D8B5A2321CE17F56348A8A
+magnet:?xt=urn:btih:B3834938DAC6FDD6711AC57CB8956690AD98A1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661633   (188539) от 15.09.2023
+###  Публикация: 1658378   (191427) от 07.09.2023
 
-Speedtest от Ookla 5.1.1 Mod by 0x7d [Ru/Multi]
+Советские военные карты PRO / Soviet Military Maps PRO 7.0.0 Mod by Timozhai [Ru/Multi]
 
 >>Архив торрентов
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188539.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.09.2023Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Это приложение для навигации по бездорожью по мировым топографическим картам (главным образом – карты советского генштаба). Кроме русских, есть еще много других подробных и актуальных карт, ортофотопланов и слоев. У Вас будет возможность получить последние карты со спутников поисковика Google, имеется доступ к уличным картам. Вы можете сохранить до десятка маршрутов, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 24.03.2023Разработчик: ATLOGIS Geoinformatics GmbH & Co. KGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9A60B55ED1FDF675D76FB2263D53D4781DA1D9D
+magnet:?xt=urn:btih:410FE2451DFBB6B94668D9AA8A278E6A2A863D49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,26 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661690   (188538) от 15.09.2023
+###  Публикация: 1658407   (191426) от 07.09.2023
 
-Журнал | Юность №4 (апрель 2023) [PDF]
+Последняя королева / La derniere reine / The Last Queen (2022) WEBRip [H.264]
 
->>Журналы
->>Другие журналы
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188538.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
-До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Изначально электронное (ebook)
+События фильма разворачиваются в 1516 году. Алжирский эмир Селим-Эвтеми обращается к турецкому пирату Аруджу Барбаросса, чтобы он помог освободить Алжир от испанского гнета. Барбаросса быстро избавился от испанцев, но на этом не остановился и убил самого эмира, опьяненный властью и красотой его жены Зафиры. Прекрасная Зафира отвергла жестокого пирата и бросила вызов (   Читать дальше...   )Производство: Франция, Алжир, Тайвань, Саудовская Аравия, Катар / 2 Horloges Production, Agat Films & Cie, Birth, CADCЖанр: Драма, приключения, историяРежиссер: Адила Бендимерад, Дамьен ОнуриАктеры: Адила Бендимерад, Дали Бенссалах, Мохамед Тахар Зауи, Имен Нуэль, Надя Терешкевич, Янис Ауин, Лила Туши, Мина Лахтер, Тену Хилули, Мерьем МеджканеПеревод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:48:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FE163A31ACAB306AF8E748AA775AB3A587C400E
+magnet:?xt=urn:btih:AAE7034C6AE0A2099EAA36835C013B8B3A1173B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,28 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590747   (188537) от 15.11.2022
+###  Публикация: 1588682   (191425) от 05.11.2022
 
-Ever Since Eve - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+Rott - Phantom Fuzz (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Fuzz Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188537.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AFTERMATH3.0 [00:03:28]
-02. SALVATION [00:03:31]
-03. STRANGER TIMES, OUR LAST DESIGN [00:03:25]
-04. INTERLUDE (ALL ALONE) [00:01:45](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:38:33
+01. Eden [00:10:02]
+02. Velvet Tongue [00:00:43]
+03. Cottonmouth [00:03:26]
+04. Phantom Fuzz [00:04:31](   Читать дальше...   )Жанр: Sludge, Doom, Fuzz RockПродолжительность: 00:43:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33C5BFE3E3361CD24D1716625EA0523ED31E3CDF
+magnet:?xt=urn:btih:9734CF7B6C80AFBE46FB3C43628D1624E79B7361
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +134,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661655   (188536) от 15.09.2023
+###  Публикация: 1658233   (191424) от 07.09.2023
 
-Лорел и Харди. Летающие слоны / Flying Elephants (1928) WEBRip [H.264/720p-LQ]
+Андрей Валерьев | Фаранг (Книги 1,2) (2012) [MP3, Дмитрий Хазанович]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188536.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лорел и Харди в доисторические времена соперничают за руку одной и той же красавицы каменного века. Забавный фильм. Понравился обряд регистрации брака.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Фрэнк Батлер, Хэл РоачАктеры: Стэн Лорел, Оливер Харди, Дороти Коберн, Бадд Файн, Джеймс Финлейсон, Фэй Ланфир, Эдна Мэрион, Джон Нортпол, Ширли Палмер, Виола РичардПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русскиеПродолжительность: 00:19:58
+"Жизнь прекрасна!!!"- думал Виктор Егоров, типичный офисный планктон, отправляясь в Турцию в разгар сезона подписывать с партнёром незначительный договор и, надеясь справиться достаточно быстро, чтобы провести остаток командировки на пляже под солнышком.
+"Жизнь замечательна!!!"- пела его душа, а глаз радовала очень красивая соседка в самолёте... (   Читать дальше...   )Жанр: Фантастика, ПопаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 18.09.51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18EB1778BF0D4655234899B3BC6BE0D378EBD5D4
+magnet:?xt=urn:btih:FEDC6BF2B00F3FE272107F918CF80CCFFA0D7B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,28 +161,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590713   (188535) от 15.11.2022
+###  Публикация: 1588619   (191423) от 05.11.2022
 
-Wizards - Seven (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
+Untimely Demise - 4 Albums (2011-2022) [MP3|320 Kbps] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188535.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro [00:01:02]
-02. Pain [00:02:54]
-03. Living Undercover [00:03:26]
-04. Rising Sun [00:03:55](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:38:22
+Список альбомов:
+2011 - City Of Steel
+2013 - Systematic Eradication
+2018 - No Promise of Tomorrow(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 4 CD, 02:25:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD54E00EF714E950FB1E8DB69906D168111279FD
+magnet:?xt=urn:btih:ABEDACB3EAFDD0ACC120045210BAEB9D8991F928
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,25 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661629   (188534) от 15.09.2023
+###  Публикация: 1588554   (191422) от 05.11.2022
 
-Brave Browser 1.58.124 [Multi/Ru]
+Jack Teagarden - The Complete Roulette Jack Teagarden Sessions (1959 - 1961) 4CD, 2003, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188534.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
+CD1:
+01. Jack Teagarden Introduces the Band [1:37]
+02. That's a Plenty [5:30]
+03. Tin Roof Blues [4:46](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 04:27:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A220935DEBB0A41FD72F081E7B31DEF5A39A93A
+magnet:?xt=urn:btih:B61228C8E1F153C03961E47B5A6914741BC41091
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,28 +219,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590647   (188533) от 15.11.2022
+###  Публикация: 1588572   (191421) от 05.11.2022
 
-Illvilja - Endless Rivers (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Минтранс (05.11.2022) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8897A230A406E62D23BD072F5F5C3D5EFCE3E74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588604   (191420) от 05.11.2022
+
+Saint - Heaven Fell (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188533.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Intro (01:30)
-02 - Nothing Feels Like Sorrow Does (05:03)
-03 - I'm the Dragon (Album Version) (04:30)
-04 - In Solitude (03:50)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:29
+01. Holier Than Thou
+02. Creatures
+03. Dance Of The Gods
+04. Morning Star(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03B32048C2ADB140079F2E542CC343BE5B84A503
+magnet:?xt=urn:btih:C0FF8C804DCA8434FDF6E648F12A6332518F546F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,25 +274,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661586   (188532) от 15.09.2023
+###  Публикация: 1588557   (191419) от 05.11.2022
 
-Журнал | Системы безопасности №2 (170) (апрель-май 2023) [PDF]
+The Airmen Of Note - The 2021 Jazz Heritage Series (2021) Department of the Air Force [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188532.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В центре внимания журнала – системы охранно-пожарной сигнализации, CCTV, контроля доступа, инженерно-технической защиты, оперативной связи, антитерроризма, информационной безопасности, специальной техники для правоохранительных органов, охранные услуги и многие другие аспекты безопасности.Жанр: БезопасностьИздательство: ООО "Гротек"Формат: PDFКачество: Изначально электронное (ebook)
+01. Means and Ends [6:10]
+02. Chant [7:13]
+03. Jive Coffee [8:54]
+04. With a Song in My Heart [6:26](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:12:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73FC6A8BCC54BD627C8A5DDFCEAC74A20B4DD838
+magnet:?xt=urn:btih:73082B2C79326D1B13EFD2F28C22CD4D5B96BA16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,25 +303,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661544   (188531) от 15.09.2023
+###  Публикация: 1588512   (191418) от 05.11.2022
 
-Lucky Patcher 10.9.1 [Ru/Multi]
+Sodom - 40 Years At War: The Greatest Hell Of Sodom (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sepulchral Voice 3:55
+02. After The Deluge 5:00
+03. Electrocution 3:20
+04. Baptism Of Fire 4:00(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F319958AC324F323B5CAC6D711EB4F2559666348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588590   (191417) от 05.11.2022
+
+Микеле д'Иньяцио | Безработный Дед Мороз. Приключения под Новый год. Книга 1 (2022) [MP3, Михаил Лукашов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычная и смешная новогодняя история о новой работе Деда Мороза и о том, что у желаний нет срока годности и в жизни всегда есть место чуду!
+С давних времен Дед Мороз в новогоднюю ночь развозит подарки (а в остальное время года – бьёт баклуши и жуёт суши). Работает он всегда честно и старательно. За все годы ни одной потерянной посылки!
+Но однажды настали тяжёлые (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BF62E4C2B6A25A2FD6D9FDAAD9E357DF2674A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657701   (191416) от 07.09.2023
+
+Исследование показывает, что вейпинг может снизить количество сперматозоидов у мужчин и уменьшить их яички
+
+>>След.
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые предупреждают, что вейпинг может снизить количество сперматозоидов, лишить либидо и уменьшить яички.В исследовании самцов крыс эксперты из Турции проверили, какое влияние воздействие дыма от электронных сигарет и обычных сигарет оказывает на сексуальное здоровье грызунов.Они измерили, сколько сперматозоидов могут производить животные, как выглядели их яички (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588700   (191415) от 05.11.2022
+
+MotoGP. Этап 20. Гран-при Валенсии. Квалификация (05.11.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191415.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 ноября 2022, суббота. 16:10 МСК. Этап 20, Испания. Гран-при Валенсии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA38141A4B38908D73D1D33C328796CDB850E0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657302   (191414) от 07.09.2023
+
+Alt SwitchER 19.5 Portable [Ru]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188531.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lucky Patcher (Лаки патчер) – отличное решение если вам вдруг нужно вырезать лицензию из приложений. Некоторые игры и программы имеют стандартный код взаимодействия с Google Play, но при этом очень сильные инструменты защиты от изменения. Лаки патчер сканирует ваше устройство и собирает информацию про все установленный приложения, а потом сортирует их в удобные списки, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 14.09.2023Разработчик: ChelpuSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Alt SwitchER - программа для автоматического исправления "раскладки" слова (с возможностью отключения, назначения программ-исключений), а также автообучением и возможностью "ручного" добавления слов в пользовательский словарь и словарь исключений.
+Alt SwitchER прекрасная альтернатива таким программам, как Punto switcher и Caramba Switcher. В отличие (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5D8962DE755B108DB53B814A20D84F2D42BD496
+magnet:?xt=urn:btih:91E5EE7CD6A0F59A824974B2B16602DC85A913C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,26 +439,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661636   (188530) от 15.09.2023
+###  Публикация: 1658292   (191413) от 07.09.2023
 
-Журнал | Юность №3 (март 2023) [PDF]
+Игорь Хорохоршин | Соблазняй, покоряй, раздевай (2021) [PDF, FB2, EPUB, RTF]
 
->>Журналы
->>Другие журналы
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188530.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
-До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Изначально электронное (ebook)
+Начнём с того, что изначальное общение с женским полом – довольно тяжёлый процесс. При отсутствии знаний и опыта первое свидание может стать провальным. Важно проявлять заинтересованность, акцентировать внимание на мелочах и постоянно работать над собой и своим поведением. Если оказывать девушке должное внимание и относиться к ней с уважением, высокая вероятность, (   Читать дальше...   )Жанр: о психологии популярно, секс / секс-руководства, эротическая литератураИздательство: АвторФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:852EE4665973236AD0604EF4D20669C1C5425689
+magnet:?xt=urn:btih:F2B1E9E5BC03E97B1283EECE9CBC507799B9F322
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,25 +465,247 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661552   (188529) от 15.09.2023
+###  Публикация: 1588560   (191412) от 05.11.2022
 
-ZEDGE 8.17.0-beta Mod by derrin [Ru/Multi]
+The Airmen of Note - Openers! (2014) Department of the Air Force [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [4:17]
+02. Struttin' with Some Barbecue [4:33]
+03. My Romance [4:26]
+04. You Can Have It [3:47](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E237EF260C7202E5B236DCDB52A9233C77FB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658308   (191411) от 07.09.2023
+
+Vit Registry Fix Pro 14.8.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188529.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ZEDGE - приложение в котором вы сможете найти новые рингтоны, обои, иконки приложений и множество другого. Более 200 миллионов установок. Хотели ли вы когда-то поставить HD-обои на ваш главный экран? Приложение поможем вам с этим! Огромный выбор различных обоев в замечательном качестве. Если же вы хотите поискать обои какой-то определенной тематики, то для вас у (   Читать дальше...   )Тип издания: Full (Subscribed)Релиз состоялся: 08.09.2023Разработчик: ZedgeПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Vit Registry Fix Pro - мощная программа для очистки реестра от ошибок и устаревших данных. Программа обладает мощным автоматическим средством сканирования и удаления ошибок самых разных типов. Vit Registry Fix может находить более 50 вариантов разновидностей ошибок в реестре.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83C16A2CF8847016BF14670BD622154F87CAD884
+magnet:?xt=urn:btih:421418C6776A59ED42413715C8F4AC4CBBCCFF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588526   (191410) от 05.11.2022
+
+Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. History
+02. Operator
+03. Backstreet Heaven
+04. You Are An Angel(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FF47974EC6587E0C71875DD9BAFBEE545CA1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588612   (191409) от 05.11.2022
+
+Blue System - Hello America (1992) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romeo & Juliet
+02. Crossing The River
+03. I Will Survive
+04. I Like Your Sexy Body(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4697F0C9B0B68821306171D22BE5E75DA7B059D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658356   (191408) от 07.09.2023
+
+Алексей Осадчук | Андердог (Книга 8). Ренегат. (2023) [MP3, Константин Цыбульский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191408.jpg" />
+</div>
+
+
+###  Подробнее
+
+В восьмой книге серии, в завершающем её романе «Ренегат», матриарх кобольдов Лу-Моа просит Эрика найти портал в закрытый город, чтобы переселиться туда со своим народом. Но искренна ли она с героем? Меж тем Эрику открывается перспектива заключить договор с богиней Керой и заручиться её поддержкой. Можно ли ей доверять? Каждый шаг, даже кажущийся успешным, может обернуться (   Читать дальше...   )Жанр: Боевое фэнтези, героическое фэнтези, LitRPGИздательство: 1С-ПаблишингПродолжительность: 14:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E014FBD8C928E6991FB7209B916BF77C0DBCFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733995   (191407) от 07.09.2023
+
+Мальчишки (1978) TS (серии 1-2 из 2)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191407.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам повести Льва Кассиля "Дорогие мои мальчишки".
+Герои телефильма — подростки, заменившие отцов и старших братьев, ушедших на войну, и разделившие со взрослыми все тяготы Великой Отечественной войны.Производство: СССР, ТО "Экран"Жанр: драма, военныйРежиссер: Вадим ЗобинАктеры: Саша Силин, Света Волкова, Катя Валюжинич, Павел Ренгач, Дима Леонов, Нина Ургант, Владимир Кашпур, Виктор СергачевСубтитры: ОтсутствуютПродолжительность: 01:08:43 + 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083310DE6485EA22C7218FF5E28F8B7CA9575E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658369   (191406) от 07.09.2023
+
+Юрий Винокуров, Олег Сапфир | Кодекс Охотника (Книга 13) (2023) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я уже окончательно понял, что "отдых" не задался. Да, к чёрту, мне приходится крутиться как белка в колесе! И это при том, что белки еще до нас не добрались…
+Но и без этих долбанных мохнатых расистов мне хватает головной боли. Куда не ткнись - все хотят покарать "жалкого барона". Ну, удачи… Ха-ха!!!Жанр: Боевое фэнтези, Бояръ-Аниме, ПопаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 07:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534CCF6289DF87633939C1CB14AEE039B868E206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658200   (191405) от 07.09.2023
+
+Udemy, Very Academy, Zander | Full Stack - React Django DRF Channels Project - djChat (2023) WEBRip [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191405.jpg" />
+</div>
+
+
+###  Подробнее
+
+The course focuses on building a chat server administration API and integrating it with a front-end templating framework. It also covers API integration and building chat services with features like authentication.
+
+The first module covers source control and project initiation, including creating a new Django DRF project and configuring environment variables. It (   Читать дальше...   )Производство: Udemy, Very AcademyЖанр: React, Typescirpt, Django, DRF, RESTЯзык озвучки: АнглийскийПродолжительность: 28:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658354   (191404) от 07.09.2023
+
+Geek Uninstaller 1.5.2 Build 165 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geek Uninstaller - удобный, маленький и надежный, не требующий установки деинсталлятор, разработанный, чтобы помочь пользователям произвести деинсталляцию программ, установленных в системе. В отличие от других деинсталляторов, программа осуществляет глубинные процессы сканирования и очищает ваш ПК от того, что осталось после удаления.
+Поддерживает удаление "магазинных" (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C5F045FF919A93C792EC7E764F44FF02B0A917
 ```
 
 https://mybot314.ru/tekegram_catalog/

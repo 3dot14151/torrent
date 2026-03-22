@@ -1,25 +1,24 @@
-###  Публикация: 1631521   (244805) от 06.05.2023
+###  Публикация: 492104   (247866) от 05.05.2012
 
-Adrian Benegas - Arcanum: El Mantra Secreto De Los Espíritus (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+VA - Клубный Танцпол Лето Vol.1 (2012) [MP3|320 кб/с]<Club, Pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244805.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Am The Revenant (Prologue)
-02. Sanctum
-03. The Secret Within
-04. Pain Is The Key(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:56:50
+1. 2345 & 5Ivesta Family - Я Буду (DJ Fisun remix one) (2:38)
+2. Adele - Rolling In The Deep (Maison & Dragen Bootleg) (7:06)
+3. Andrea Tarsia - Im The One (DJ Brizi & Delexy Remix)2012Жанр: Club, PopПродолжительность: 04:19:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92A190E073511D85D2E6A30C3E5645A5706BB012
+magnet:?xt=urn:btih:E2AC36B3F9C54D8B31B0D296D4C259570EA9CD4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621147   (244804) от 24.03.2023
+###  Публикация: 1833800   (247864) от 02.11.2025
 
-Mike Zito & Albert Castiglia - Blood Brothers (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+PBS. American Experience: Осуждение Роберта Оппенгеймера / The Trials of J. Robert Oppenheimer (2008) WEB-DL [H.264/1080p] (сезон 21, серия 1 из 10)
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежные TV-бренды
+>>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244804.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hey Sweet Mama (3:36)
-02. In My Soul (4:48)
-03. Tooth and Nail (4:40)
-04. Fool Never Learns (3:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:34
+Биография Роберта Оппенгеймера - одной из ключевых и неоднозначных фигур в американской науке ХХ столетия. Номинант Оскара, актер Дэвид Стрэтэйрн («Доброй ночи и удачи», «Ультиматум Борна») исполняет роль Роберта Оппенгейма. В фильм также вошли интервью с бывшими коллегами ученого и его выдающимися учениками. Прослеживается жизненный путь Оппенгеймера: детство в (   Читать дальше...   )Производство: США, David Grubin Production Inc., WGBHЖанр: документальный, военный, биография, история, наукаРежиссер: Дэвид ГрубинУчастники: Дэвид СтрэтэйрнПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:49:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84E46543CA98EF5345048369049FEA32AC6C2303
+magnet:?xt=urn:btih:A2ADC613831AA3DC213064484F404735EE5162BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,54 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609655   (244803) от 04.02.2023
+###  Публикация: 492162   (247862) от 05.05.2012
 
-Anzillu - Ex Nihilo (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Needles (On My Nerves) (03:45)
-02. Mental Graveyard (04:02)
-03. Trumpets of War (04:14)
-04. The Cleansing Flame (03:27)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59256F9A6F8FC8EA386A8B8F642F92EDBE758CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631636   (244802) от 06.05.2023
-
-Photo Supreme 2023.1.1.4880 RePack (& Portable) by elchupacabra [Multi/Ru]
+Валя - Дали ти стиска (2012) [H.264/1080р] WEBRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244802.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Жанр: PopПродолжительность: 00:03:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E242C2303D2AD01086082C745241E60BE87D0E4
+magnet:?xt=urn:btih:7F5B59E2CB4A6A1C3BFD044AAC589E271EEB549B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,109 +78,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540976   (244801) от 01.04.2022
+###  Публикация: 491977   (247858) от 05.05.2012
 
-Жуткая семейка / Una famiglia mostruosa (2021) BDRemux [H.264/1080i]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выходя замуж, любая девушка осознает, что выходит замуж не только за него, но и за всю его семью. Молодожены Луана и Адальберто узнают, что скоро станут родителями, и молодому супругу ничего не остается, как представить свою прекрасную жену семье. Но Луана себе даже не представляет, что она породнилась с вампирами, зомби, ведьмами и призраками.Производство: Италия,  Italian International FilmЖанр: комедияРежиссер: Вольфанго Де БиазиАктеры: Эмануэла Реи, Кристиано Каккамо, Массимо Гини, Люсия Оконе, Паскуале Петроло, Илария Спада, Паоло Калабрези, Барбара Буше, Пиппо Франко, Сара ЧоккаПеревод: Дублированный (Кинопоиск HD)Субтитры: английскиеПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABD9913406F43EA415CA123F1CF1CC8E3415445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529522   (244800) от 06.02.2022
-
-Chilhouette - Questions (2015) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sights from Within (5:13)
-02. Feel the Music (4:54)
-03. All I Wanna Be (4:12)
-04. Cold as Ice (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EA07480CA7FD2C18A1ECF1410853840C37F52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621373   (244799) от 24.03.2023
-
-Lian Ross - 4You (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Can You Love Me
-02. Take My Hand
-03. My Love(   Читать дальше...   )Жанр: Euro-Disco |Продолжительность: 01:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D911FC959A1106593C67683BCDA61651F5A2039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625060   (244798) от 08.04.2023
-
-BurnAware Professional 16.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Putrified - Neurotic Necrotic (2012) [MP3|320 кб/с]<Death Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244798.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+1. Neurotic Necrotic 03:18
+ 2. They Speak 03:18
+ 3. Behold the Butchered 01:28
+ 4. Havoc 00:50
+ 5. A Chamber Beneath 03:16Жанр: Death MetalПродолжительность: 00:33:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DC8548438B8E1CA1D4206411DD78FF42E84412A
+magnet:?xt=urn:btih:DE8AB9BE84C82152A77CC242996272729E3DF25F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,28 +108,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067971   (244797) от 31.10.2016
+###  Публикация: 492012   (247856) от 05.05.2012
 
-Eliptic - Evolve Or Die (2016) [MP3|320 Kbps] <Thrash Metal>
+Lumpur - Skema Pembalasan Sempurna [ep] (2012) [MP3|320 кб/с]<Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fenomena Dosa Dan Takdir 03:29
+ 02. Deklarasi Penuh Luka 03:33
+ 03. Skema Pembalasan Sempurna 03:01
+ 04. Dengan Setengah Jiwa 03:492012Жанр: Brutal DeathПродолжительность: 00:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536C14153F36F8861B3F2C0CB6EEC143E2916746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833964   (247855) от 02.11.2025
+
+Talksy: Навык общения v0.1.8 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма оригинальное приложение, способное помочь вам в совершенствовании навыков общения. Позволяет тренировать как словарный запас разговорной речи, так и чёткость, дикцию, качество общения. В приложении предоставлено множество полезных заданий.Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: Korop AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4A2F506378A128578845762A69792A18EEADF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492485   (247854) от 05.05.2012
+
+[Wallpapers] Best HD Wallpapers Pack (05.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA74CCEA4FDBB784AF5197EAFC7961397CE1785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833965   (247853) от 02.11.2025
+
+Food.ru: пошаговые рецепты v02.14.00 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Food.ru — это пошаговые рецепты и мобильное приложение про все, что связано с едой. Любите готовить и хотите получать новые рецепты бесплатно? Или учитесь готовить еду и хотите делать правильно все, от готовки до сервировки? Тогда вам поможет наша база знаний:
+- кулинарные обзоры;
+- советы от шеф-поваров;
+- подборки и лайфхаки;(   Читать дальше...   )Тип издания: ModРелиз состоялся: 01.11.2025Разработчик: X5MediaПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F837A18922EA73C925560AD0B8E19BC2AA7C7CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659347   (247851) от 02.11.2025
+
+Хижина дяди Тома / Onkel Toms Hutte / Uncle Tom's Cabin (1965) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая экранизация всемирно известного одноименного романа Гарриет Бичер-Стоу, в котором с большим реализмом изображаются ужасы рабовладельческой системы в Америке.Производство: Франция, Италия, ФРГ, Югославия / Авала-фильм, CCC Filmkunst GmbH, Debora FilmЖанр: ДрамаРежиссер: Геза фон Радваньи / Géza von RadványiАктеры: Джон Кицмиллер, Херберт Лом, Олив Мурфилд, О.В. Фишер, Катана Кайэтано, Михаэла Май, Милен Демонжо, Чарльз Фоусет, Вильма Дегишер, Томас ФритшПеревод: Дублированный (советский дубляж, Мосфильм)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D25FF3FBE192EA89898E51E0E00E1004584B575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491975   (247850) от 05.05.2012
+
+Windhand - Windhand (2012) [MP3|320 кб/с]<Stoner Doom>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244797.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247850.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Evolve or Die 03:07
-02. Beyond Death 02:48
-03. Dirty Tool 03:51
-04. The Menacing 03:28(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:45
+01. Black Candles (06:08)
+ 02. Libusen (08:19)
+ 03. Heap Wolves (05:04)
+ 04. Summon The Moon (10:44)
+ 05. Winter Sun (11:50)2012Жанр: Stoner DoomПродолжительность: 00:42:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48458B9650548F23662432993ECE5C93323F254F
+magnet:?xt=urn:btih:FBE531A3ACE4D24812B2121E4100FFEBFD4DD375
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +274,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566587   (244796) от 30.07.2022
+###  Публикация: 492484   (247849) от 05.05.2012
 
-ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack [FLAC|Lossless|image + .cue] <Blues Rock, Southern Rock, Soundtrack>
+[Wallpapers] Computer Desktop Wallpapers Collection (05.05.12)
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244796.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пятницу, 22 июля, вышел RAW, новый альбом оригинального состава ZZ Top - Billy F Gibbons, Frank Beard и Dusty Hill - созданный в исключительных обстоятельствах. Альбом, выпущенный на лейбле Shelter Records/BMG, был записан в Gruene Hall в Техасе совместно с документальным фильмом ZZ Top: That Little Ol' Band from Texas, номинированным на премию GRAMMY. Режиссер (   Читать дальше...   )01. Brown Sugar (4:18)
-02. Just Got Paid (3:50)
-03. Heard It On The X (2:51)
-04. La Grange (4:42)(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, SoundtrackПродолжительность: 00:46:09
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37DBE0211906FA9A3AEED0CA53E9252F1BC0C693
+magnet:?xt=urn:btih:4E19A7FF1B6830F82F164D0D101635ECE8930FB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,28 +300,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529402   (244795) от 06.02.2022
+###  Публикация: 1833770   (247848) от 02.11.2025
 
-VA - My Chillout Playlist (2022) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+Джессами Хибберд | Синдром самозванца. Как вырваться из ловушки токсичного мышления (2021) [PDF, MP3, Дмитрий Шабров]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244795.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247848.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crossing Colors - Bright Sun Rays (5:33)
-02. Unbekannter Interpret - Capturing the Moment (5:46)
-03. Wohltat - Crop Circles (5:41)
-04. Diario - The Love That Remains (6:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:42:47
+Синдром самозванца – это явление, при котором люди считают себя недостойными успеха. Они убеждены, что получили все благодаря удаче или другим не зависящим от них причинам, и боятся, что их некомпетентность и несостоятельность в конечном итоге будут раскрыты. Поэтому у таких людей нет возможности радоваться своим достижениям, а значит, и вообще жизни.Жанр: ПсихологияИздательство: БиблосФормат: PDFПродолжительность: 07:52:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FAC1936462811CA619D82BE9AC910DE128BF636
+magnet:?xt=urn:btih:3592A4B5389392C13594FAC5F37A542A4E1D14CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,25 +326,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624978   (244794) от 08.04.2023
+###  Публикация: 1833955   (247846) от 02.11.2025
 
-Минтранс (08.04.2023) WEBRip [H.264/720p-LQ]
+Андрей Шляхов | Сказочная анатомия (2025) [FB2, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Витаминкин из Университета тридевятого царства приглашает юных читателей в удивительное путешествие по человеческому организму!
+
+«Сказочная анатомия» Андрея Шляхова – это волшебный учебник, в котором наука встречается со сказкой!
+(   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураИздательство: АСТФормат: FB2, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FCF61B910CE1A9F3979DAC9723BEDC2FE39B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492486   (247845) от 05.05.2012
+
+[Wallpapers] Desktop wallpapers (05.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B71588179011E09E640805A431C6E43C073631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833973   (247844) от 02.11.2025
+
+PilotEdit Lite & Pro 20.4.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
+PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED396A64221429BB660598AAF839B07F72B95ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491923   (247843) от 05.05.2012
+
+VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel & Dresden feat. Molly - Tracking Treasure Down (original mix)
+02. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
+03. Veerus, Maxie Devine - Funky Beats (Original Mix)
+04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
+05. Dave Nadz & Leblanc - Haamiah (Original Mix)
+06. Sheef Lentzki - Lucifer (Teho Remix)
+07. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
+08. Dj Soundlife - Cloudburst (Extended Mix)
+09. HouseEssence - That Before (Original Mix)
+10. South Ground - Let's Rock (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC0250107A961789D95C12D0054CA5E21F343E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833975   (247842) от 02.11.2025
+
+Своя игра (02.11.2025) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
->>За рулем
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244794.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247842.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:24
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Ирина Петрова, Сергей Коновалов, Кристина КораблинаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2ED546E378B65284C863C5CB2F94A538CC21500
+magnet:?xt=urn:btih:4D2F4BC2112F136F46F62CC4DFE46B64AB7E5C4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,25 +469,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625162   (244793) от 06.05.2023
+###  Публикация: 492142   (247841) от 05.05.2012
 
-Адрес неизвестен / Address Unknown (1944) BDRip [H.264] [VO]
+VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244793.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм нуар 1944 года режиссера Уильяма Кэмерона Мензиса, снят по роману Крессманна Тейлора “Адрес неизвестен”. Молодой художник-эмигрант из Штатов возвращается на родину в Германию, привлеченный нацистской пропагандой, даже не подозревая о том, что скрывается за громкими лозунгами и воодушевляющими речами.Производство: США / Columbia PicturesЖанр: драмаРежиссер: Уильям Кэмерон МензиесАктеры: Пол Лукас, Карл Эсмонд, Петер ван Эйк, Мади Кристианс, Моррис Карновский, Кейти Стивенс, Эмори Парнелл, Мэри Янг, Фрэнк Фэйлен, Чарльз ХэлтонПеревод: Одноголосый любительский (sephiroth)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:12:15
+001. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
+002. Sean Tyas feat. David Berkeley - Believe (Original Mix)
+003. Vast Vision - Black Shores (Original Mix)
+004. Trilucid feat. Sophie Tusnelda - Bring You The Sun (Original Mix)
+005. Vada - Fire In The Sky (Original Mix)
+006. Paul Webster feat. Angelic Amanda - Forever Today (Original Mix)
+007. Solid Stone feat. Hanna Finsen - Helpless (Original Mix)
+008. Gareth Emery feat. Mark Frisch - Into the Light (Alex M.O.R.P.H. Remix)
+009. Solarstone feat. Bill Mcgrudy - Is There Anyone Out There (Dirty Herz Remix)
+010. Simon Patterson feat. Lucy Pullin - Keep Quiet (Original Mix)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:52:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D89401777B7FE17F32CE6BBA6A663750D98503A8
+magnet:?xt=urn:btih:8A3052498A1627E3BB3164A03008FD67A68DA80E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,28 +504,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609667   (244792) от 04.02.2023
+###  Публикация: 491971   (247840) от 05.05.2012
 
-Ashen - Ritual of Ash (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244792.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Ritual (04:15)
-02 - Deadsight (04:16)
-03 - Harbinger (03:32)
-04 - Threshold (03:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:34
+01. Autistic Savant (06:38)
+02. 44 (06:41)
+03. Maximum Sentence (05:39)
+04. Seppuku (04:20)Жанр: Technical DeathПродолжительность: 00:40:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7EFA92AB95E1A2241520E041CA97E1820053D7F
+magnet:?xt=urn:btih:E3BBEE5EF92EB9DFA63FCF9C6CD519A1BF0E486B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +533,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452202   (244791) от 05.03.2021
+###  Публикация: 492252   (247839) от 05.05.2012
 
-Фильмы Петера Эльфельта / Elfelt's films (1901-1907) DVDRip
+VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244791.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшой сборник работ пионера датской кинематографии Петера Эльфельта. В подборку вошли 4 картины режиссера: "Визит Николая II в датский Хельсингёр" (Czar Nikolai II's Ankomst til Helsingør), "Тарантелла из "Неаполя"" (Tarantellen af Napoli), "Танец цыганки и "Трубадура"" (Zigeunerdans af troubaduren), "Визит (   Читать дальше...   )Производство: Дания, Peter ElfeltЖанр: Документальный, короткометражный, немое киноРежиссер: Петер ЭльфельтАктеры: НеизвестныПеревод: НемойСубтитры: ОтсутствуютПродолжительность: ~00:05:13
+01. Sisko Electrofantik - No Thanx (Original Fanatik Mix)
+02. Orbion - Aurora (Sensetive5 Remix)
+03. Stan Kolev, Juan Mejia - To The Clouds (Beat Factory Remix)
+04. Eitan Carmi - New West (Cristian Poow Remix)
+05. S.K.A.M. - Outside The Box (Original Mix)
+06. Lauhaus, Kabale Und Liebe - Hiphouse (Original Mix)
+07. Sidney Samson - Get Low (Original Mix)
+08. Freza - La Luna (Original Mix)
+09. Mode B - Phantom (Original Mix)
+10. Steven Quarre & Morris Mavado ft. Orlando Vaughan - Starlight (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:20:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC0822E951BF909385AB187F88800245F5479254
+magnet:?xt=urn:btih:0B4EE967BDE4DC9874F5464A1F0715B9DB691E28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +568,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621313   (244790) от 24.03.2023
+###  Публикация: 1833977   (247837) от 02.11.2025
 
-Обочина (1978) WEBRip
+Sipnetic v1.1.8 Mod by Alex.Strannik [Ru/Multi]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244790.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отслужив в армии, Ленька Парасочка вернулся в родной город и устроился в автопарк, решив пойти по стопам отца. В первый же рабочий день он подвозит девушку, даже не подозревая как сильно изменится его жизнь после этой встречи.Производство: СССР / БеларусьфильмЖанр: ДрамаРежиссер: Вячеслав НикифоровАктеры: Майя Булгакова, Владимир Самойлов, Евгений Шутов, Анатолий Жигарь, Людмила Дребнёва, Александр Кашперов, Елена Ковалева, Евгения Кравченко, Т. Лагун, Виктор МирошниченкоСубтитры: отсутствуютПродолжительность: 01:29:59
+Весьма недурственное (по утверждению разработчика) приложение для SIP-телефонии. Обширные настройки качества и безопасности подтверждают данное мнение. Ничего лишнего.
+Sipnetic – это бесплатный программный IP-телефон, разработанный на базе протокола SIP. Приложение позволяет подключаться к вашему провайдеру VoIP, облачной АТС или корпоративному серверу телефонии.Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: IPTONПоддерживаемая ОС: Android 4.0.1+ (реком. 7.0+)Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DDD0E58834AEB47531B6DF4B0E90535D58C01E8
+magnet:?xt=urn:btih:70B761532FCAD7EF4F8216392186D8A8F525E808
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,25 +595,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540876   (244789) от 01.04.2022
+###  Публикация: 492018   (247836) от 05.05.2012
 
-Человек-паук: Нет пути домой / Spider-Man: No Way Home (2021) BDRip [AV1/1080p-LQ] [10-bit]
+VA - Top Club Hits Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244789.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь и репутация Питера Паркера оказываются под угрозой, поскольку Мистерио раскрыл всему миру тайну личности Человека-паука. Пытаясь исправить ситуацию, Питер обращается за помощью к Стивену Стрэнджу, но вскоре всё становится намного опаснее.Производство: США, Columbia Pictures Corporation, Marvel Studios Inc., Pascal Pictures, Sony Pictures Entertainment (SPE)Жанр: Фантастика, боевик, приключенияРежиссер: Джон УоттсАктеры: Том Холланд, Зендея, Мариса Томей, Бенедикт Камбербэтч, Энгаури Райс, Дж.К. Симмонс, Альфред Молина, Джейми Фокс, Мартин Старр, Джейкоб БаталонПеревод: Дублированный (СинеЛаб СаундМикс)Субтитры: Русские (forced, full), английскиеПродолжительность: 02:28:09
+01. Mads Arp Feat. Julie Harrington – Alive
+02. DJ Favorite & Вероника Данилова - Бессонница (Radio Edit)
+03. Remady feat. Manu-L - Higher Ground
+04. Aaizu Yazoo - Megaton (AMO + NAVAS Rework)
+05. Sousa & Mad feat. Kaysee - Temptation (More & Masters Remix)
+06. Cathy Burton & Omnia - Hearts Connected (Original Mix)
+07. Pat Farrell feat. Max'C - Stronger (Club Mix)
+08. Jan Blomqvist - I Don't Think About You (Original Mix)
+09. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California (DJ Favorite Radio Edit)
+10. Muzikjunki - Crazy 4 You (Club Mix)2012Жанр: Dance, ClubПродолжительность: 05:18:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB635300F8FC49E2BBEC0E68322CA0C2670D1E15
+magnet:?xt=urn:btih:FDFAE2BC3D4A5C598C54EDF8BED6D44E1854971B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,25 +630,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566753   (244788) от 30.07.2022
+###  Публикация: 1833980   (247835) от 02.11.2025
 
-Жена в отпуске... любовница в городе / La moglie in vacanza... l'amante in citta (1980) DVDRip [H.264] [VO]
+NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [H.264/1080p]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244788.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У женатого промышленника Андреа Дамиани, есть связь на стороне с красавицей Джулией. Девушка вынуждает его рассказать все своей жене, но он не решается. Не подозревая, что его жена, тоже состоит в связи, с так называемым Графом, который по несчастному совпадению работает на него.Производство: Италия, Франция / Dania FilmЖанр: КомедияРежиссер: Серджо МартиноАктеры: Эдвиж Фенек, Барбара Буше, Ренцо Монтаньяни, Лино Банфи, Туллио Соленьи, Мариза Мерлини, Ренцо Оццано, Пиппо Сантонастасо, Жак Стани, Мария Тереза Рута, Алессандра ВаззолерПеревод: Одноголосый любительский, Никита Кирдин "Stalk"Субтитры: РусскиеПродолжительность: 01:33:25
+NEMOPHILA - японская женская метал/рок группа, основанная в 2019 г. в Токио.
+Запись концерта, прошедшего в рамках американского тура "Seize the Fate" 12.03.2023 в "HOUSE of BLUES" San Diego.1. Seize the Fate
+2. 雷霆 -RAITEI-
+3 .炎天 -ENTEN-
+4. Change the world(   Читать дальше...   )Производство: ЯпонияЖанр: J-Metal, J-RockУчастники: Маю, Саки, Хадзуки, Мурата Таму, ХарагутиПродолжительность: 01:08:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61341BF178F49E3B2AE7E7AEB6AEAA97E6DDA2DC
+magnet:?xt=urn:btih:0E218E3628B47727B4236519D289BD42271DE237
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,25 +660,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631646   (244787) от 06.05.2023
+###  Публикация: 492110   (247834) от 05.05.2012
 
-Страшный испуг / Frightmare (1974) BDRip [H.264/720p] [MVO]
+VA - Seashore Desire #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (7:39)
+2. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix) (7:55)
+3. Faruk Sabanci - As Faces Fade (Alexander Popov Remix) (6:50)
+4. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix) (8:12)
+5. Roman Loud - Beach At Sunrise (Original Mix) (8:24)
+6. W&W - Beta (Original Mix) (5:20)
+7. Vast Vision - Black Shores (Original Mix) (8:34)
+8. Ralphie B - Bullfrog (Original Mix) (8:55)
+9. Steve Brian & Cressida - Cambodia (Original Mix) (8:06)
+10. Fadios & Raneem - Chromium (Max Graham Remix) (6:47)2012Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 06:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80ADA3CDED5989FE3D25043CBDE550B31D476C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833981   (247833) от 02.11.2025
+
+Бобби Джо и изгой / Bobbie Jo and the Outlaw (1976) BDRip [H.264/720p] [AVO]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244787.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эдмунд и Дороти Йатс выходят из психиатрической лечебницы после пятнадцати лет пребывания в ней. Эдмунд знает, что его супруга - убийца и каннибал... Их дочь Дебби и падчерица Джекки живут отдельно от них... Эдмунд устраивается работать шофёром, а Дороти начинает гадать на картах таро. Когда посетителям выпадает карта с изображением смерти, Дороти приводит «приговор» (   Читать дальше...   )Производство: Великобритания, Peter Walker (Heritage) Ltd.Жанр: ужасыРежиссер: Пит УолкерАктеры: Руперт Дейвис, Шила Кейт, Дебора Фэйрфакс, Пол Гринвуд, Ким Батчер, Фиона Курзон, Джон Юли, Триша Мортимер, Эдвард КалинскиПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:26:31
+Бобби Джо Бейкер, бесцельно скитающаяся по стране, бросает работу в такси и присоединяется к Лайл Уилеру, подражающему преступникам Дикого Запада, чтобы отправиться в путешествие, полное краж, хаоса и убийств...Производство: США / American International Pictures (AIP), Caldwell ProductionsЖанр: драма, мелодрама, криминал, триллерРежиссер: Марк Л. ЛестерАктеры: Марджо Гортнер, Линда Картер, Джесси Винт, Мерри Линн Росс, Белинда Баласки, Джин Дрю, Пег Стюарт. Геррит Грэм, Джон Дурин, Вёрджил ФрайПеревод: авторский (Сергей Завалишин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1908ACD1D287400330258DD058783172CEB75E1
+magnet:?xt=urn:btih:FB87B52D8E36C7D039F26B785B6FB0EBEFAAC51F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,191 +721,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624921   (244786) от 08.04.2023
+###  Публикация: 492292   (247832) от 05.05.2012
 
-Анна Князева, Галина Виноградова | Пылающий символ (Книга 1). Пылающий символ. Том 1 (2023) [MP3, Алексей Исиевский]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244786.jpg" />
-</div>
-
-
-###  Подробнее
-
-На круизном лайнере в Средиземноморье происходит загадочное убийство. Элину Коган, бывшую сотрудницу израильской военной прокуратуры, подозревают в косвенном соучастии. Однако после покушения на нее саму девушка начинает собственное расследование и сталкивается с невидимым, но сильным противодействием. Поиски преступника приводят Элину к тайне, связанной со старинными (   Читать дальше...   )Жанр: Исторические детективы, Современные детективыПродолжительность: 06:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317822D8F5802FE30141DDAF910DBBE8390E5350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529400   (244785) от 06.02.2022
-
-VA - Winter Lounge, Vol. 2 (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo Herrmann - Destination Orbit (2:06)
-02. Bruno Belogna - Brief Encounters (4:43)
-03. Area Code 51 - Chasing Stars (3:14)
-04. Living Room - Surfing on a Karma Wave (Worldtraveller's Karma Retreat) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F9A46BD4503B6F26A32B2BA32D2AFDD25413C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452020   (244784) от 05.03.2021
-
-Сердце арктической зимы / Heart of the Arctic Winter (2020) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надеюсь, мне удалось передать успокаивающую и чарующую атмосферу зимы.Производство: АрктикаЖанр: Документальный, видовойРежиссер: Адриан МодуйтПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D692E68F1E0520C1B0C04A91E9483F53A53DFAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621317   (244783) от 24.03.2023
-
-Notepad++ 8.5.1 Final + Portable [Multi/Ru]
+Журнал | АиФ. Спецвыпуск. Здоровье № 5 [2012] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244783.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_247832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Весну, как известно, ждут все, кроме аллергиков, у которых в это время года обычно происходит обострение недуга. А людей, страдающих аллергией, с каждым годом становится всё больше. Сегодня, по статистике, четверть жителей индустриально развитых городов - аллергики. Многие из них просто не ходят по врачам, потому что убеждены: этот недуг неизлечим! Это не так! Даже в самых запущенных случаях можно добиться стойкого длительного улучшения, что для любого пациента равносильно выздоровлению. Как? Ответ на этот вопрос вы найдёте в сегодняшнем спецвыпуске. По традиции на вопросы читателей отвечают самые авторитетные врачи-аллергологи.2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37451A7764DD900A991C82F1A59AD764BB9589F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069140   (244782) от 04.11.2016
-
-Футбол. Лига Чемпионов 2016-2017. Группа B. 4-й тур. Бенфика (Португалия) – Динамо К (Украина) (01.11.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 ноября 2016, вторник. 22:45 МСК
-Лига Чемпионов 2016-2017. Групповой этап
-Группа B. 4-й тур
-(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F248386608B16BCC0DE354735B050B3B4CFF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609701   (244781) от 04.02.2023
-
-Ashen Horde - Antimony (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Summoning (01:37)
-02 - The Throes of Agony (06:55)
-03 - The Consort (05:37)
-04 - The Barrister (06:04)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C657E934B5C3303FADD183525D2FBD4CEA09D2B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541027   (244780) от 01.04.2022
-
-Total Commander Ultima Prime 8.4 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander Ultima Prime — это набор утилит и разнообразных наборов настроек, собранных в один установочный пакет для расширения функциональности файлового менеджера Total Commander.
-Пакет состоит из расширенных главного меню и панели инструментов, очень полезных дополнительных программ и плагинов, изменённой раскладки горячих клавиш и многого-многого другого. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707DFB7100D38F54E5AB4C3F0462679AED034CB6
+magnet:?xt=urn:btih:EF0648C3AC449D38E14EDF1783E9B814242C9097
 ```
 
 https://mybot314.ru/tekegram_catalog/

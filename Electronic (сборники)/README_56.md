@@ -1,3 +1,90 @@
+###  Публикация: 1274475   (792996) от 07.01.2019
+
+VA - Options Remake 150 Tracks (2018 December) (2019) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792996.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maor Levi - Gemini (Extended Mix)
+002. Arhard - Jamaican Trip (Original Mix)
+003. Bob Sinclar - I Believe (Rayven & Valexx Remix)
+004. Tim Tailor - Hell Them (Rene Rodrigezz Edit)(   Читать дальше...   )Жанр: HouseПродолжительность: 17:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2D22654E1F051B72D469A7CE7FC050DDCE250A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201340   (792881) от 24.01.2018
+
+VA - Goa House Party (2018) [MP3|320 Kbps] <House, Big Room, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Darius & Finlay ft. Mr. Shammi  -  Discotek People (Ancalima Remix Edit)  3:07
+02.  Uberjak'd & Fresh Til Death  -  Lose Our Minds (Original Mix)  5:15
+03.  SCNDL  -  Tahari  3:12
+04.  Will Sparks & Priyanka Chopra  -  Young And Free  3:32(   Читать дальше...   )Жанр: House, Big Room, DanceПродолжительность: 01:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EBBAEC2B3FC042A8382196B93AA7CC950C8261B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274448   (792734) от 07.01.2019
+
+VA - Deep House Collection Vol.195 (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792734.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airia - Firefly (Original Mix)
+002. Al L Bo - Supernow  (Kastomarin Mix)
+003. Alex Spite - Forget Tonight (Original Mix)
+004. A-Mase, Sharliz - My Love  (A-Mase Ocean Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 14:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B14394BE8FA884DBBE2748C4A636501EE83F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201328   (792656) от 24.01.2018
 
 VA - Deep House Collection Vol.154 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -658,93 +745,6 @@ VA - A State Of Trance: Future Favorite Best Of 2021 (2021) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23DCEA61CF00D23E5DD57D2ED70A3DEF83BF4EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202189   (790553) от 28.01.2018
-
-VA - Inspiring Sunrise World (2018) [MP3|320 Kbps] <Melodic, Euphoric, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dim3nsion  -  Agarimo (Extended Mix)  7:27
-02.  Omnia & Alex Sonata  -  Titans (Extended Mix)  5:48
-03.  Sam Laxton & Noire Lee  -  Thunderstorm (Extended Mix)  5:30
-04.  Denis Kenzo feat. Clara Yates  -  Other Side (Extended Mix)  6:11(   Читать дальше...   )Жанр: Trance, Melodic, Euphoric, Blissful, Energy, Tuneful, HarmonicПродолжительность: 03:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4442A6BBAFA032808F6B8C81A754E059CF761F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202278   (790547) от 28.01.2018
-
-VA - Chill House Session vol.2 (2018) [MP3|320 Kbps] <Downtempo, Ambient, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microwave Monkeys - The Rain (Vocal Radio Mix)
-02. Dj Absinth - Morning Sun
-03. Superluminal - Make It Better (Original Mix)
-04. Joxephad - Infinity(   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CACCB81C4BFCD6DCF15BEAB0312623AEE170150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202179   (790543) от 28.01.2018
-
-VA - Record Super Chart #521 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-02.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-03.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30
-04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E310B63A9AF87AC84B52441E5ADE127D5A848C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

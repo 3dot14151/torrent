@@ -1,3 +1,32 @@
+###  Публикация: 1098910   (906634) от 31.01.2017
+
+Сурганова & Оркестр - Песни военных лет (2017) [FLAC|lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нам нужна одна победа (03:07)
+02. Журавли (04:01)
+03. Песня о далёкой Родине (02:55)
+04. Самолёты (03:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF93AD9D8F040AF30674999AE03A9CD34A620E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 181970   (904730) от 10.03.2010
 
 Океан Ельзи - Dolce Vita (2010) [FLAC|Lossless]<Rock>
@@ -719,35 +748,6 @@ Znaki - Покруче фантастики (2015) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:130438CFB8C878BF30700719AD482D75F9612F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997336   (875466) от 16.03.2016
-
-Чиж & Co и Юрий Морозов - Концерт в зале около Финляндского вокзала (2002) [FLAC|Lossless|image + .cue] <Blues Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мишень (4:53)
-02. Still Got The Blues	(4:30)
-03. Юрий Морозов - Волки (4:06)
-04. Смутные Дни	(4:05)(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E28A5A8A58DC348F140331C317C99B83916121
 ```
 
 https://mybot314.ru/tekegram_catalog/

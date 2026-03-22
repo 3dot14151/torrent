@@ -1,3 +1,32 @@
+###  Публикация: 970808   (987322) от 02.01.2016
+
+Erich Kunzel / Cincinnati Pops Orchestra Featuring King'singers - Perform Music Of The Beatles (2001) SACD [FLAC|Lossless|tracks + .cue] <Pop, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eleanor Rigby (Orchestral version) (3:24)
+02. All You Need Is Love (3:15)
+03. When I'm Sixty-Four (3:15)
+04. Michelle (3:32)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC71CCC78A31DEADAA15D9E0A280E025D0AA82DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600345   (986533) от 01.02.2013
 
 VA - В ритме танца (24CD) (2010 - 2011) [MP3|320 кб/с]<Instrumental, Pop, Retro, Vocal>
@@ -734,35 +763,6 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356229   (980356) от 29.01.2020
-
-Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meek Mill & Farruko - Uptown II (02:54)
-02. City Girls - Money Fight (02:38)
-03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
-04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
 ```
 
 https://mybot314.ru/tekegram_catalog/

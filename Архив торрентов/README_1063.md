@@ -1,3 +1,60 @@
+###  Публикация: 885158   (802879) от 05.04.2015
+
+Microsoft Windows 10 TP Language Pack build 10051 (x64) [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальные языковые пакеты для Windows 10 Techninal Preview (build 10041).
+В данном архиве вы найдете такие языковые пакеты:
+English, Japanese, Korean, Arabic, German, Spanish, Finnish, French, Italian, Dutch, Polish, Portuguese-Brazil, Russian, Swedish, Thai, Turkish, Chinese - SimplifiedЯзык интерфейса: Multi 21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FF1B37B23EF6C31A3AE14C2D48FF3B83F14583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505471   (802845) от 28.10.2021
+
+The Replacements - Sorry Ma, Forgot To Take Out The Trash (2021) 4xCD, Deluxe Edition [FLAC 2.0|96/24|tracks|WEB-DL] <Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc - 1:
+01. Takin a Ride (2021 Remaster) (02:24)
+02. Careless (2021 Remaster) (01:08)
+03. Customer (2021 Remaster) (01:30)(   Читать дальше...   )Жанр: RockПродолжительность: 03:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE65B61671F8444DA4EBD3CBD0232E24D22C6E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199096   (802835) от 14.01.2018
 
 Endurance Antivirus 4.1.4 [En]
@@ -637,64 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D2B3FC4572B55846FAD86D1617E0C8E69131332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010516   (802682) от 25.04.2016
-
-Футбол. Чемпионат России 2015-2016. 25 тур. Краснодар - Уфа (24.04.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802682.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 апреля 2016, воскресенье. 14:30 МСК
-25-й тур
-
-Стадион: Кубань (Краснодар, Россия) , 8 190 зрителей (23 % при вместимости 35 200)(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Нагучев)Продолжительность: 02:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62234522BBBD3C7F675C6AA6FF3D32B1EF07F38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010400   (802681) от 25.04.2016
-
-Футбол. Чемпионат России 2015-2016. 25 тур. Амкар - Локомотив (Москва) (24.04.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802681.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 апреля 2016, воскресенье. 12:00 МСК
-25-й тур
-
-Стадион: Звезда (Пермь, Россия) , 5 850 зрителей (34 % при вместимости 17 000)(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортПродолжительность: 02:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949E32FC9B1F92B0D07059431AA3C8BFF5B00A33
 ```
 
 https://mybot314.ru/tekegram_catalog/

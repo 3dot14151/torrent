@@ -1,3 +1,32 @@
+###  Публикация: 1158652   (491996) от 16.08.2017
+
+Mirko Hirsch - Power Of Desire (2015) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Hyde 6:20
+02. Video Night 4:42
+03. Remember September 4:17
+04. Lady Mystery 5:32(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81645F2CA9E6B9DC704CD9AEA827A7426F40BB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937841   (485714) от 16.09.2015
 
 Santa Esmeralda - The Best (1993) [FLAC|tracks+.cue]<Disco, Latin>
@@ -728,33 +757,6 @@ VA - Best of New Generation Maxi Disco Vol. 1 (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4706636950D8A4F26E1670B9346970578AD2FF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065075   (421305) от 22.10.2016
-
-Dee D. Jackson - Automatic Lover [New Digital Version] (1977) Maxi-Single, 1988, Jupiter Records [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421305.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Automatic Lover - Remix '88 (Long Version) (6:52)
-2. Automatic Lover - Remix '88 (Club-Mix) (6:41)Жанр: Disco, Italo-Disco, Euro-Disco, Hi-NRGПродолжительность: 00:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEA190928F66B75DB3E883EC4E0C454504922F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

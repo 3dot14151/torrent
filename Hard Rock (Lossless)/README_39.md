@@ -1,3 +1,177 @@
+###  Публикация: 1550960   (590755) от 14.05.2022
+
+Junkyard Drive - Electric Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let It Burn (00:03:39)
+02 - Electric Love (00:04:16)
+03 - Mr. Rock N' Roll (00:03:34)
+04 - Home (00:04:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0DE364430BE89D070B4DD1287B99924FAE4466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551033   (590752) от 14.05.2022
+
+Graham Bonnet Band - Day Out In Nowhere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imposter
+02. 12 Steps To Heaven
+03. Brave New World
+04. Uncle John(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E545257C3E660AAD8397654006F30E27474240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550964   (590738) от 14.05.2022
+
+The Big Deal - First Bite (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Never Say Never (00:03:06)
+02 - I Need You Here Tonight (00:03:39)
+03 - Sensational (00:04:06)
+04 - Top Heaven (00:04:13)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F6125FA131AD066FD3D3DEEB3B73E659FAFF7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551319   (590240) от 15.05.2022
+
+Jeff Scott Soto - Complicated (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last to Know (4:25)
+02. Disbelieving (3:38)
+03. Home Again (3:33)
+04. Love is the Revolution (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BF876FE9A0D40780655C95DBA986934A726EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551272   (590229) от 15.05.2022
+
+The Brave - Evie’s Little Garden (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evie’s Little Garden (4:34)
+02. Run To You (4:37)
+03. I’ve Always Wondered (4:17)
+04. We’re Not In Kansas Anymore (5:08)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFFE0629C751D101E925143138EFE80C65AE4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551520   (589735) от 16.05.2022
+
+Romulox - The Three Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Samsara (00:03:14)
+02 - Howling Hellion (00:04:52)
+03 - Odin's Revenge (00:04:24)
+04 - Traitor's Gate (00:02:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8753153D47D706C875B3284FCF9BB335FA57B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917406   (589517) от 11.07.2015
 
 Deep Purple - Deep Purple (1969) K2HD, Limited Edition /2014, Victor/ [FLAC|image + .cue]<Hard Rock>
@@ -571,180 +745,6 @@ Nick Simpers Fandango - Slipstreaming & Future Times (1999) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:077E2FF8C0224C63EA11F27A4556832306F80EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041406   (582432) от 09.08.2016
-
-Gary Hoey - Dust & Bones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boxcar Blues 3:43
-02. Who's Your Daddy 4:15
-03. Born To Love You 3:15
-04. Dust & Bones 4:09(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3E7A5D0F3835338FE49C10EA3EE4B1536ED1FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553416   (581953) от 26.05.2022
-
-Electrified - My World On Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Horse (03:18)
-02. Shot Through The Heart (03:53)
-03. My World On Fire (04:02)
-04. Beneath The Sky (03:26)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6938567F1079E9D8FAF033765D9EE987673381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041749   (581516) от 10.08.2016
-
-Моtоrgun - Моtоrgun (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heading For Tomorrow
-02. Rebel Souls
-03. Back To Ashes
-04. Deliverance(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2C6E0AAAF69DAEC62A3BB245DF3DF5EC6A6A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553688   (580030) от 28.05.2022
-
-Michael Schenker Group - Universal (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergency (feat. Barry Sparks & Simon Phillips) (3:49)
-02. Under Attack (4:37)
-03. Calling Baal (feat. Tony Carey) (0:39)
-04. A King Has Gone (feat. Michael Kiske, Bobby Rondinelli, Bob Daisley & Tony Carey) (4:54)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2B133420C36451828AFAD675A8BFC07CCAF2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554181   (579104) от 29.05.2022
-
-Alistair Terry - Yonge At Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сольный альбом Alistair Terry, который был записан после того, как бывшая группа фронтмена "Pet Hate" прекратила свое существование. Интересно, что Alistair Terry начал записывать свои песни с 15 лет, часть этих идей вошли в этот единственный сольный проект, который ему предложил сделать бывший продюсер "Pet Hate" Roger Boden. Альбом вышел на (   Читать дальше...   )01. Destiny (2:28)
-02. Moon Over Malaya (3:15)
-03. Language Of Love (3:12)
-04. I Thought I Needed You (3:52)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CED2FD77874C0899CE4C0A7D9513FBC05020EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554185   (579032) от 29.05.2022
-
-Epic - Like A Phoenix (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need (3:31)
-02. Love Will Find A Way (4:15)
-03. I Can Take You (4:39)
-04. Sleepless Angel (4:11)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1DE16BC0AE49CED8BBD833BD44F93AB161A250
 ```
 
 https://mybot314.ru/tekegram_catalog/

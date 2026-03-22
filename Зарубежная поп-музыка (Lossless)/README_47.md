@@ -1,3 +1,235 @@
+###  Публикация: 924639   (557408) от 04.08.2015
+
+INNA - Body And The Sun (2015) [FLAC|tracks|WEB-DL]<Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Sexy (3:17)
+02. Bop Bop (feat. Eric Turner) (3:26)
+03. Rendez Vous (3:08)
+04. Salina Skies (3:42)(   Читать дальше...   )Жанр: Pop, Electronic, Dance, Club, EuroPop, House, R&B, LatinoПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225CCB4833CFB418BF5A78AAD9F661BE3CB4F903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235326   (557365) от 13.07.2018
+
+Mireya Bravo - Tu Reflejo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me Cuesta la Vida
+02. Corazón Vendío
+03. Mentiras de Papel
+04. Por Qué(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3041C7B449C1F3D89B64E2214A89A295335F52A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235726   (557325) от 13.07.2018
+
+Rick Astley - Beautiful Life (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Life
+02. Chance to Dance
+03. She Makes Me
+04. Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15628603EE7A5DF8392B0AA48BD7A62CDFD16D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305191   (557141) от 30.05.2019
+
+Happy Holiday Singers - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wir haben ein Idol (Harald Juhnke) (3:21)
+02. Augen zu und durch (3:20)
+03. Peter Ortloff Schlagerparty (3:51)
+04. Ritmo De La Noche (5:38)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0F56368B3F83024D216D4FF3696056AFDED9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305193   (557136) от 30.05.2019
+
+Peter's Dance Factory - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servus Grüezi und Hallo (1:33)
+02. Alle Mann nach Palma (3:08)
+03. Appenzeller Jodler (2:40)
+04. We love Mallorca (3:41)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4999234BA32862F7657C291D9A3C123EFEA7E58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556478   (557118) от 11.06.2022
+
+Bee Gees - Idea (1968) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Love (3:35)
+02. Kitty Can (2:42)
+03. In The Summer Of His Years (3:13)
+04. Indian Gin And Whisky Dry (2:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752C312B6E44B77F1596D3A191CA8D3DAC095307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305508   (556446) от 31.05.2019
+
+VA - Simplified More Than Acoustic (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freestyle - So Slow
+02. Aiza Seguerra - Power of Two
+03. Paolo Santos - Moonlight over Paris
+04. Side A - Sailing(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3406FDE883D6DE14433243A6B6994CC0E7320756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556942   (556398) от 12.06.2022
+
+Vanessa Mai - No Hard Feelings (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Hard Feelings [00:02:38]
+02. Schwarze Herzen [00:02:24]
+03. Melatonin [00:02:19]
+04. Happy End [00:02:18](   Читать дальше...   )Жанр: PopПродолжительность: 00:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05E5D4E8B68A56E9CD3BA46F901A3963A2CB0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306555   (555576) от 05.06.2019
 
 Charlotte Cornfield - The Shape Of Your Name (2019) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Country>
@@ -510,238 +742,6 @@ Britney Spears - Glory (2016) Deluxe Edition (Explicit) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91754673CBD01BBA73CFE480A2BBD462264E0353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046562   (551720) от 27.08.2016
-
-Celine Dion (Céline Dion) - Encore un soir (2016) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Pop, French Chanson, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plus qu'ailleurs (3:38)
-02. L'étoile (3:14)
-03. Ma faille (3:51)
-04. Encore un soir (4:23)(   Читать дальше...   )Жанр: Pop, French Chanson, Vocal, BalladПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D9D9C833B6A2800DC3D5C7DF6D4841C4A2B2DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309424   (551068) от 19.06.2019
-
-VA - Smooth FM - Feel Good Favourites (2019) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Michael - Freedom! '90 (6:30)
-02. Lionel Richie - Dancing On The Ceiling (4:21)
-03. The Emotions - Best Of My Love (3:41)
-04. Donna Lewis - I Love You Always Forever (3:58)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C4D915524AE2CAAF293CBD9137C468B3393E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237629   (550620) от 25.07.2018
-
-Madame Monsieur - Vu d'Ici (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Comme une reine (3:49)
-02 Mercy (3:59)
-03 Tourner la page (3:15)
-04 Ne me laisse pas (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E889C7C5E6D25CB0B83E3DED5165AB9DA4CB85F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309597   (550532) от 20.06.2019
-
-¿Who's the Cuban? - Circo Circo (2019) [FLAC|Lossless|tracks + .cue] <Pop, Salsa, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buscando una forma de liquidarte (4:01)
-02. Todo lo hice (3:54)
-03. Tukara (3:56)
-04. Cómo (3:26)(   Читать дальше...   )Жанр: Pop, Salsa, LatinПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9275273D1B6A247B88841762A1293D2BF1BD6670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309528   (550354) от 20.06.2019
-
-VA - Easy Guitar (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Castro - Learning To Fly (Acoustic Version) 4:35
-02. Alanis Morissette - Hand In My Pocket (Acoustic Version) 4:31
-03. Stone Sour - Wicked Game (Live Acoustic) 4:27
-04. Tyler Hilton - Missing You (Acoustic Version) 3:20(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB705E66E42831CF6E31444C8E2D37C881E972DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309521   (550349) от 20.06.2019
-
-VA - The Hottest Latino Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Latino Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Reggaeton Latino - Travesuras (3:18)
-02.Reggaeton Latino - Mi Gente (3:05)
-03.Reggaeton Latino - Ni Tu No Yo (3:36)
-04.Reggaeton Latino - Bobo (3:31)(   Читать дальше...   )Жанр: Latino PopПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423B38B7106586E768679B631623D39B830FBD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310049   (548853) от 22.06.2019
-
-The Drums - Brutalism (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Cloud (03:28)
-02. Body Chemistry (04:47)
-03. 626 Bedford Avenue (03:22)
-04. Brutalism (03:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F06142DD537233115ACEE8850A4626913160483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047921   (548257) от 31.08.2016
-
-Barry Manilow - Live On Broadway (1990) [FLAC|Lossless|image + .cue] <Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Life / It's A Long Way Up (6:56)
-02. Brooklyn Blues (3:41)
-03. Memory (4:18)
-04. Up Front (5:30)(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B47A9EB00A9B1160E00C46E305ACE6D9790490A
 ```
 
 https://mybot314.ru/tekegram_catalog/

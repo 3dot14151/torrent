@@ -1,3 +1,32 @@
+###  Публикация: 1047219   (550013) от 29.08.2016
+
+Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic (5:43)
+02. Back to the Past (6:44)
+03. Awakening (5:49)
+04. Eyes of Truth (6:39)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AFE8332803B4D64557CAD5F20FF338637C22C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237888   (549729) от 26.07.2018
 
 Marchese - Joyful Peace (2018) [MP3|320 Kbps] <New age, Relax>
@@ -741,35 +770,6 @@ Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF02A5759F9F206A8F1AA870AE6A981979A42744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052618   (528075) от 14.09.2016
-
-Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Go [00:04:47]
-02. Falling Slowly [00:03:42]
-03. Love Me Like You Do [00:05:03]
-04. Jacob's Theme [00:02:32](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF21B4B4DACB22D4E8C1B510E5B401A929E7D0FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

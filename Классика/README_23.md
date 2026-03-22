@@ -1,3 +1,116 @@
+###  Публикация: 1031868   (649422) от 05.07.2016
+
+VA - Beethoven: Adagio (1997) [FLAC|Lossless|WEB-DL|tracks] <Classical, Romantic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Piano Sonata No. 14 'Moonlight' - Adagio sostenuto    05:19
+02.  Violin Romance No. 2 in F major, Op. 50    09:51
+03.  Septet in E flat major, Op. 20 - Adagio cantabile    08:42
+04.  Piano Concerto No. 2 in B flat major, Op. 19 - Adagio    09:06(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE69E77C413DD670749E72D6D42CAD80AED7474B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905566   (649266) от 06.06.2015
+
+Schubert - The Piano Sonatas (Wilhelm Kempff) (Vol.2) (2000) 3CDs [FLAC|Lossless]<Classical, Romantic Period, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata No. 4 in A minor, D. 537 (Op. posth. 164)
+01. Allegro ma non troppo (07:32)
+02. Allegretto quasi Andantino (06:10)
+03. Allegro vivace (04:41)(   Читать дальше...   )Жанр: Classical, Romantic Period, SonataПродолжительность: 03:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96777A398870580785418F568E8E0DE92AAD44F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215767   (649046) от 05.07.2010
+
+Franz Schubert - The Masterworks (40 CDs) (1797-1828) [MP3|320 kbps] <Classical>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_649046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 42:48:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031841   (647638) от 06.07.2016
+
+VA - Tenorissimi Mondeale '90 (1990) [APE|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Placido Domingo - Aida, opera: Se quel guerrier io fossil ... Celeste Aida
+02. Luciano Pavarotti - L'amico Fritz, opera: O amore, o bella luce del core
+03. José Carreras - Cavalleria Rusticana, opera: Intanto amici ... Viva il vino spumeggiante
+04. Placido Domingo - Otello, opera: Esultate!(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE900D17199A7AC7B3269892A6AA49E2D5C13563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905691   (647319) от 07.06.2015
 
 Mozart - Concertos for 2 & 3 Pianos (Katia & Marielle Labeque, Semyon Bychkov & Berlin Philharmonic Orchestra) (1999) [FLAC|Lossless]<Classical, Classical Period, Concerto>
@@ -658,128 +771,6 @@ VA - Guitar Moments : Cavatina And Other Classical Guitar Favourites (2004) [FLA
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522220   (622861) от 13.07.2012
-
-Johann Sebastian Bach - The 6 Motets: Nikolaus Harnoncourt (1989) [FLAC|Lossless]<Classical, Choral>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Singet dem Herrn ein neues Lied, BWV 225 (12:51)
-02. Der Geist hilft unser Schwachheit auf, BWV 226 (07:48)
-03. Komm, Jesu, komm, BWV 229 (07:54)
-04. Jesu, meine Freude, BWV 227 (20:10)
-05. Furchte dich nicht, ich bin bei dir, BWV 228 (08:09)
-06. Lobet den Herrn, alle Heiden, BWV 230 (05:44)Жанр: Classical, ChoralПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D5CF54A45E9AA7714777040B2767BFE4F92E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600441   (622681) от 08.07.2014
-
-Wolfgang Amadeus Mozart–Violin concertos 1-5 Bath Festival Chamber Orchestra Yehudi Menuhin 2CD (1962-1964)/1990 EMI Classics/[WavPack (iso.wv)|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622681.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1997 году Иегуди Менухин прислал приветствие Международному Дельфийскому совету с такими словами:
-Я не могу представить себе более ценной модели духа соревнований друг с другом, чем модель греков. Они помещали утонченность тела, разума и духа на неделимый алтарь жизни...
-(   Читать дальше...   )Описание:
-Concerto No. 1 en si bemol majeur/in B fiat major/B-dur, KV.207 1964
-1. I Allegro moderato	[07:48]
-2. II Adagio	[08:42]
-3. III Presto	[05:48]
-(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB527F9908C4A0676AEEDB68DAC2C41B231AB285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035957   (622440) от 19.07.2016
-
-Hughes De Courson - Mozart In Egypt 2 (2005) [FLAC|Lossless|image + .cue] <Classical, Folk, World>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Al Bedaya    01:48
-02.  Mozart in Egypt    06:51
-03.  Al Sahm Al Taйh    04:58
-04.  Alatul Concerto for/pour Kaval & Flыte    06:24(   Читать дальше...   )Жанр: Classical, Folk, WorldПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD37B17D388F46773A3F41B070575DA298D8D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036370   (620850) от 20.07.2016
-
-Steven Osborne - Beethoven: Bagatelles (2012) [FLAC|Lossless|image + .cue] <Classical, Keyboard>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seven Bagatelles, Op. 33
-01.  Op. 33 - #1 in E flat major: Andante grazioso, quasi allegretto    03:46
-02.  Op. 33 - #2 in C major: Scherzo - Trio    03:11
-03.  Op. 33 - #3 in F major: Allegretto    01:48(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC0A2B5F33C09957FC3CFDE453CD5BFE5B8F601
 ```
 
 https://mybot314.ru/tekegram_catalog/

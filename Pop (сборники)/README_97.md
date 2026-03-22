@@ -1,3 +1,177 @@
+###  Публикация: 1073935   (340740) от 18.11.2016
+
+VA - Горячие Осенние Новинки 50х50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340740.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.The Chainsmokers Feat. Xylo - Setting Fires 4:08
+002.David Archuleta - Numb 3:41
+003.Татьяна Маргай - Обними 4:09
+004.Liz Elias Feat. Flo Rida - At Night 3:41(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C57D7035B6DB3648724A220E5F4FE252049F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073926   (340739) от 18.11.2016
+
+VA - Мега хитовая осень на Europa Plus - 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340739.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Tut Tut Child Feat. Holly Drummond - Fell Down 4:42
+002.Таня Герман - Эмоции Мысли 3:20
+003.Пропаганда - Наша Песня 3:20
+004.Илья Подстрелов (Faktor-2) - Ути Моя Маленькая 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9B4000CDFE26387B863F404BEB7026BCE339E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257846   (340497) от 28.10.2018
+
+VA - Громкие новинки месяца Vol.15 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340497.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Луна - Ангел 3:50
+002. Элджей - Vrum Vrum 4:00
+003. L'One - Весь мир для нас 4:12
+004. Ёлка - Где ты 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4680BB130E4589EA56FA88FFB37B3D92EFECA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074028   (340366) от 18.11.2016
+
+VA - Осторожно!!! Лавина хитов (2016) [MP3|256~320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sia - Never Give Up 3:42
+002. Татьяна Решетняк - Осень 3:29
+003. Hann - Я Тебя Приму Любой 2:58
+004. Brandon Stone & Вахтанг - Она 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA412DD8F14F1235DF78E3A3DF034D63A132B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954543   (340107) от 08.11.2015
+
+VA - Feuerwerk der Schlagerhits (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foxpiraten - Sommer in der Stadt (04:15)
+02. Ben Luca - Weil man dich lieben muss (03:39)
+03. Rene Christian - Manchmal weint auch ein Mann (03:23)
+04. Lea Marie Kaiser - Du hast mein Herz (Heuf Nacht beruhrt) - Radio Mix (03:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAECD8EAED6489E036DEA192E5A4ED45D5214E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180494   (340028) от 04.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 004 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Приступко Алексей - Слышишь, Маша ( 1991 )
+02. DJ Вовочка - Бамбарбия ( 1998 )
+03. Жуков Рома - Девчонки, Мои Девчонки ( Remix 2000 )
+04. Флаерс - Карие Глаза ( 1992 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA8FFBE8177908EFABCFB139DF5208855012D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180650   (340027) от 04.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 008 (2017) [MP3|320 Kbps]<Pop>
@@ -571,183 +745,6 @@ VA - Lian Ross Projects (2009) 2CD [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C1B0A8E9AE2D7330A50A2995943D92BDEEF5306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955203   (335163) от 10.11.2015
-
-VA - Музыкальный Деликатес (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ласковый Шёпот - Согрей меня
-002. Митя Фомин - Едва дыша
-003. Iowa - Это Песня Простая
-004. Андрей Леницкий - Держи меня(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005ED694DE6B1D4D6BFEA9E8F546E3AE4B2B7DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419959   (334940) от 30.10.2020
-
-VA - Shazam Хит-парад Russia Top 100 Октябрь (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334940.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fousheé - Deep End (2:21)
-002. SQWOZ BAB feat. The First Station - АУФ (3:12)
-003. Moses & Emr3Ygul & Alexiane - A Million On My Soul (Remix) (3:26)
-004. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEA6DCFAF4899689D7E3EDF05FBD9C2A9E2EFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258752   (334194) от 17.11.2010
-
-VA - Muza80 Prezentuje Italo Disco Vol.1-62 + MiX & ReMiX vol.1-3 [MP3|320 kbps] (2006-2009) <Disco/ItaloDisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chriss - With A Boy Like You (5:26)
-2. CoAngieLu - Feeling (7:11)
-3. Del Garrett - Hollywood (6:21)
-4. Dyva - I Know (6:17)
-5. Fancy - I'm In Shock (5:42)
-6. Geff Harrison - Bad New York City (6:11)
-7. Les McKeown - Love Is Just A Breath Away (5:48)
-8. Linda Jo Rizzo - Fly Me High (7:21)
-9. Magazine 60 - Don Quichotte (5:39)
-10. Michael Ray - Just A Dream (5:49)(   Читать дальше...)Жанр: Disco/ItaloDiscoФормат: MP3Продолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F595922BD93A50D891358CD3F0C5467E6BA6E243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259549   (333521) от 18.11.2010
-
-VA - XXXL Русский  №11 (2010) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9723060D9FC1A47DC46CCBBD1BF95EA61BB8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331301   (333253) от 14.10.2019
-
-VA - Осень на Love Radio (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333253.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Artik & Asti - Под Гипнозом (3:28)
-2.Billie Eilish - bad guy (3:14)
-3.Cream Soda - Никаких Больше Вечеринок (3:46)
-4.GAMPER & DADONI feat. Emily Roberts - Bittersweet Symphony (feat. Emily Roberts) (3:14)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4295F8A7753AD1468EC7A87DC3529C5FA2115A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420508   (332283) от 01.11.2020
-
-VA - Radio DFM Top D-Chart Октябрь (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Smash feat. Poët - БЕГИ (Denis Bravo Remix) (3:05)
-02. twocolors - Lovefool (3:10)
-03. Мари Краймбрери - Океан (Denis Bravo Remix) (3:50)
-04. DaBro - Юность (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048AFA637E7161754229252519F577073AD82801
 ```
 
 https://mybot314.ru/tekegram_catalog/

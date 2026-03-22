@@ -1,3 +1,148 @@
+###  Публикация: 1272451   (140918) от 29.12.2018
+
+Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140918.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Concerto No. 1 "Spring"
+2. Canon in D-Dur
+3. The Swan
+4. Ave Maria(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430B169BA8CCDDC7CD9AEF57A790A4E432E77DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195657   (140629) от 30.12.2017
+
+Michael Forster - Christmas Piano Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Christmas (Piano Version)
+02. Driving Home for Christmas (Piano Version)
+03. All I Want for Christmas Is You (Piano Version)
+04. Let It Snow (Piano Version)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645E8C63AF497CEE7999F5245F14A5488F015AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273001   (139596) от 30.12.2018
+
+Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TVT Soundtrax [FLAC|Lossless|tracks+.cue] <Breakbeat, Trance, House, Tribal, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Franka Potente - Believe (04:55)
+ 02. Tykwer/Klimek/Heil - Introduction (05:44)
+ 03. Tykwer/Klimek/Heil feat. Franka Potente - Running One (05:32)
+ 04. Tykwer/Klimek/Heil - Supermarket (04:40)(   Читать дальше...   )Жанр: Breakbeat, Trance, House, Tribal, SoundtrackПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631CF91264E6C40D0E263F6F6078C34EDBD87EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740506   (139550) от 31.12.2013
+
+David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celtic Sanctuary (4:41)
+02. May It Be (3:35)
+03. He Moved Through the Fair (4:53)
+04. Sleepsong (4:54)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740314   (139535) от 31.12.2013
+
+Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (80 bpm) (12:34)
+02. Heartbeat of the World (95 bpm) (11:07)
+03. Rhythm Journey (110 bpm) (9:55)
+04. Shaman's Dream (125 bpm) (14:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436138   (138721) от 30.12.2020
 
 Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, New Age>
@@ -660,157 +805,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680665   (133344) от 01.12.2023
-
-James Last - Non Stop Dancing Box (2023) 20 CD, Polydor [ACC|360 Kbps] <Instrumental, Pop, Easy listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133344.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01 - Non Stop Dancing 65-66 - 01:20:37
-CD 02 - Non Stop Dancing 66-67 - 01:15:34
-CD 03 - Non Stop Dancing 67-68 - 01:14:36
-CD 04 - Non Stop Dancing 1968 - 01:11:17(   Читать дальше...   )Жанр: Instrumental, Pop, Easy listeningПродолжительность: 25:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14E263208539F9CAE1C8C7115C5C5A52EB8B1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681758   (132372) от 04.12.2023
-
-Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Brighter Dawn (8:00)
-02. The Gift of Life (6:56)
-03. The Voice Inside (9:28)
-04. Tomorrow's Dream (10:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681768   (132348) от 04.12.2023
-
-Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dendera (11:05)
-02. Pillars of Eternity (9:28)
-03. Of Lapis and Gold (11:36)
-04. Hieroglyphs and Mysteries (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682058   (132055) от 05.12.2023
-
-Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet
-02. Estrella
-03. Fairy of Water
-04. The Field(   Читать дальше...   )Жанр: Score, New AgeПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523B88FD73EB8E988AFE0B878D9D8818D050C599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595456   (131948) от 29.12.2012
-
-Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Preliator
-02 - Mighty Rivers Run
-03 - Prelude (On Earth As In Heaven)
-04 - Spiritus Khayyam
-05 - La Coronacion
-06 - Europa
-07 - Diem Ex Dei
-08 - Orchard of Mines
-09 - Crusaders of the Light
-10 - Madre Terra(   Читать дальше...   )Жанр: New Age, Epic MusicПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
 ```
 
 https://mybot314.ru/tekegram_catalog/

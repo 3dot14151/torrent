@@ -1,3 +1,90 @@
+###  Публикация: 1216715   (747920) от 01.04.2018
+
+Anita O'Day - Eight Classic Albums (1956 - 1961) 4CD, 2011, Real Gone Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747920.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You're The Top [02:26]
+02. Honeysuckle Rose [03:15]
+03. A Nightingale Sang In Berkeley Square [04:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149D24D97E259D6AD692D2EBF0E07B7D7D56A035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396462   (746972) от 15.07.2020
+
+Wes Montgomery - Willow Weep For Me 1965 (2018) Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow Weep for Me [7:45]
+02. Impressions [5:07]
+03. Portrait of Jennie [2:49]
+04. Surrey with the Fringe on Top [5:26](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC89EC943BFC0C18ADBA78362B6B74EED10F8F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396464   (746971) от 15.07.2020
+
+The Buddy Rich Big Band - The New One! 1967 (1998) Pacific Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Away We Go [3:14]
+02. Machine [3:40]
+03. The Rotten Kid [5:14]
+04. New Blues [4:57](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604C3FCAAF710E752DD952E81D791CFF5044DB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396458   (746969) от 15.07.2020
 
 Charlie Shavers Featuring Maxine Sullivan - Four Classic Albums Plus 1954 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
@@ -344,6 +431,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216949   (744950) от 03.04.2018
+
+Henny Vonk - Rerootin' (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_744950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frandance [07:07]
+02. Circle [03:11]
+03. Nefertiti [05:41]
+04. Dolphin Dance [04:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E20BF0F3E1666AC865D9C23DC4D452A9973C5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217166   (744880) от 03.04.2018
 
 Gerry Mulligan & Chet Baker - Carnegie Hall Concert (1974) 1987, Epic [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
@@ -627,122 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A7CA236E52908E709F9632FA8DD19F0271B5A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282684   (743839) от 13.02.2019
-
-Greta Matassa - I Wanna Be Loved (2009) Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broadway [5:03]
-02. Chan's Song [5:40]
-03. Alone in the World [4:56]
-04. I Wanna Be Loved [6:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580EEF15056EA188F2482D6AE8241B8A7C343FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524482   (743768) от 16.01.2022
-
-Anita O'Day - The Complete Anita O'Day Verve / Clef Sessions (1952 - 1962) 9CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743768.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lover Come Back to Me [2:27]
-02. Lullaby of the Leaves [3:10]
-03. Rock and Roll Blues [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 09:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D427510AE274F6E6A66C319E3472A8FA3860A428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217261   (743475) от 04.04.2018
-
-Melanie De Biasio - Lilies (2017) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Freedom Is The End Of Me 03:51
-02. Gold Junkies 03:19
-03. Lilies 04:02
-04. Let Me Love You 04:08(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2408EAD8BE55AF113E91FF1FE93356EE6A8DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665732   (742884) от 07.06.2013
-
-Al Di Meola - Orange And Blue (1994) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradiso (7:20)
-02. Chilean Pipe Song (4:52)
-03. Ta'alina Chant (1:56)
-04. Orange And Blue (7:32)(   Читать дальше...   )Жанр: Jazz, FusionФормат: CD, AlbumПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

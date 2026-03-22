@@ -1,3 +1,145 @@
+###  Публикация: 1254510   (372657) от 14.10.2018
+
+VA - Popular Melodies of Russia (2011) [MP3|192 Kbps] <Other, Instrumental, Soundtrack>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heinz Schachtner – Cossack Patroll [02:42]
+02. Lady Geisler Trio – Dark Eys (Potpourri) [03:32]
+03. John Evans – Kazatschok – Trepak – Bublitschki [04:34]
+04. Unknown Artist – Schwarze Augen [03:21](   Читать дальше...   )Жанр: Other, Instrumental, SoundtrackПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0749E2BBA0EFD6D345BF9A288B5FEF313ED3339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254054   (372639) от 14.10.2018
+
+VA - The Great American Songbook: 66 American Standards (2018) [MP3|320 Kbps] <Pop, Vocal Jazz, Blues>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred Astaire - Cheek to Cheek
+02. Patti LaBelle - Over the Rainbow
+03. Bobby Darin - Beyond the Sea
+04. Dionne Warwick - My Way(   Читать дальше...   )Жанр: Pop, Vocal Jazz, BluesПродолжительность: 03:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B203B4404D916711AD0B5670D725A4FE8DE1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415367   (371566) от 14.10.2020
+
+Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer Version] (2020) Deep Purple cover [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252174   (370985) от 01.11.2010
+
+VA - Музыка Экрана. Коллекция Ридерз Дайджест (2008) 3CD [MP3|320 kbps] <Soundtrack, Classical>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник популярных мелодий из кинофильмов несомненно украсит ваш досуг. Поможет насладиться мелодиями и песнями в исполнении лучших современных оркестров и музыкантов, окунуться в атмосферу приятных воспоминаний о любимых фильмах, и вновь пережить самые волнующие моменты. CD 1 - Незабываемые 60-70-е; CD 2 - Мелодии любви; CD 3 - Шедевры кинематографа.01. из к/ф "Афера"
+02. из к/ф "Выпускник"
+03. из м/ф "Розовая пантера"
+04. из к/ф "Бонни и Клайд"(   Читать дальше...   )Жанр: Soundtrack, ClassicalПродолжительность: 03:24:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070351   (368682) от 06.11.2016
+
+VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battledrums	(01:10)
+02. Soul-Shriven in Cyrodiil (09:10)
+03. Radiance and Glory (05:02)
+04. Flickering Shadows (05:59)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 17:13:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF6BFAFBBF8DCCB7BBEEF20AF0C364DC69ECBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255146   (368298) от 16.10.2018
 
 VA - Mannerpension Die Musik Zum Film (1996) Soundtrack [FLAC|Lossless|tracks + .cue] <Rock, Pop>
@@ -603,157 +745,6 @@ Gregorian - Live! Masters Of Chant - Final Chapter Tour (2016) [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F657DFD3B9A04616CC8BD48141F778D2CAE5C6B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070935   (363997) от 08.11.2016
-
-Enigma - Love Sensuality Devotion: The Greatest Hits & Remixes (2016) Remastered [FLAC|Lossless|tracks+.cue] <New Age, Trance>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Landing (1:05)
-02. Turn Around (3:51)
-03. Gravity Of Love (3:58)
-04. T.N.T. For The Brain (5:17)(   Читать дальше...   )Жанр: New Age, TranceПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F784F6AFCD605F418801F66E1E61ABCEDBE2494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255631   (363823) от 18.10.2018
-
-VA - Life is Strange: Before the Storm Original Soundtrack (2018) [FLAC|Lossless|tracks + .cue] <Folk, Acoustic, Indie Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daughter - Flaws (02:53)
-02. Koda - I Don't (02:52)
-03. Daughter - Glass (04:19)
-04. Ben Howard - Black Flies (06:22)(   Читать дальше...   )Жанр: Folk, Acoustic, Indie RockПродолжительность: 00:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B9022CB443951BBBCC337F46A8E0AD31A78603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573539   (363730) от 17.11.2012
-
-Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363730.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:21) 01. Allure
-(4:08) 02. Summer In Sicily
-(3:39) 03. Mystery Of You
-(5:05) 04. Everything You Need
-(3:25) 05. Once It Was Home
-(2:45) 06. Souvenir
-(4:40) 07. Moonlit Colonades
-(4:24) 08. Her Face Remembered
-(3:52) 09. Yesterday Knows Why
-(3:47) 10. So Near So Far Away(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F515FAE816A11DAE3BE58DC48EC21CF98D12517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950892   (363658) от 29.10.2015
-
-Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minaret
-02. Ariv El Pos
-03. Caravana
-04. Carima(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B187AD47F17F513E428D2E58A4D3CD86DE29F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951018   (363653) от 29.10.2015
-
-Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyberspace 4:31
-02. Lost Paradise 8:50
-03. Beyond The Ocean Waves 5:53
-04. Inside The Heart Of Universe 4:43(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908EEDA38DB649ECCC7813395CA88B40CCE7DEFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

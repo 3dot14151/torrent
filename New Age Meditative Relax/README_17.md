@@ -1,3 +1,32 @@
+###  Публикация: 1316920   (503284) от 29.07.2019
+
+Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. I Miss You India
+03. Temple Of The Sun
+04. Undergraund Source(   Читать дальше...   )Жанр: New age, ChilloutПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1460CDE8A281209113D1AA3353F5C13019D687DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 234728   (500669) от 09.09.2010
 
 Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
@@ -759,35 +788,6 @@ Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5BC24663E34CBE60D086DBCDDB0480AD371FF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056006   (483293) от 24.09.2016
-
-Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered [MP3|320 Kbps] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Around (Northern Lights Club Mix) (Remastered 2016) (10:28)
-02. Age Of Loneliness (Enigmatic Club Mix) (Remastered 2016) (6:15)
-03. Push The Limits (ATB Remix) (Remastered 2016) (7:51)
-04. Gravity Of Love (Judgement Day Club Mix) (Remastered 2016) (5:59)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3B744D8EFDE4A04DE73F0250D5DB98AE5B531B
 ```
 
 https://mybot314.ru/tekegram_catalog/

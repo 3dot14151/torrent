@@ -1,3 +1,177 @@
+###  Публикация: 1224101   (668246) от 08.05.2018
+
+Jack Teagarden - 1940 - 1941 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love For Sale [03:00]
+02. You, You Darling [03:07]
+03. The Moon And The Willow Tree [03:16]
+04. Wham (Re-Bop-Boom-Bam) [03:11](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B913F69FC6802EE2E9460236001719ECEC0D94CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224105   (668191) от 08.05.2018
+
+Johnny Lytle - The Loop & New And Groovy (1965, 1966) 1990, BGP [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Loop (Johnny Lytle) (2:18)
+02. The More I See You (Mack Gordon, Harry Warren) (4:20)
+03. The Man (Johnny Lytle) (2:42)
+04. Time After Time (Sammy Cahn, Jule Styne) (4:28)(   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E93DA78B5872FC2805212BEFA985FC383DD57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224130   (668187) от 08.05.2018
+
+Lucia Minetti - Jazz Nature (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nearness of You
+02. Alone Together
+03. Wild Is the Wind
+04. So in Love(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B132CEBA14109A4A36612461C9C6C25059AC84B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137421   (667999) от 26.05.2017
+
+Humphrey Lyttelton - The Best Of Humphrey Lyttelton (1951 - 1957) 3CD, 2003, EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667999.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bad Penny Blues [02:46]
+02. March Hare [02:37]
+03. The Onions [02:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 03:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19135974D121391821C6066E5544133B4FD8FF3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137205   (667996) от 26.05.2017
+
+The Walter Norris Quartet - Sunburst (1991) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunburst [05:45]
+02. What's New [07:45]
+03. Bird [04:20]
+04. Naima [05:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCA6858FF9B401A03B417B17BAABC2CF94D5D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137426   (667990) от 26.05.2017
+
+The Zawinul Syndicate - The Immigrants (1988) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March Of The Lost Children (4:16)
+02. Criollo (4:21)
+03. Shadow And Light (5:06)
+04. King Hip (5:04)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC83B129BBF392B352973B93BB93FB788E353FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137412   (667942) от 26.05.2017
 
 Erin Boheme - What Love Is (2006) Сoncord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -577,180 +751,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3BCE33AAD95B5B9905B55FAF0901C039CF76E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138247   (664557) от 29.05.2017
-
-Alice Babs - Early Recordings 1939-1949 (2005) Vax Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Hundred to One [02:48]
-02. Shoo Shoo Baby [03:12]
-03. I'm Beginning to See the Light [03:09]
-04. Don't Get Around Much Anymore [03:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16C4FC52EC1465207B822802782F8F780A7A02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138236   (664500) от 29.05.2017
-
-Alice Babs - Far Away Star (1973 - 1976) Bluebell [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away Star [03:12]
-02. Serenade to Sweden [03:10]
-03. Spaceman [03:09]
-04. Jeep's Blues [04:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27981A7CA625F63CE0E76E37AD8D5EC74F4DFFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138447   (664485) от 29.05.2017
-
-Gato Barbieri - The Shadow Of The Cat (2002) Peak Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Chico [05:01]
-02. The Shadow Of The Cat [05:19]
-03. Last Kiss [05:13]
-04. If I Was Your Woman [04:37](   Читать дальше...   )Жанр: Ethnic Jazz, Latin JazzПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998219E4116BF5FBD6689587A584FE9D1B96F7F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224794   (664017) от 12.05.2018
-
-Harry Allen Quartet - French Lullaby (2018) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Wait For You [06:37]
-02. La Mer [06:36]
-03. C'est Si Bon [05:15]
-04. The Summer Knows [05:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C94EF52E1DD253A4D62AE226E5E59FDE67A772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138683   (663249) от 30.05.2017
-
-Terri Wells - Just Like Dreamin' (1984) 2012,  Big Break Records [FLAC|Lossless|tracks + .cue] <Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Givin' All My Love (6:33)
-02. Just Like Dreamin' (5:16)
-03. Falling Leaves (4:42)
-04. Can't Stop (4:11)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EE7E5427A04D99A92C3B826A7AD55CB7997A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138643   (663248) от 30.05.2017
-
-Al Cohn & Zoot Sims - Al And Zoot / You 'N' Me (1957, 1960) 2002, Азбука Звука [APE|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Wonderful World [06:30]
-02. Brandy and Beer [03:50]
-03. Two Funky People [04:30]
-04. Chasing the Blues [06:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA29AD42BEC864E99CF4D6ED4E206C0943462F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

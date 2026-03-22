@@ -1,3 +1,380 @@
+###  Публикация: 1693938   (121282) от 23.01.2024
+
+VA - Video Game Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trammps -- Disco Inferno (3:34)
+02. ZZ Top -- Gimme All Your Lovin’ (3:58)
+03. Chicago -- If You Leave Me Now (3:54)
+04. Gorillaz -- Feel Good Inc (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 03:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0B4DAB15B767EC652F6D4CA19963B126207E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693936   (121280) от 23.01.2024
+
+VA - Gym Beast Mode Workout 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail The Villain -- Runaway (3:11)
+02. Billy Talent -- Try Honesty (4:16)
+03. Linkin Park -- Numb (3:08)
+04. Green Day -- The American Dream Is Killing Me (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE25AAE6FC9DDAE731BAD98B13595B7873CC847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694001   (121272) от 23.01.2024
+
+Rock Shed Rangers - Different Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frame Of Reference (3:32)
+02. Nothing Left (3:32)
+03. Get Along (3:53)
+04. Revolve (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927942C464171C4469D5764096C5F03172A81492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694014   (121112) от 24.01.2024
+
+Omega - Az Arc (1981) Reissue, Remastered, 2004, Hungaroton [APE|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Életfogytig rock and roll (6:28)
+02. Kemény játék (3:45)
+03. Az arc (3:51)
+04. A nagy folyó (3:37)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9809B407B863489809573F06111AFBE7AC4178E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694168   (120997) от 25.01.2024
+
+John Wetton - Caught In The Crossfire (1980) Expanded Edition, 2024, Spirit Of Unicorn Music [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn On The Radio [00:03:41]
+02. Baby Come Back [00:03:23]
+03. When You Realize? [00:04:30]
+04. Cold Is The Night [00:05:20](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F811318A3EBE56F7C3A4FAF495DE882F8C8DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694171   (120974) от 25.01.2024
+
+Omega - Az Omega koncertek legnagyobb sikerei eredeti felvételeken (1994) [FLAC|Lossless|WEB-DL|tracks] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babylon [00:04:08]
+02. Fekete pillangó [00:04:08]
+03. Metamorfózis I. [00:03:46]
+04. Ezüst eső [00:05:10](   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FEF0796742F0DA89C8C0A792E0FA511A90DB44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694349   (120949) от 25.01.2024
+
+The Blushing Brides - Broken Hearts on Bleecker Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimmie (4:03)
+02. Back to Eden (5:08)
+03. Love You Too Much (5:34)
+04. Jezebel’s Lies (4:34)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAA732A53EE27AF42FFECAE07B4D582651D1375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694305   (120947) от 25.01.2024
+
+Ivy Gold - Broken Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Broken Silence (00:05:08)
+02 - No Ordinary Woman (00:03:25)
+03 - Got What I Need (00:03:45)
+04 - House of Cards (00:03:23)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7454B292EC17793E87AFCD2532AB2D0B698141C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695336   (120415) от 28.01.2024
+
+Jim Capaldi - The Outside Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1 - Living On the Outside
+Disc 2 - Poor Boy Blue
+Disc 3 - Live Recordings 1993 – 2001(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C348D378C0C73E0E8C8531057B9991EC84C63C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695656   (120073) от 30.01.2024
+
+Suspect Down - Living Life Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Life Fast (3:23)
+02. F.L.Y.C. (2:52)
+03. Sins (3:10)
+04. Where's Your Commitment (3:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9308A587A15BDC277798F9D0DE943583256EA723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695926   (119951) от 31.01.2024
+
+VA - Mellow Heavy Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disturbed - Darkness (3:55)
+02. Theory Of A Deadman - The One (3:58)
+03. Shinedown - special (3:44)
+04. Skillet - A Little More (4:50)(   Читать дальше...   )Жанр: RockПродолжительность: 01:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F492B4CCFEC9F958CFBF8656F79813B6BB241B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695928   (119949) от 31.01.2024
+
+VA - Sixties Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doors - Light My Fire (Radio Edit) (2:54)
+02. Grateful Dead - The Golden Road (To Unlimited Devotion) (2:13)
+03. Fleetwood Mac - Coming Home (3:55)
+04. VANILLA FUDGE - You Keep Me Hangin’ On (2:56)(   Читать дальше...   )Жанр: RockПродолжительность: 03:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B1AA91E52B23C316BB885751D64C9D7D4D8679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695922   (119945) от 31.01.2024
+
+VA - Home Workout - Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blur - Song 2 (2012 Remaster) (2:01)
+02. Red Hot Chili Peppers - Can’t Stop (4:29)
+03. Twisted Sister - We’re Not Gonna Take It (3:40)
+04. Héroes del Silencio - Entre dos tierras (6:08)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057485D8074DAADBD15A5ACFB1B6767F4DD4E917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695723   (119918) от 31.01.2024
 
 Sergio Rowles & The Cinnamon Souls - Sergio Rowles & The Cinnamon Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -361,384 +738,6 @@ UFO - The Misdemeanor Tour - Live At The Oxford Apollo (1985) Reissue, 2025, HNE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D40626E134C89E927ED0D8F829235CDC4659C9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699989   (117410) от 15.02.2024
-
-Paul Rodgers - Midnight Rose (2023) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Роджерс - британский Рок вокалист, экс-участник групп Free и Bad Company, также известный по совместной с Джимми Пейджем группе The Firm и сотрудничеству с Queen.
-Это первый за 24 последних года диск музыканта с новым материалом.01. Coming Home
-02. Photo Shooter
-03. Midnight Rose
-04. Living It Up(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75A0DF67A8F3D1613B86CDC9DD341D5B9C231CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699688   (117398) от 15.02.2024
-
-Anthony Phillips - Private Parts & Pieces IX-XI (2018) 4CD [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop, Folk, World, Country, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Roller [00:01:56]
-02. Piano Drama Movement I [00:06:22]
-03. Sunset Drifter [00:03:24]
-04. Lostwithiel Link [00:00:58](   Читать дальше...   )Жанр: Rock, Pop, Folk, World, Country, AmbientПродолжительность: 4CD, 03:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DA4990578D015F0595EBAD68D0E9F5EBE22467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699907   (117397) от 15.02.2024
-
-The Twin Souls - Family & Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Till I Did (2:38)
-02. All For You (3:07)
-03. Tenderly (2:27)
-04. Hey Hey (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1FAE7FC524E4C66CC4D83FC22ABD254718BE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699906   (117365) от 15.02.2024
-
-The Devils - Let The World Burn Dow (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Is The Illusion (4:20)
-02. Killer's Kiss (3:17)
-03. Mr Hot Stuff (3:31)
-04. Big City Lights (2:45)(   Читать дальше...   )Жанр: Rock, Post-PunkПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9DA4DA6F7CA5738343895C3FC1C2DD3776298E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700145   (117200) от 16.02.2024
-
-Peter Gabriel - Shaking The Tree: Sixteen Golden Greats (1990) 1st German Press [APE|Lossless|image + .cue] <Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solsbury Hill (4:20)
-02. I Don't Remember (3:48)
-03. Sledgehammer (4:56)
-04. Family Snapshot (4:25)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF519B2004F5D9B0593D856ED0A1E06D57941CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700277   (117199) от 16.02.2024
-
-Steve Hackett - The Circus and the Nightwhale (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steve Hackett (Stephen Richard Hackett) - британский гитарист и автор песен. Получил известность будучи участником прогрессив-рок-группы Genesis, к которой он присоединился в 1970 году. Хэкетт участвовал в записи восьми альбомов группы, покинул её в 1977 году, после чего занялся сольной карьерой.01. People of the Smoke
-02. These Passing Clouds
-03. Taking You Down
-04. Found and Lost(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F159BC93726BD455912500035618770320EC61E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700524   (117088) от 17.02.2024
-
-VA - 100% Rock - Rock Hits - From Classic Rock to Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linkin Park - Numb (3:08)
-02. Gayle - abcdefu (2:49)
-03. twenty one pilots - Stressed Out (3:22)
-04. Red Hot Chili Peppers - Dani California (4:42)(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B172B924AEED44AE189C02875A86B7C24B8465CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700526   (117072) от 17.02.2024
-
-VA - Rock Hits - women and men who know how to rock - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gayle - abcdefu (2:49)
-02. Paramore - Misery Business (3:32)
-03. Halestorm - Shoot to Thrill (5:07)
-04. Billy Talent - Devil in a Midnight Mass (2:52)(   Читать дальше...   )Жанр: RockПродолжительность: 04:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D2E1BF34CD0E22819E206025701C9426144FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700536   (117048) от 17.02.2024
-
-VA - Women in Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gayle - abcdefu (2:49)
-02. Paramore - Misery Business (3:32)
-03. Halestorm - Shoot to Thrill (5:07)
-04. Saint Lu - Don't Miss Your Own Life (4:01)(   Читать дальше...   )Жанр: RockПродолжительность: 02:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A25F629A30C77C4067A6E5C141D1C567071C9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700532   (117042) от 17.02.2024
-
-VA - Rock Party Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blur - Song 2 (2012 Remaster) (2:01)
-02. Héroes del Silencio - Entre dos tierras (6:08)
-03. Green Day - When I Come Around (2:58)
-04. The Sisters Of Mercy - Temple of Love (1992) (8:08)(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFFF9E2106BAFBD7F81BC63E16B1C9878B25F867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700645   (117036) от 17.02.2024
-
-Life by Night - Life by Night (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phone to Phone (04:02)
-02. I Believe in You (03:58)
-03. Angel (04:17)
-04. Non Stop World (04:06)(   Читать дальше...   )Жанр: AOR, New WaveПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7C7198F0F233A77314243E33EF5C96D782293F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700577   (117033) от 17.02.2024
-
-Galahad - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind the Veil of a Smile (06:20)
-02. Everything's Changed (07:40)
-03. Shadow in the Corner (05:28)
-04. The Righteous and the Damned (08:37)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F710ACD41676B33A3D31AE8D223B874A0EBEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700640   (117012) от 17.02.2024
-
-Keven Jordan - No Sign of Rain (1991) [FLAC|Lossless|WEB-DL|tracks] <AOR, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is a Reason (04:32)
-02. No Sign of Rain (04:32)
-03. I Look to You (04:00)
-04. Just Another Day (04:35)(   Читать дальше...   )Жанр: AOR, Pop RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919417321E71E5532E2C2BB27256C263737B9878
 ```
 
 https://mybot314.ru/tekegram_catalog/

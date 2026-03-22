@@ -1,3 +1,236 @@
+###  Публикация: 955599   (333711) от 11.11.2015
+
+VA - Winter Rock (2015) [MP3|192-320 кб/с]<Rock, Hard Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Idol - Rebel Yell
+02. Wax Audio - Whole Lotta Sabbath
+03. Queen - We Will Rock You
+04. Led Zeppelin - Rock And Roll(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam RockПродолжительность: 02:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787148E0449E3E55D14ADB5F773C8B84F5474A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955676   (333705) от 11.11.2015
+
+VA - Всё это Рок-&-Ролл (2009) [MP3|192 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Монгол - Summertime
+02. Бригада С - Звезда микрорайона
+03. Високосный год - Лучшая песня о любви
+04. Константин Никольский - Мой друг художник и поэт(   Читать дальше...   )Жанр: RockПродолжительность: 04:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5BC73614D21CC5FF242D140C3DF38B0B8032E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579643   (333359) от 29.09.2022
+
+Eliza Neals - Compilation (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgotten Town
+02. Another Lifetime
+03. Hey, Take Your Pants Off
+04. Cold Cold Night(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5A9C782838859816C3D94084C0260ACA98CA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420402   (332418) от 01.11.2020
+
+VA - Music for You vol.14 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuclear Power Trio - A Clear and Present Rager (03:36)
+ 02. Soen - Antagonist (06:07)
+ 03. Pyramaze - Particle (04:34)
+ 04. Soilwork - The Nothingness And The Devil ( (05:36)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF61CCACD868C280C8CB082C3EBCE6F3F0CCAE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331362   (331887) от 15.10.2019
+
+VA - 100 Rock Ballads Vol.2 (2019) [MP3|320 Kbps] <Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331887.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gary Moore - Nothing's The Same 5:07
+002. Whitesnake - Is This Love 4:41
+003. Lita Ford with Ozzy Osbourne - Close My Eyes Forever 4:46
+004. Skid Row - In A Darkened Room 3:55(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 08:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A165BB419FB1383769CE3C0333A8096CC27F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957962   (325630) от 19.11.2015
+
+VA - Covered By Slade (2015) [MP3|128 кб/с]<Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donnie Iris - Love is like a rock
+02. Slade - Love Is Like A Rock
+03. Chuck Berry - I'm a rocker
+04. Slade - Iґm A Rocker(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53552421B7052577A9D607C8ADE0A906E9FB979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507189   (320283) от 03.11.2018
+
+VA - Re:Aквариум (Трибьют) (2012-2013) (Lenta.ru - 135 треков, Kroogi.com - 194 трекa) [MP3|96-320 кб/с]<Rock>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320283.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Re:Аквариум" — трибьют-проект, посвящённый 40-летнему юбилею группы «Аквариум», организованный в 2012 году Lenta.ru и Kroogi.com при поддержке Нашего радио. Участие в проекте мог принять любой коллектив, приславший кавер-версию песни группы «Аквариум» на один из сайтов-организаторов.
+В проекте приняли многие известные коллективы, такие как Ленинград, Сплин, (   Читать дальше...   )01. Московский Синодальный Хор - Сокол (07:42) <320kbps>
+02. Мох - Миша Из Города Скрипящих Статуй (03:43) <320kbps>
+03. Вишня Алексей - Начальник Фарфоровой Башни (05:12) <320kbps>
+04. Чубыкин Олег - Немое Кино (02:39) <320kbps>(   Читать дальше...   )Жанр: RockПродолжительность: 20:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD77FFEF7F9D6D92A63BD837FE0E6340706AFD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331390   (320222) от 17.10.2019
+
+VA - Жизнь и немного любви из русского рока-2 (2019) [MP3|320 Kbps] <Русский рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ДВУРЕЧЬЕ - Ветер в облаках.
+002. Квартет им. Достоевского - Наши глаза.
+003. Fort Royal - Не впускай зверя в дверь.
+004. Мегаполис и Ёлка - Посвящение Деннису Силку.(   Читать дальше...   )Жанр: Русский рокПродолжительность: 09:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E8E8A329CB8DF961B0B231092D684E719C9A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 844212   (318036) от 25.11.2014
 
 VA - 100 Hits Total Rock (2014) 5 CD (2014) [MP3|320 кб/с]<Rock>
@@ -516,244 +749,6 @@ The Cult - Greatest Hits (2016) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6998B4A50AD938828ECF065ED385B04B064A0E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184535   (298704) от 18.11.2017
-
-VA - Soul Survivor Delux Edition Hard Rock (2017) [MP3|192-320 Kbps] <Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298704.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. All but One - Square One
-002. Xiu Xiu - Crank Heart
-003. Jeff Buckley - Mojo Pin
-004. Last Revelations - If This Could Last Forever(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 10:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928753F98A4989523672FC0109E524208CD24476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334093   (298470) от 27.10.2019
-
-VA - The Best World Rock Hits (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298470.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Slipknot - Psychosocial
-002. From Ashes To New - Land Of Make Believe
-003. Hollywood Undead - We Are
-004. Evanescence - Going Under(   Читать дальше...   )Жанр: RockПродолжительность: 16:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117694DB0931DFA4A2C4998106EA929E645CE916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078844   (297930) от 02.12.2016
-
-Black Sabbath - The Tony Martin Years (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sabbath Stones
-02. I Won't Cry For You
-03. The Illusion Of Power
-04. Virtual Death(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8502E9682D36A0C90A4613FCD3E27A5DBE98CEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423918   (297602) от 14.11.2020
-
-VA - New Rock 3 Русский (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Би-2 - Пекло (4:56)
-02. Lumen - Двести (4:48)
-03. Эскизы - Инди (3:15)
-04. Авантаж - Возвращайся (2:44)(   Читать дальше...   )Жанр: RockПродолжительность: 02:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3110805A44929C46883F14445110552A1119CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 159122   (296092) от 18.12.2009
-
-Монгол Шуудан - Сборник (До 2008) [MP3|192 kbps]<Панк рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - И красный, и белый, и чёрный
-02 - Полиметрия
-03 - По теме
-04 - Бабочка
-05 - Вопросы
-06 - Самара - городок 2
-07 - Узбечка Лейла
-08 - Первомай
-09 - Несколько странно для меня
-10 - Монгол Шуудану(   Читать дальше...   )Жанр: Панк рокПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424075   (295445) от 15.11.2020
-
-VA - Heavy Metal & Rock Christmas (2020) 3CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Electric Christmas Orchestra,The Metal Heroes - Jingle Bells
-02. Willie Powell - O Come All ye Faithful (Instrumental)
-03. Helix - Santa Claus Is Back in Town
-04. The Electric Christmas Orchestra,The Metal Heroes - The Twelve Days of Christmas(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 09:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEF16319D11B110DAD371D8FAF7D96FC8BAE336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331495   (294530) от 29.10.2019
-
-VA - 100 Rock Ballads Vol.3 (2019) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294530.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. White Lion - Cry For Freedom 6:04
-002. Europe - Dreamer 4:25
-003. Iron Maiden - Wasting Love 5:51
-004. Motley Crue - Home Sweet Home 3:51(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 08:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2437FCE06341A4B103F0500264C842EBB5861A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140122   (294337) от 29.10.2019
-
-VA - Music Box (2002-2004) [MP3|320 кб/с] <Rock, Alternative, Metal, Punk, Rapcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hot Chili Peppers Music Box (2002)
-Oomph! Music Box (2002)
-Limp Bizkit Music Box (2002)
-Bon Jovi Music Box (2002)(   Читать дальше...   )Жанр: Rock, Alternative, Metal, Punk, RapcoreПродолжительность: 27:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE7A217AAF20159BCFCBA07CC5FBAAAA6CAC3CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

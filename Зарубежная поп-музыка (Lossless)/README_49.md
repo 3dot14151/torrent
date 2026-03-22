@@ -1,3 +1,235 @@
+###  Публикация: 1311191   (541975) от 29.06.2019
+
+Helen Shapiro - Sensational (Uncollected Helen Shapiro) (2003) [FLAC|Lossless|image + .cue] <Pop, Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Teenager Sings the Blues
+  02. Blues in the Night
+  03. Are You Lonesome Tonight?
+  04. Tearaway Johnny(   Читать дальше...   )Жанр: Pop, Blues, SoulПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D654E906DBA075A4E95EF6B60D5AEC09504AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311491   (541900) от 29.06.2019
+
+Budka Suflera - Mokre Oczy (2002?) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiedy rozum spi (5:13)
+02. Mokre oczy (4:42)
+03. Szaro - Szary film (4:29)
+04. No i gra (3:49)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA0EDE21E672782CB387CDB1842BD23DAF2C0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311407   (541898) от 29.06.2019
+
+Kim Petras - Clarity (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarity (02:02)
+2. Icy (03:09)
+03. Got My Number (02:54)
+04. Sweet Spot (03:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4C24C599BE3CDAEDBE7E99168505EC6723428D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311497   (541800) от 29.06.2019
+
+Budka Suflera - Bal Wszystkich Swietych (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bal Wszystkich Swietych (4:26)
+02. Nawiedzony Dom (4:26)
+03. Blekitna Arka (5:46)
+04. Nie Umiesz Kochac (5:18)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB222EA90CCBB04EEFA7DE97AB2ACDBAB3C0226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557375   (541123) от 15.06.2022
+
+Los Rivera Destino - Besitos Y Besitas (2022) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Foto de Perfil (00:03:43)
+02 - Edgar Allan Poe (00:03:44)
+03 - Mis Amigos (00:03:00)
+04 - Pancakes (00:05:33)(   Читать дальше...   )Жанр: Latin Pop, Pop RockПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7866995F53826380C912AD6DF0DF33FDE42282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049977   (540654) от 07.09.2016
+
+VA - Divas (2004) [FLAC|Lossless|image + .cue] <Pop, Electronic, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink - Trouble.
+02. Dido - All You Want.
+03. Avril Lavigne - I'm With You.
+04. Sarah McLachlan - Angel.(   Читать дальше...   )Жанр: Pop, Electronic, Jazz, RockПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657505788ECDAAE31B245D19B4026B9F9406A340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239215   (540622) от 04.08.2018
+
+MarieMarie - O (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Art Pop, Dark Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Favorite Rain
+02. Wrap Your Night Around Me
+03. Salt Is My Sugar
+04. Sailor(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Dark Pop, Indie Pop, Electronic, Female VocalПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A94F88A693AA1EA37E8DD65F971EF9E7690E850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239195   (540485) от 04.08.2018
+
+VA - Sounds Of The Eighties The Rolling Stone Collection 1983-1985 (1995) Time Life Music [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540485.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так, продолжаем серию публикаций о холдинге Time Life Music и музыкальных сериях, изданных музыкальным лейблом. В настоящем релизе, (который является продолжением релиза см. ссылку внизу), так же каждый отдельный выпуск (в данном случае, с 1983 по 1985 год) определяет стилистические тенденции и конкретных художников, влиятельных в рок-музыке именно в эти годы по (   Читать дальше...   )01. Van Halen - Jump  (4:04)
+02. ZZ Top - Sharp Dressed Man  (4:15)
+03. Rod Stewart - Some Guys Have All The Luck  (4:34)
+04. Tina Turner - What's Love Got To Do With It  (3:50)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5106881351667933709B2903BDB186802A9922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050160   (540368) от 07.09.2016
 
 Bee Gees - Best Of Bee Gees Vol.1 (1969) Reissue, 1987, Polydor [FLAC|Lossless|image + .cue]<Pop Rock>
@@ -519,244 +751,6 @@ Nox - Oromvolgy (2006) [FLAC|Lossless|image + .cue] <Pop-Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B24A2FF161B57C4E64D63138AED1464D1E670CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155115   (531357) от 04.08.2017
-
-Milli Vanilli - Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Europop, Hip-Hop, 80's>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Or Nothing (3:22)
- 02. Baby Don't Forget My Number (4:10)
- 03. Blame It On The Rain (4:09)
- 04. Boy In The Tree (3:12)(   Читать дальше...   )Жанр: Europop, Hip-Hop, 80'sПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E0C1C7E3F69EEE24C3E20318D0BDC71AA91FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926750   (531272) от 11.08.2015
-
-VA - NOW That's What I Call Music! 91 (2015) 2CD[FLAC|track+.cue]<Pop, Electronic, Pop-Rock, Dancepop, Funk, Soul, House, R&B, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь вот это я и называю - музыка! Примерно так можно перевести выходящие с 1983 года в Великобритании сборники. Сборники пользуются бешеной популярностью и в последнее время стали выходить один раз в два-три месяца. И если первые умещались на двух винилах, то сейчас, как мне кажется, и двух CD маловато. Каждый из сборников становился хитом. Так предшественник (   Читать дальше...   )CD1:
-01. Ellie Goulding - Love Me Like You Do (From 'Fifty Shades Of Grey')  (4:01)
-02. Wiz Khalifa Featuring Charlie Puth - See You Again (From 'Furious 7')  (3:50)
-03. OMI - Cheerleader (Felix Jaehn Remix Radio Edit)  (3:02)(   Читать дальше...   )Жанр: Pop, Electronic, Pop-Rock, Dancepop, Funk, Soul, House, R&B, Hip-HopПродолжительность: 02:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22703E9DF29D04D4C303DAB568CC390CBF5CB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533808   (530664) от 11.08.2012
-
-VA - Back To The Sixties (1997) 3CD [FLAC|Lossless]<Pop Rock, Oldes, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Status Quo - Pictures Of Matchstick Men [03:09]
-02. Small Faces - Itchycoo Park [02:52]
-03. PP Arnold - The First Cut Is The Deepest [03:14]
-04. Move - Blackberry Way [03:34]
-05. The Turtles - Happy Together [02:54]
-06. The Beach Boys - Surfin' Safari [01:56]
-07. Herman's Hermits - I'm Into Something Good [02:32]
-08. Swinging Blue Jeans - Hippy Hippy Shake [01:44]
-09. The Searchers - Needles And Pins [02:12]
-10. Easybeats - Friday On My Mind [02:42](   Читать дальше...   )Жанр: Pop Rock, Oldes, RetroФормат: 3CD BoxSetПродолжительность: 02:47:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927149   (529722) от 12.08.2015
-
-Blue System - Deja Vu (2000) [FLAC|image+.cue]<EuroDisco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under My Skin
-02. Do You Wanna Be My Girlfriend
-03. Titanic 650604
-04. Love Suite(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86D8755C2E76E1A1E47BADC86A7C177A9B99EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052084   (529201) от 13.09.2016
-
-Jennifer Paige - Jennifer Paige (1998) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crush    (03:20)
-02. Questions    (04:15)
-03. Always You    (04:05)
-04. Get To Me    (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5489B4F3BD8C60F4617962053F629259A2C318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558679   (528805) от 22.06.2022
-
-Fools Garden - Captain... Coast Is Clean (2021) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528805.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Captain… Coast Is Clear» — так называется новый и уже одиннадцатый студийный альбом группы из Германии FOOLS GARDEN. В музыкальном плане альбом тесно связан со своим предшественником «Rise and Fall» 2018 года, но в целом также предоставляет новые, захватывающие, возможно, незнакомые музыкальные впечатления. «Он оказался более электронным», — говорит ХИНКЕЛЬ и ни (   Читать дальше...   )01. An Endless Sea
-02. Electrify
-03. Highest Mountain
-04. Shimmering Lights / Everything You Wanted(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911DFD6F67E9B7E80732AC9564DB775658986843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558663   (528790) от 22.06.2022
-
-VA - Diskoteka в стиле O-Zone (2005) [FLAC|Lossless|tracks + .cue] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O-Zone - Dragostea Din Tei (Romanian Version) (3:32)
-02. Mahay feat. Radu - Dulce (3:50)
-03. Impact - Babe (English Version) (3:41)
-04. Refflex - Viteza Luminii (3:38)(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B812162DDA87E512F2F7CBC702B17A66CCBF084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240474   (528747) от 11.08.2018
-
-Giusy Ferreri - Girotondo (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fa talmente male (2:59)
-02. L'amore tante volte (3:02)
-03. Partiti adesso (3:15)
-04. L'amore mi perseguita (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF8C4747DA1BC68783917476B6930B90501B52C
 ```
 
 https://mybot314.ru/tekegram_catalog/

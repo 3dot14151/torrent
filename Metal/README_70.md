@@ -1,3 +1,119 @@
+###  Публикация: 1066886   (410070) от 27.10.2016
+
+Mindghost - The Anti-Citizen (2016) [MP3|320 Kbps] <Stoner Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free From The Demon
+02. Life Or Death
+03. My Last Breath (with Blaze Bayley, ex. Iron Maiden)
+04. Devil On A Masquerade(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EC0316F7F7AEA7E91F1D02D668750AC5EB5BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066466   (409525) от 27.10.2016
+
+Aephanemer - Memento Mori (2016) [MP3|320 Kbps] <Melodic Death Metal , MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unstoppable
+02. Sisyphus' Bliss
+03. Hellebore
+04. The Oathsworn(   Читать дальше...   )Жанр: Melodic Death Metal , MDMПродолжительность: 01:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBC5EE69241140AB284727CDF93A49554CC0086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066871   (409270) от 27.10.2016
+
+Avenged Sevenfold - The Stage (2016) [MP3|320 Kbps] <Heavy Metal, NWOAHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stage
+02. Paradigm
+03. Sunny Disposition
+04. God Damn(   Читать дальше...   )Жанр: Heavy Metal, NWOAHMПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B294EC3F053C3D5C5AD6802586D9B4E6870BDB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252515   (409191) от 05.10.2018
+
+Axxis - Monster Hero (2018) [MP3|320 Kbps] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Monster Hero (4:04)
+ 2. Living as Outlaws (3:33)
+ 3. Rock is My Religion (4:09)
+ 4. Love is Gonna Get You Killed (3:59)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797B584E1B0BFE30A7CFBD8A500E1E3750DADCD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252554   (409090) от 05.10.2018
 
 Behemoth - I Loved You At Your Darkest (2018) [MP3|320 Kbps] <Black Metal, Death Metal>
@@ -670,137 +786,6 @@ The Black Dahlia Murder - Nightbringers (2017) Limited Edition [MP3|320 Kbps] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50C30C0E0763A7601CC1D013082FD800DD9BC244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569448   (392987) от 02.11.2012
-
-Carach Angren - 3 Albums + EP + Demo (2004-2012) [MP3|256-320]<Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392987.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. There Was No Light
-2. The Ghost of Raynham Hall
-3. After Death Premises
-4. Ethereal Veiled Existence
-5. Yonder Realm PhotographyЖанр: Symphonic Black MetalПродолжительность: 00:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5704D5C32DFA6EF03C1F3CD4D409328D7362D9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569554   (392235) от 03.11.2012
-
-Hanging Garden - 2 Albums (2007-2009) [MP3|320]<Melodic Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392235.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Where Serpents Dwell
-2. The Blackbirds
-3. Hands That Decay
-4. Times Of Disgrace
-5. Wolves Cry Out
-6. Oceans Away
-7. The Fires Of Sheol
-8. Inherit The EdenЖанр: Melodic Doom/Death MetalПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D2FB06CF3705539EA9C3C90211E3C0B07D4B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569826   (392230) от 03.11.2012
-
-West Of Hell - Spiral Empire (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Father of Lies (06:03)
-02. Water of Sorcery (04:37)
-03. Demon Sent (04:32)
-04. Faceless the Droids (04:59)
-05. Unworthy (05:11)
-06. Singularity (06:43)
-07. To War (05:31)
-08. Soul Taker (06:03)
-09. Spiral Empire (05:44)
-10. Onslaught (03:27)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Thrash MetalПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46478557DDDEA7927BD2CC3CF35D365D9E36F051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569670   (392225) от 03.11.2012
-
-Cryogenic Implosion - Creation Of The New World (2011) [MP3|320 кб/с]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick-Off (Intro) 01:17
- 02. Delete Humanity 04:37
- 03. Collector Of Dead Souls 03:40
- 04. Behind A Life Side 04:11
- 05. Rev.6:13-14 01:44
- 06. Creation Of The New World 03:58
- 07. Madness Of Eternity 03:31
- 08. Mechanization Of Heavenly Light 03:30Жанр: Death MetalПродолжительность: 00:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0B9246B6222B0976B5043A51E5EA1AAB31E8F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,380 @@
+###  Публикация: 1671686   (170989) от 26.10.2023
+
+Queen - Jazz (1978) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mustapha (Remastered 2011) [00:03:01]
+02. Fat Bottomed Girls (2011 Remaster) [00:04:15]
+03. Jealousy (Remastered 2011) [00:03:13]
+04. Bicycle Race (Remastered 2011) [00:03:00](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94553574ABA3DB2525FC6402ABF4F6FC9DB9C1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671826   (170985) от 26.10.2023
+
+VA - 80s Rock Standards (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Another One Bites The Dust (Remastered 2011) (3:35)
+02. Aerosmith - Dude (Looks Like A Lady) (4:25)
+03. Pat Benatar - Hit Me With Your Best Shot (2:52)
+04. Bon Jovi - Bad Medicine (5:16)(   Читать дальше...   )Жанр: RockПродолжительность: 02:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35583E19AB0E53BA1AA83BE7CBAA3D9D49BB24B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671875   (170983) от 26.10.2023
+
+Queen - Innuendo (1991) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170983.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. Innuendo (Remastered 2011)
+02. I'm Going Slightly Mad (Remastered 2011)
+03. Headlong (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7A5F11960CF1F2025D2B838FAA457221BB6611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671881   (170980) от 26.10.2023
+
+Queen - Made In Heaven (1995) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170980.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. It's a Beautiful Day (Remastered 2011)
+02. Made in Heaven (Remastered 2011)
+03. Let Me Live (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8695F5E6EB92B4559DC23E31EB4AB664EFDE6EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671888   (170979) от 26.10.2023
+
+Queen - The Works (1984) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170979.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. Radio Ga Ga (Remastered 2011)
+02. Tear It Up (Remastered 2011)
+03. It's A Hard Life (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33C1CAA71C89D8622C3C157B95385962BDDBD44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671723   (170971) от 26.10.2023
+
+Queen - The Game (1980) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play The Game (Remastered 2011) [00:03:32]
+02. Dragon Attack (Remastered 2011) [00:04:18]
+03. Another One Bites The Dust (Remastered 2011) [00:03:34]
+04. Need Your Loving Tonight (Remastered 2011) [00:02:49](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B225333CE7BD5A776182B2CDFD9E0EB5B46CC7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671852   (170933) от 26.10.2023
+
+Queen - A Kind Of Magic (1986) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170933.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. One Vision (Remastered 2011)
+02. A Kind Of Magic (Remastered 2011)
+03. One Year Of Love (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72319843AE98E5B1DDF5075C4CD77CADFCD54891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596280   (170483) от 09.12.2022
+
+Jeff Berlin - Jack Songs (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creamed (feat. Alex Lifeson) (5:48)
+02. Theme from an Imaginary Western (feat. Eric Johnson, Gregg Bissonette) (5:29)
+03. A Letter of Thanks (feat. Alex Ligertwood, Pat Bergeson, Michael Whittaker) (4:43)
+04. L'angelo Misterioso (feat. Sammy Hagar, Scott Henderson, Gary Husband) (5:55)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9002FB1B5A5EDF4601C55FB2F1D1CE49DB15D9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515211   (170442) от 06.12.2021
+
+Memoria Avenue - Memoria Avenue (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuck
+02. Stranded
+03. Can't Blame It On The Rain
+04. The Air That Breath(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BF75162D94AAC7F7404E17D3406FC883EEB1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515080   (170435) от 06.12.2021
+
+Groundbreaker - Soul To Soul (2021) Japan [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing On The Edge Of A Broken Dream (3:53)
+02. Soul To Soul (3:53)
+03. Captain Of Our Love (4:57)
+04. Evermore (4:33)(   Читать дальше...   )Жанр: AORПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B545D8D6CD66036C78E3D0136C1E6BE6580C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671955   (170354) от 27.10.2023
+
+The Pink Fairies - Screwed Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych/Hard/Space/Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screwed Up [00:03:37]
+02. Digital Sin [00:03:31]
+03. WhatchaGonnaDo [00:04:53]
+04. Hassan I Sahba [00:06:04](   Читать дальше...   )Жанр: Psych/Hard/Space/Garage RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED6CAD19F2E456289148E8E787B0CAC6FCED613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596533   (169934) от 10.12.2022
+
+Dead Meadow - Force Form Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Left Hand Path [00:06:51]
+02. The Lure of the Next Peak [00:05:51]
+03. Valmont's Pad [00:04:27]
+04. To Let the Time Go By [00:03:20](   Читать дальше...   )Жанр: Heavy Psych, Stoner RockПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F4400EFA279200777418ED90DB2EEB64AEEB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596445   (169898) от 10.12.2022
+
+Tarmat - Out Of The Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backbone Feeling
+02. Out Of The Blue
+03. Moving Backwards
+04. Gibberish(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038860A5B6DDA0A9A417E5683ED99550C2DD996C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596339   (169872) от 10.12.2022
 
 Rob Moratti - Epical (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
@@ -368,380 +745,6 @@ Fields Of The Nephilim - Revelations (1993) [FLAC|Lossless|image + .cue] <Gothic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05FEA62E6882941B9FF510510145417E25A209EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672677   (168242) от 29.10.2023
-
-Fields Of The Nephilim - Elizium (1990) [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Dead But Dreaming)
-02. For Her Light
-03. At The Gates Of Silent Memory
-04. (Paradise Regained)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A6FD6A71044ECD2E5514C0BC325F625056FF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515114   (168224) от 08.12.2021
-
-Eric Clapton - The Lady In The Balcony: Lockdown Sessions (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Knows You When You're Down And Out
-02. Golden Ring
-03. Black Magic Woman
-04. Man Of The World(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB5AC62F80DF620450E40B0145ADA7C7E99319E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672687   (168208) от 29.10.2023
-
-Fields Of The Nephilim - Fallen (2002) [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead To The World
-02. From The Fire
-03. Thirst
-04. Darkcell AD(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4335BEAE260BD73A28303232DEE092D2AAB49A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672669   (168190) от 29.10.2023
-
-Fields Of The Nephilim - Dawnrazor (1987) [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (The Harmonica Man)
-02. Slow Kill
-03. Laura II
-04. Preacher Man(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E39A76A13E4903CA2377CF71FE8BCD9DCF817B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597013   (168180) от 12.12.2022
-
-Status Quo - Quo'ing In The Best Of The Noughties (2022) 3xCD, Compilation, Limited Edition [FLAC|Lossless|tracks + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168180.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 - Quo'ing In:
-01. Backbone (Out out Quoin' Mix 2022)
-02. Looking out for Caroline
-03. Two Way Traffic(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16402CF096527061385ADE008DDE85C3DDF1DCDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672780   (168169) от 29.10.2023
-
-Howling Giant - Glass Future (2023) [FLAC|Lossless|WEB-DL|tracks] <progressive rock, stoner metal, desert rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hourglass [00:00:30]
-02. Siren Song [00:05:09]
-03. Aluminium Crown [00:03:23]
-04. Hawk in a Hurricane [00:04:55](   Читать дальше...   )Жанр: progressive rock, stoner metal, desert rockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2497262B689139A17DF57D9FBA173ACC7DDB41B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596941   (168133) от 12.12.2022
-
-VA - Best Rock 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi -- Livin' On A Prayer (4:11)
-02. Rainbow -- Street Of Dreams (4:26)
-03. Kiss -- I Was Made For Lovin' You (4:28)
-04. Iggy Pop -- Search And Destroy (Live From The Rainbow Theatre, London, UK / 7th March 1977) (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABA8D99BBCC09F2F66AEB5A66EF9D455ED020B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672539   (168075) от 29.10.2023
-
-Sky Empire - The Shifting Tectonic Plates Of Power - Part One (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prolegomenon - The Encomium of Creation [00:14:43]
-02. On the Shores of Hallowed Haven [00:04:56]
-03. The Emissary [00:06:55]
-04. Into My Father's Eyes [00:05:47](   Читать дальше...   )Жанр: ProgressiveПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4393071BAC0A410671B3A201A46FDB4542434B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672683   (168020) от 29.10.2023
-
-Fields Of The Nephilim - From Gehenna To Here (2001) [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trees Come Down
-02. Back In Gehenna
-03. Darkcell
-04. Laura(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044B2B2B77D3B637993CE610EA07D5AF8B4556FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672653   (167992) от 29.10.2023
-
-Camel - Mirage (1974) 3CD Remastered & Expanded Edition, 2023, [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive RockПродолжительность: 3 CD, 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BD9E774F889BFDCE14F011567346BD1BF0D5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596664   (167960) от 12.12.2022
-
-Queen - The Miracle (1989) 2xCD, Japanese Edition, Reissue, 2022, EMI [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - The Miracle:
-01. Party (2:25)
-02. Khashoggi's Ship (2:49)
-03. The Miracle (5:02)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECFEFDA308ECCD4F644A9ED97F528E058851770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672714   (167820) от 29.10.2023
-
-Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed King (2018 Remaster) [00:05:51]
-02. Bloodsucker (2018 Remaster) [00:04:12]
-03. Child in Time (2018 Remaster) [00:10:17]
-04. Flight of the Rat (2018 Remaster) [00:07:53](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B381F0ABDD279C78E774A6F685C9F09CEBCF46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597000   (167743) от 13.12.2022
-
-Isafjord - Hjartastjaki (2022) Related [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock, Post-Rock, Folk-Rock Related>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falin Skemmd [00:07:09]
-02. Mín Svarta Hlið [00:05:18]
-03. Hjartastjaki [00:06:17]
-04. Heiðin [00:05:43](   Читать дальше...   )Жанр: Atmospheric Rock, Post-Rock, Folk-Rock RelatedПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1D53AF1474DE45E19A9602D082F1F84556E5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

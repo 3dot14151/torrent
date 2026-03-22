@@ -1,3 +1,176 @@
+###  Публикация: 1556918   (556397) от 12.06.2022
+
+MegaSnake - Charming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sun Don't Shine (00:03:28)
+02 - Shame on Me (00:03:33)
+03 - My Window (00:03:57)
+04 - All in Good Time (00:04:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD02D7E3DF89D701C298326033515E5079DC4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305811   (556111) от 01.06.2019
+
+Kingdom Come - Classic Album Collection 1988-1991 (2019) 3CD Remastered [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556111.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: 1988  Kingdom Come
+CD2: 1989 In Your Face
+CD3: 1991 Hands Of TimeЖанр: Hard Rock |Продолжительность: 02:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09EC096EBB73DAA10D6C5558E30A1C3ACF8FFC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557092   (556099) от 13.06.2022
+
+Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dream Killers (00:04:23)
+02 - Rotten Romance (00:03:58)
+03 - The Velvet (00:04:26)
+04 - Distant Memory (00:03:47)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CBBE7512D18DACD2F2281AAE751E63BA7FD9855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557100   (556094) от 13.06.2022
+
+Raider - Runaway (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dusk Till Dawn (00:03:58)
+02 - High Speed Woman (00:04:00)
+03 - Runaway (00:04:16)
+04 - Come and Get It (00:03:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16C26BB51C0E41F664FCB8C039067C26DB2A9E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307844   (554691) от 11.06.2019
+
+Hardbone - Tailor-Made (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Man's Land [0:03:06.25]
+02. It's A Man Thing [0:04:32.56]
+03. Tailor-Made Woman [0:04:48.23]
+04. Blood From Hell [0:03:27.14](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9A8764CF43F9811701DCA9C324F0A6A13B49B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307841   (554684) от 11.06.2019
+
+Hardbone - Bone Hard (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take It Off [00:03:41]
+02. Bad Boy [00:05:09]
+03. Sound Of The City [00:05:00]
+04. Move On [00:06:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D729975BCB334BF607E1E2DB0867589281EC7D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307839   (554507) от 12.06.2019
 
 Hardbone - This Is Rock'n'Roll (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -570,184 +743,6 @@ Shaman's Harvest - Rebelator (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89E647D4B661D6B47CAD4D4408EF44BDF73DDCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557111   (542698) от 14.06.2022
-
-Swörn (Sworn) - Keshan (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock, Doom, Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tlaloc
-02. Seito Kara Kyōshi-e
-03. Stenbec
-04. Rabarama(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Doom, Desert RockПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE16971A852FDF7FA433C223FEA81047DCB6C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154152   (542518) от 29.07.2017
-
-Alice Cooper - Paranormal (2017) 2CD, Deluхе Editiоn [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paranormal (4:11)
-2. Dead Flies (2:22)
-3. Fireball (4:49)
-4. Paranoiac Personality (3:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C134C1CF1DC27F2CAEA959B6C1E51F82630316B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531660   (541935) от 05.08.2012
-
-WhoCares (Ian Gillan & Tony Iommi) - WhoCares (2012) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WhoCares / Out Of My Mind (5:18)
-02. Black Sabbath / Zero The Hero (7:37)
-03. Ian Gillan Feat. Tony Iommi, Ian Paice & Roger Glover / Trashed (4:04)
-04. M. Rakintzis Feat. Ian Gillan / Get Away (First Time On A Gillan CD) (4:44)
-05. Iommi Feat. Glenn Hughes / Slip Away (Rare Track) (5:26)
-06. Gillan / Don't Hold Me Back (4:38)
-07. Ian Gillan / She Thinks It's A Crime (Limited 7'-vinyl B-side, First Time On CD) (3:56)
-08. Repo Depo Feat. Ian Gillan / Easy Come, Easy Go (2012 Remix, Previously Unreleased) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:35:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557424   (541137) от 15.06.2022
-
-Sideburn - Fired Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel The Heat
-02. Free Ride
-03. Sweet Obsession (Ride On)
-04. Bad Side Of Town(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B79662ADB8309CE57B3C8B46BD662740DC0E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557448   (541124) от 15.06.2022
-
-Rough Cutt - Anthology (2008) 2 x CD, Compilation, Reissue, 2015, Deadline Music [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rough Cutt - американская heavy metal bandа из Los Angeles, California, которая выпустила всего 2 студийных альбома на Warner Bros (в 2021 вышел третий студийник). Rough Cutt никода не добивались большого коммерческого успеха, как другие лос-анджелесские группы того времени. Но Rough Cutt стала кузницей кадров для других групп - гитарист Jake E. Lee играл вместе (   Читать дальше...   )CD - 1 - Fiddler's Studio Sessions 1984, 1987 :
-Take Her (3:53)
-02. Stranger / Dressed To Kill (4:08)
-03. Dreamin' Again (5:57)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52388C8B8183D594F1F7922FA6378062270845C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154093   (538957) от 31.07.2017
-
-Ian Gillan - The best of (1992) [FLAC|Lossless|image + .cue] <Hard rock, Classic rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hang Me Out To Dry
-02. Dirty Dog
-03. Candy Horizon
-04. Don't Hold Me Back(   Читать дальше...   )Жанр: Hard rock, Classic rockПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642A7BD378FE4F58B7C2036E7E0F4C4E7628A2FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

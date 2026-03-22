@@ -1,3 +1,32 @@
+###  Публикация: 1072746   (349731) от 14.11.2016
+
+VA - Romantic Soul Jazz (2016) [MP3|320 Kbps] <Smoot Jazz, Soft Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Tesser & The New Jazz Affair - I Want You to Stay
+02. Alaнde Costa - Pra Tania
+03. Jazz for Study Music Academy - Soft Jazz: Best Background Music
+04. Mazelo Nostra - Smooth Night - Original Mix(   Читать дальше...   )Жанр: Smoot Jazz, Soft JazzПродолжительность: 06:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3392128F27C4B52EAE6F6177AAD52BF197D6D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073015   (347645) от 15.11.2016
 
 VA - Autumn Love Jazz (2016) [MP3|320 Kbps] <Jazz>
@@ -713,35 +742,6 @@ VA - Chillout Cocktail Christmas Jazz (2016) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A5024A91096D3C7662A04C1C0A6BEF48502381A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076854   (311198) от 26.11.2016
-
-VA - Jazz Tunes Vol 1 (2016) [MP3|191-320 Kbps] <Smooth Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reel People feat. Tony Momrelle  Imaani - Amazing (Tarantulaz Main Mix) (6:09)
-02. Richard Cheese - Another Brick In The Wall (Pink Floyd) (2:14)
-03. Ben Tankard - Ben's Coffee House (Featuring Tim Bowman) (4:31)
-04. Basia - Blame It On The Summer (4:29)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 02:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93213D5AE8568BE2C13453FE378F824857E0F891
 ```
 
 https://mybot314.ru/tekegram_catalog/

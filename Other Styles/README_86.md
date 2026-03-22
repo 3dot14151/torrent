@@ -1,3 +1,166 @@
+###  Публикация: 1038719   (599521) от 30.07.2016
+
+Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North American Traditions>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star People    07:25
+02. Those Human Ways    04:49
+03. Black Hills    02:40
+04. On Eagles Wings    04:18(   Читать дальше...   )Жанр: Native American, North American TraditionsПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F3C4E5E1BAB5E1EE54A0FB200D27F19A0CDB23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526345   (599354) от 23.07.2012
+
+Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка из фильмов гениального режиссёра, актёра и композитора Чарли Чаплина. Альбом на двух дисках, автор первого — Чарли Чаплин, второго — Карл Дэвис. Красивая музыка, соответствующая немому кино — оркестровая, живая, передающая атмосферу на экране.1. The Floorwalker (3:31)
+ 2. The Fireman (4:53)
+ 3. The Vagabond (5:42)
+ 4. One A.M. (6:27)
+ 5. The Count (3:37)
+ 6. The Pawnshop (8:27)
+ 7. Behind the Screen (6:29)
+ 8. The Rink (7:47)
+ 9. Easy Street (6:52)
+ 10. The Cure (7:29)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C314282D289B75C63DE5551DBA2460CE16FC6BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525747   (599338) от 23.07.2012
+
+VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599338.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Antares - The Horses Go (4:38)
+2. Bayou Angels - Live With Me (4:04)
+3. C.J. - Bloom (5:27)
+4. D-Juice - 5-th Ocean (6:12)
+5. D-Juice - Fatique (5:25)
+6. DJ Kritoff feat. Reachy Style - The Snow (3:53)
+7. DJ Limiter - Navakho (6:15)
+8. DJ Limiter - The Clockwork Planet (5:16)
+9. DJ Murena - More, Than Anything (6:17)
+10. DJ Murena - N.Y.2001 (4:59)(   Читать дальше...   )Жанр: New age, Meditative, Relax, FlamencoПродолжительность: 04:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A2F2B12C840CA2CAB142EBBC474A594C3D89F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525666   (599217) от 23.07.2012
+
+Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native American, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Need A Change
+02. Falling Rain
+03. Desert
+04. Old Days
+05. Why Do
+06. Mercy On The Teople
+07. Indian Groove
+08. Lost My Love
+09. Iyna
+10. Spring (live-improvisation)Жанр: New Age, Native American, MeditativeПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2692E68222BD91D60820C1E3DC50472D2D71EE94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232599   (598375) от 25.06.2018
+
+Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish Skies
+02. The Day of Absurdity
+03. The Endless Apartment Search Waltz
+04. Reminisce(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF962DB175B1ABAF4258843BF0DF398E5863422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039243   (598045) от 31.07.2016
 
 Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
@@ -621,151 +784,6 @@ Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BECF53F865F012399DE549A3C298E5F751902E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300705   (592772) от 07.05.2019
-
-Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mewtwo Awakes (01:19)
-02. Catching A Cubone (02:05)
-03. Bad News (01:17)
-04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F4036E52366E3583C93BBFB022DFD4DCB2B284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549169   (592637) от 09.05.2022
-
-Satyaa & Pari - New Year Celebrations (Live) (2020) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adi Shakti (Live)
-02. Om Poornam (Live)
-03. Loving Awareness (Live)
-04. Sitaram Radeshyam (Live)(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFAF70C77645553366D609ABB4B05A29260065B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915388   (592385) от 05.07.2015
-
-Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native American, World, Ethnic Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Of The Drum (5:31)
-02. Land Of Dreams (5:48)
-03. Awakening (4:23)
-04. Earth Dance (4:42)(   Читать дальше...   )Жанр: Native American, World, Ethnic Fusion, FolkПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15B4183D249E6C8220F50AF50A08DCC58351986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550203   (592153) от 11.05.2022
-
-Spiritu (986) - Spiritu (986) (2000) Legacy Recordings, 2021 Remastered [FLAC|Lossless|WEB-DL|tracks] <Folk, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noche de Luna Llena (Remasterizado) (4:30)
-02. La Sombra del Lobo (Remasterizado) (4:20)
-03. Luar 'Luz de Luna' (Remasterizado) (4:35)
-04. Ataque de Panico (Remasterizado) (3:25)(   Читать дальше...   )Жанр: Electronic, Folk, New AgeПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21F90E561167B0B278C29E8637C1B4C3CFF80A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550837   (591192) от 13.05.2022
-
-Giovanni Marradi - Feelings (1997) [FLAC|Lossless|image + .cue] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For All We Know (4:40)
-02. Annie's Song (2:43)
-03. Mozart's Piano Concerto No. 21 (3:21)
-04. Come Back To Sorrento (3:22)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CA82855CCEA686B2F3AD485C7253D1A7447C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

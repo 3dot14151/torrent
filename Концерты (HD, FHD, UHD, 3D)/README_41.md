@@ -1,3 +1,175 @@
+###  Публикация: 1679825   (135185) от 26.11.2023
+
+Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Recorded live in Sydney, Meat Loaf performs his greatest hits in an unforgettable concert showcasing the legendary '70s rocker dominating the stage, blasting out his iconic hits such as 'Bat Out Of Hell', and 'You Took The Words Right Out Of My Mouth (Hot Summer Night)' among others. In front of a sold out and wildly passionate crowd, Meat Loaf proves why his multi-platinum (   Читать дальше...   )Производство: Австралия / Via Vision EntertainmentЖанр: Rock, Hard rock, Heavy metal, Wagnerian rockАктеры: Meat Loaf: lead vocals; Patti Russo: female lead vocals; John Miceli: drums; Paul Crook: guitar; Randy Flowers: guitar, backing vocals; Dave Luther: saxophone, keyboards, backing vocals; Danny Miranda: bass, backing vocals; Justin Avery: piano, backing vocals; Ginny Luke: violin, backing vocalsПеревод: ОтсутствуетПродолжительность: 02:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6E80791668B84A12B6AF83BB83F84E6B45C62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679877   (134887) от 27.11.2023
+
+Квартирник у Маргулиса. «Корней» (26.11.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камерный концерт музыкального коллектива «Корней». Владимир Корниенко — сессионный гитарист и аранжировщик, на его счету более 60 альбомов. Музыкант известен по работе с Найком Борзовым, группами «Танцы Минус», «Ундервуд» и многими другими.00:00:06 За сотку до Речного
+00:05:20 Как воздух
+00:12:42 Осторожно
+00:18:40 Куда вы, минуты(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Indie, rockЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683AC18E4DBFE8CC38C292F149BAE5539FF772D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679778   (134035) от 29.11.2023
+
+Mylene Farmer - Live A Bercy (1997) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй концертный альбом французской певицы Милен Фармер, выпущенный в 1997 году на лейбле Polydor1. Overture
+2. Vertige
+3. California
+4. Que mon coeur lache(   Читать дальше...   )Производство: Франция, Requiem Publishing, Toutankhamoun, Tuxedo TourЖанр: концерт, музыкаРежиссер: Лоран Бутонна, Франсуа АнссАктеры: Милен Фармер, Валери Бони, Жермен Браун, Айван Кассар, Джефф Дальгрен, Кристоф Даншо, Сьюзи Дэвис, Донна Делори, Эстер Добон» На Эссьенн, Абрахам Лабориэль мл.Перевод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские+французскиеПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3267FFED79A37FBE7063A1A9DFCA9469D684C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680601   (133674) от 30.11.2023
+
+Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись нового концертного тура  группы «Original ΣNIGMA Voices», организованного тремя вокалистами, которые помогали Мишелю Крету в создании этой культовой музыки. Ямайский музыкант Эндрю Дональдс, немецкий исполнитель Angel X и латвийская певица Fox Lima продолжают втроём гастролировать с живыми версиями песен ENIGMA.1 Intro
+2 Gravity Of Love
+3 The Rivers Of Belief
+4 Beyond The Invisible(   Читать дальше...   )Жанр: New Age, Worldbeat, Chill-outПродолжительность: 01:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B5F7EB010B8399804D080DFE7FB9BD316FB18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681698   (132338) от 04.12.2023
+
+Квартирник у Маргулиса. Группа «25/17» (03.12.2023) WEBRip [H.264/1080p] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Речь пойдет о группе, которая одной ногой в рэпе, одной в русском роке.
+«25/17» – российская группа, играющая альтернативную музыку. В начале творческой деятельности коллектив играл традиционный рэп, однако по мере взросления музыканты стали00:00:05 Подорожник
+00:04:27 Русская
+00:09:42 Пограничник
+00:18:19 Шей меня(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Альтернативный рок, хип-хопЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC30CD4BC90B7E1F0C9727102AD8180CB157D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595733   (132076) от 29.12.2012
+
+Слава Бобков - Переплавленный в колокол (2007) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132076.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 августа 2007 года состоялся концерт в Санкт-Петербурге, в зале «Гигант-Холл», где Вячеслав выступал вместе с коллективом музыкантов, своих земляков с Алтая. Студия  «Ночное такси» Александра Фрумина  проводила съёмки этого концерта, а через год, в 2008, был выпущен и поступил в продажу DVD «Переплавленный в колокол» с записью этого выступления Вячеслава Бобкова.01. Колесо и белка
+02. Просто осень
+03. Переплавленный в колокол
+04. Beatles и Высоцкий(   Читать дальше...   )Производство: студия "Ночное Такси" г.Санкт - ПетербургЖанр: Русский шансон, Авторская песняПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26C98FE704FE20F0759C02C476462528E1CB689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681921   (132063) от 05.12.2023
 
 МузЛофт-подкаст / МузLoft. Наталия Гулькина (2023) WEBRip [H.264/1080p]
@@ -545,164 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705466   (113895) от 08.03.2024
-
-Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113895.jpg" />
-</div>
-
-
-###  Подробнее
-
-LOVEBITES to release a greatest hits album with songs selected based on a fan vote. The songs are newly mastered by Mika Jussila at the prestigious Finnvox Studios in Finland and are included on the two CDs. Comes with new song(s). Comes with a Blu-ray with all the music videos.Производство: ЯпонияЖанр: Power metalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A250993885860BC41371DE64210B5DD4970F145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712438   (112180) от 02.04.2024
-
-Lovebites: Daughters Of The Dawn (2019) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live at Mynavi Blitz Akasaka, Tokyo, Japan January 27, 2019.Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E96CA168F9C10E983A345C7C1E9F8D3C74BF0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713512   (111874) от 06.04.2024
-
-Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live at Zepp DiverCity Tokyo, Japan February 21, 2020Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35019408864125B8788AC8A329FF07C1BBD5786D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714371   (111732) от 09.04.2024
-
-МузЛофт-подкаст / МузLoft. Сборник (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111732.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки. Присоединяйся к нам. У нас тепло и уютно.Производство: Россия | Y-GenerationЖанр: ПопУчастники: Карина Кокс, 5sta Family, Доминик Джокер, Павел Артемьев, Гузель Хасанова, Асия, Маша Вебер и Ирина ОртманПродолжительность: ~01:10:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B07314425DFC9DB7C32E8245D2AF4530A6EC05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714959   (111628) от 11.04.2024
-
-Музлофт-ТУР / МузLoft. Челябинск (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера! МузЛофт-ТУР. Наташа Краснова - про криминальный район. Женя Францева гроулит Анну Асти.
-Челябинск, как мы узнали из выпуска, не только суровый, но и очень даже музыкальный. Экскурсию по нему проведет Наташа Краснова – известный блогер, стендапер и, конечно же, певица. Познакомимся с Женей Францевой, которая круто гроулит и, естественно, поимпровизируем (   Читать дальше...   )Производство: Россия | Y-GenerationУчастники: Наташа Краснова, Женя ФранцеваПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450A21E8A67DC87C9F6B6B7B886E252A1E1F96EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716500   (111348) от 16.04.2024
-
-Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во главе с мультиинструменталистами Уином Батлером и Режиной Шассань, Arcade Fire - одна из тех групп, благодаря которым инди-рок стал очень представительным в 2000-х годах. Более двух десятилетий канадская группа находится в пути и отличается потрясающими живыми выступлениями. И этот вечер пятницы (22-е число) на Lollapalooza Brasil не был исключением!
-Треклист: (   Читать дальше...   )Производство: Бразилия / Globoplay, Globo MultishowЖанр: концертная программа, поп, рок, индиАктеры: Эдвин Фарнхэм Батлер III, Реджин Александра Шассань, Ричард Рид Пэрри, Тим Кингсбери, Джереми ГараПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC61D778F82D96C6341330D2445F64656ED883F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

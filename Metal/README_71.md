@@ -1,3 +1,134 @@
+###  Публикация: 569448   (392987) от 02.11.2012
+
+Carach Angren - 3 Albums + EP + Demo (2004-2012) [MP3|256-320]<Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392987.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. There Was No Light
+2. The Ghost of Raynham Hall
+3. After Death Premises
+4. Ethereal Veiled Existence
+5. Yonder Realm PhotographyЖанр: Symphonic Black MetalПродолжительность: 00:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5704D5C32DFA6EF03C1F3CD4D409328D7362D9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569554   (392235) от 03.11.2012
+
+Hanging Garden - 2 Albums (2007-2009) [MP3|320]<Melodic Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392235.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Where Serpents Dwell
+2. The Blackbirds
+3. Hands That Decay
+4. Times Of Disgrace
+5. Wolves Cry Out
+6. Oceans Away
+7. The Fires Of Sheol
+8. Inherit The EdenЖанр: Melodic Doom/Death MetalПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D2FB06CF3705539EA9C3C90211E3C0B07D4B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569826   (392230) от 03.11.2012
+
+West Of Hell - Spiral Empire (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father of Lies (06:03)
+02. Water of Sorcery (04:37)
+03. Demon Sent (04:32)
+04. Faceless the Droids (04:59)
+05. Unworthy (05:11)
+06. Singularity (06:43)
+07. To War (05:31)
+08. Soul Taker (06:03)
+09. Spiral Empire (05:44)
+10. Onslaught (03:27)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Thrash MetalПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46478557DDDEA7927BD2CC3CF35D365D9E36F051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569670   (392225) от 03.11.2012
+
+Cryogenic Implosion - Creation Of The New World (2011) [MP3|320 кб/с]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kick-Off (Intro) 01:17
+ 02. Delete Humanity 04:37
+ 03. Collector Of Dead Souls 03:40
+ 04. Behind A Life Side 04:11
+ 05. Rev.6:13-14 01:44
+ 06. Creation Of The New World 03:58
+ 07. Madness Of Eternity 03:31
+ 08. Mechanization Of Heavenly Light 03:30Жанр: Death MetalПродолжительность: 00:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0B9246B6222B0976B5043A51E5EA1AAB31E8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569707   (392222) от 03.11.2012
 
 Chaosweaver - 2 Albums (2008-2012) [MP3|320]<Industrial/Symphonic Black Metal>
@@ -640,122 +771,6 @@ Funeralizer - Funeralizer (2016) [MP3|320 Kbps] <Stoner Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EEBFFD8909EE1C33C357F5E78AA8661F94D2C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068289   (383362) от 31.10.2016
-
-Death Fetishist - Clandestine Sacrament (2016) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gifted Medium 03:20
-02. Astral Darkness 06:56
-03. Voidtripper 04:44
-04. Netherrealm 04:51(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236645C7B622F4EA2F0C4A62C571BAB10FE2B6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068217   (383361) от 31.10.2016
-
-Hellfrost - Pagan Son (2016) [MP3|320 Kbps] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ghost Withing 03:54
-02. Vermin Lord 03:45
-03. Torrents of Bellial 04:28
-04. The New Pagan Son 09:55(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE1B6D06C7097CE5D5C3DB1A431D909DE871496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067963   (383360) от 31.10.2016
-
-A Hero For The World - The Other Side (2016) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Other Side (Power Version) 05:14
-02. Unforgiven in Rio Bravo 03:36
-03. The Other Side 05:18
-04. Unforgiven in Rio Bravo (Acoustic Version) 03:48(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0825F9CC62494008241C057EDF4089868EF6D936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068218   (383359) от 31.10.2016
-
-Blackning - Alienation (2016) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street Justice 03:09
-02. Thru the Eyes 03:28
-03. Mechanical Minds 03:02
-04. Dark Days 04:37(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F1DAFC5D91C2A80B80164F5B0D80EDEBEE3988
 ```
 
 https://mybot314.ru/tekegram_catalog/

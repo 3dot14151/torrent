@@ -1,3 +1,119 @@
+###  Публикация: 1261582   (303137) от 11.11.2018
+
+Mireille Mathieu - Mes classiques (2018) [MP3|320 Kbps] <Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lе рrеmiеr rеgаrd d'аmоur (vеrsiоn frаnсаisе)
+02. Gоld fаllt аuf diе Zеit
+03. Арrеs un rеvе
+04. Аvе Маriа(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78CA44A1E2D18A1AFE7E7AFDF57C00044A51A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078153   (302423) от 30.11.2016
+
+VA - Nostalgie Disco Fever: Les 50 Plus Grands Titres Disco-Funk ! (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ottawan - Disco 03:15
+02. Amii Stewart - Knock On Wood 04:10
+03. Barry White - You're The First, The Last, My Everything 04:31
+04. Donna Summer - Hot Stuff 05:18(   Читать дальше...   )Жанр: PopПродолжительность: 03:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954AE1BC9FEAAEF68BC30DCF83544B114414C040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333746   (301583) от 26.10.2019
+
+VA - Ballermann Frühlingsalarm 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tobee - Cordula Grün
+02. Almklausi,Specktakel - Mama Laudaaa (Harris & Ford Remix)
+03. Honk! - Joana
+04. Peter Wackel - I Love Malle(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C8EDC1697C7E18FB0A440E54454D7CBABB435F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261703   (301261) от 12.11.2018
+
+VA - Dance Party 2018 (2018) [MP3|320 Kbps] <Dance, Club, Tropical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrochuck - Give It to Me
+02. Nothing But The Beat - Never Coming Back
+03. Melbourne Freaks - Mainstage (Festival Mix)
+04. Garagestylerz - My Touch (Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, TropicalПродолжительность: 03:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D466547CBA4D8E45F92D10AD364189F5B4F9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423393   (300083) от 13.11.2020
 
 Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
@@ -626,122 +742,6 @@ VA - NOW That’s What I Call Club Hits (2013) [MP3|320 кб/с]<Pop, Dance, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:142B196822378D0303413E4EECC199ED38B1EA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848544   (290102) от 08.12.2014
-
-Belinda Carlisle - The Collection (2014) [MP3|320 кб/с] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (We Want) The Same Thing
-02. Heaven Is a Place On Earth
-03. Live Your Life Be Free (Single Edit)
-04. Leave a Light On (7”)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4BD66BD73EA1F5C83684081A27B2C075656162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263102   (290039) от 18.11.2018
-
-VA - Ballermann Pisten Party 2019 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Wackel - I Love Malle
-02. Almklausi & Specktakel - Mama Laudaaa (Après Ski Edition)
-03. Ikke Hüftgold & Honk! - Alle Blau (Bella Ciao)
-04. Gaudi Express - Cordula Grün(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F809705F2A993CA5E8A6337FCE4D0E1BBB580F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263111   (290020) от 18.11.2018
-
-VA - Die Schlagerparty - Best Of Discofox (2018) 2CD [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290020.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Beatrice Egli - Verliebt, Verlobt, Verflixt Nochmal
-02. Michael Wendler - Feuermelder (Remix)
-03. Anna-Maria Zimmermann - Scheiß Egal(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D832AB772B9120B8D84B595BF06EC3F8FA62F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262929   (289925) от 18.11.2018
-
-VA - Veronica #1 Car Hits (2018) 3CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289925.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Robbie Williams - Let Me Entertain You
-02. Kensington - Do I Ever
-03. Rag'n'Bone Man - Human(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C9D2EE32C306E2D19A11D407337E7AF1B726F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

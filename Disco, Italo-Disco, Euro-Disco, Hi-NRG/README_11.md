@@ -1,3 +1,32 @@
+###  Публикация: 1393615   (766936) от 01.07.2020
+
+Enterprise - Enterprise (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicago Theme (3:40)
+02. Sky Lights (3:26)
+03. You Make Me Feel Brand New (2:57)
+04. Just When We Start Making It (2:55)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80D1FEFC9120F8179E8A0ED891FA2A7D9BF42D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279197   (766927) от 28.01.2019
 
 The Immortals - The Ultimate Warlord (1979) Reissue CD, 1993, Unidisc [MP3|320 Kbps] <Electronic, Disco>
@@ -714,35 +743,6 @@ Tantra - The Collection (2013) 2CD [MP3|320 кб/с] <Electronic, Disco, Euro-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70ADB6D75278AE3704092C79F701AA629BE35FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524562   (743634) от 16.01.2022
-
-The J.B.'s - Groove Machine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Groove Machine (9:04)
-02. Georgia Peach Disco (10:19)
-03. Just Wanna Make You Dance (8:08)
-04. Rock Disco #1 (7:26)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E45C42181132DBE772B7C058EE7FF31C604A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

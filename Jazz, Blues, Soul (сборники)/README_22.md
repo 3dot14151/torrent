@@ -1,3 +1,32 @@
+###  Публикация: 1430760   (169469) от 11.12.2020
+
+VA - Love Blues (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Bonamassa - Reconsider Baby
+02. Gary Moore - Drowning In Tears
+03. Julian Sas - Anything
+04. Tubescreamers - Cold Day(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89C3896567F367C8A1DAE0D6E2B4022DB6732E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672599   (167875) от 29.10.2023
 
 VA - Jazz Maestro (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental>
@@ -716,35 +745,6 @@ VA - Best Jazz Songs of 2023 (2023) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E83AFFD138EF3E6A9E168AE6318DDF7519691188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823620   (125866) от 12.10.2025
-
-Frezee - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal, Other>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Твои Шаги
- 02 - Между Небом И Землей
- 03 - Минуту Назад
- 04 - Первая Любовь(   Читать дальше...   )Жанр: Swing Jazz, Nu Jazz, Chillout, Female Vocal, OtherПродолжительность: 00:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181B831EA86D7C468BE1F84528AC8FBDB7AF4216
 ```
 
 https://mybot314.ru/tekegram_catalog/

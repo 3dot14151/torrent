@@ -1,3 +1,117 @@
+###  Публикация: 1046354   (552715) от 26.08.2016
+
+Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) Live [MP3|320 Kbps] <Classical, Vocal>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552715.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 'O sole mio [02:40]
+2. Funiculi, funicula [01:22]
+3. Libiamo ne lieti calici (Brindisi) [03:06]
+4. Sous le ciel de Paris [01:59](   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B52C697CA636AF421A42847F9B6E36083CABCC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598189   (552704) от 26.08.2016
+
+Andrew Lloyd Webber - Classic: Orlando Pops Orchestra (2004) 2CD[FLAC|Lossless]<Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cats - musical
+01. Memory, song [03:42]Жанр: ClassicalПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F329E526014A6C8F78D9D1636CB72AE8916EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046614   (550813) от 28.08.2016
+
+Yevgeny Mravinsky - Shostakovich Friendship (2016) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симфония №5, Соч.47
+1. I. Moderato
+2. II. Allegretto
+3. III. Largo(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEC1F2EFCF3A822C84408AF219A004BC4AC57CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309857   (549362) от 21.06.2019
+
+Ludovico Einaudi - Seven Days Walking (Day 4) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Mist Var. 1 (Day 4) (2:30)
+ 02. Cold Wind Var. 1 (Day 4) (3:28)
+ 03. A Sense Of Symmetry (Day 4) (2:36)
+ 04. Gravity Var. 1 (Day 4) (5:29)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3987793E0C4A428DC5B85225ADBF59D9AC04109D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048896   (545513) от 03.09.2016
 
 Lindsey Stirling - Shatter Me (2014) Limited Edition, 2015, Lindseystomp Music [FLAC|Lossless|image + .cue] <Classical Crossover, Electronic>
@@ -638,125 +752,6 @@ Symphony No. 3 in F major, Op. 90
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E4D528FAC59539FEC2E29C84A5E2C8D3195F868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365427   (527293) от 29.07.2011
-
-Альфред Шнитке/Alfred Schnittke - Собрание Сочинений [MP3|256-320 kbps]<Classical, Chamber music, Orchestral music, Choir music>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527293.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 I 'O pavelitel' sushcheva fsevo  17:08
-      ('O Master of all living')
-2 II 'Sabran' je pesen sikh, gde kazhdyj stikh'   8:32
-      ('I, an expert in human passions')
-3 III 'Fsem tem, kto vniknet fsushchnast''   11:56
-      ('God grant deliverance from sin')
-4 IV 'Sej trud, shto nachinal ja supavan' jem'   6:08
-      ('Complete this work')
-   Elena Dof-Fonskaya   soprano
-(   Читать дальше...)Жанр: Classical, Chor musicПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371410   (523633) от 04.08.2011
-
-Claude Debussy - The Complete Chamber Music (2002) 3CD [FLAC|Lossless|tracks]<Classical>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523633.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Rhapsodie for clarinet & piano (or orchestra), L. 116
-2. Petite pièce, for clarinet & piano (or orchestra), L. 120
-Sonata for cello & piano, L. 135(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A29ED7DB68A9EC84EFC62DE64F748C2FF121C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927937   (523275) от 15.08.2015
-
-Tchaikovsky - Piano Concerto No.1; Prokofiev - Piano Concerto No.1 (Andrei Gavrilov) (2005) [FLAC| image +]<Classical, Romantic Period, Orchestral, Symphonic, 20th Century Period, Modern, Concer ...
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 1 in B flat minor, Op. 23
-01. Allegro non troppo e molto maestoso (22:33)
-02. Andante semplice (08:11)
-03. Allegro con fuoco (06:48)(   Читать дальше...   )Жанр: Classical, Romantic Period, Orchestral, Symphonic, 20th Century Period, Modern, Concerto, Post-Romantic, Character Piece, Fantasy, VariationsПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E823ADC823B8C4A9FC2E0B7CEEC3550D69212906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533627   (520870) от 12.08.2012
-
-Frederic Chopin - The Nocturnes (Claudio Arrau) (1978) 2CD [FLAC|Lossless]<Classical, Romantic Period, Nocturne>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, NocturneПродолжительность: 02:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AAF3FCA9977636EA57E2E28D3E06476384F920
 ```
 
 https://mybot314.ru/tekegram_catalog/

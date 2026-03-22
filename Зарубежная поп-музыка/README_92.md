@@ -1,3 +1,119 @@
+###  Публикация: 1737083   (49945) от 15.07.2024
+
+Nancy Sinatra - California Girl (2002) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская певица и актриса, родилась 8 июня 1940 года, дочь певца / актера Фрэнка Синатры и остается наиболее известной благодаря своему фирменному хиту 1966 года "These Boots Are Made for Walkin'". Другие определяющие записи включают "Sugar Town", песню номер один 1967 года "Somethin'Stupid" (дуэт с ее отцом), заглавную песню из (   Читать дальше...   )01. How Are Things In California? (2:31)
+02. San Fernando Valley (2:52)
+03. 99 Miles From LA (5:10)
+04. California Girls (3:10)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E97AA64439D0BB7621DB23CF161547E6EA8FCFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736877   (49941) от 15.07.2024
+
+VA - Super Disco Hits 1989 (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgana - C'est Cupidon - Le Roi Absolute De L'Amour
+02. Pat & Bel - Sophisticated
+03. Don Pablo's Animals - Ibiza
+04. Novecento - Broadway(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 02:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DC1C0BEEC18EA725ACC852694D46F4CD05C538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737258   (49805) от 16.07.2024
+
+VA - 100 hits just classics (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49805.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran, Justin Bieber - I Don't Care
+002. Fleetwood Mac - Dreams (2018 Remaster)
+003. Alphaville - Forever Young
+004. Dua Lipa, DaBaby - Levitating (feat. DaBaby)(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3801F5415F169810073A07CA4306B288D17C1913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737322   (49703) от 17.07.2024
+
+VA - 80s Mixtape (The Ultimate Collection) (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human League - Don't You Want Me
+02. Abc - The Look Of Love (Part 1)
+03. Blondie - Heart Of Glass
+04. Kurtis Blow - The Breaks(   Читать дальше...   )Жанр: Electronic, Pop, Jazz, RockПродолжительность: 06:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3122CF91D32D5EA974ACF16CDF6CF5C927219EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737731   (49510) от 19.07.2024
 
 VA - DJ Hits 145 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -628,122 +744,6 @@ Lady Gaga - Harlequin (2024) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BBBE3D14F392C5D45E495213D1AF93D643EFDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751397   (42297) от 26.09.2024
-
-Brenda Lee - Greatest Hits of Brenda Lee (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42297.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - I Want to Be Wanted [00:03:04]
-002 - I'm Sorry [00:02:40]
-003 - Some of These Days [00:02:20]
-004 - Pennies from Heaven [00:02:23](   Читать дальше...   )Жанр: PopПродолжительность: 04:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373451FCDA225EDCD4BA1663DA89EDEF39AF30AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423930   (42168) от 28.09.2024
-
-Mylene Farmer - 138 Realeases (1984-2024) [MP3|320 Kbps] <Pop>
-
->>След.
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французская певица, композитор, актриса и поэтесса. Одна из самых известных современных французских исполнительниц популярной музыки не только во Франции, но и во всём мире. Редко появляясь в СМИ и избегая обсуждения своей личной жизни, она построила долговременный творческий союз с Лораном Бутонна, плодами которого явились многие видеоклипы, живые выступления, напоминающие (   Читать дальше...   )1986 - Cendres de lune
-1988 - Ainsi soit je...
-1991 - L'autre
-1995 - AnamorphoseeЖанр: PopПродолжительность: 106:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19849F473C8B9970CA56D077D75FD0D3E3E6EF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752908   (41641) от 03.10.2024
-
-VA - Суперхиты Дискотеки 90-х Vol.1 (2010) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace of Base - All That She Wants
-02. The Beloved - Sweet Harmony
-03. Captain Hollywood - More & More
-04. Haddaway - What Is Love(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECC5DB203A63245E33C8D1BAA67DC41B6A3BD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753147   (41615) от 03.10.2024
-
-VA - Суперхиты Дискотеки 90-х Vol.2 (2011) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East 17 - It's Alright
-02. E-Type - Set The World On Fire
-03. Captain Hollywood - Over And Over
-04. DJ Bobo - Take Control(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A8981DF9ED13D1369BF1E82888C0C55B86AEA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

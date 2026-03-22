@@ -1,3 +1,177 @@
+###  Публикация: 500023   (41335) от 06.10.2024
+
+Thunder - 26 Albums (1990 - 2024) 49 CD [FLAC|Lossless|image + .cue, tracks + .cue]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсером дебютного альбома группы оказался гитарист "Duran Duran" Энди Тэйлор, по иронии судьбы незадолго перед этим выпустивший диск под названием "Thunder". "Backstreet Symphony" стал, пожалуй, наилучшей пластинкой в дискографии группы. Альбом был сделан в лучших хард-блюзовых традициях 70-х годов. В Европе команда быстро добилась (   Читать дальше...   )Список альбомов:
+1990 - Back Street Symphony
+1992 - Laughing On Judgement Day
+1995 - Behind Closed DoorsЖанр: Melodic Hard RockПродолжительность: 48:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94A7416412CB8F5C49AC964D4378A8937390CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755823   (40058) от 17.10.2024
+
+Nationwide - Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fade Away (05:17)
+ 02. Dreams (04:51)
+ 03. Can't Get Over You (04:17)
+ 04. Without You (05:23)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3703A9F855D9015B24E753AFC69E2453E720FE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367032   (40037) от 18.10.2024
+
+Michael Schenker (Проекты) - 42 Albums, 2 Box Set (1980 - 2024) 68 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаэль Шенкер (Michael Schenker) (10 января 1955, Зарштедт, Германия) — немецкий хард-рок и хэви-метал гитарист, бывший участник групп Scorpions и UFO и основатель группы Michael Schenker Group. Младший брат гитариста Scorpions, Рудольфа Шенкера. Шенкер дебютировал со Scorpions на их первом альбоме Lonesome Crow в возрасте 16 лет, но UFO  переманили его из Scorpions (   Читать дальше...   )Список альбомов: The Michael Schenker Group (1980)
+M.S.G. II (1981)
+One Night at Budokan (1981)
+Assault Attack (1982)Жанр: Hard RockПродолжительность: 64:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD3170ACE8DCEF87D0140319003505ACFE31B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756443   (39648) от 21.10.2024
+
+Heartwind - Higher And Higher (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher And Higher (3:31)
+02. Cry Out Into Space (3:31)
+03. Ready For The Moonlight (3:40)
+04. One Night Away From You (3:41)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B639589097792CD5F9594FDE1B786E56F8BAE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757073   (39292) от 25.10.2024
+
+Whitesnake - Into the Light: The Solo Albums (2024) Reissue, Remastered, Remix, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Into The Light (2024 Remix):
+01. She Give Me (2024 Remix) (4:12)
+02. River Song (2024 Remix) (6:42)
+03. Don't You Cry (2024 Remix) (5:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB00567431F85EB348B1D1658643106DABE4DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757566   (38988) от 28.10.2024
+
+Black Moon June - The Witch Hammer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under A Black Moon Sky (The Witch Hammer)
+02. A Thousand Years
+03. Blood On Your Hands
+04. The King Is Dead(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C173DF42804D03289BD61D1C3A8C68808D137FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758322   (38597) от 01.11.2024
 
 Motörhead - Remorse? No! (2024) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -571,180 +745,6 @@ Cinderella - Live At The Mohegan Sun (2010) [FLAC|Lossless]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769F91094751B3BD8B6284B071006D01ABDE6D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407819   (35568) от 01.12.2024
-
-Brian Johnson - Brian Johnson & Geordie & AC/DC (2007) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Cat
-02. Natural Born Loser
-03. Ain't It Just Like A Woman
-04. Strange Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAEF15921D6FC921579631ADD39F98B562B2381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201073   (35550) от 01.12.2024
-
-No To Co - So What (1970) [FLAC|Lossless]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dark-Blue Water 2:47
-02 Market-Place Rooster 2:32
-03 So Far Away From You 3:13
-04 If You Want Me 1:31(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB199C692831FC9AC00AD6BC1059F04F2724A2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 208974   (35529) от 01.12.2024
-
-Quireboys - HalfPenny Dancer (2009) [FLAC|Lossless]<rock, glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There She Goes Again
-02. Devil Of A Man
-03. Love To Love
-04. Mona Lisa Smiled(   Читать дальше...   )Жанр: rock, glamПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFEA90E8E411519D9F9DD1F08A4C10A594C17F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764694   (34803) от 08.12.2024
-
-House Of Lords - Full Tilt Overdrive (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crowded Room (4:47)
-02. Bad Karma (4:12)
-03. Cry Of The Wicked (5:09)
-04. Full Tilt Overdrive (4:57)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03267E1BA532BB61193C061A7623E4B50B48FC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765427   (34418) от 12.12.2024
-
-Stevie DeAcutis - Torn from the Pages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Resting Place (4:23)
-02. Wake-up Call (4:05)
-03. Your Time Has Run Out (4:04)
-04. Strung Out (6:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D558826798C7196C1CBE5F91593906B141280BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765410   (34391) от 12.12.2024
-
-Illogica - Underdogs in the Limelight (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Land of Milk and Honey (4:15)
-02. Reef Summer (5:02)
-03. Scars (3:43)
-04. Split (4:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D98C148FBC26410BE7785B05410B18A8923BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

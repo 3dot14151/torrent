@@ -1,3 +1,346 @@
+###  Публикация: 1745459   (105056) от 26.08.2024
+
+Angra - Studio Albums (11 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angra — бразильская пауэр-метал-группа, основанная в 1991 году.1993 - Angels Cry
+1996 - Holy Land
+1998 - Fireworks
+2001 - RebirthЖанр: Power/Progressive MetalПродолжительность: 10:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50CDA7E32FE24EEA6468A53F3CD516B2A061FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745467   (105044) от 26.08.2024
+
+Almah - Studio Albums (5 releases) (2006-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Almah — бразильская метал-группа, сольный проект солиста "Angra" Эдуардо Фаласки.2006 - Almah
+2008 - Fragile Equality
+2011 - Motion
+2014 - UnfoldЖанр: Progressive/Power MetalПродолжительность: 04:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2BA07E0E0D4F9999C966DC00B013B460327009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745650   (105013) от 27.08.2024
+
+Andre Matos (& Virgo (Matos-Paeth)) - Studio Albums (4 releases) (2001-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андре Коэльо Матос — бразильский музыкант, вокалист, пианист и композитор хеви-метал и пауэр-метал групп Viper, Angra и Shaaman. После октября 2006 Андре Матос посвятил себя творчеству в собственной группе.2007 - Time To Be Free
+2009 - Mentalize
+2012 - The Turn Of The Lights
+Virgo (Matos-Paeth) - 2001 - Virgo(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 04:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EA7575DE25778EFF3E2697726E580448A5D058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746265   (104950) от 30.08.2024
+
+Haken - Studio Albums (9 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haken — лондонская прогрессив-рок/метал-группа, основанная в 2007 году Ричардом Хеншоллом и Россом Дженнингсом.2008 - Enter The 5th Dimension
+2010 - Aquarius
+2011 - Visions
+2013 - The MountainЖанр: Progressive Metal/RockПродолжительность: 08:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72B77356158E8A1E5CB16ED7FF8C553841AB3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746396   (104922) от 30.08.2024
+
+Lazarus A.D. - Studio Albums (2 releases) (2009-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lazarus A.D. — американская трэш/грув-метал-группа из города Кеноша.2009 - The Onslaught
+2011 - Black Rivers FlowЖанр: Thrash/Groove MetalПродолжительность: 01:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C87E41B20A110DB4B29C14D6EFEC95C434D9EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746524   (104902) от 31.08.2024
+
+Dust Bolt - Studio Albums (6 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dust Bolt - трэш-метал группа, образовавшаяся в баварском городке Ландсберг-на-Лехе.2010 - Chaos Possession
+2012 - Violent Demolition
+2014 - Awake The Riot
+2016 - Mass ConfusionЖанр: Thrash MetalПродолжительность: 04:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63126E6DA01FF2C85A9EC030C270FAFE94841AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746714   (104868) от 01.09.2024
+
+Антон Зацепин & Золотое Кольцо - Широка Река (2004) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Широка река (Золотое кольцо и А. Зацепин)
+02. Ничего не получится (Золотое кольцо)
+ОЗ. В сказку пусти меня (Золотое кольцо)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D652BB67ECBBAA1922C4B0FBE1BEA46263086204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746839   (104834) от 02.09.2024
+
+Enslaved - Studio Albums (19 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Black/Viking Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enslaved — норвежская метал-группа, в первые годы игравшая блэк-метал, а позднее эволюционировавшая в сторону викинг-метала с элементами прогрессива.1993 - Hordanes Land
+1994 - Frost
+1994 - Vikingligr Veldi
+1997 - EldЖанр: Progressive Black/Viking MetalПродолжительность: 15:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AB8827AA09E7DC99F5D02F2F6CB35B16FDAA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747629   (104698) от 06.09.2024
+
+These Are They (Novembers Doom members) - Studio Albums (3 releases) (2009-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104698.jpg" />
+</div>
+
+
+###  Подробнее
+
+These Are They - американская дэт-метал группа, состоящая из участников Novembers Doom2009 - Who Linger
+2010 - Disposing Of Betrayers
+2014 - At The Feast Of Seven FuneralsЖанр: Death MetalПродолжительность: 02:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8578DD76EFCCFA26004BF8F7BABC13736034BED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747917   (104647) от 07.09.2024
+
+Negative - Studio Albums (6 releases) (2003-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Negative — финская глэм-рок-группа, основанная в конце 1997. Уже на первых ступенях своего пути Negative получила репутацию живой группы, которая даёт публике запоминающиеся мелодии и риффы гитары. Звучание группы сравнимо с ранними исполнителями глэм-рока и группами как David Bowie и Queen. Сама группа называет свой стиль «эмоциональный rock’n’roll». В последние (   Читать дальше...   )2003 - War Of Love
+2004 - Sweet And Deceitful
+2006 - Anorectic
+2008 - Karma KillerЖанр: Glam Rock, Hard RockПродолжительность: 05:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948BD338B140A8C9D9C3640F2E188864C84A6699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747867   (104613) от 07.09.2024
+
+Aviations - Studio Albums (4 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog/Art Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aviations — прогрессив-рок-группа из Бостона, Массачусетс.2012 - A Declaration of Sound
+2018 - The Light Years
+2020 - Retrospect
+2023 - Luminaria(   Читать дальше...   )Жанр: Prog/Art Rock, Progressive MetalПродолжительность: 03:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1469A94D0F518DF11C67F9E79D2143A691C9610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748140   (104585) от 08.09.2024
+
+Earthside - Studio Albums (2 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Earthside — творческий коллектив из Новой Англии, играющий захватывающий стиль современной прогрессивной музыки, которую они называют "cinematic rock".2015 - A Dream in Static
+2023 - Let The Truth SpeakЖанр: Progressive RockПродолжительность: 02:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5D104B5D2CE8AC810BECFE3B8A43A7838424BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748136   (104573) от 08.09.2024
 
 Leprous - Studio Albums (10 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
@@ -396,346 +739,6 @@ A1 Save Me(   Читать дальше...   )Жанр: Country, Western SwingП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A53376C0D615700A1EF6434179825DD83BA0CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756213   (103528) от 19.10.2024
-
-Cloudscape - Studio Albums (5 releases) (2005-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cloudscape — пауэр/прогрессив-метал группа из Хельсингборга, округ Сконе, Швеция, образованная в 1992 году под названием Doctor Weird. В 2001 году группа сменила название на Cludscape.2005 - Cloudscape
-2006 - Crimson Skies
-2008 - Global Drama
-2012 - New EraЖанр: Progressive/Power MetalПродолжительность: 04:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A9957E227473824EC69A5259CDDA4BBF08F008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759212   (103302) от 07.11.2024
-
-Citizen Vicious - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Citizen Vicious - канадская метал-группа из г. Лонгёй в провинции Квебек, основана в 2005 году.2015 - Loud Mean Fast Dirty
-2018 - Headbanger Assault
-2024 - Longueuil (EP)Жанр: Thrash 'n' RollПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C3817970ACB6B91E28AEE4736512060D685D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759604   (103275) от 09.11.2024
-
-Charlotte Wessels (ex-Delain) - Studio Albums (3 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йоханна Шарлотта Вессельс - голландская певица и автор песен.
-Наиболее известна как бывшая вокалистка симфоник-метал группы Delain.2021 - Tales From Six Feet Under
-2022 - Tales from Six Feet Under, Vol. II
-2024 - The ObsessionЖанр: Symphonic Metal/RockПродолжительность: 02:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FBC966A24D92838D548AB9ED4C5824E8971222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759652   (103231) от 10.11.2024
-
-Ghosts Of Atlantis - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghosts Of Atlantis - symphonic / groove / melodic death metal группа из г. Ипсвич, Англия.2021 - 3.6.2.4
-2023 - Riddles of the SycophantsЖанр: Extreme Symphonic Metal/MetalcoreПродолжительность: 01:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8200375B0A531425238C298EC4A5F1B0B32B0CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759784   (103222) от 10.11.2024
-
-Mezzrow - Studio Albums (2 releases) (1990; 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mezzrow - трэш-метал группа из Нючёпинга, Швеция1990 - Then came the killing
-2023 - Summon Thy DemonsЖанр: Thrash MetalПродолжительность: 01:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67D073C407B71598286A1F7516C25B4DAF8EFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749650   (103154) от 16.11.2024
-
-As I Lay Dying - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103154.jpg" />
-</div>
-
-
-###  Подробнее
-
-As I Lay Dying — американская металкор-группа из Сан-Диего, Калифорния.2001 - Beneath The Encasing Of Ashes
-2003 - Frail Words Collapse
-2005 - Shadows Are Security
-2007 - An Ocean Between UsЖанр: MetalcoreПродолжительность: 07:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300CA2D433807EF21D219752DB65180554EBA25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760805   (103150) от 16.11.2024
-
-Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death/Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Genus Ordinis Dei - итальянская симфоническая дэт-метал/дэткор-группа. Образована в 2009 году.2016 - The Middle
-2017 - Great Olden Dynasty
-2020 - Glare of Deliverance
-2023 - The BeginningЖанр: Symphonic Death/Groove Metal/MetalcoreПродолжительность: 04:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FAFC9EB2C8406B25F1CFA99366BD41D4BF3383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760823   (103130) от 16.11.2024
-
-Times Of Grace - Studio Albums (2 releases) (2011; 2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Times Of Grace - сайд-проект Адама Дуткевича из Killswitch Engage2011 - The Hymn Of A Broken Man
-2021 - Songs Of Loss And SeparationЖанр: MetalcoreПродолжительность: 01:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C939975E79CECAEAEA0F2576B171B65512C58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761869   (103034) от 22.11.2024
-
-Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Power Trip — американская трэш-метал-группа из Далласа, основанная в 2008 году.2013 - Manifest Decimation
-2017 - Nightmare Logic
-2018 - Opening Fire - 2008-2014Жанр: Thrash Metal/CrossoverПродолжительность: 01:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3FD0D0A40BF95866EAA684491E2190A4677C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762185   (102955) от 24.11.2024
-
-WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102955.jpg" />
-</div>
-
-
-###  Подробнее
-
-WoodScream - фолк-метал группа из Санкт-Петербурга, Россия, основана в 2006 году.2010 - Pentadrama (EP)
-2014 - Octastorium
-2020 - Варево
-2024 - Чёрные птицыЖанр: Folk MetalПродолжительность: 02:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F706457ED67CA3E25B467667BBE9EB07109DDA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762400   (102912) от 25.11.2024
-
-Memory Garden - Studio Albums (7 releases) (1995-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Garden - шведская дум-метал/хэви-метал группа из Кумлы, образованная в 1992 году.1995 - Forever
-1996 - Tides
-1998 - Verdict of Posterity
-2000 - MirageЖанр: Power/Doom MetalПродолжительность: 05:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD749C6A2DD8692986396B077129DDE95689D1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763307   (102846) от 30.11.2024
-
-Mors Subita - Studio Albums (5 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mors Subita - мелодик-дэт-метал группа из Оулу, Финляндия, основанная в 1999 году.2011 - Human Waste Compression
-2015 - Degeneration
-2019 - Into the Pitch Black
-2020 - Extinction EraЖанр: Melodic Death/Thrash MetalПродолжительность: 03:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE70EF7545436266A0D654A92DB5B4F033CB2F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

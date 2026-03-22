@@ -1,3 +1,177 @@
+###  Публикация: 1288365   (695929) от 11.03.2019
+
+KAVver. - Vv (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vvozduh (7:11)
+02. Vvoron (6:10)
+03. Vvint (5:00)
+04. Vviujit (4:46)(   Читать дальше...   )Производство: Cuntroll - Cuntroll100Жанр: Dark Jazz, Post Jazz, Post Rock, Kraut Rock, Trip Hop, Guitar AmbientПродолжительность: 00:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23892C25EEB78EB7439817DA11887330FA2504A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288459   (695927) от 11.03.2019
+
+Jens Haack - Smokers Lounge (2011) Stunt Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Ballads>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn in New York [7:46]
+02. Smokers Lounge [6:53]
+03. Skylark [5:33]
+04. It's All About Love [7:58](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Pop, BalladsПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1C0CC4E54D151DB2539973F584CB6895BD955B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288446   (695925) от 11.03.2019
+
+Roxy Coss - Restless Idealism (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cross the Coss (04:12)
+02. Waiting (06:33)
+03. Push (05:11)
+04. Perspective (05:30)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE992861826FF32B137E54213868FB27B2103527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133447   (695202) от 12.05.2017
+
+Chet Baker - Cool Cat (1989) [WavPack|Lossless|image + .cue] <Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695202.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Swift Shifting (7:25)
+2. 'Round Midnight (10:19)
+3. Caravelle (5:54)
+4. For All We Know (5:14)(   Читать дальше...   )Жанр: Cool JazzПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089CA7FFB50959161BBB87307C29F05256CEC901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133149   (695187) от 12.05.2017
+
+Freddie Hubbard - Live In Warsaw (1991) 2001, Past Perfect [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolivia [13:00]
+02. God Bless The Child [12:54]
+03. All Blues [17:11]
+04. Dear John [17:02]Жанр: Hard Bop, Post-BopПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8F8BBEDA7C02628A6FE92E9B0C1D9407438F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027865   (694937) от 20.06.2016
+
+David “Fathead” Newman - Fathead: Ray Charles Presents David Newman (1958) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hard Times [04:42]
+ 02.Weird Beard [04:47]
+ 03.Willow Weep For Me [04:57]
+ 04.Bill For Bennie [04:15](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8472777CBBCAC55AD89123DBDB287A553ED8C41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027886   (694936) от 20.06.2016
 
 The Phil Woods Quartet With Gene Quill - Phil Talks With Quill (1957) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
@@ -566,180 +740,6 @@ Jeremy Bruger - Moods (2020) Black & Blue [FLAC|Lossless|tracks + .cue] <Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69870E6D1CEDF89B9EB06006A03B5BAEA8A7D6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288823   (692229) от 13.03.2019
-
-Dominique Di Piazza - Living Hope (2016) La Note Bleue Prod [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desillusion [5:58]
-02. New life [5:13]
-03. Nuestra Esperanza [7:25]
-04. Serenada [6:00](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58D3E6C77F8707409F5B8CE6F5575BCFB17367D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288824   (692227) от 13.03.2019
-
-Dizzy Gillespie - Diggin' Dizz (1937 - 1954) 2CD, 2008, Le Chant du Monde [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692227.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. King Porter Stomp [3:07]
-02. Pickin' The Cabbage [2:50]
-03. Stardust [3:28](   Читать дальше...   )Жанр: BopПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C2DFF49040AD947EB1BC842DDDCFA59F663806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288825   (692224) от 13.03.2019
-
-Miriam Aida & Fredrik Kronkvist - Live At The Palladium (2005) Sittel Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Wonderful World [3:29]
-02. Born to Be Blue [4:45]
-03. My Shining Hour [3:39]
-04. Senor Blues [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6E2F56D0CA16096380BE6AF420D473A8A69AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133982   (691665) от 14.05.2017
-
-Anthony Braxton - Nine Compositions (Hill) (2000) CIMP [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Monastery [05:53]
-02. Pinnacle [08:50]
-03. Dedication [04:35]
-04. Euterpe [07:29](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094C03598A04BB714E4D3C0C582100FA6481B0BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133977   (691663) от 14.05.2017
-
-Hiram Bullock - First Class Vagabond (1982) 2000, JVC [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teasin' Eyes [03:36]
-02. First Class Vagabond [03:25]
-03. HIgh Tech Mech [02:25]
-04. Make Up Your Mind [03:45](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F62E0C84DDAD301D93FAE8FC5E1B4E233203E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133979   (691662) от 14.05.2017
-
-Paul Desmond - Glad To Be Unhappy (1963, 1964) 2017, Sony Music [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glad to Be Unhappy [05:48]
-02. Poor Butterfly [07:21]
-03. Stranger In Town [06:28]
-04. A Taste of Honey [04:30](   Читать дальше...   )Жанр: CoolПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F848A54BC17BDC0B473A8BC34635789B3668B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

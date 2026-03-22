@@ -1,3 +1,177 @@
+###  Публикация: 1719786   (110437) от 02.05.2024
+
+VA - Dario Caminita: Classic Revibes Collection Vol. 05 (2021) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Last Dance (Dario Caminita Revibe) (7:48)
+02. Boys Town Gang - Can't Take My Eyes Off You (Dario Caminita Revibe) (6:18)
+03. Earth, Wind & Fire - Let's Groove (Dario Caminita Revibe) (5:34)
+04. Indeep - Last Night A Dj Saved My Life (Dario Caminita Revibe) (5:29)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4367399DF793441F36A7C573B1E3C2B9EF6CE891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719789   (110434) от 02.05.2024
+
+VA - Dario Caminita: Classic Revibes Collection Vol. 07 (2022) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC and the Sunshine Band - That's The Way (I Like It) (Dario Caminita Revibe) (6:11)
+02. Robin S - Show Me Love (Dario Caminita Revibe) (6:30)
+03. Gazebo - I Like Chopin (Dario Caminita Revibe) (5:20)
+04. Toto - Africa (Dario Caminita Revibe) (6:13)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7279A1C76C03FA0E9CC66B2D9FD1283431224F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720261   (110276) от 04.05.2024
+
+Kovacs - Compilation (2024) [MP3|320 Kbps] <Pop, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  50 Shades Of Black
+ 02.  My Love
+ 03.  Adickted
+ 04.  Goldmine(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE9DD42C07CFD9AEB2882F41C62966CF99D05BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730932   (107723) от 21.06.2024
+
+Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Afterlife (Intro)
+ 02.  Get the Chance
+ 03.  I Still Love You (Feat Lian Ross)
+ 04.  Heaven is Waiting(   Читать дальше...   )Жанр: Euro Disco /Pop DanceПродолжительность: 02:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC85A90834731F87453E6E8B6111058325979FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738763   (106065) от 28.07.2024
+
+VA - National Pop Dance Music Vol.79 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - Texas Hold 'em
+002. Flo Milli Feat. Sza - Never Lose Me
+003. Annalisa - Sinceramente
+004. Ariana Grande - We Can't Be Friends(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11CEA6FF7301FF73997D3BDE84B0E1DF962FA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739401   (106059) от 28.07.2024
+
+VA - New Music Releases Week 29 (2024) [MP3|320 Kbps] <Pop, Dance, Rock, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106059.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. &TEAM - Koegawari - 03:19
+ 002. 03 Greedo - Kill Me - 02:51
+ 003. 1111 - Care About Us - 03:32
+ 004. 49 Winchester - Make It Count - 04:00(   Читать дальше...   )Жанр: Pop, Dance, Rock, Hip-Hop, RnBПродолжительность: 30:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A57985A3094DBFB838187005032743F9655E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738692   (106048) от 28.07.2024
 
 VA - Warm Melodies And Rhythms (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -673,216 +847,6 @@ VA - Made In The 90s (2012) [MP3|224-283 kbps]<Pop | Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478259   (98690) от 05.04.2012
-
-VA - Энергия ночных дискотек 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98690.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Lena Katina - Stay
-002 Serebro - Mama Lover (Radio Rip)
-003 Armin Van Buuren, Christian Burns, Bagga Bownz - Neon Hero feat. Christian Burns feat. Bagga
-004 Д. Колдун & Jacqueline - Out Of The Blue
-005 Chris Brown Feat Soulja Boy - Bad
-006 Анна Седокова - Love U
-007 Nirvana - Smells Like Teen Spirit
-008 Борис Шварцман - Мадемуазель
-009 Kelly Rowland - Shake Them Haters Off
-010 Джиган Feat. Жанна Фриске - Ты Рядом2012Жанр: PopПродолжительность: 06:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890F14E1BCF5EDF5E28E6BC8C682BB224AD87EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477984   (98687) от 05.04.2012
-
-VA - Весенний шквал новинок (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98687.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Алина Гросу - Взрослая (3:11)
-2. Seventeen - Танцуй, Даже Если Это Конец Света (Volta Remix) (3:47)
-3. Вельвет - Все забудется (3:47)
-4. Влад Дарвин (Darwin) - Пассажир Дождя (Remix) (3:44)
-5. Quest Pistols - Ты была светом (3:14)
-6. 5sta Family - Вместе Мы (3:40)
-7. ВИА Гра - Диско (3:06)
-8. Би - 2 - Девушки (3:43)
-9. Земфира - Деньги (3:37)
-Батишта & Shaplin feat. Ульяна Глушкова - Когда Наступит Ночь (Rusky Rusk Remix) (3:33)2012Жанр: PopПродолжительность: 05:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CF31744645A4B3F0A97C8D530B708BBAC28951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477692   (98618) от 04.04.2012
-
-VA - Coca-Cola Music Чарт 1 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98618.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Бурановские бабушки - Party For Everybody (Eurovision 2012)
-002 Akki Feat. Jodie - Russian Love (Radio Edit)
-003 Глюкоза - Кошка
-004 Mishelle feat. Randi - Feels So Good (Radio Edit)
-005 Дима Билан и Юлия Волкова - Back To Her Future
-006 Morra - One Love (Radio Edit)
-007 Елка - Знаки вопроса
-008 Dappy feat. Brian May - Rockstar
-009 Наталья Подольская Интуиция
-010 Chris Garcia feat. Sherry St Germain - I Rock Alone(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E4D48B15074D9357CE2C0E439352E11A1891EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477703   (98608) от 04.04.2012
-
-VA - Весенний Кураж Европы Плюс (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арина И Размер Project - Россия Рулит!
-02. Gilles Luka Feat Niusha - Plus Pres
-03. Дима Билан И Юля Крылова - Слепая Любовь
-04. Sasha Lopez - All My People (Radio Version)
-05. Маша Пирожкова - Новый Год Будет Классным!
-06. Radio Killer - Lonely Heart
-07. Потап И Настя Каменских - Если Вдруг (Aleksey Kraft Radio Mix)
-08. Camille Jones - The Truth (7Th Heaven Radio Edit)
-09. 5Ivesta Family - Тук-Тук (Alex Menco Remix)
-10. Pulsedriver - Vagabonds2012Жанр: PopПродолжительность: 06:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C294B1EC11B59BEFE9556AA9E42A30F8E9E080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477646   (98480) от 03.04.2012
-
-VA - Граммофон Рекордс (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ВИА Гра - Диско
-002 Dj Vengerov Feat. Слава - Одиночество-Сука (Extended Mix)
-003 Dj Masterhouse Feat. Dj Lady Nalan - Танцуй !
-004 Аня Шаркунова - Я Знаю Ее В Лицо
-005 Никита - Прости
-006 Иракли & Даша Суворова - Нелюбовь
-007 Яжевика - Город Тает
-008 Lilu - Слёзы Или Дождь
-009 Vanyashiz Feat. Diezz - Поверь Мне
-010 Sound Hackers Ft. Masta – Я Так Хочу (Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476962   (98457) от 02.04.2012
-
-VA - MAXI. Новое на MTV (2012) [MP3|256-320 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)
-02. DJ Clubactive (In & Out) - Разбитые Слова (Original Mix)
-03. Kato feat. Snoop Dogg & Brandon Beal - Never Let you Go
-04. Wave Projects feat. Myra - Higer (Radio Edit)
-05. Moonbeam feat. Fisher - I Love Your Face (Radio Mix)
-06. Body & Soul ft. Kenno - Your Love (Radio Edit)
-07. DJ Sandro Escobar feat. Katrin Queen - My Love (Radio Mix)
-08. Алеся Муха - Зачем
-09. Мальвина - Этой Весной (Dance Version)
-10. Dr. Kucho vs. Funky Brothers - La Tarde Se Ha Puesto Triste (Dj Diabolik & Dj Mili Booty Mix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D354E83DDF096CA56B545BD5EA8FDECEF49A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

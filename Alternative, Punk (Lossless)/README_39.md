@@ -1,3 +1,119 @@
+###  Публикация: 1412549   (416038) от 30.09.2020
+
+Delta Spirit - What Is There (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pressure (03:18)
+02. It Ain’t Easy (03:20)
+03. How Bout It (06:07)
+04. Can You Ever Forgive Me? (03:28)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4223FBF32BEEFF8C0AADAE70DC551DB72C9E1421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573028   (414747) от 30.08.2022
+
+Jane's Addiction - Ritual De Lo Habitual (1990) [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop! [00:04:14]
+02. No One's Leaving [00:03:01]
+03. Ain't No Right [00:03:34]
+04. Obvious [00:05:55](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7126935D269C5552AECCD437A657FF89A7CD64F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436499   (414003) от 30.08.2022
+
+Seether - 11 альбомов (2000-2011) [FLAC|Lossless]<Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414003.jpg" />
+</div>
+
+
+###  Подробнее
+
+11CD
+2000 - Saron Gas (Seether) - Fragile (Reissue)
+2002 - Disclaimer
+2004 - Broken (Single)(   Читать дальше...   )Жанр: Post-GrungeПродолжительность: 08:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDB22A0D47F54941F23FF540E5D0328B0346272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251808   (413500) от 03.10.2018
+
+The Joy Formidable - AAARTH (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Y Bluen Eira
+02. The Wrong Side
+03. Go Loving
+04. Cicada (Land On Your Back)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91A8CD37C0A772D34C716742743087E2E0E71D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251797   (413364) от 03.10.2018
 
 Metric - Art of Doubt (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -630,120 +746,6 @@ Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks + .cue] <Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B2894B946BB9AC888EEB3ED1DCE0511BD0630F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173488   (388973) от 13.10.2017
-
-Deftones - Covers (2011) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Experimental Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/11. Drive (4:51)
- 02/11. Caress (3:34)
- 03/11. Please Please Please Let Me Get What I Want (2:04)
- 04/11. No Ordinary Love (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Experimental Rock, Nu MetalПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CD450A4D55C246721DFED2D131F7F56C1728A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414136   (387882) от 07.10.2020
-
-Girls In Synthesis - Now Here's An Echo From Your Future (2020) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Post-Punk, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arterial Movements [00:03:31]
-02. Pressure [00:01:54]
-03. The Images Agree [00:02:44]
-04. Scrapped [00:02:35](   Читать дальше...   )Жанр: Noise Rock, Post-Punk, Post-HardcoreПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077076646BA9A3E73D897D6C41BB036C93B2613D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574206   (387767) от 04.09.2022
-
-Gorillaz - Cracker Island / New Gold (2022) 2 Singles [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield, Electroniс>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Single 01 - Cracker Island (feat. Thundercat)
-Single 02 - New Gold (feat. Tame Impala and Bootie Brown)Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 00:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF560AEB3868D1384E6A76452B0A03CC3114BD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067351   (386990) от 29.10.2016
-
-The Naked and Famous - Simple Forms (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher
-02. The Water Beneath You
-03. My Energy
-04. Last Forever(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E0B975529151D54A2ACD6BAA4C4578C4991186
 ```
 
 https://mybot314.ru/tekegram_catalog/

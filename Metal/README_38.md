@@ -1,3 +1,119 @@
+###  Публикация: 1129961   (718834) от 30.04.2017
+
+Hideous Divinity - Adveniens (2017) [MP3|320 Kbps] <Technical/Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ages Die 06:47
+02. Sub Specie Aeternitatis 04:21
+03. Passages 07:29
+04. Angel Of Revolution 05:52(   Читать дальше...   )Жанр: Technical/Brutal Death MetalПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68B375EF840BF7752E323E15BF61AD3B385C736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130001   (718704) от 30.04.2017
+
+Metal Church - Classic Live (2017) [MP3|320 Kbps] <Heavy, Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond The Black (Live) 06:54
+02. Date With Poverty (Live) 05:39
+03. Gods Of A Second Chance (Live) 05:48
+04. In Mourning (Live) 06:15(   Читать дальше...   )Жанр: Heavy, Power, Thrash MetalПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AC48C940E924EF57007CDD8A6231C58CF10D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129818   (718617) от 30.04.2017
+
+Astral Doors - Black Eyed Children (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Cry Out
+02. Walls
+03. God Is the Devil
+04. Die on Stage(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0F4F6C5207B38654A6340438ECCA52667CA066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129983   (718517) от 30.04.2017
+
+Tormentor - Morbid Realization (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope 02:04
+02. Kill With No Excuse 04:17
+03. Morbid Realization 06:57
+04. Comprehension Failed 02:17(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180C7393115A068C0DC54A32196E8BA36CC7E71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129945   (718506) от 30.04.2017
 
 Wolfpakk - Wolves Reign (2017) [MP3|320 Kbps] <Heavy Metal>
@@ -629,122 +745,6 @@ Noumena - Myrrys (2017) [MP3|320 Kbps] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5542686D31481483C2158C342E51972B63273EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025311   (712294) от 11.06.2016
-
-Defiatory - Extinct (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Final Conflict
-2. Reaper
-3. Aeons End
-4. Dogs Of War(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B08266F6B18D68038F9988AC5625ED70687A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025326   (712291) от 11.06.2016
-
-Nowen - Peace With Death (2016) [MP3|320 кб/с] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712291.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro III
-2. When Death Arrives
-3. In Death We Shine
-4. The Lost Fire(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CBF65D064A2C2D035CD30466409ED4F5A43FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025037   (712289) от 11.06.2016
-
-Revolt - Torture To Exist (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S:O:S
-02. Torture To Exist
-03. Secrets Of Death
-04. Stalked...Catch...Bondage(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD47BA83966516D5BD54F4DCD171D331D78D799D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025318   (712285) от 11.06.2016
-
-Romuvos - Infront Of Destiny (2016) [MP3|320 кб/с] <Epic Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infront Of Destiny We Shall Face Our Death
-02. We Travel South
-03. Winds Blow Over Seas
-04. Our Spirits Pass Through The Underworld(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171FDA8E7560B8DBBAC4E68135B1CFBEC44C1028
 ```
 
 https://mybot314.ru/tekegram_catalog/

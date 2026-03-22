@@ -1,3 +1,177 @@
+###  Публикация: 1694745   (120780) от 26.01.2024
+
+Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. India [9:00]
+02. Nunca Mas [5:30]
+03. Marissea [7:43]
+04. Para Nosotros [8:03](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1574A6F11D2333AD16E516E74E69D27D68A07F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694746   (120779) от 26.01.2024
+
+Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Because of You [2:41]
+02. Swinging on the Moon [2:21]
+03. Blues in the Night [3:38]
+04. You Oughta Be in Pictures [1:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3961B08E6C817A894ABD06A6822CE5F157989C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694496   (120775) от 26.01.2024
+
+Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [1:37]
+02. The Song Is You [4:33]
+03. Street of Dreams [4:13]
+04. On a Clear Day (You Can See Forever) [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA22DA36492E36F41469C511F99DD33FFFADCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694887   (120631) от 27.01.2024
+
+Mel Torme - An Evening With Mel Torme: Live from The Disney Institute (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One of Those Things/On Green Dolphin Street [4:59]
+02. You Make Me Feel So Young [4:23]
+03. A Nightingale Sang in Berkeley Square [4:31]
+04. Pick Yourself Up [4:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78EA06CD6267FF9E75CCD19753CB7FF6CBEE87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694741   (120613) от 27.01.2024
+
+Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia in Times Square [12:19]
+02. I Can't Get  Started [10:12]
+03. No Private Income Blues [12:51]
+04. Alice's Wonderland [8:58](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C278CBE8E0C9BB02FA1D4281C3811E0BD9A883F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694945   (120602) от 27.01.2024
+
+Soulstance - The Jazz Art Of Relax Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Never Come Again
+02. Sweet Flow
+03. Different Life
+04. If I Call You(   Читать дальше...   )Жанр: Nu Jazz, Funk, SoulПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43469B7DFAF5017B02081F9277D2F63F4760B73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694888   (120598) от 27.01.2024
 
 JD Allen - Barracoon (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -571,180 +745,6 @@ VA - Jazz Tunes Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D4403AFE80769B223B1A33E542C3141185C42F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695719   (119934) от 31.01.2024
-
-Toshiyuki Miyama & New Herd - 90th Anniversary Concert (2012) 2CD, Little Beat [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 'Guys' from Ipanema [5:04]
-02. Donna Lee [6:22]
-03. Pithecanthropus Erectus [8:38]
-04. Children's Song (Nen Neko Bocchan/On Seisei) [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49F0F7A52AA85B32F4CBC0EC413E4AE399A754D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695916   (119930) от 31.01.2024
-
-VA - Easy Listening Soothing Jazz After Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eJazz Artistry - I Can't Stop Loving You (4:22)
-02. Kool&Klean - Begin Again (4:34)
-03. Chillaxing Jazz Kollektion - Beautiful Day (4:11)
-04. Chillaxing Jazz Kollektion - Soulful (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A0E41FEB0210BCD79D402A3EBF9DC39757153E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695920   (119929) от 31.01.2024
-
-VA - Jazz Lounge Relaxation Intimate Moments Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - My World (5:25)
-02. Konstantin Klashtorni - Together Again (4:07)
-03. Chillaxing Jazz Kollektion - Home (5:42)
-04. Chillaxonic - Ethereal (5:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E0F50BCAD7C70C23982AB22537C510A1C272AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695918   (119923) от 31.01.2024
-
-VA - Fusion Jazz Funk Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black & Brown - P-Lainz (6:23)
-02. Elegant People - Stand Up And Dance (5:03)
-03. The Soultrend Orchestra - 3 Of a Kind (3:27)
-04. Bright Magus - Jungle Corner (5:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, FunkПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0558BA2FE67F9E018C39AA06B2D2039980FC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696130   (119782) от 01.02.2024
-
-Club Des Belugas - Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ai Mi Morena (feat. Mo' Horizons)
-02. Peanut Vendor (feat. Anita O'Day)
-03. Hazy (feat. Queen Mab)
-04. The Secret (feat. Mister T, Jean Honeymoon)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6144BB8B22C9F3A57AD04121DF40BBB4AD67A245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696125   (119752) от 01.02.2024
-
-Ron Blake - Sonic Tonic (2005) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation [8:26]
-02. Chasing the Sun [5:21]
-03. Your Warm Embrace [1:52]
-04. Dance of Passion [5:33](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0D79A987270F815729DE3C9F59BD6F8B1F9D70
 ```
 
 https://mybot314.ru/tekegram_catalog/

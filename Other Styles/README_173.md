@@ -1,3 +1,148 @@
+###  Публикация: 1760754   (37081) от 16.11.2024
+
+Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Melody, Easy>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obsession
+ 02. Ecology
+ 03. Santa Fe
+ 04. Feelin's(   Читать дальше...   )Жанр: Romantic Melody, EasyПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292E73EC4C8CF851DD8A2BACEA62E67D42EC100A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761229   (36787) от 19.11.2024
+
+Рок-Опера - Иисус Христос Суперзвезда, (1995) Remaster, 2023 [FLAC|Lossless|tracks] <Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Увертюра (3:46)
+02-Живущие лишь небесным (4:24)
+03-Что стряслось (4:13)
+04-Все превосходно (5:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A75B3E59EBF1B6D987521ECA7BD3AD5D61FCA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761230   (36775) от 19.11.2024
+
+Рок-Опера - Иисус Христос Суперзвезда, (1995) Remaster, 2023 [MP3|320 Kbps] <Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Увертюра (3:46)
+02-Живущие лишь небесным (4:24)
+03-Что стряслось (4:13)
+04-Все превосходно (5:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B63681F62551B737233941E71762D70551BEF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761367   (36759) от 19.11.2024
+
+VA - The Orient Collective: Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco da Mata & Tibetania - Aich (5:42)
+02. Tibetania & Aunnar - Monte Musa (7:14)
+03. Tibetania & Fernándo feat. Ludelf - Corazon Seco (5:26)
+04. Viel & Tibetania - Espoir (7:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38426D882EA44B77325FE7CB3786E90C44E328A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761521   (36577) от 21.11.2024
+
+Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gate (2:04)
+02. Push the Limits (6:27)
+03. Gravity of Love (3:59)
+04. Smell of Desire (4:57)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E90A1AA72E1B72BE654EF08F25843C8335AB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761573   (36565) от 21.11.2024
 
 Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie Rock>
@@ -602,151 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE4B52B176CDE3055AF726EA02F83F01C3AE107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768945   (32932) от 26.12.2024
-
-Autogenic Training Channel - Ayurveda Music (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music for Spa Breaks (3:06)
-02. Spa Music for Well Being (2:20)
-03. Purnima (Feel the Power) (2:31)
-04. Chakra (Balancing Energy) (2:59)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1B97CB1167544D2617F35128E29DA8C05E2D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546656   (32240) от 02.01.2025
-
-John Sokoloff - Дискография (1993-2024) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone (3:36)
-02. P.O.M. (3:09)
-03. The Keys (4:29)
-04. El Manor (4:07)(   Читать дальше...   )Жанр: Piano, Instrumental, Easy Listening |Продолжительность: 10:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8B07BED810F183D08B6559FB878DBEF91355A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768980   (32031) от 04.01.2025
-
-VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop, OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Shinoda & Emily Armstrong — Heavy is the Crown (01:42)
-02. Freya Ridings — I Can't Hear It Now (02:41)
-03. Marcus King — Sucker (03:44)
-04. Raja Kumari & Stefflon Don — Renegade (We Never Run) (feat. Jarina De Marco) (02:41)(   Читать дальше...   )Жанр: Rock, Pop, OSTПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B427A59769F8192C4E672B5AFDA08CEE9059CAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078765   (31975) от 05.01.2025
-
-Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 14 5:28
-02. Oxygene, Pt. 15 6:41
-03. Oxygene, Pt. 16 6:50
-04. Oxygene, Pt. 17 4:21(   Читать дальше...   )Жанр: Ambient, New-Age, Synth-popПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCC42147FABDCEDA268B6C2C68DFD6B3D5ABF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369065   (31954) от 05.01.2025
-
-Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marmontel Riding On A Clef
-02. Breath Kissing Matter’s Mouth
-03. Beauty Of Magic Antagonism
-04. Fay Bewitching The Moon(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AF039FAA9D8395E94A8F49A0F88275EFF094AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

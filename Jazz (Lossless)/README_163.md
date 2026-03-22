@@ -1,3 +1,177 @@
+###  Публикация: 932420   (509554) от 29.08.2015
+
+Bruno Angelini - Instant Sharings (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Folk song for Rosie
+02. Meridianne - A Wood Sylph
+03. Solange
+04. Home by another way(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC5A054E0C5B13D013167B9DDB9705FDBF7288D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932374   (509553) от 29.08.2015
+
+The Lew Tabackin Quartet - Desert Lady (1990) /Concord Jazz/[FLAC|tracks+.cue]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot House [04:09]
+02. Pyramid [09:41]
+03. Serenade To Sweden [08:05]
+04. Chelsea Bridge [07:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08A50E1B202FC51FB402A1F22E1FB5CD38DFAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932426   (509551) от 29.08.2015
+
+Marie Seferian Quartett - Mille Nuits (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La plainte des fontaines
+02. Nos regards
+03. Myosotis I
+04. Myosotis II(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB85BFA10913AB93A5038FE2B47E305119B1C992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932369   (509549) от 29.08.2015
+
+Ted Curson - Quicksand (1974) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiderlegs [07:54]
+02. Tears For Dolphy [08:17]
+03. Typical Ted [07:27]
+04. Greasy As A Porkchop [05:56](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5845C6E57F7B52E774CED6EB4FE56C26339781FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932220   (509545) от 29.08.2015
+
+John Coltrane - First Meditations (for quartet) (1965) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love [08:04]
+02. Compassion [09:35]
+03. Joy [08:49]
+04. Consequences [07:21](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C294880CF2F962A25A93A832E701D3BF1B6A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562415   (509289) от 09.07.2022
+
+Clark Terry - Three Classic Albums (1958 - 1960) 2CD, 2011, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509289.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Caravan [2:03]
+02. Candy [2:23]
+03. Clark's Expedition [2:31](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Hard BopПродолжительность: 01:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73CD4892EE54E7729C26D3326A0EE4718007684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315780   (508908) от 23.07.2019
 
 Mound City Blue Blowers - 1935 - 1936 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ Skip Wilkins - Solo: Recorded Live in Concert at Lafayette College (2007) Dreamb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64036EA7B1229CA97D5C5975C2668DAE5FB725B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933359   (506329) от 01.09.2015
-
-Steve Smith & Vital Information - Vitalive! (1991) /Capitol Records/ [FLAC|tracks+.cue]<Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Flight Up [06:07]
-02. Looks Bad, Feels Good [05:39]
-03. Jave And A Nail [05:13]
-04. (What Lies) Beyond [07:10](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268710409E91D8BFAEBC85667CF687D0B18D40F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933353   (506327) от 01.09.2015
-
-Tony Reedus - Incognito (1991) /Enja/ [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Call [07:06]
-02. Incognito [08:25]
-03. Green Chimneys [05:44]
-04. For Heaven's Sake [08:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937ADA7E5D75B685C7CF93C8336B7781C270A2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933261   (506326) от 01.09.2015
-
-Kyrie Kristmanson & Quatuor Voce - Modern Ruin (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Folk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Intro) La Comtessa [04:56]
-02. Modern Ruin [03:50]
-03. Talk [02:14]
-04. Orlando [05:57](   Читать дальше...   )Жанр: Vocal Jazz, FolkПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8912158F363A5504D2525ADB3C81D45CE8CC96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563063   (506319) от 12.07.2022
-
-The Horace Silver Quintet - Finger Poppin' (1959) 2003, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finger Poppin' [4:48]
-02. Juicy Lucy [5:46]
-03. Swingin' The Samba [5:18]
-04. Sweet Stuff [5:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7C5953E718F2DD2A43F8E4667A15CFB2EE0306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933436   (506264) от 01.09.2015
-
-Melissa Tham - Falling In Love Again (2015) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sleeping Bee
-02. Falling In Love Again
-03. Just Squeeze Me
-04. Deep Purple(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888199604BCDDBCFB9CBCA46CCE813F767B63AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933406   (506068) от 01.09.2015
-
-Peter White - Smile (2014) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile
-02. In Rainbows
-03. Floating In Air
-04. Head Over Heels(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42F86C0EA4D0F4DA3503C2349E73B006966F05A
 ```
 
 https://mybot314.ru/tekegram_catalog/

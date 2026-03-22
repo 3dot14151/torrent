@@ -1,3 +1,90 @@
+###  Публикация: 1362489   (949609) от 23.02.2020
+
+H.e.a.t - H.e.a.t II (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rock Your Body [4:04]
+02 - Dangerous Ground [4:07]
+03 - Come Clean [3:44]
+04 - Victory [4:28](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA8E09A840E0B0EB4F7F187376DAB1BF4D8F5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982044   (946732) от 04.02.2016
+
+Deep Purple - The House Of Blue Light (1987) Remastered, 1999, Mercury [WavPack|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bad Attitude 4:43
+2. The Unwritten Law 4:34
+3. Call Of The Wild 4:50
+4. Mad Dog 4:29(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A7D5CBDB86153890E8AD869BFC8AA08F05EAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090854   (944367) от 08.01.2017
+
+Black Star Riders - The Killer Instinct (2015) Deluxe Edition, 2CD [FLAC|Lossless|tracks]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944367.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:32] 01. The Killer Instinct
+[04:54] 02. Bullet Blues
+[03:56] 03. Finest Hour
+[04:49] 04. Soldierstown(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31064ED36719CD2432492C35E2C24D8BEC247D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983426   (943782) от 06.02.2016
 
 Nordic Union - Nordic Union (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -658,93 +745,6 @@ Eric Martin - I'm Goin' Sane (2002) (voice Mr.Big) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAAA3D8628C65C30C03A7D3DD387FDA5A3154B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366007   (925834) от 10.03.2020
-
-Big Life - Big Life (2011) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Life - Dying Day 05:02
-02. Big Life - Close To You 04:17
-03. Big Life - Better Man 04:51
-04. Big Life - Calling 04:26(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC652BE2D18B8A7333200832BB842DE2AD864FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365996   (925760) от 10.03.2020
-
-Newman - 14 альбомов (1997-2017) 15CD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1997 - Newman
-1999 - One Step Closer
-2000 - Dance In The Fire(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 15:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43AFCC01B4AAF66E158E428CCE0B41EFA6A8E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366160   (925748) от 10.03.2020
-
-Khymera - Master Of Illusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Away [4:03]
- 02. The First Time [4:22]
- 03. Master of Illusions [4:28]
- 04. The Sun Goes Down [4:34](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EB4D0C17C73555A4E3FCB1BB7EA5A4A8FE909D
 ```
 
 https://mybot314.ru/tekegram_catalog/

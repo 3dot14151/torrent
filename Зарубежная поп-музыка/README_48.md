@@ -1,3 +1,116 @@
+###  Публикация: 1055741   (485887) от 23.09.2016
+
+VA - 60 Top-Hits: Milestones in Music (2014) Box set [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 10 Cc - Dreadlock Holiday (5:02)
+ 02. Foreigner - Cold As Ice (3:21)
+ 03. J.j. Cale - After Midnight (2:26)
+ 04. Manfred Mann's Earth Band - Mighty Quinn (2:51)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2107D40B87F63D2C0D3B7D14951E1348B84ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405190   (485308) от 29.08.2020
+
+Dua Lipa & The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (Joe Goddard Remix)Жанр: Pop, Electronic, DanceПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7A3D31D15B7291DAE976F16C38CBEC5BE3E8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937996   (485288) от 16.09.2015
+
+Lana Del Rey - Honeymoon (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeymoon
+02. Music To Watch Boys To
+03. Terrence Loves You
+04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79FE3836C03868CE0294482DAE4E8997F9C9695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244164   (484186) от 31.08.2018
+
+Sertab Erener - Kirik Kalpler Albumu (2016) [MP3|320 Kbps] <Turkish Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acilis
+02. Ask Beni
+03. Olsun
+04. Karbeyaz(   Читать дальше...   )Жанр: Turkish Pop, Pop RockПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD391155D1CC4CC4FDBBAEFE838726BBAF64C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159414   (484162) от 20.08.2017
 
 The Runaway Club - Apollo (2016) [MP3|320 Kbps] <80's Electronic Pop>
@@ -632,133 +745,6 @@ Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FF5B51A97EDF7DBC911E2F70847E073118A5969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058290   (469194) от 01.10.2016
-
-Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Know The Drill   (03:34)
-02. Chaperone   (02:59)
-03. Infinity   (03:25)
-04. Devil Better Run   (03:21)(   Читать дальше...   )Жанр: Funk, Rhythm & Blues, SoulПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E87D873FF68259F667462364CF04138AA7E150F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245362   (467661) от 08.09.2018
-
-VA - NRJ 300% Hits 2018 Vol. 2 (2018) 3CD [MP3|320 Kbps] <Pop, Dance, Rap>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467661.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01: 
-01. David Guetta, Anne-Marie - Don't Leave Me Alone (feat. Anne-Marie)
-02. Aya Nakamura - Djadja
-03. Maroon 5, Cardi B - Girls Like You(   Читать дальше...   )Жанр: Pop, Dance, RapПродолжительность: 03:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CADF5CFFB13806DAACA2B8BAC9708C99761F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548607   (467344) от 18.09.2012
-
-Mika - The Origin Of Love (2012) [MP3|320 кб/с]<Pop, rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origin of Love (4:37)
-02. Lola (3:45)
-03. Stardust (3:18)
-04. Make You Happy (3:36)
-Мульти-платиновый британский певец и автор песен01. Karen (3:57)
-02. L'amour dans le mauvais temps (4:07)
-03. Un soleil mal lune (3:06)
-04. Tah Dah (5:47)
-05. Make You Happy (5:55)
-06. Celebrate (5:02)
-07. Elle me dit (3:11)
-08. Make You Happy (2:50)
-
-Продолжительность: 00:33:55]Жанр: Pop, rockПродолжительность: 01:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B484E3B0EC36077B32932229E5D18D8C5F43BAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546550   (467334) от 18.09.2012
-
-Beyonce - I Was Here (2012) Single, Promo CD [MP3|~245 кб/с (V0)]<R&B, pop, soul, hip hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was Here (Redtop Club 12" Mix) (7:16)
-02. I Was Here (Wawa Anthem Mix) (6:34)
-03. I Was Here (Strictlove Beach House Club Mix) (6:59)
-04. I Was Here (J-C Main Club Mix) (7:48)
-05. I Was Here (Original Version) (3:59)Жанр: R&B, pop, soul, hip hopПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6846C64294DE1D451CED050900CAA4D52F516246
 ```
 
 https://mybot314.ru/tekegram_catalog/

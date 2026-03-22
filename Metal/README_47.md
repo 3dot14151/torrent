@@ -1,3 +1,119 @@
+###  Публикация: 906572   (643573) от 09.06.2015
+
+Shape Of Despair - Monotony Fields (2015) [MP3|320 кб/с]<Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643573.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reaching The Innermost
+2. Monotony Fields
+3. Descending Inner Night
+4. The Distant Dream Of Life(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BF26954E1DFA3F31DE59590C1D3682A71803B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227888   (643139) от 28.05.2018
+
+Monument - Hellhound (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. William Kidd
+02. The Chalice
+03. Death Avenue
+04. Nightrider(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CEA96394DCC24F16DBE39C8018F52C05EDE42DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032841   (642006) от 09.07.2016
+
+Death Whistle - Death Whistle (2016) [MP3|320 Kbps] <Symphonic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Whistle Call To Arms
+02. Tribal Havoc
+03. Shapes Of Idols
+04. Sungod(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E142A1649DB9765D63515B56BA071DE682D8CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906818   (641704) от 10.06.2015
+
+Tremonti - Cauterize (2015) Deluxe Edition [MP3|320 кб/с]<Alternative Metal, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radical Change
+02. Flying Monkeys
+03. Cauterize
+04. Arm Yourself(   Читать дальше...   )Жанр: Alternative Metal, Post-GrungeПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3446A73FFEAC0A8A1EEC5ED7AD7E90B19A4EB791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292962   (641280) от 01.04.2019
 
 Periphery - Periphery IV: Hail Stan (2019) [MP3|320 Kbps] <Progressive Metal, Math Metal>
@@ -659,123 +775,6 @@ In the Last Days - Do What Thou Wilt (2022) [MP3|320 Kbps] <Hardcore, Modern Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93CA9C309DC453EFE8FB44C32C6D18B76F905316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143063   (637333) от 17.06.2017
-
-Black Sun - The Puppeteer (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Robert the Doll (5:20)
-2. Wasted Love (4:06)
-3. Let Me Be (feat. Netta Dahlberg) (4:26)
-4. The Puppeteer (4:00)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE68C9741B61449D62E093C424FDFB611227FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541414   (637263) от 07.04.2022
-
-PanzerkreuzeR - October (2022) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreadnought
-02. Isu-152 (Beast Killer)
-03. Immortal Victims
-04. The Battle Is Going Again(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F10C1433C3368FEA542A9489DDB3AF892BB5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907726   (636162) от 13.06.2015
-
-Diabolicum - Ia Pazuzu (The Abyss Of The Shadows) (2015) [MP3|320 кб/с]<Industrial Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baxxar Ehl Uhza (0:13)
-02. Void of Astaroth (4:00)
-03. Silent Spring (5:49)
-04. Genocide Bliss (5:49)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F86790F665510D9266CA87A4AC6BDE82F92266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908025   (635972) от 13.06.2015
-
-Dead of Night - The Dead Shall Rise (2015) [MP3|320 кб/с]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом группы Dead Of Night — The Dead Shall Rise. Dead Of Night создает мощный, атмосферный и, прежде всего, симфо-метал. Удивительный вокал Кортни парит над ослепительно договоренностей композитора и клавишника Карла 'Маэстро' Eden, все время опирается на мощный гитарный работы Hadian Гейтса.
-Рекомендуется к прослушиванию поклонникам Nightwish, Epica или (   Читать дальше...   )01. Touched By The Hand Of God
-02. Black Lace And Roses
-03. Highwayman
-04. As I Am Now So Shall You Be(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9190247460F749727AD7C452A23D7635E0D0513
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,122 @@
+###  Публикация: 1231868   (602767) от 22.06.2018
+
+VA - 50 Jahre Discofox (2018) [MP3|320 Kbps] <Disco, Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602767.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+
+01. Anna-Maria Zimmermann - Tanz (DJ Echolot Mix)
+02. Annemarie Eilfeld - Dein Herz ist eine Geisterstadt (Radio-Edit)(   Читать дальше...   )Жанр: Disco, Pop, SchlagerПродолжительность: 01:16:53
+
+01. Thomas Anders - Love is in the Air (Radio Version)
+02. Bad Boys Blue - Come back and stay(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F9320528AFED6B52F4D265E1FCBD705251FC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297679   (602669) от 25.04.2019
+
+Chrysta Bell - ThisTrain (2011) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Train
+02. Right Down To You
+03. I Die
+04. Swing With Me(   Читать дальше...   )Жанр: Nuar, Trip-Hop, BlueПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2437F452DE986C2D25569BE3DD92368F84CE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547438   (602468) от 29.04.2022
+
+VA - DMC Essential Club Hits 188 (2022) [MP3|320 Kbps] <House, Tech House, Techno, Electro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - Take Me Out (Extended)
+02. Bolier & Moya - Cold Tonight (VIP Extended)
+03. Burns - Talamanca (Robin Schulz Extended Remix)
+04. Dario D'Attis & Dani Koenig Ft Ron Carroll - Come Back (Original)(   Читать дальше...   )Жанр: House, Tech House, Techno, Electro HouseПродолжительность: 01:18:46 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A43B6A33860A95BB84B6A29BC07F7D4B113DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547457   (602378) от 29.04.2022
+
+VA - Billion Sellers - The Best Of DMC (Classic Mixes) (Vol.1) (2022) [MP3|320 Kbps] <Rock & Roll, Disco, Dance-pop, Beat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beatles - Ultimate Beatles Mix (Part 2 & 3) (Mixed By Kevin Sweeney)
+02. Elvis Presley - Elvis Presley Megamix (Brian Butler & Sharon Fisher)
+03. Michael Jackson - DMC 25 Years On Sony Megamix (Part 2 & 3) (Mixed By Rod Layman)
+04. Elton John - Elton John Megamix (Part 1 & 2) (Mixed By Rod Layman)(   Читать дальше...   )Жанр: Rock & Roll, Disco, Dance-pop, BeatПродолжительность: 01:19:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9EB5879299C871E35C89F979655FDB3E238165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232224   (602333) от 23.06.2018
 
 TB Frank (ex. The Neon Judgement) & Baustein - Tock! (2018) [MP3|320 Kbps] <Alternative Pop, Electro Rock, IDM>
@@ -632,122 +751,6 @@ VA - Mastermix presents MX: Balearic (2022) [MP3|320 Kbps] <Chillhop, Lo-Fi, Bro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:778FEABCC0D73E8351EAA600FF9840CF59813949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233000   (593991) от 28.06.2018
-
-VA - Acoustic Summer (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alanis Morissette - You Learn (Acoustic Version)
-02. Baden Powell - Berimbau
-03. Terrorvision - Psycho Killer (Acoustic Version)
-04. The Baseballs - Hot N Cold (Acoustic Version)(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 01:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174A4BABA2F2802646559658CC1C57DEF2450DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548962   (593964) от 06.05.2022
-
-VA - Mastermix Jet Boot Jack Remixes 2: Edits (2022) [MP3|320 Kbps] <Dance, New Wave, Funk, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clash - Rock The Casbah (Jet Boot Jack Remix - Edit)
-02. Corona - The Rhythm Of The Night (Jet Boot Jack Remix - Edit)
-03. Curiosity Killed The Cat - Misfit (Breakdance On The Street) (Jet Boot Jack Remix - Edit)
-04. Doobie Brothers - Long Train Runnin' (Jet Boot Jack Remix - Edit)(   Читать дальше...   )Жанр: Dance, New Wave, Funk, SynthpopПродолжительность: 01:09:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D606AD87ECD77D452569ABE1086560775D36D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548963   (593958) от 06.05.2022
-
-VA - Mastermix Jet Boot Jack Remixes 2: Extended (2022) [MP3|320 Kbps] <Dance, New Wave, Funk, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clash - Rock The Casbah (Jet Boot Jack Remix - Extended)
-02. Corona - The Rhythm Of The Night (Jet Boot Jack Remix - Extended)
-03. Curiosity Killed The Cat - Misfit (Breakdance On The Street) (Jet Boot Jack Remix - Extended)
-04. Doobie Brothers - Long Train Runnin' (Jet Boot Jack Remix - Extended)(   Читать дальше...   )Жанр: Dance, New Wave, Funk, SynthpopПродолжительность: 01:45:38 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90F2E288F5A078803F492B45C63A5DC5B9DBC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233031   (593943) от 28.06.2018
-
-Johnny Wakelin - Reggae, Soul And Rock'N'Roll (1976) LP [MP3|320 Kbps] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reggae, Soul And Rock'n'roll (3:17)
-02. Cream Puff (2:22)
-03. In Zaire (3:18)
-04. Me I'm A Capricorn (3:34)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A905BDBB78180FB53579273F3F13F5FDC63B6075
 ```
 
 https://mybot314.ru/tekegram_catalog/

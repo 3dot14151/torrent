@@ -1,3 +1,152 @@
+###  Публикация: 1312201   (530694) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got a Friend in Me (02:04)
+02. I Can't Let You Throw Yourself Away (02:06)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312207   (530614) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой хороший друг (02:05)
+02. Ты не вздумай (02:09)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30AEDEB11C9F62527DE6B7F435F0B16CF13E822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927215   (529929) от 12.08.2015
+
+Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantastic Four Prelude
+02. The Garage
+03. The Unveiling
+04. Baxter(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240295   (529754) от 10.08.2018
+
+Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slipping Away
+02. Spoken from Within
+03. Like Father Like Daughter
+04. Kokkino Garifalo (Classical Arrangement)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75250D94AD252061CBB8CAAE2854F04D18F12E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368373   (529491) от 27.07.2011
+
+Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guru Stotram
+02. Om Bhagavan Sri Ramana
+03. Pathless Path
+04. Everything is Shiva
+05. Om Mani Padme Hum
+06. Infinite Dance
+07. Shower of Grace
+08. Heart of FireЖанр: Mantras, New AgeПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C85BE61C6878FF8102EBB8F67C76C6382DFAC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052282   (529249) от 13.09.2016
 
 Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2015) [FLAC|Lossless|tracks] <New Age, Piano>
@@ -600,151 +749,6 @@ VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309D99C633404F84F7137F448DEF7C6D8431340F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157484   (525218) от 12.08.2017
-
-Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Better Than Myself
-2. Hellbent Hallelujah
-3. More Than Survival
-4. Freak Flag(   Читать дальше...   )Жанр: CountryПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD301D8DCA75CC9C2FB2BBAD0CE5D230C092C4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927331   (524848) от 13.08.2015
-
-Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno (Remix)
-02. Don't Go Away
-03. The Mass
-04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5001ACFBA474E11F7B4C8C43AFA35776B55C4C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927209   (524847) от 13.08.2015
-
-Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno (Remix)
-02. Don't Go Away
-03. The Mass
-04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240433   (524462) от 12.08.2018
-
-VA - Latin Fitness:Summer Edition (2018) [MP3|320 Kbps] <Rumba, Salsa, Brazilian Samba, Reggaeton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva – Balkano Latino (Radio Edit) 2:54
-02. Noelia, Latin Workout – Candela (Latin Workout Remix) 3:08
-03. Latin Workout – Sacudelo (Workout Mix) 2:47
-04. Lester – Hace Calor (Original Mix) 2:57(   Читать дальше...   )Жанр: Rumba, Salsa, Brazilian Samba, ReggaetonПродолжительность: 01:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4935F795C0464AE882A08A8AE82C8ECEB090ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312219   (524332) от 08.07.2019
-
-Hildur Gudnadottir - Chernobyl / Чернобыль (Music from the HBO Miniseries) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Door (02:43)
-02. Bridge Of Death (04:44)
-03. Turbine Hall (02:37)
-04. Vichnaya Pamyat (04:07)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7AC5186F6EBF2519FF714F3C09C9A8CD327B7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

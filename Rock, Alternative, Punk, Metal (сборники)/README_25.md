@@ -1,3 +1,235 @@
+###  Публикация: 920989   (576913) от 24.07.2015
+
+VA - Cover Rock Hits (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Би-2 - Снег кружится
+02. Элизиум - Три белых коня
+03. Агата Кристи - Маленькая страна
+04. Декабрь - Дубинушка(   Читать дальше...   )Жанр: RockПродолжительность: 04:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9CA9D929483EEE35E7AB7D9A785AE6A76B901B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920520   (576789) от 24.07.2015
+
+VA - Best Of Rock 100 Hits (2015) [MP3|320 кб/с]<Thrash Metal, Funk Metal, Britpop, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Colours Red - Nuclear Holiday
+02. 3 Colours Red - Sixty Mile Smile
+03. Alice Cooper - Hey Stoopid
+04. Alice Cooper - Poison(   Читать дальше...   )Жанр: Thrash Metal, Funk Metal, Britpop, Alternative RockПродолжительность: 06:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245C24DDA372497D34D180AEB107E5FC097ADED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805854   (575737) от 19.05.2019
+
+VA - Rocks 'n' Ballads II (2014) [MP3|320 кб/с]<Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackmore's Night - 25 years
+02. Amorphis - Alone
+03. Accept - Balls To The Wall
+04. Keldian - Crusader(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 08:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A1CEAB8DB1C21D9161470C68DBF7971CACE530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302692   (575736) от 19.05.2019
+
+VA - NOW 100 Hits Classic Rock (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Queen - We Will Rock You 2:02
+002. Def Leppard - Pour Some Sugar On Me 4:27
+003. Bon Jovi - You Give Love A Bad Name 3:44
+004. The Rolling Stones - Start Me Up 3:33(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E82FF14DE864BCEC192579C4C79992CF634CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 816186   (575645) от 19.05.2019
+
+VA - Blues and Rock Ballads (2014) [MP3|320 кб/с]<Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sena Ehrhardt - Last Chance
+02. Blue Radio - Sky Is Grey
+03. A Jigsaw - I Have Been Away For So Long
+04. Hangman - Ghost of My Love(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 09:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093DBAA166BC4070335051F269736453BCA41A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772452   (574005) от 20.05.2019
+
+VA - Весенний Коктейль (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith - Sweet Emotion
+002. Led Zeppelin - Kashmir
+003. The Rolling Stones - Gimme Shelter
+004. AC/DC - Back In Black(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 07:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0958138A8A57DDAEACDCF13C1E675CBFEF6E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753826   (573987) от 20.05.2019
+
+VA - 100 Best Rock Hits (2012) [MP3|320 кб/с]<Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573987.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Led Zeppelin - Black Dog (4:57)
+2.The Beatles - Girl (2:34)
+3.Rolling Stones - (I Can't Get No) Satisfaction (3:45)
+4.Deep Purple - Child in Time (10:20)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 08:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F365AACE6F6E6357232B695263A844A9CB07C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921186   (573489) от 26.07.2015
+
+VA - Рок впрок (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Северный Флот - Поднимая Знамя
+ 02. TOKAY - Сделай мне музыку
+ 03. PEACE DAYS - Реалити-шоу
+ 04. 6 Страниц Назад - Блеск души(   Читать дальше...   )Жанр: RockПродолжительность: 03:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB6A40313FEF1FC5193855CF21F93C27163CA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869269   (572023) от 21.05.2019
 
 VA - Rock Party (2015) [MP3|320 кб/с]<Rock>
@@ -513,238 +745,6 @@ Avantasia - All the Best (2015) [MP3|320 Kbps] <Symphonic Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B8DC691A2862FB8934CA1522269D3119ACBAF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045903   (556673) от 25.08.2016
-
-W.A.S.P. - Until You Like It (2016) [MP3|320 Kbps] <Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mephisto Waltz.mp3
- 02 - I Wanna Be Somebody.mp3
- 03 - Fuck Like a Beast.mp3
- 04 - School Daze.mp3(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79123ABA50F21A6DFA80EA385127434731CB4B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556729   (556427) от 12.06.2022
-
-Brothers Osborne - Compilation (2022) [MP3|320 Kbps] <Rock, Country>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Shaped Locket
-02. I Smoke Weed (Feat. Ashland Craft & Brothers Osborne)
-03. Shoot From The Hip
-04. Skeletons(   Читать дальше...   )Жанр: Rock, CountryПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA400B19DF7D7A8B4A9B1D10199C9951B03F20DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306563   (555561) от 05.06.2019
-
-VA - Friendly Reminder: Punk Rock Collection (2019) [MP3|320 Kbps] <Punk, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555561.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Down Memory Lane - Xenophobic
-002. Sharp Sleeves - Old Soul
-003. Burn Burn Burn! - Fugue State
-004. Big Black - Pavement Saw(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 08:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CF4BEDBBD82C61F4CE7B26F01233D0B41C814E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236388   (554456) от 17.07.2018
-
-VA - Behold In Now: Alternative Compilation (2018) [MP3|320 Kbps] <Rock Alternative, Independent Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554456.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Imagine Dragons - Whatever It Takes
-002. Sleaford Mods - Army Nights
-003. Hollerado - Born Yesterday
-004. Red Hot Chili Peppers - The Getaway(   Читать дальше...   )Жанр: Rock Alternative, Independent RockПродолжительность: 08:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DA7878061BB962B1057FBDE8DA84C31C64E746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308119   (554345) от 12.06.2019
-
-VA - The Best Road Trip Collection (2019) [MP3|320 Kbps] <Blues-Rock, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554345.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bob Corritore feat. Sugaray Rayford & Junior Watson - Trying To Make A Living
-002. Shane Dwight - Shakin'
-003. The Black Keys - Eagle Birds
-004. The Dead Weather - I Can't Hear You(   Читать дальше...   )Жанр: Blues-Rock, RockПродолжительность: 06:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A14D55F290754851ABC19927436D8ACF99A39E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308998   (552930) от 17.06.2019
-
-VA - The Untouchables: Punk Rock Meeting (2019) [MP3|320 Kbps] <Punk, Rock Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552930.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rise Against - Wolves
-002. Bury Mia - Clocks Slay Time
-003. High Signs - A Much Larger Ocean
-004. Rkx - Just Let Me Know(   Читать дальше...   )Жанр: Punk, Rock PunkПродолжительность: 08:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E9C302248BCAFE5395D911B8688F448811C30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309021   (552813) от 17.06.2019
-
-VA - Caught In The Wind (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Manic Street Preachers - Concrete Fields
-002. Los Lobos - Tears Of God
-003. Slade - My Oh My
-004. Flame - Razor Blade Road(   Читать дальше...   )Жанр: RockПродолжительность: 09:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93F30EF4C747F0F91F75B1A7DA481A99D57CEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308951   (552720) от 17.06.2019
-
-VA - Я Проткну Себе Ж_пу Ножом (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.CLAY - Обнимай меня (1:15)
-02.KRYLOV - Виноват Путен (2:18)
-03.Александр Заславский - Время турбулентности (2:20)
-04.Deadsilence - Рок-н-ролл квин (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 03:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E960D2F2E3CB3977F4523CCD9A2B2D3AFEAD165
 ```
 
 https://mybot314.ru/tekegram_catalog/

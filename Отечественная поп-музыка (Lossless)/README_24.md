@@ -1,3 +1,32 @@
+###  Публикация: 178487   (57573) от 05.05.2024
+
+Винтаж - Sex (2009) [APE|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex (5:05)
+02. Victoria (3:55)
+03. On/Off (2:52)
+04. Делай мне больно (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC691A9A9DC1432B54B22BB66F4C88D877C14B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 111761   (57562) от 05.05.2024
 
 МакSим - Трудный возраст (2006) [FLAC|lossless]<Pop>
@@ -702,35 +731,6 @@ Reflex - Blondes 126 (2008) [WavPack|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46534038CDB438F71095D0871FAD6DAC7998417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741904   (47328) от 09.08.2024
-
-Revoльvers - Целуешь меня (2007) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Целуешь меня
- 02. Странные люди
- 03. Забыть и простить
- 04. Опять обманешь(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D6841690C9414413A76EBA15DD5E3A5DCDC71D
 ```
 
 https://mybot314.ru/tekegram_catalog/

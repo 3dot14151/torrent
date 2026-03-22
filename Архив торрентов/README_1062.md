@@ -1,3 +1,61 @@
+###  Публикация: 1120214   (803185) от 30.03.2017
+
+Black Sun Empire - The Wrong Room (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Veil
+ 02. Swarm
+ 03. Foundation
+ 04. Scarif(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8552FFD45B1D510F2B7BDE8E318DF3755E702F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120119   (803182) от 30.03.2017
+
+Tayasui Sketches Pro 3.01 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасные инструменты — залог превосходных рисунков, поэтому мы создали приложение Sketches с еще более широким набором реалистичных инструментов.
+С удивительным набором инструментов и современным пользовательским интерфейсом  Sketches  является наиболее универсальным и удобным приложением для  создания рисунков.
+
+• Возможности(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 марта 2017Разработчик: TayasuПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FCADA03848865CADE61D5E0579BBDC16520E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120244   (803181) от 30.03.2017
 
 Wondershare Filmora 8.1.1 [Multi/Ru]
@@ -631,63 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885158   (802879) от 05.04.2015
-
-Microsoft Windows 10 TP Language Pack build 10051 (x64) [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальные языковые пакеты для Windows 10 Techninal Preview (build 10041).
-В данном архиве вы найдете такие языковые пакеты:
-English, Japanese, Korean, Arabic, German, Spanish, Finnish, French, Italian, Dutch, Polish, Portuguese-Brazil, Russian, Swedish, Thai, Turkish, Chinese - SimplifiedЯзык интерфейса: Multi 21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FF1B37B23EF6C31A3AE14C2D48FF3B83F14583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505471   (802845) от 28.10.2021
-
-The Replacements - Sorry Ma, Forgot To Take Out The Trash (2021) 4xCD, Deluxe Edition [FLAC 2.0|96/24|tracks|WEB-DL] <Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc - 1:
-01. Takin a Ride (2021 Remaster) (02:24)
-02. Careless (2021 Remaster) (01:08)
-03. Customer (2021 Remaster) (01:30)(   Читать дальше...   )Жанр: RockПродолжительность: 03:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE65B61671F8444DA4EBD3CBD0232E24D22C6E55
 ```
 
 https://mybot314.ru/tekegram_catalog/

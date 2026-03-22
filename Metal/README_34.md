@@ -1,3 +1,32 @@
+###  Публикация: 1395283   (755662) от 10.07.2020
+
+Hammerhedd - Grand Currents (2020) [MP3|320 Kbps] <Progressive Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gift of Fire (07:59)
+ 02. Sediment (05:15)
+ 03. Drone (09:27)
+ 04. ~Hypnocurrents~ (00:50)(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A8005368F4DDC1D9061439955767F6DC50FCB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395337   (755658) от 10.07.2020
 
 Myridian - Light in the Abyss (2020) [MP3|320 Kbps] <Melodic Death Metal, Doom Metal>
@@ -491,6 +520,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216468   (749575) от 31.03.2018
+
+Alghazanth - Eight Coffin Nails (2018) [MP3|320 Kbps] <Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_749575.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Self-Exiled
+2. Facing The Nort
+3. Aureate Water
+4. The Upright Road(   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467718749C17F9E0FEC68CCCB048B7BFCF6A3A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 889176   (749535) от 17.04.2015
 
 Apocalyptica - Shadowmaker (2015) Deluxe Edition [MP3|320 кб/с]<Symphonic Metal, Cello Metal>
@@ -684,64 +742,6 @@ Fit For An Autopsy - Oh What the Future Holds (2022) [MP3|320 Kbps] <Deathcore /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19CF19B8AA42BF6868FD6CB87D0919AA95A73EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019882   (748200) от 24.05.2016
-
-Stratovarius - Best Of (2016) 2CD, Remastered [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until the End of Days (3:44)
-02. My Eternal Dream (Remastered 2016) (6:05)
-03. Eagleheart (Remastered 2016) (3:50)
-04. Speed of Light (Remastered 2016) (3:06)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53010A352BCC5182D0A7451B9314FAA366E0CCDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019661   (747961) от 24.05.2016
-
-Architects - All Our Gods Have Abandoned Us (2016) [MP3|320 кб/с] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nihilist
-02. Deathwish
-03. Phantom Fear
-04. Downfall(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE461DDB86171F8401C8AE9C537D3509E7B4757
 ```
 
 https://mybot314.ru/tekegram_catalog/

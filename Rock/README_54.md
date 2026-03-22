@@ -1,3 +1,166 @@
+###  Публикация: 1407806   (460233) от 10.09.2020
+
+JD Simo (Simo) - JD Simo (2020) [MP3|320 Kbps] <Blues Rock, Psychodelic, Jam Band>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Movement 03:58
+02. Love 03:38
+03. Out Of Sight 02:24
+04. Higher Plane 05:02(   Читать дальше...   )Жанр: Blues Rock, Psychodelic, Jam BandПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29AF71C098AE3E3480B9247B51CEE88590991D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 241069   (460219) от 01.10.2010
+
+Cliff Richard & The Shadows - Reunited (50th Anniversary) (2009) [MP3|128-192 kbps]<Pop-Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460219.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. I Could Easily Fall (In Love With You)
+02. The Young Ones
+03. Move It
+04. Living Doll
+05. Bachelor Boy
+06. Nine Times Out Ten
+07. C'mon Everybody
+08. Travellin' Llight
+09. It'll Be Me(   Читать дальше...   )Жанр: Pop-Rock, Rock & RollПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549925   (460149) от 21.09.2012
+
+Bob Dylan - Bob Dylan's Greastest Hits (1967 [2012]) [MP3|320 кб/с]<Folk Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460149.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rainy Day Women #12 & 35 (4:38)
+ 2. Blowin' In The Wind (2:47)
+ 3. The Times They Are A Changin' (3:13)
+ 4. It Ain't Me Babe (3:34)
+ 5. Like A Rolling Stone (6:13)
+ 6. Mr. Tambourine Man (5:28)
+ 7. Subterranean Homesick Blues (2:19)
+ 8. I Want You (3:06)
+ 9. Positively 4th Street (4:09)
+ 10. Just Like A Woman (4:53)Жанр: Folk Rock, Blues RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A82A5BA348A46D1AEF1338BA78875CFDE0B944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550588   (458521) от 22.09.2012
+
+Hostsonaten - Summereve (2011) [MP3|320 кб/с]<Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Seasons's Overture (10:51)
+I.  Rite Of Summer
+II. In The Rising Sun
+III. The Last Shades Of Winter
+IV. A Church Beyond The Lake
+V. La Route Pour Finistére
+VI. Springtheme
+2. Glares Of Light (07:25)
+3. Evening Dance  (04:13)
+4. On The Sea (04:20)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8458AEB98A4816965D5F6B735F427D12293F0436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408220   (458307) от 11.09.2020
+
+Toehider - I LIKE IT! (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Full Bore! (04:05)
+ 02. Wellgivit (04:38)
+ 03. Rancorous Heart (05:02)
+ 04. Moon And Moron (06:20)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0CFEFCECA64F7DC54FCBEB25667EB11F41CE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942009   (458102) от 29.09.2015
 
 Artful Dodger - Artful Dodger (1975) Remastered /1997, P.E.G./ [MP3|320 кб/с]<Rock, Power Pop>
@@ -604,168 +767,6 @@ The Beatles - Complete Christmas Collection [Bootleg] (1994) [MP3|192 kbps]<Rock
 [07:56] 07.  - The Beatles 1968 Christmas Record (1968)
 [07:45] 08.  - The Beatles Seventh Christmas Record (1969)
 [04:40] 09.  - Christmas Message (1964)Жанр: Rock and RollПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551023   (449938) от 25.09.2012
-
-The xx - Coexist (Japanese Version) (2012) [MP3|320 кб/с]<Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449938.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Angels
-2.Chained
-3.Fiction
-4.Try
-5.Reunion
-6.Sunset
-7.Missing
-8.Tides
-9.Unfold
-10.Swept Away(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569621   (449681) от 14.08.2022
-
-PreHistoric Animals - 3 Albums (2018-2022) [MP3|320 Kbps] <Alternative Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Empty Space [00:01:01]
-02. We Harvest The Souls Of The Brave [00:04:34]
-03. I Am The Chosen One (And I Like It) [00:06:10]
-04. Ghostfires [00:06:03](   Читать дальше...   )Жанр: Alternative Progressive RockПродолжительность: 3CD, 02:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E8CB823DF12DB19B5CE1A5333F4262E575D621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551842   (448764) от 26.09.2012
-
-Diapasаo - Opus 1 (2006) [MP3|320 кб/с]<Progressive rock, Jazz-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diapasão (8:08)
-02. Som do Brasil (1:57)
-03. Sonata (6:12)
-04. Do céu ao inferno (7:54)
-05. Fuga (2:04)
-06. Noite a la caipirinha (8:10)
-07. Rock espanhol (3:14)
-08. Jazz (5:32)
-09. Piccolo finale (0:59)Жанр: Progressive rock, Jazz-RockПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E92B6ADBF78C39A0B0FF494796C65461B9C769A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163730   (448545) от 06.09.2017
-
-The Bobby Fuller Four - I Fought the Law / KRLA King of the Wheels (1965) Remastered, 1990, Ace [MP3|320 Kbps] <Beat, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Reef
-02. Wolfman
-03. She's My Girl
-04. King Of The Wheels(   Читать дальше...   )Жанр: Beat, Rock'n'RollПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3B5A1FB6716BD04D4D112C86ACB69F4C06D435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242974   (447705) от 07.10.2010
-
-The Beatles & The Rolling Stones - When Two Legends Collide [BOOTLEG] (1967) [MP3|128 kbps]<Rock and Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447705.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:36] 01.  - Sing This All Together
-[02:39] 02.  - Citadel (Instrumental)
-[02:21] 03.  - Shades Of Orange
-[03:46] 04.  - She's A Rainbow
-[02:48] 05.  - Ride On Baby
-[03:18] 06.  - Too Many Cooks
-[01:12] 07.  - That Place
-[01:37] 08.  - Ain't That Lovin You Baby
-[03:53] 09.  - Through The Lonely Nights
-[04:42] 10.  - Everybody Needs Somebody To Love(   Читать дальше...   )Жанр: Rock and RollПродолжительность: 00:40:23
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,29 @@
+###  Публикация: 1306965   (554840) от 10.06.2019
+
+Звуковые библиотеки - Strezov Sampling - Afflatus Strings 1.2 Update [OGG, NICNT, NKI, NKC, NKR, NKX]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Afflatus Strings 1.2, дополняющий ранее изданную библиотеку Звуковые библиотеки - Strezov Sampling - AFFLATUS CHAPTER I Strings v1.1Формат: OGG, NICNT, NKI, NKC, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171A724AD92E7DB027D784BBF77A41A20531772E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308185   (554140) от 13.06.2019
 
 Звуковые библиотеки - Native Instruments - Session Horns Pro v1.4.0 [OGG, MID, NICNT, NKI, NKC, NKR, NKX]
@@ -656,32 +682,6 @@ Mercury Lite - это сердце библиотеки Mercury, но с мен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35E041BEE2DF3E5E6B0130336FC9AB01C63E9AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315098   (515017) от 18.07.2019
-
-Звуковые библиотеки - Fable Sounds - Broadway LITEs 2.0.24 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broadway LITEs ™ - это виртуальный инструмент. Слияние звука, музыки и технологий. Оснащенный проигрывателем Kontakt 5, он содержит 15 ГБ мультисэмплового контента с более чем 20 000 уникальных сэмплов саксофонов, труб, тромбона и кларнета. Он предлагает все те же инновационные запатентованные технологии, а также избранные части инструментов и аудиоконтента, используемые (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX, NKM, NKX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4C4BD3D2A5E915585361B5210E9A1E6F0838F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

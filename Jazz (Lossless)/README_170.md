@@ -1,3 +1,190 @@
+###  Публикация: 1405496   (483694) от 30.08.2020
+
+Jason Marsalis - Music Update (2008) ELM Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guess Who's Back? [1:10]
+02. Offbeat Personality [6:08]
+03. Ballet Class [4:27]
+04. Discipline Returns Once Again [3:56](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318C7B2736AC8E87E96D541151F5CC3E5637C069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405494   (483692) от 30.08.2020
+
+George Cables Trio - Skylark (1995) 1996, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fungii Mama [6:26]
+02. Fee-Fi-Fo-Fum [9:37]
+03. Manha de Carnival [7:40]
+04. Skylark [8:21](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1239117831B218BEEC55AAC8A5C22FC34B1D13B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545442   (483125) от 11.09.2012
+
+Bobby Hutcherson - Wise One (2009) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бобби Хатчерсон (Bobby Hutcherson, род. 27.01.1941, Лос-Анджелес) - американский джазовый вибрафонист. Рос в Пасадене (Калифорния), с 8 лет играл на фортеапино. Перешел на вибрафон, услышав записи Милта Джексона. Учился у Дэйва Пайка, подрабатывая в местных клубах. Стал известным после записи с Эриком Долфи (Out To Lunch, 1964).01. Wise One :: 07:52
+02. Like Sonny :: 05:50
+03. Aisha :: 05:10
+04. Equinox :: 05:30
+05. All Or Nothing At All :: 06:58
+06. Nancy (With The Laughing Face) :: 04:36
+07. Spiritual :: 06:42
+08. Out Of This World :: 06:17
+09. Dear Lord :: 04:59Жанр: Jazz, Post-BopФормат: CD, AlbumПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319464   (482840) от 12.08.2019
+
+Bill Evans - 3 Essential Albums (1963 - 1967) 3CD, Universal, 2018 [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482840.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - At Town Hall:
+01. I Should Care [5:31]
+02. Spring Is Here [5:03]
+03. Who Can I Turn To [6:21](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 02:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0055AC9A694B5BD5507E9080D39C70C850AB0DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566477   (482448) от 29.07.2022
+
+The Uptown String Quartet - Just Wait A Minute! (1992) Bluemoon [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Wait a Minute [4:54]
+02. Along Came Betty [4:06]
+03. Moose the Mooche [3:59]
+04. Summertime [3:19](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DCCCD5A4E0081F5793DE5C43A67FA3F83FD58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545350   (482415) от 11.09.2012
+
+Jheena Lodwick - 4 альбома (2002 - 2007) [APE/FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Girl In Your Arms [03:07]
+02. As Time Goes By [04:42]
+03. It Had To Be You [03:40]
+04. These Foolish Things [04:28]
+05. Angel [02:49]
+06. Don't Be Cruel [02:41]
+07. We Can Work It Out [03:58]
+08. You Don't Know Me [05:33]
+09. Singing In The Rain [03:18]
+10. Que Sera, Sare [04:58](   Читать дальше...   )Жанр: Jazz, VocalФормат: XRCD24
+
+Jheena Lodwick - вокальный талант, красивый голос которой можно услышать на нескольких альбомах, интерпретации самой любимой классики, Elvis Presley и Beatles.  Голос, который хочется слушать и слушать.Продолжительность: 00:58:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159679   (482203) от 21.08.2017
 
 Ray Charles & Count Basie Orchestra - Ray Sings Basie Swings (2006) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
@@ -575,180 +762,6 @@ Reinhard Flatischler - Megadrums Live (1988) Puls productions[APE|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49BE3ADAB9DE190D438DC6CCB7302DC6AEC91557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056743   (479722) от 26.09.2016
-
-Ray Anderson - It Just So Happens (1987) Enja[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Once In A While [06:25]
- 02.It Just So Happens [05:58]
- 03.Ross The Boss [07:33]
- 04.Elegy For Joe Scott [05:23](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADF54B9B3BA03BE1F758AB693E6B0442090DB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056884   (479717) от 26.09.2016
-
-Joshua Redman & Brad Mehldau - Nearness (2011) 2016, Nonesuch Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ornithology [08:41]
- 02.Always August [10:58]
- 03.In Wlked Bud [09:59]
- 04.Mehlsancholy Mode [12:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B91649867128417B1820EF3345F3C3DC9090EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319772   (479417) от 14.08.2019
-
-Earl Bostic - Four Classic Albums (1950 - 1958) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues, R&B, Standards>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479417.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Harlem Nocturne [2:22]
-02. Where Or When [3:10]
-03. Sweet Lorraine [2:43](   Читать дальше...   )Жанр: Swing, Jump Blues, R&B, StandardsПродолжительность: 02:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92433DAF84C4B6D84EF57022F93BD71B7EF643CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319775   (479416) от 14.08.2019
-
-Abdullah Ibrahim - The Balance (2019) Gearbox Records [FLAC|Lossless|tracks + .cue] <World Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamtime [4:09]
-02. Nisa [6:40]
-03. Jabula [3:47]
-04. Tuang Guru [5:14](   Читать дальше...   )Жанр: World Fusion, Post-BopПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABEAAABAAABDA1D103C1FF202BAB1A7929BB1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405987   (479390) от 01.09.2020
-
-Monty Alexander - Live at Maybeck Recital Hall, Vol.40 (1994) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When the Saints Go Marching In [3:56]
-02. When I Grow Too Old to Dream [5:52]
-03. Close Enough for Love [7:00]
-04. The Serpent [4:54](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7353FC6B6B91320D6A6BF583A02AB3C2A43412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406020   (479268) от 01.09.2020
-
-Norah Jones - Late Night Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flame Twin
-02. Turn Me On
-03. What Am I To You?
-04. Say No More(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07643114EE5324FBC5D24EFD8F7E89196D1FA1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1551226   (590184) от 15.05.2022
+
+Michael Buble - Compilation (2022) [MP3|320 Kbps] <Vocal Jazz, Jazz-Pop>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Foolish Things (Remind Me Of You)
+02. Comin' Home Baby (Duet with Boyz II Men)
+03. Help Me Make It Through the Night
+04. Can't Help Falling in Love(   Читать дальше...   )Жанр: Vocal Jazz, Jazz-PopПродолжительность: 03:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E49560B54F17C436C439550299D839B8643A2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040727   (585429) от 06.08.2016
 
 VA - Smooth Jazz for Deep Relaxation: Background Music for Lounge Mood (2016) [MP3|320 Kbps] <Jazz, Instrumental>
@@ -715,35 +744,6 @@ VA - Vintage Electro Jazz (2016) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10B34461D160327D4F854FAFAF026112E4159B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048628   (546470) от 02.09.2016
-
-VA - Ladies of Jazz (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simona Parrinello - Everybody's Song but My Own
-02. Erin Dickins - Tain't What You Do
-03. Deborah J. Carter - Satin Doll
-04. Martie - Besame Mucho(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63C53C9B18B59849ED697393B8FB3A01B68CDA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -401,6 +401,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214717   (762744) от 23.03.2018
+
+Just Dance 2018 (2017) [Wii] [EUR] 4.2 [Softmod] [License] [Multi]
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_762744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неважно, откуда вы и сколько вам лет. Может, вы вообще панда. Или морковка. Врубайте громкость на максимум и готовьтесь танцевать! Just Dance 2018 включает свыше 40 треков, а с Just Dance Unlimited* вам будут доступны более 300 композиций и 3-месячный пробный доступ!
+
+Танцуйте под 40 новых песен: от горячих новинок до хитов для всей семьи. Just Dance подойдет и начинающим (   Читать дальше...   )Тип издания: LicenseРазработчик: UbiSoft EntertainmentЖанр: Dance, PartyЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский, Французский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49546D4C5A206EBC53C88C090B6BBCDE7573BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017083   (762400) от 16.05.2016
 
 Batman: Arkham Origins Blackgate (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
@@ -660,35 +688,6 @@ Rayman Legends (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0892535D46EF3E608ACC8FAAA5D63ACE0F94FFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018233   (757075) от 19.05.2016
-
-Project Zero: Maiden of Black Water / Fatal Frame: Maiden of Black Water (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project Zero: Maiden of Black Water - леденящий душу хоррор, созданный специально для консоли Nintendo Wii U.
-
-Действие игры разворачивается на горе Хиками, ставшей печально известной благодаря участившимся случаям суицида и паранормальным явлениям. Легенды гласят, что здесь обитают души давно усопших, которые очень не любят, когда их тревожат...
-(   Читать дальше...   )Тип издания: LicenseРазработчик: Koei Tecmo Holdings, Nintendo Software Planning and DevelopmentЖанр: Adventure, HorrorЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCC3081CE6F33AC084E89D5F9742DD33870B1CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

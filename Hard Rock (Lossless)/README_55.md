@@ -1,3 +1,183 @@
+###  Публикация: 1418260   (349294) от 24.10.2020
+
+Pride Of Lions - Lion Heart (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lion Heart
+02. We Play For Free
+03. Heart Of The Warrior
+04. Carry Me Back(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7BBEFF17915F320B3053820A68B4CE7D330B773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579379   (347507) от 23.11.2012
+
+Krokus -  12 Альбомов (1977 - 2003) Non-remastered, 1st Press [WavPack|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1977- To You All
+1980- Metal Rendez-vous
+1981- Hardware
+1983- Headhunter
+1984- The Blitz
+1986- Alive And Screamin'
+1986- Change Of Address
+1988- Heart Attack
+1989- Stayed Awake All Night(   Читать дальше...   )Жанр: Hard RockПродолжительность: 9:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7833DC84580CA045F6E217EA5A398FA688A33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953722   (346833) от 05.11.2015
+
+The Winery Dogs - Hot Streak (2015) [FLAC|image+.cue]<Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblivion (4:11)
+02. Captain Love (5:06)
+03. Hot Streak (5:10)
+04. How Long (3:55)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F75DAFB4194EFED90A29720135AF113DD17182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418662   (346803) от 25.10.2020
+
+Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Ballads, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Life One Soul (3:45)
+02. Let It Be (4:21)
+03. In The Name (3:33)
+04. Lonely People (3:24)(   Читать дальше...   )Жанр: Hard Rock, Ballads, AcousticПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CCA3A885C7B9F4B24FAC632ED943113ACFE344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953830   (346718) от 05.11.2015
+
+Geordie - Don't Be Fooled By The Name (1974) Japanese Edition /2006, Archive/ [FLAC|image +.cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' Down
+02. House of the Rising Sun
+03. So What
+04. Mercenary Man(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B610B282888AC03B715D97CC651FC5FAA494058B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578415   (345857) от 23.09.2022
+
+Tony Mills - Streets of Chance (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scars
+02. When the Lights Go Down
+03. Legacy
+04. Battleground(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF3D5EE39BC6D617FC251224C024561E7D3C8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578245   (345832) от 23.09.2022
 
 House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
@@ -572,180 +752,6 @@ Irish Coffee - 5 albums (1971-2020) [FLAC|Lossless|image + .cue | tracks+.cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B5061D7861EDE2E32CB0ED51070A8FDD4B48F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180728   (337775) от 05.11.2017
-
-Fozzy - Judas (2017) [FLAC|Lossless|image + .cue] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Judas (4:11)
-02.Drinkin With Jesus (3:56)
-03.Painless (4:00)
-04.Weight Of My World (3:18)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8399228299B4FD7FAE2E8757857A2915CE336A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330723   (336842) от 12.10.2019
-
-Cornerstone - Arrival (2000) [WavPack|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival. . . . . . . . .1:08
- 02. Walked On The Water. . .5:00
- 03. Jungle . . . . . . . . .4:09
-04. Straight To The Bone . .5:02(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33A02654B48CF26EF70ABDAC20D8F3143A99432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579105   (336607) от 27.09.2022
-
-Strom - Strom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiden sjunger [00:04:08]
-02. Katapult [00:03:22]
-03. Ta mig tillbaks [00:04:08]
-04. Vass tunga [00:04:32](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7053785EF67D44FD63E375AB85507B8F926EF7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579116   (336500) от 27.09.2022
-
-Rain - A new tomorrow (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A new tomorrow [00:03:40]
-02. Down in hell [00:04:13]
-03. New sin [00:03:26]
-04. Double game [00:03:08](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0623981994B01A18E97F92AC6D2A866D83DBD29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579109   (336499) от 27.09.2022
-
-Seventh Storm - Maledictus (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Progressive Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pirate's Curse [00:06:24]
-02. Saudade (English version) [00:06:38]
-03. Sarpanit [00:02:21]
-04. Gods Of Babylon [00:06:48](   Читать дальше...   )Жанр: Hard Rock, Progressive Gothic MetalПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35858978EC0ACD2343D14DA08FCEC06C179AEF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074786   (336104) от 20.11.2016
-
-Hollywood Monsters - Big Trouble (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day In Grey 00:29
-02. Move On 04:40
-03. Big Trouble 03:39
-04. The Only Way 04:21(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56450A6BAA1C0C60EE8ADD6511DF81D60486E125
 ```
 
 https://mybot314.ru/tekegram_catalog/

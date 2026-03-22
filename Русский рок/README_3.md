@@ -1,3 +1,119 @@
+###  Публикация: 1437306   (1042307) от 04.01.2021
+
+Crrombid Traxorm - Anamnesis Morbi (2020) [MP3|320 Kbps] <Progressive Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro-Rising Reanimation (06:26)
+ 02. Mortalgramma (03:08)
+ 03. New Vaccine (07:28)
+ 04. Stomatologic Operation (08:10)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E4897A08C23ED8AF565F4E9B6430240D777AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437393   (1042302) от 04.01.2021
+
+Compassionizer - Caress of Compassion (2020) [MP3|320 Kbps] <Progressive Rock, RIO, Avant-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Whole Creation Travaileth in Pain Together (07:16)
+ 02. Street out of Sleep (03:22)
+ 03. How Poems Lose Relevance (04:16)
+ 04. Caress of Compassion (Part 1) (03:22)(   Читать дальше...   )Жанр: Progressive Rock, RIO, Avant-ProgПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07E5CA01401D81A34E976B086BB64D429C0A3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437336   (1042299) от 04.01.2021
+
+Crimson Caravan - Big Big Bang (2020) [MP3|320 Kbps] <Stoner Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Big Big Bang [00:05:45]
+02 - Satisfied Cremation [00:03:35]
+03 - Heap of Junk [00:04:14]
+04 - Fire Geckos Dance [00:04:38](   Читать дальше...   )Жанр: Stoner Desert RockПродолжительность: 00:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D535BD5CC7D2FF34A46A63F2B5F49B2CD52519B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437230   (1042298) от 04.01.2021
+
+Echelon - Поехали (2020) [MP3|320 Kbps] <Modern Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - На взлёт [00:01:49]
+02 - Поехали [00:04:16]
+03 - Особенный путь (feat. Alena Meta) [00:04:11]
+04 - Течение времени [00:03:54](   Читать дальше...   )Жанр: Modern Industrial Nu MetalПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0231EFA05C5F10B8CE2C094E808720BAE57994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611387   (1041310) от 11.02.2023
 
 Бездна Анального Угнетения - Русская мечта (2023) [MP3|320 Kbps] <Melodic Death Metal, Thrash Metal>
@@ -625,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75390456F82A5FE43A5CDE28D8A1C7E01A713BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614043   (1039096) от 20.02.2023
-
-Новый Гражданский - Горящий город (2023) [MP3|256 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Горящий город [00:02:56]
-02 - Ориентиры [00:03:38]
-03 - Хочу [00:03:08]
-04 - Сука [00:03:04](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5550B4AEF0F764DFCE1E851CAF8907AAF90CACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613980   (1039094) от 20.02.2023
-
-Субботний Вечер - Русский воин (2023) [MP3|320 kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Русский воин [00:02:25]
-02. Магазин [00:03:38]
-03. Пьянь [00:03:14]
-04. Баллада о звезде [00:04:53](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CDDE1A4638B66CD2470585DF4AC2C1BD76122F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613840   (1039093) от 20.02.2023
-
-Дом Медичи - Властелин Колец (1992) [MP3|192 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Слово [00:04:53]
-02-Я бреду наугад [00:05:23]
-03-Цифра 6 [00:03:25]
-04-Господи, где взять мне силы [00:03:15](   Читать дальше...   )Жанр: RockПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F2DE1F0AF72B1ADD12BE3AC006CCB3D70B048C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613618   (1039056) от 20.02.2023
-
-LP.PROD - 6 Albums (2021-2023) [MP3|320 Kbps] <Electronic Cinematic Music>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Across the Horizon
-2021 - Black Flag
-2022 - Civil War(   Читать дальше...   )Жанр: Electronic Cinematic MusicПродолжительность: 6 CD, 02:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E60A892943E6ADA186B7BB30A00B476C49E1E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

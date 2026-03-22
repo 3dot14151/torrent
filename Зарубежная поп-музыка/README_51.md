@@ -1,3 +1,119 @@
+###  Публикация: 1571105   (436188) от 20.08.2022
+
+Celine Dion - A New Day Has Come (2002) [OGG Vorbis|485 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm alive
+02. Right in front of you
+03. Have you ever been in love
+04. Rain, tax (it's inevitable)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B488FB886018DC8CDC64BDF060BFD4B1D66284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570974   (436123) от 20.08.2022
+
+Linda Jo Rizzo - Greatest Hits & Remixes (2019) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My First, You're My Last (7" Version) 3:40
+02. Fly Me High (Radio Version) 4:07
+03. Heartflash (Tonight) (7" Version) 3:58
+04. Perfect Love (7" Version) 3:35(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CB3F2A2B1B68DB0E89FCDB9986DF7086476AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249297   (435994) от 23.09.2018
+
+Steps - Step One (1998) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steptro (0:57)
+02. Last Thing On My Mind (3:05)
+03. 5, 6, 7, 8 (3:24)
+04. One For Sorrow (4:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81A3F5ED04CC12BF8F3DCB9B036E51D209C2E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249244   (435989) от 23.09.2018
+
+VA - Das Beste aus der Starnacht (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435989.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Vanessa Mai - Mein Sommer
+02. Nik P. - Glühwürmchen
+03. Beatrice Egli - Verliebt, verlobt, verflixt nochmal(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622BDA112F5BBE3E44824C70BF5B10C56B71CA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249354   (435870) от 23.09.2018
 
 Black Light Orchestra - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Downtempo, Disco>
@@ -626,122 +742,6 @@ Cher - Dancing Queen (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEC56C166601723B8677E786B4150AAA8061C5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064576   (426236) от 20.10.2016
-
-Rebecca Ferguson - Superwoman (2016) [MP3|320 Kbps] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bones   (03:49) 
-02. Mistress   (03:19) 
-03. Hold Me   (04:28) 
-04. Superwoman   (03:34) (   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F15A9023536F621BCC9DA4AC7DBB6A3503AD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324536   (425362) от 09.09.2019
-
-Liz Mitchell - Share The World (1999) ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Have A Party (4:53)
-02. Good Timing (3:59)
-03. Share The World (5:52)
-04. My Love's A Ship (3:47)(   Читать дальше...   )Жанр: Reggae, Pop, BalladПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AA721243690BAE3279C045C2FFD994D34CDD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064745   (423910) от 21.10.2016
-
-Melanie C - Version of Me (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Life
-02. Escalator
-03. Anymore
-04. Something For the Fire(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759C7871A2D509255A1175DEE203667C4592CA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572144   (423513) от 26.08.2022
-
-The Cars - Heartbeat City (1984) [OGG Vorbis|485 Kbps] <Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Again	3:47
-02. Looking For Love	3:52
-03. Magic	3:57
-04. Drive	3:55(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68689E77A023156F4D771A8FE330414BD6FA0B93
 ```
 
 https://mybot314.ru/tekegram_catalog/

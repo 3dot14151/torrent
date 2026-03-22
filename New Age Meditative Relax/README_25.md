@@ -1,3 +1,32 @@
+###  Публикация: 1339737   (264277) от 22.11.2019
+
+Kokhe - Blue World (2019) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264277.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Across The Quiet Universe 5:18
+2. Calypso 4:52
+3. Blue World 4:39
+4. Eternal 5:57(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFC523F97C804A5F24AA72736052C275A8978F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191315   (263449) от 16.12.2017
 
 Albert Artemyev - The Living Universe (2017) [MP3|320 Kbps] <New Age>
@@ -750,33 +779,6 @@ KamaSutra - Kama Sutra Erotic Massage (2011) [MP3|320 кб/с]<New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D6D4ACFEDC4839F21A3E6A5927C731807AC439B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587265   (217768) от 12.12.2012
-
-Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217768.jpg" />
-</div>
-
-
-###  Подробнее
-
-(34:06) 1. Hidden Beauty
-(35:20) 2. Kiss Good NightЖанр: Ambient, Relax, HealingПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC52E2BF5D87EACB5D5392AD05C9C9F57B15ADF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

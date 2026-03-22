@@ -1,3 +1,195 @@
+###  Публикация: 921149   (577746) от 24.07.2015
+
+Ned Rothenberg - Ned Rothenberg Quintet for Clarinet and Strings (2010) [FLAC|image+.cue]<Modern Creative, Chamber Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terrace and Fold
+02. Interleaving
+03. Commentary
+04. Setting Stones(   Читать дальше...   )Жанр: Modern Creative, Chamber JazzПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7601AB58157A57820AD3FDF08C96399B78CC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921130   (577744) от 24.07.2015
+
+Jimmy Smith - Open House & Plain Talk (1960) /1999, Ars Nova/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open House [16:14]
+02. Old Folks [04:49]
+03. Sista Rebecca [10:54]
+04. Embraceable You [06:06](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00890899F96056A4B53CC537DE51A114B180CF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921142   (577619) от 24.07.2015
+
+Nancy Danino - Testify (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beauty On Water
+02. Blue Sky
+03. Millionaire In the Rain
+04. Someday(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F20EF629BF4719E5331ABA0E7727F5C50BC4B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361420   (577418) от 10.07.2011
+
+Various Artists - Gentle Jazz (2010) [FLAC|Lossless]<Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jimmy Giuffre - The easy way
+02.Mary Lou Williams - It ain't necessarily so
+03.Fleurine - The logical song
+04.Charlie Parker - Just friends
+05.Yusef Lateef - First Gymnopedie
+06.McCoy Tyner Trio - What the world needs now is love
+07.Erroll Garner - Exactly like you
+08.Charlie Haden & Gonzalo Rubalcaba - El Ciego
+09.Regina Carter - Pavane
+10.Gerry Mulligan - I heard the shadows dancing(   Читать дальше...)Жанр: Vocal Jazz, SwingПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360982   (577415) от 10.07.2011
+
+We3 - Amazing (2011) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember (Steve Swallow) (06:04)
+02. Amazing (Steve Swallow) (07:38)
+03. In F (Steve Swallow) (04:26)
+04. Free Ballad #1 (Liebman-Nussbaum-Swallow) (02:52)
+05. My Maia (Adam Nussbaum) (08:52)
+06. Get Out Of Town (Cole Porter) (06:34)
+07. Bend Over Backwards (Steve Swallow) (07:28)
+08. Swallowish (Dave Liebman) (06:14)
+09. Free Beguine #1 (Liebman-Nussbaum-Swallow) (03:01)
+10. Sure Would Baby (Adam Nussbaum) (05:10)(   Читать дальше...)Жанр: Contemporary JazzПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360976   (577278) от 10.07.2011
+
+Romane - Swing for ninine (2011) [FLAC|Lossless]<Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing for Ninine (Romane)
+02. Antilia (Romane)
+03. Charles Eston (Romane)
+04. Liane (M. Cazes)
+05. Folle Ronde (Romane)
+06. Erevan Valse (J. M. Ekherian)
+07. En Souriant (Romane)
+08. Dans le Regard de Laura (Romane)
+09. Niglo Swing (L. Bajata)
+10. Bibiguine (Romane)(   Читать дальше...)Жанр: Swing, Guitar JazzПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042645   (576736) от 14.08.2016
 
 Alexandre Tharaud - Le Boeuf sur le Toit: Swinging Paris (2012) Virgin Classics[FLAC|Lossless|image + .cue] <Ragtime, Piano Jazz>
@@ -568,180 +760,6 @@ Buddy Collette - Jazz Heat Bongo Beat (1959) 2000, Blue Moon [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A2AC675B73769A47D14EE2B784F1150D880BC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151296   (574513) от 18.07.2017
-
-The Count Basie Orchestra - The Legend, The Legacy (1989) Denon [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booze Brothers [05:08]
-02. Katherine The Great [04:45]
-03. Young And Foolish [04:56]
-04. Do Nothin' Til' You Hear From Me [03:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599112F53FD25D9B5C3E121EF32263FECA0C68AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151088   (574504) от 18.07.2017
-
-Art Pepper & Shorty Rogers - Complete Lighthouse Sessions (1951) 2001, The Jazz Factory [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popo [11:30]
-02. What's New? [02:21]
-03. Lullaby in Rhythm [05:36]
-04. All the Things You Are [03:09](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6971E8D619B38DEF22A9E72B09BF597B6FFE330C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303372   (574458) от 20.05.2019
-
-Sonny Stitt - Stitt's It (1949 - 1952) 2001, TIM [APE|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elora [3:12]
-02. Afternoon in Paris [3:05]
-03. Teapot [3:06]
-04. Blue Mode [3:47](   Читать дальше...   )Жанр: BopПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACB5C1FD42A5AD896E1ECF62331795B2F670058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554671   (574161) от 01.06.2022
-
-Bobby Short - You're The Top: Love Songs Of Cole Porter (1999) Telarc [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est Magnifique [3:54]
-02. I Love You, Samantha [4:22]
-03. You Do Something to Me [2:48]
-04. You'd Be So Nice to Come Home To [2:59](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB84B507E6B89FA9748486D9B12F247B073485CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554838   (574160) от 01.06.2022
-
-John Hart - Checkmate (2021) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 123 Blues [7:50]
-02. Power of Three [7:32]
-03. Everything Happens to Me [6:15]
-04. Checkmate [6:08](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A8FA73CF021201CD2EE0B75A02F5120F034F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554839   (574157) от 01.06.2022
-
-Chuck Hedges - Just For Fun (2001) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day [5:10]
-02. Old Folks [4:21]
-03. On A Slow Boat To China [3:43]
-04. Black Butterfly [3:59](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B0B9F6EF71C4E3C598AD94FD210B69881E4AE07
 ```
 
 https://mybot314.ru/tekegram_catalog/

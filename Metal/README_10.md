@@ -1,3 +1,29 @@
+###  Публикация: 162503   (986549) от 07.01.2010
+
+Vicious Crusade - Freedom Comes (2009) [MP3|320 kbps]<Melodic Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic ThrashПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 163983   (986542) от 07.01.2010
 
 Melechesh - Emissaries (2006) [MP3|~256 kbps] <Mesopotamian metal>
@@ -731,35 +757,6 @@ Marty Friedman - 11 albums (1988-2011) Discography [MP3|224 - 320 кб/с] <thra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:750B0288E733FBB55E88A27594B1FF24F1DB78CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974825   (975668) от 12.01.2016
-
-Abbath - Abbath (2016) [MP3|320 кб/с] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To War
-2. Winter Bane
-3. Ashes Of The Damned
-4. Ocean Of Wounds(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F037C27A15A4C2B3A25C5A91FE3CB2A3A8E0280D
 ```
 
 https://mybot314.ru/tekegram_catalog/

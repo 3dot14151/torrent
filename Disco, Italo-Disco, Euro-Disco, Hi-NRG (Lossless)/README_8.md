@@ -1,3 +1,29 @@
+###  Публикация: 660882   (771783) от 25.05.2013
+
+Fancy - Get Your Kicks (1985) [FLAC|Lossless]<Italo Disco, Disco> Первый Альбом!!!
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Italo Disco, Disco
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 660419   (771544) от 25.05.2013
 
 Robin Gibb, Barry Gibb, Andy Gibb - 14 Albums (1970 - 2012) Collection Hits [FLAC|Lossless]<Rock, Disco>
@@ -710,35 +736,6 @@ VA - Italo Disco 80 Legends, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765C40CE6C780E3ABB22F7ED9C37AA7FA4E013DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024435   (717770) от 08.06.2016
-
-Scotch - Evolution (1985) Reissue, 2016, Deluxe CD Music [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Primitive Man (4:19)
-02. Take Me Up (3:32)
-03. Man In The Man (4:07)
-04. Born To Kill (5:51)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE14B580D8E75FF3D7053C017CC8D40FDAF6753
 ```
 
 https://mybot314.ru/tekegram_catalog/

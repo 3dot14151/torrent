@@ -1,3 +1,32 @@
+###  Публикация: 1290553   (676460) от 21.03.2019
+
+Dennis Parker - Like An Eagle (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like An Eagle (6:26)
+02. New York By Night (5:04)
+03. High Life (6:25)
+04. Why Don't You Boogie / I'm A Dancer (9:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4556034FCAD5DEBEFF5D03D8AE9FCDA1B3467705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029671   (676407) от 29.06.2016
 
 VA - Super Eurobeat Vol.239 - Extended Version (2016) [MP3|320 Kbps] <Eurobeat>
@@ -717,35 +746,6 @@ Evidence - The Evidence (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:337FA916367D2C9CC4ECA9E79BB25F018157C900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141063   (653948) от 08.06.2017
-
-Mc Lane Explosion - Space Music (1977) LP [MP3|320 Kbps] <Electronic, Ambient, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Fly (3:31)
-02. Bilitis (3:37)
-03. Accidental Lover (4:24)
-04. Fire Land (4:17)(   Читать дальше...   )Жанр: Electronic, Ambient, Synth-pop, DiscoПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB20783E17BF1F41F8CD10C66DD8CFD31FF6072F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 146089   (637317) от 12.06.2015
+
+Буготак - Колёса должны вращаться (2009) [MP3|VBR~207 kbps]<сибирский этно-рок>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_637317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бас барчызы (1:22)
+02. Всё чо схочешь (3:54)
+03. Мы сибиряки (3:52)
+04. Молодой шаман возвращается домой после окончания мединститута (3:36)(   Читать дальше...   )Жанр: сибирский этно-рокПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907183   (637313) от 12.06.2015
+
+Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HBO Series) Season 5 (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:46)
+02. Blood of the Dragon (01:34)
+03. House of Black and White (05:09)
+04. Jaws of the Viper (02:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8759147F85C68912011B754E2E21830175F5B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519464   (637218) от 06.07.2012
+
+Людмила Гурченко - Песни военных лет (1984) [MP3|320 кб/с]<Военная песня>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Где же вы теперь, друзья-однополчане (1:35)
+ 2. Казак уходил на войну (0:59)
+ 3. Прощайте, скалистые горы (0:39)
+ 4. Заветный камень (0:58)
+ 5. Ой, туманы мои, растуманы (1:07)
+ 6. Дороги (1:04)
+ 7. Моя любимая (2:12)
+ 8. Кто сказал, что надо бросить песню на войне (0:43)
+ 9. В лесу прифронтовом (1:15)
+ 10. Вечер на рейде (1:02)(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BCDB6576A7FF78B17E9812FC98BFFFDA172F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142907   (637061) от 17.06.2017
+
+Хор братии Спасо-Преображенского Валаамского монастыря - Северный Афон (1999) [MP3|320 Kbps] <Песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Благовест / Агни Парфене (прп. Нектарий Аэгинский)
+02. Господи воззвах, глас 1 - Византийский распев
+03. Догматик, глас 1 - Византийский распев
+04. Возбранной Воеводе, глас 8 - Византийский распев(   Читать дальше...   )Жанр: ПеснопенияПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16AC08196C6D2D69D89A65D6432DBAA65E18C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519433   (636910) от 06.07.2012
+
+Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_636910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truth Of Touch
+02. Vertigo
+03. The End Of August
+04. The Rain Must Fall
+05. Felitsa
+06. Voyage
+07. Nightingale
+08. Ode To Humanity
+09. Niki Nana
+10. One Man's DreamЖанр: New AgeПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033760   (636142) от 12.07.2016
 
 Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -633,148 +790,6 @@ VA - Terra nostra (Banda sonora original) (1999) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FFFF95ED63B2D1F6CAD4E6FC1DA69FFD783EC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143627   (633024) от 19.06.2017
-
-Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .cue] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andalu (5:32)
-02. Quiver (5:12)
-03. Field Of Tears (3:13)
-04. Eros (5:35)(   Читать дальше...   )Жанр: New Age, Electronic |Продолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5BDDCC3E4081008AC38896F2E3D9BC6C6DF6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034563   (632438) от 14.07.2016
-
-Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisters [00:04:46]
-02. Free At Last [00:05:18]
-03. Butterfly [00:05:07]
-04. Relax and Enjoy [00:04:54](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BA070049B746FE8889B3A922E010680B699A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349866   (632031) от 12.06.2011
-
-Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental,Saxophone JazzПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F811CA289070C9D33F4287F64E1462F5CA5C648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143890   (631485) от 20.06.2017
-
-John Denver - The Real... John Denver (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Rocky Mountain High
-02. Leaving On A Jet Plane
-03. Rhymes And Reasons(   Читать дальше...   )Жанр: CountryПродолжительность: 03:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114ADBEC23D15614F3CCBA115358CD22248A2C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143896   (631481) от 20.06.2017
-
-Oliver Scheffner - Traum vom endlosen Himmel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams of Sunbeams
-02. Cloud Pictures Passing By
-03. Spring Break
-04. Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6C1D6BFA9A09A22E380BEDCEAF7FDA19AE9519
 ```
 
 https://mybot314.ru/tekegram_catalog/

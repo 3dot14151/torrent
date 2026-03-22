@@ -1,3 +1,61 @@
+###  Публикация: 1089302   (951924) от 03.01.2017
+
+VA - Fun Disco House: Gross Funk Party (2017) [MP3|320 Kbps] <Nu Disco, Funky House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mazelo Nostra - Boogie Nights 5:03
+002. Off Da Hook - Journey To Paradise (Johan S Vocal Mix) 8:10
+003. The Boogeyman - All Music To Me (Original Mix) 8:32
+004. Drone In Ibiza - Back In That Days - Original Mix 6:09(   Читать дальше...   )Жанр: Nu Disco, Funky House, ElectroПродолжительность: 11:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314EA4B6E6DDFE7DBB86622EF015603A550BBB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981482   (951739) от 01.02.2016
+
+VA - Exquisite Deephouse (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chronogramm - Plexus
+02. Sixteenth Pulse - Crossing Thoughts
+03. Christian Hornbostel - Elective Affinities
+04. Self Explanatory - Voice Recognition(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF1EF57BCF229672BF1CB4FCD44B1135A56F433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981776   (951690) от 01.02.2016
 
 VA - Private Lounge Cafe, Vol. 4 (25 Delicious Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Freezing Trance Mix: 100 Hit January (2017) [MP3|320 Kbps] <Trance, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8D6AB2BD47070EFDED8AB0D26009A629EE68C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090582   (946097) от 07.01.2017
-
-VA - Similar Sound: Winter Drum And Bass (2017) [MP3|320 Kbps] <Drum And Bass, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946097.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Black Sun Empire - Until The World Ends (Mind Vortex remix - feat. PNC) 4:37
-002. Dub Defense - Early Morning Sun (Original Mix) 6:34
-003. The Prodigy - The Day Is My Enemy (Bad Company UK Remix) 4:03
-004. Monrroe - Fleeting Love 5:31(   Читать дальше...   )Жанр: Drum And Bass, ElectronicПродолжительность: 08:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B48046F3618CB16F2A0DA760DE1FBF04B57EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090643   (945970) от 07.01.2017
-
-VA - Kontor Top Of The Clubs: The Best of 20 Years (2017) [MP3|320 Kbps] <House, Tech House, Funky, Trance, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Mix - Kontor the Best of 20 Years - The Greatest Top of the Clubs Hits Mix (Continuous DJ Mix)  1:12:50
-02.  DJ Mix - Kontor the Best of 20 Years - The Ultimate Festival Anthems Mix (Continuous DJ Mix)  1:09:25
-03.  DJ Mix - Kontor the Best of 20 Years - The Finest Kontor House Mix (Continuous DJ Mix)  1:18:50
-04.  DJ Mix - Kontor the Best of 20 Years - The Very (   Читать дальше...   )Жанр: House, Tech House, Funky, Trance, Club, DanceПродолжительность: 12:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467852FA36B26BFF68E57EC0387DCB9D86B120E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

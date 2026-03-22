@@ -1,3 +1,32 @@
+###  Публикация: 1004600   (836540) от 07.04.2016
+
+Ennio Morricone - Spiel Mir Das Lied Vom Tod - The Very Best Of (1992) 2 CD, Compilation [FLAC|Lossless|tracks] <Classical, Stage & Screen, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836540.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Der Profi: Chi mai    05:06
+02. The Untouchables: Ness Family Theme    03:22
+03. Der Maulwurf: Marche En La    03:02(   Читать дальше...   )Жанр: Classical, Stage & Screen, InstrumentalПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB1D543CADF6D5AEB14F7B2477951276D2C592C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379339   (836391) от 01.05.2020
 
 Сергей Ильинов - Fantasy (1996) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
@@ -715,35 +744,6 @@ Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380230   (831564) от 04.05.2020
-
-Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831564.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Camelot 05:06
-2. Reflejos de luna 05:14
-3. El ritmo de la luna 05:48
-4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
 ```
 
 https://mybot314.ru/tekegram_catalog/

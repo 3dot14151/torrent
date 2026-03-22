@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1860407   (1061833) от 
+
+VA - The Orient Collective: Roots of the South (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak - The Wayfarer (7:15)
+02. Nemeni - Sands of Ankhara (10:44)
+03. Antea Minerva - Earth and Sky (5:34)
+04. Mikhail Catan - Mirage (Ali Termos) (6:37)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC245D83290E253F4052BEE77DAA990539084C8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859330   (1061099) от 
+
+VA - The Orient Collective: Sand & Smoke (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sateyed - Burrow World (6:11)
+02. Kaisser Bouzriba - Soul of the Oasis (4:29)
+03. DaaL Su - Desert Stomping (6:05)
+04. Tranceq - We Are Power (5:30)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CDA7EF5747A9CE5CD4238A1BC97B49E732081C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858291   (1060307) от 10.03.2026
 
 Lemongrass - Colors (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Balearic>
@@ -688,64 +746,6 @@ VA - Island Grooves: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66D8A451DAA178E613BA8492AE558AA439E0507E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850056   (1054014) от 25.01.2026
-
-VA - Breeze & Echoes: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pier-O - White Sands (Original Mix) (5:13)
-02. Marga Sol, Digby Jones - What I Need (Original Mix) (4:38)
-03. Soultekk - Nizza (MidNight Sax Mix) (4:36)
-04. Lennart Richter - Ride Along (Original Mix) (3:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF415F90EA381E7393E9188BF7BDC23E698C785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850144   (1053959) от 26.01.2026
-
-VA - Best Chillout Music - Fashion Forward Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kaxamalka - Bugambilia (04:00)
- 02 - Breviarium Musicae - Aubade (04:10)
- 03 - Vis et Spes - Love Play (04:30)
- 04 - Lichterloh - Douceur (04:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B1FABB5AD257E858E598A9F45F8BDA34BE47EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

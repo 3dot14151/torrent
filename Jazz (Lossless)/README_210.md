@@ -1,3 +1,177 @@
+###  Публикация: 1179955   (344684) от 02.11.2017
+
+Paul Jackson, Jr. - Out Of The Shadows (1990) 2014, Warner [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It Last Forever [05:06]
+02. All for You [05:03]
+03. Days Gone By [05:06]
+04. Encino Shuffle [05:54](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69471694C042782A0B97306B739AE1EBA7DF3C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179656   (344680) от 02.11.2017
+
+Jon Ballantyne And Paul Bley - A Musing (1991) Justin Time Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Conversation [04:55]
+02. Zacotic [03:59]
+03. If You Like [05:19]
+04. Viattya [04:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Piano JazzПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26D9311E490F8628E512D6C29EA15E3E0AE8B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954053   (344660) от 06.11.2015
+
+Wes Montgomery - The Incredible Jazz Guitar Of Wes Montgomery (1960) /2008, Concord/[FLAC|tracks+.cue]<Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Airegin [04:29]
+ 02.D-Natural Blues [05:23]
+ 03.Polka Dots and Moonbeams [04:43]
+ 04.Four on Six [06:16](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A7D2C3C873BB6B478B4705072389C581AEE29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418860   (344308) от 26.10.2020
+
+Karen Souza - Language Of Love (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Masquerade
+02. Everybody Knows
+03. Love's Not Fair
+04. Language Of Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9427762ABFD4AB4797814F8997C66A49A29BD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330216   (343657) от 09.10.2019
+
+Paul Bley - Basics (2001) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Lost [4:42]
+02. Basics [2:29]
+03. Speed Kills [2:04]
+04. Told You So [9:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEDC30EE01D1CCE55D1C62244AD6EF05FC75192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578734   (343649) от 24.09.2022
+
+Enrico Pieranunzi - Jazz Roads (1980) 2002, CAMJazz [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entropy [4:34]
+02. Monologue 1 - Country Sketch [1:28]
+03. New Lands [5:04]
+04. Monologue 2 - Introspection [2:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22663AF9370C1D92299C3C77BC1CBF9D5AC4AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580663   (343637) от 25.11.2012
 
 Italian Secret Service - Not The Same (2009) [FLAC|Lossless]<Acid Jazz, Lounge>
@@ -595,192 +769,6 @@ Sylvia Vrethammar - Vortex (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:320917BE73D05A104172D1160961CF053928B2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580755   (341233) от 26.11.2012
-
-La Caina - Head In The Clouds (2007) [FLAC|Lossless]<Acid Jazz, Downtempo, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Sunset
-02. Do Tara Alap
-03. Head In The Clouds
-04. Mona
-05. Dreaming Of A New You
-06. Bleu Valse
-07. Sambamax
-08. Mysterious
-09. Tout Est Tout Blue
-10. No Talking(   Читать дальше...   )Жанр: Acid Jazz, Downtempo, Future JazzПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578932   (341218) от 25.09.2022
-
-Hank Jones - Just For Fun (1977) 1990, Original Jazz Classics [WavPack|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interlude [5:15]
-02. A Very Hip Rock And Roll Tune [5:01]
-03. Lullaby [5:36]
-04. Little Rascal On A Rock [4:02](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16AC10B23AE7BFDB670AD846561B9D9F10A69CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257773   (341215) от 28.10.2018
-
-Louis Armstrong - Legends: Original Recordings (1940 - 1960-e) 2012, Global Journey [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blueberry Hill [2:57]
-02. Baby It's Cold Outside [5:49]
-03. La Vie en Rose [3:28]
-04. Dream a Little Dream [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA20FDA9F69E6A1FB676A19E033C311A8E6B340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581056   (340815) от 26.11.2012
-
-Chris Thompson (ex-Mannfred Mann's Earth Band) - Do Nothing Till You Hear From Me (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Take My Sugar to Tea (2:49)
-02. Caravan (3:12)
-03. Boulevard Of Broken Dreams (3:49)
-04. Take These Chains (3:03)
-05. Solitude (3:38)
-06. Those Wedding Bells Are Breakin' (Up That Old Gang of Mine) (2:24)
-07. Moonlight Serenade (2:51)
-08. Do Nothing till You Hear From Me (3:28)
-09. True Love Wins Again (4:29)
-10. Davy's on the Road Again (5:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074076   (340729) от 18.11.2016
-
-VA - Rough Guide To Ethiopian Jazz (2016) [FLAC|Lossless|tracks + .cue] <World Music, Ethiopian Jazz, Folk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mulatu Astatke - Gamo 5:12
-02. Akale Wube - Alegntaye 4:17
-03. The Budos Band - Origin of Man 4:52
-04. The Ex / Getatchew Mekurya - Ambassel 7:36(   Читать дальше...   )Жанр: World Music, Ethiopian Jazz, FolkПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F25AAF1F9B61188E8934BD29DCD040EF5BDA94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180511   (340286) от 04.11.2017
-
-Gil Evans Paris Workshop & Laurent Cugny - Spoonful (2017) 2CD, Jazz&People [FLAC|Lossless|tracks + .cue] <Big Band, Post Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340286.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - La Vie Facile:
-01. Krikor [08:13]
-02. Lilia [09:06]
-03. My Man's Gone Now [08:12](   Читать дальше...   )Жанр: Big Band, Post Bop, Contemporary JazzПродолжительность: 01:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A86E186D0C6C1AB052C01AEA6FF5B8BCFCC3DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

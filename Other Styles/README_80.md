@@ -1,3 +1,151 @@
+###  Публикация: 908372   (627635) от 17.06.2015
+
+Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobilly>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Party (2:30)
+02. Magneto (2:50)
+03. Moonrace (2:41)
+04. Flesh and Blood (2:21)(   Читать дальше...   )Жанр: Surf, PsychobillyПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E65F8FC0B6004EE564A6F1EB323D0A4C9BF866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909522   (627629) от 17.06.2015
+
+Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World music>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake
+02. Taxi Brazil
+03. Once
+04. Bombay Slam(   Читать дальше...   )Жанр: Flamenco, New Age, World musicПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D471CC896BAD3BE1DCADADDC863B3990653BD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350824   (627296) от 14.06.2011
+
+Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55CFB65A89F5BC02BB3534E372BEB9521C33058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637601   (627138) от 22.06.2017
+
+Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с]<Game OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mass Effect Theme
+ 02. The Normandy
+ 03. Eden Prime
+ 04. Battle At Eden Prime(   Читать дальше...   )Жанр: Game OSTПродолжительность: 06:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F6CBEBC13C9D03FBBB87DF3312A1854F0EC468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219555   (626959) от 17.07.2010
+
+Era - Greatest Hits 2 CD (2008) [MP3|320 kbps]<New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_626959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, EnigmaticПродолжительность: 01:10:58
+
+01. Divano
+02. Dark Voices
+03. Hymne
+04. Enae Volare Mezzo
+05. Devore Amante
+06. Misere Mani
+07. If You Shout
+08. Come Into My World(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035615   (626708) от 17.07.2016
 
 VA - Spirit Horse (2016) [MP3|320 Kbps] <New Age, World>
@@ -618,163 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75A6353D8250F92BD2AC7CEE85FC8609096FA2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522222   (622856) от 13.07.2012
-
-Казачий народный ансамбль Eрмаковы Лебеди - За Байкалом-морем (2005) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За Байкалом-морем (2:47)
- 2. Ревела буря (5:29)
- 3. Хороша наша станица (1:36)
- 4. Эта Родина Сибирь (2:04)
- 5. Ягодиночка (3:42)
- 6. Во поле, было поле (1:44)
- 7. Над Тереком буйным (3:00)
- 8. Командир у нас - Серов (3:47)
- 9. Едут солдатики домой (4:12)
- 10. Пуля (3:37)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7010CB4D2B0A2A14F64CEDBE87BB91C0410B382C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035962   (622811) от 19.07.2016
-
-Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating [00:10:22]
-02. Images [00:10:03]
-03. Deeper [00:10:01]
-04. Drift Away [00:10:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0659F225BADC950321FC635A61CFA0AAA8CEABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522232   (622801) от 13.07.2012
-
-Семья Жемчужных - Застольные песни по-цыгански (2005) [MP3|320 кб/с]<Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За дружеской беседою (2:00)
- 2. Кай енэ (2:54)
- 3. Солнышко (3:37)
- 4. Хоп-Хоп (1:31)
- 5. Дану-данай (2:02)
- 6. Аленушка (3:20)
- 7. Очи черные (2:46)
- 8. Мар Дяндя (3:02)
- 9. Нанэ цоха (2:15)
- 10. Упряжка вороного (1:36)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC8D08FB05C60E865C03BE2BB4DFB39CC057937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036218   (622744) от 19.07.2016
-
-VA - Spice (2016) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wychazel - Behind the Veil
-02. Wychazel - The Magic Lamp
-03. Jon Richards - Sunrise Over Ganden
-04. Medwyn Goodall - The Lost Pharoah(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1A1FA412B44AAC7CB4B149E2F655BFB74233F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229858   (622704) от 08.06.2018
-
-Сергей Гримальский - West (2003) [MP3|320 Kbps] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ветер времени (3:52)
-02. Колыбельная (3:35)
-03. Цветные сны (5:53)
-04. Золотой ангел (5:11)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D28A06DAC6C2C675C6CBD6CDD13C96699F804A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1580166   (332141) от 30.09.2022
+
+Bjork (Björk) - Fossora (2022) [MP3|320 Kbps] <Electronic, indie, Experimental, trip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atopos (feat. Kasimyn)
+02. Ovule
+03. Mycelia
+04. Sorrowful Soil(   Читать дальше...   )Жанр: Electronic, indie, Experimental, trip-HopПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F204AC3C2658273AF352557D45BD76652D962D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956025   (331140) от 13.11.2015
+
+The Dark Tenor - Symphony Of Light (2014) Deluxe Version [OGG|469-528 кб/с]<Neo-Classical Crossover Pop, Ballad, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning (01:21)
+02. Heart Of Gold (03:04)
+03. River Flows On The Edge (featuring Yiruma) (03:44)
+04. Love Is Light (02:59)(   Читать дальше...   )Жанр: Neo-Classical Crossover Pop, Ballad, VocalПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEACF71E5AD62014B0191AA249BB92ABB585C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259604   (330517) от 20.11.2010
+
+Tom Jones - Дискография [1964-2010] [MP3|192-320] <Pop/Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_330517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/RockФормат: MP3Продолжительность: 32:40:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955967   (330099) от 14.11.2015
+
+Justin Bieber - Purpose (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark My Words
+02. I'll Show You
+03. What Do You Mean?
+04. Sorry(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59509478D5794A8C2D584581328267F6EBF10666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957192   (328416) от 16.11.2015
 
 Anne Harris - Come Hither (2015) [MP3|320 кб/с]<Alternative Pop, Contemporary Blues, Americana>
@@ -629,122 +742,6 @@ Sarah Brightman - Eden (1998) Reissue, 1999, EastWest [OGG Vorbis|484 Kbps] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:253D5EEBE8A7B3F4EDC7F6AAA78C1DA93D9288A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582066   (324492) от 08.10.2022
-
-Sarah Brightman - The Very Best Of 1990-2000 (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Question Of Honour (Part 2 - Radio Edit)
-02. Heaven Is Here
-03. Who Wants To Live Forever (With The London Symphony Orchestra)
-04. Time To Say Goodbye (Con Te Partiro) (With Andrea Bocelli)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785E130CC682AAFF6AF321160E349008FE65B095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582216   (324488) от 08.10.2022
-
-Sarah Brightman - A Winter Symphony (2008) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival
-02. Colder Than Winter
-03. Ave Maria (Duet With Fernando Lima)
-04. Silent Night(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5ECAC121ACBEEA1A813617C4619156BECC31DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180930   (323827) от 07.11.2017
-
-VA - Zouk Monster Vol 1. (2017) [MP3|320 Kbps] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love virtuel - Carbeti, Stephane Moreau 3:43
-02. Une vie sans couleur - Myl's 4:29
-03. Je m'enfuis - Lindsey Lin's 3:44
-04. I ja tro ta - Cedrick Vernon 4:42(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEF46D4F0FC4DFE1C5C3B89C7B2326AFEDDC97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958339   (323526) от 21.11.2015
-
-Adele - 25 (2015) Target Exclusive Deluxe Edition [MP3|320 кб/с]<Indie Pop, Neo Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
- 02. Send My Love (To Your New Lover)
- 03. I Miss You
- 04. When We Were Young(   Читать дальше...   )Жанр: Indie Pop, Neo Soul, Vocal JazzПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0329109142EE215CF9CD39CF72488C2D2EAD588A
 ```
 
 https://mybot314.ru/tekegram_catalog/

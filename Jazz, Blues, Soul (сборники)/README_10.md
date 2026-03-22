@@ -1,3 +1,32 @@
+###  Публикация: 1022107   (729766) от 01.06.2016
+
+VA - Dinner Party Jazz: A Delicious Collection of Instrumental Jazz for Entertaining (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beegie Adair - Days of Wine and Roses
+02. The Jeff Steinberg Jazz Ensemble - How About You
+03. Beegie Adair - Three Coins in the Fountain (feat. The Jeff Steinberg Orchestra)
+04. Jack Jezzro - It Could Happen to You (feat. The Mason Embry Trio)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BAC002052DC1B3432F194243FCDC38873865C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127919   (729738) от 23.04.2017
 
 VA - Lady Blues: Female Vocal (2017) [MP3|256-320 Kbps] <Blues, Lyric Blues, Romantic>
@@ -713,35 +742,6 @@ VA - Melancholy Rock Blues (2016) [MP3|320 кб/с] <Blues, Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09ED05A551D38ED7E5DAA62B12ED989BE2F43840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028201   (692759) от 21.06.2016
-
-VA - Jazz Lounge: Beautiful Jazz Moments, Cool Piano, Jazz Friday Night, Smooth Jazz (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz 2016 - Jazz Lounge
-02. New York Jazz Lounge - Romantic Jazz
-03. Coffee Shop Jazz - Bossa Scousa
-04. Chilled Jazz Masters - All That Jazz(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF63B5AE0E29F3D63577327F32309E577090C378
 ```
 
 https://mybot314.ru/tekegram_catalog/

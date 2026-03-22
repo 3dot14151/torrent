@@ -1,3 +1,148 @@
+###  Публикация: 1597528   (164085) от 17.12.2022
+
+VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerforest - Bellefontaine (Original Mix) (5:33)
+02. Dharma Frequency - Floating Dreams (Original Mix) (4:00)
+03. Elmara - Northern Lights (Original Mix) (3:38)
+04. Eskadet - Te Revoir (Original Mix) (6:37)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597822   (164080) от 17.12.2022
+
+Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Day (3:41)
+ 02. Morelia's Waltz (3:36)
+ 03. Beethoven's Silence (2:39)
+ 04. Lonely Island (3:56)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71225143E2B54AE2C8C3600E5B3D7FD03609C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549080   (163946) от 02.11.2023
+
+Владимир Мулявин - Голос души. (Часть 1. Нерастиражированное) (2006) [FLAC|Lossless]<Folk / Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Христос Воскрес!
+02. Разлад
+03. Монолог собаки
+04. Появились молодые...(   Читать дальше...   )Жанр: Folk / RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169626627403A2AD4A35793A9BC5DFF450D627E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531612   (163888) от 02.11.2023
+
+Марина Капуро - Золотые хиты (2002) [FLAC|Lossless]<Folk, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поле, поле
+02. Летела гагара
+03. В горнице
+04. Деревня(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C50AD9AFEE71E26E93FF6BD60E1FDFA4F52E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346577   (163563) от 19.12.2019
+
+John Towner Williams - Звёздные войны: Скайуокер. Восход / Star Wars: The Rise of Skywalker (2019) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fanfare and Prologue
+2. Journey to Exegol
+3. The Rise of Skywalker
+4. The Old Death Star(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9025BA742BB5201FE4DC27F30FC474746D4A3449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597936   (163021) от 18.12.2022
 
 Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [MP3|320 Kbps] <OST>
@@ -603,152 +748,6 @@ Giovanni Marradi (17.04.1952) родился в Италии, учился в Б
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E84C8F3C045B204FC97E030D472585C0EBB29586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433644   (156813) от 21.12.2020
-
-Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegy 1 (Angels) (02:27)
- 02. Elegy 2 (Forever) (05:01)
- 03. Elegy 3 (Farewell) (04:02)
- 04. Elegy 4 (Clouds) (02:46)(   Читать дальше...   )Жанр: Progressive Rock, New Age, AmbientПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846F16443236E7CCFB41F8E436A7D6A318722791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085799   (156695) от 22.12.2016
-
-Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chanson d'automne (poeme de Verlaine) [0:53]
-02. Une amitie [1:30]
-03. La promenade [1:23]
-04. La lecon de violon [0:48](   Читать дальше...   )Жанр: Score, Soundtrack, ClassicalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433680   (156392) от 21.12.2020
-
-VA - Christmas Hits 2020 (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Helms - Jingle Bell Rock (Single Version)
-02. Brenda Lee - Rockin' Around The Christmas Tree (Single Version)
-03. Freddy Kalas - Hey Ho
-04. Jonas Brothers - Like It's Christmas(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 04:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192E2CDF60451C5C05911C073C5C4AF5D69C2B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968453   (155713) от 23.12.2015
-
-Rammstein - Klavier (2015) Piano Version [MP3|320 кб/с] <Acoustic, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein выпустили акустический альбом «Klavier». В него вошли 13 композиций из шести ранее вышедших альбомов группы. P.S. Голоса нет (только музыка).01. Fruhling in Paris
-02. Feuer und Wasser
-03. Nebel
-04. Sonne(   Читать дальше...   )Жанр: Acoustic, PianoПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995D7ED4BEA56D9979103373B4C5D626FC51CDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853262   (155701) от 27.12.2014
-
-Clint Mansell Performed By Kronos Quartet And Mogwai ‎– Фонтан / The Fountain (Music From The Motion Picture) (2006) [FLAC|Lossless|tracks+.cue] <OST, Modern classical, Abstract, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотландская группа Mogwai может похвастаться своей недюжинной известностью в пост-рок кругах. Kronos Quartet, в свою очередь, опытные исполнители камерной классической музыки из США. Коллаборация музыкальных стилей и интересов породила сий труд ради одной цели - передать эмоции фильма "Фонтан", режисера Даррена Аронофски.
-Классические камерные мелодии заполняются (   Читать дальше...   )01. The Last Man (6:09)
-02. Holy Dread! (3:52)
-03. Tree Of Life (3:45)
-04. Stay With Me (3:36)(   Читать дальше...   )Жанр: OST, Modern classical, Abstract, AmbientПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4295BEA937911FD06E147A2232475D40253419
 ```
 
 https://mybot314.ru/tekegram_catalog/

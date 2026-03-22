@@ -1,3 +1,32 @@
+###  Публикация: 1251463   (417848) от 01.10.2018
+
+London Boys - The Twelve Commanments Of Dance (1989) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem (4:20)
+02. Kimbaley (My Ma-Mama Say) (4:18)
+03. Harlem Desire (3:49)
+04. Chinese Radio (3:50)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E156CE0EAF1999DFA3F499A11008B2C8562C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066038   (416815) от 24.10.2016
 
 Paul Brookes - Steps from Beyond (1978) LP [MP3|320 Kbps] <Electronic, Abstract, Experimental, Disco>
@@ -737,35 +766,6 @@ Joel Diamond Experience - Joel Diamond Experience (1979) LP [MP3|320 Kbps] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA88825EA1005163AE8A426C6B56D0F79A00A348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172343   (394037) от 07.10.2017
-
-VA - John Morales Presents The M+M Mixes Volume 3 Instrumentals (2013) 2CD [MP3|320 Kbps] <Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barry White - Never, Never Gonna Give Ya Up (Instrumental) (10:10)
-02. Loose Joints - Is It All Over My Face? (Instrumental) (8:54)
-03. Jean Carn - Was That All It Was (Instrumental) (8:12)
-04. Hamilton Affair - You Can't Have My Love (Instrumental) (7:27)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C15B70C26249BF366D60079CE78DC58902996A
 ```
 
 https://mybot314.ru/tekegram_catalog/

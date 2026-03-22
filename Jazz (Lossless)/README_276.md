@@ -1,3 +1,177 @@
+###  Публикация: 1595449   (175658) от 05.12.2022
+
+Sylvain Kassap Sextet - Octobres (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Coda du Debut (Kassap) - 1:09
+02. Spartakus (Kassap) - 9:10
+03. Canterbury (Kassap) - 6:29
+04. Oktiabr (Kassap) - 10:28(   Читать дальше...   )Жанр: Avant-Garde Jazz, Free JazzПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A8A329604B4370BFDC46A3F63E3E10F9A5DE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595387   (175557) от 05.12.2022
+
+Samara Joy - Linger Awhile (2022) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Out of This Mood [3:42]
+02. Guess Who I Saw Today [4:10]
+03. Nostalgia (The Day I Knew) [3:30]
+04. Sweet Pumpkin [3:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DEA6861CD2E8EAAF66848E728712DC0E39BB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667984   (175428) от 10.10.2023
+
+Sonny Rollins - BD Jazz (1951 - 1957) 2CD, 2008, Nocturne [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_175428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Thomas [6:48]
+02. I've Grown Accustomed to Your Face [4:55]
+03. B. Swift [5:19]
+04. Pannonica [8:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1B57F0CDB8A2E71516919669D536743101CCA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430010   (175280) от 08.12.2020
+
+Sammy Davis, Jr. - Capitol Collector's Series (1990) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Care Who Knows [2:44]
+02. The Way You Look Tonight [3:15]
+03. Please Don't Talk About Me When I'm Gone [2:40]
+04. I'm Sorry Dear [2:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB251107650CAE535E3D35866B0140CB1098536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595604   (175171) от 06.12.2022
+
+Hazel Scott - 1939 - 1945 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling All Bars [2:53]
+02. Mighty Like the Blues [2:56]
+03. You Gave Me the Go-By [2:43]
+04. Why Didn't William Tell? [2:39](   Читать дальше...   )Жанр: Swing, Vocal Jazz, Piano JazzПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37BA7D0E6C94F8381C2854E304815AEE96039FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595421   (175159) от 06.12.2022
+
+George Coleman - The Quartet (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul's Call [6:28]
+02. I Wish You Love [6:06]
+03. Prelude to a Kiss [8:26]
+04. Lollipops and Roses [6:18](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DDD4202F23DE7BE852EAB8865EBFB790529ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668136   (174734) от 11.10.2023
 
 Django Reinhardt - BD Jazz (1933 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
@@ -571,179 +745,6 @@ Joe Pass & Tommy Gumina - Sentimental Moods (1990) Alfa Jazz [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8EC64D36D8CDE8D3BFB62979526A2AB0DF9456A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669099   (173061) от 15.10.2023
-
-Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dog It [4:42]
-02. But Beautiful [4:18]
-03. Caravan [9:24]
-04. All the Gin Is Gone [4:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB71FFC71D15CAB263DD27329FC3EAF0A82FF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669102   (173054) от 15.10.2023
-
-Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No.1 Green Street [7:21]
-02. 'Round About Midnight [7:06]
-03. Grant's Dimensions [7:57]
-04. Green with Envy [9:48](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6212024EED50DF2E3453B1186F202F8C659500F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669107   (173045) от 15.10.2023
-
-Grant Green - Standards (1961) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Stepped Out of a Dream [5:00]
-02. Love Walked In [6:35]
-03. If I Had You [7:11]
-04. I'll Remember April [9:10](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3607C1EA30AFD77BD048DF79AA2D553377630B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466457   (172961) от 15.10.2023
-
-Kajgūn(Kajgun) - Collection 4 Releases (2020-2022) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Metal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raawm Dhe Snaayeef (12:59)
-02. Shwoum Daryeetah Shwoum (15:54)
-03. Khotra Owu Daey (11:53)Жанр: Doom Jazz, Metal JazzПродолжительность: 03:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D02154A557ADD39646164078683E617C841931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669384   (172879) от 16.10.2023
-
-Robert Conti - Comin' On Strong! (1990) Time Is Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rookie Bookie [5:10]
-02. Wave [4:18]
-03. Westbound [3:23]
-04. I'll Remember April [4:17](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5816734CD6ABCD04F0DDAFC545B168D42DD1D745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669376   (172877) от 16.10.2023
-
-Andre Previn - Four Classic Albums (1957 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Much Too Late [9:31]
-02. You'd Be So Nice To Come Home To [7:05]
-03. It Could Happen To You [5:58]
-04. Low And Inside [9:00](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream Jazz, Piano JazzПродолжительность: 02:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006C51A90CA4588B98614B97A3A8C2505295ABF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

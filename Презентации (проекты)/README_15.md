@@ -1,3 +1,56 @@
+###  Публикация: 1009528   (809666) от 21.04.2016
+
+Проекты - VideoBlocks - Touch Screen [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания видео-презентаций, рекламы продукта, корпоративного видео.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26381901591B0E0EB33049CEA9D9F485B80E92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009537   (809660) от 21.04.2016
+
+Проекты - VideoHive - Promote Your Product or Service with Charlie [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект предназначен для продвижения вашего бизнеса с характером.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CD49FF7EBE8790B401650CBF15A8E1BEF9D98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504769   (809629) от 24.10.2021
 
 Проекты - VideoHive - Golden Elegant Wedding Slide - 28417557 [AEP]
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C6C2FEF0C15210A5EB4DB944A53B7F3F97446F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120887   (801017) от 01.04.2017
-
-Проекты - VideoHive - The Great Music Event - 14291616 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801017.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Great Music Event - проект, предназначенный для демонстрации захватывающих музыкальных вечеринок, выставок, промо-акций, DJ-презентаций  и многого другого. Промотируйте свое стильное и роскошное мероприятие с этим энергичным современным видео. Необычная ночная атмосфера ночи придаст незабываемые эмоции вашему клиенту.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8EBB4C453256D26AD432E67768B3C0806D726A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120891   (801015) от 01.04.2017
-
-Проекты - VideoHive - Branding - Stationery Presentation - 14293133 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Branding - Stationery Presentation - проект для создания презентации бренда канцелярских товаров.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD1403E7CD69D447199900C29A1B95D9A4F2AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 572305   (386032) от 08.11.2012
+
+Ledina Celo - Can U Touch Me Baby (WEB) (2012) [MP3|320 кб/с]<House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_386032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can U Touch Me Baby (Edit Mix) 03:17
+02. Can U Touch Me Baby (Extended Mix) 04:16
+03. Can U Touch Me Baby (Club Mix Edit) 03:04
+04. Can U Touch Me Baby (Club Mix) 04:38Жанр: House, DanceПродолжительность: 00:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9539FDC3FD02B3F156DC00BF752038838CF5251A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253393   (383613) от 09.10.2018
+
+VA - Digital Empire - Miami Underground (2018) [MP3|320 Kbps] <House, Electro-House, Bigroom>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Mendosa - That Bass (Original Mix)
+02. Slamtype - Hit Em Like (Original Mix)
+03. Tommy Jones - Calling Your Name (Original Mix)
+04. Kirin - Party Up (Original Mix)(   Читать дальше...   )Жанр: House, Electro-House, BigroomПродолжительность: 04:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CBB40B4A7DFF260AA1FB0967C17F0365359EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253395   (383567) от 09.10.2018
+
+VA - Bass House Autumn '18 (2018) [MP3|320 Kbps] <House, Future-House, Electro-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Weeks - Attention (Original Mix)
+02. Brain Masters - We Super Stylin (Original Mix)
+03. Martin Weeks - Whenever I'm Down (Original Mix)
+04. Henrick B Jordan - The Pressure (Original Mix)(   Читать дальше...   )Жанр: House, Future-House, Electro-HouseПродолжительность: 02:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5799558F2E554FE35B276DE6CC8931E6F61D3BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253558   (381775) от 10.10.2018
+
+VA - Tech House Patrol [40 Dirty Beats] Vol.3 (2018) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Raum - Dark Sheen (Original Mix) 5:36
+02. Max Porcelli & A-Drex - From The Dust (Max Porcelli Remix) 7:07
+03. Manuel Turobin - Leather Strap Bra (Original Mix) 8:32
+04. Larry Baaaam! - Kiezmer Kiezmer (Original Mix) 5:57(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DF8CB525CBD290BFCF6D21F573812196C78ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253572   (381763) от 10.10.2018
+
+VA - ADE 2018 [Bonzai Progressive] (2018) [MP3|320 Kbps] <House, Progressive House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airwave - Rain Upon My Skin (Original Mix) 10:16
+02. Cherry - Alma (Original Mix) 6:51
+03. Tom Wax - Jippi Jappa (Original Mix) 8:18
+04. Ken Ishii & Van Czar - Kitai (Robert Babicz Remix #2) 8:02(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 06:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657790A21453DE83735106E15AB22ACB521D9BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253562   (381759) от 10.10.2018
 
 VA - King Size Deep House Vol.1 (2018) [MP3|320 Kbps] <House, Deep House>
@@ -602,151 +747,6 @@ Avicii - 28 Релизов (2008-2012) [MP3|320 кб/с]<Progressive House, Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E9902F3FD43E4B00A887F2A605A219FF95BA939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070734   (364772) от 08.11.2016
-
-VA - Top Deep House Anthems (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Invis - Another Day (6:08)
-02. Arturo Murro - Housenation (7:13)
-03. Bem Horo - Time Scourge (6:10)
-04. Deep Phase - Night Life (6:01)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4973565522D65FFACB11DA39146DCCB5CEFA8DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070727   (364770) от 08.11.2016
-
-VA - Nothing But... Deep House Vol.14 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. &9 - Keys To My Groove (Helder Teixeira Dub) (6:56)
-02. &lez - Deep (Mel Bell Remix) (7:32)
-03. 0208 Crew - Make It Rain (Lesny Deep Remix) (7:51)
-04. 12Inch Music - Marimba Soul (EmoBoys Depressive Remake) (7:37)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0AB547D481BC6D198E692855922C208A83589D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070721   (364768) от 08.11.2016
-
-VA - Good Morning IBIZA Vol.2 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Soullution Project - See The Sun (Alex Latino's Supadeep Mix) (3:45)
-02. Ron Falcon - Just For Now (3:29)
-03. Jonathan Mantero - After I Think About It (House King's Mix) (2:56)
-04. Ron Carlton - Difficult Choice (3:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BB926BD897ADC72150EC00A2CBD8598F215387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070743   (364762) от 08.11.2016
-
-VA - Analog Deep 2016 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SuSoul - I Get Lost To The Sound (Original Mix) (8:48)
-02. Pedro Costa - My Chance (Original Mix) (6:18)
-03. Tania Mendez - Hide Feelings (Original Mix) (6:24)
-04. Marcoa. - Hollow (Original Mix) (7:09)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856C5B7660B155AEE0EA6030412635C9B07DFA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070877   (364674) от 08.11.2016
-
-VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simplex Sensus - Right Behind (07:14)
-02. Flash Is Fast - Clean Your Desk (07:11)
-03. Circuito Zeta - Step Down (07:18)
-04. Dan Rubell - My Love (DJ Fopp Mix) (06:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D3DAF2E48E121FC596477D62433EA7CC629E9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

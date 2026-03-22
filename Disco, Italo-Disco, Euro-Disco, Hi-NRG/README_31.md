@@ -1,3 +1,32 @@
+###  Публикация: 1172343   (394037) от 07.10.2017
+
+VA - John Morales Presents The M+M Mixes Volume 3 Instrumentals (2013) 2CD [MP3|320 Kbps] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barry White - Never, Never Gonna Give Ya Up (Instrumental) (10:10)
+02. Loose Joints - Is It All Over My Face? (Instrumental) (8:54)
+03. Jean Carn - Was That All It Was (Instrumental) (8:12)
+04. Hamilton Affair - You Can't Have My Love (Instrumental) (7:27)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C15B70C26249BF366D60079CE78DC58902996A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172638   (393174) от 08.10.2017
 
 Santaren & The Lovin' Girls - Love Killer (1978) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -710,35 +739,6 @@ Van Hinton - Remember Me (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D1174CEA26E0BA88591C229518A8D4FF1FAEB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575623   (375382) от 10.09.2022
-
-Sophie - My World (1989) [OGG Vorbis|485 Kbps] <Electronic, Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		My World	3:48
-02.		Same	4:35
-03.		Tonite Tonite	3:52
-04.		Rapture  4:40(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EurobeatПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F258834236014ED440E52B110A1EE9C212CF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

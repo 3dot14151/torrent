@@ -1,3 +1,148 @@
+###  Публикация: 1236151   (556262) от 15.07.2018
+
+Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby of Dreams 02:47
+02. Moonlight Music 02:56
+03. The Shape of Water 02:53
+04. Lullaby Waltz 02:35(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F09307DDD8AD1A37DCE6C56BD9D982C39B6E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305718   (556144) от 01.06.2019
+
+Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kitty Wells Dresses  (3:26)
+02 - I Don't Claim To Be An Angel  (3:04)
+03 - Poison In Your Heart  (2:31)
+04 - One By One  (2:58)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305571   (556142) от 01.06.2019
+
+Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silver Lining  (3:51)
+02 - My House  (2:42)
+03 - Merry Go 'Round  (3:29)
+04 - Dandelion  (3:04)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305638   (556132) от 01.06.2019
+
+Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slow Burn  (4:06)
+02 - Lonely Weekend  (3:45)
+03 - Butterflies  (3:39)
+04 - Oh, What A World  (4:00)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812B037988A89D19AFA02A7ABD57B7914D535A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305873   (556087) от 01.06.2019
+
+Yulia Monastyrenko - 140 Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 140 Piano
+02 The Soul of My Youth
+03 Way to Myself
+04 Back to Spain(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762CBFABE617176DC99673E9E06C1CA71F504586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305972   (555904) от 02.06.2019
 
 VA - Latina Fever (2019) 4CD [MP3|320 Kbps] <Latin>
@@ -600,151 +745,6 @@ Jesse Harlin, Jim Bonney - Mafia III (Expanded Game Score) (2016) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9FC7EFE2F757FBA42365B42085A8B7D3FD5D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045776   (552701) от 26.08.2016
-
-VA - Stranger Things / Очень странные дела (Original Series Soundtrack + Unofficial Soundtrack) (Season 1) (2016) [MP3|128-320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things (01:08)
-02. Kids (02:39)
-03. Nancy and Barb (01:06)
-04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 04:59:12 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15594791D8FA16B9699BC6C285DEB2A2D0826280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237401   (552355) от 23.07.2018
-
-Hummingbird - This Sacred Love (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Sacred Love
-02. Dream the Dream
-03. Lullaby
-04. Heart of Grace(   Читать дальше...   )Жанр: New Age, Relax, VocalПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DD2D372A25B6793E32ABA51ADE09C02D081DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046470   (551930) от 27.08.2016
-
-Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbin' Trains 03:25
-02. Put Me In A Box 02:44
-03. Kinda Don't Care 04:21
-04. Hell On A Highway 04:21(   Читать дальше...   )Жанр: CountryПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64F614DFFD052D6D14ED70677E84009E6560687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046289   (551851) от 27.08.2016
-
-Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Murray, Juliet Lyons & Roger Shah – Miracle of Life
-02. Nick Murray, Roger Shah & Tori Letzler – Future Fighter
-03. Nick Murray & Roger Shah – Enter the Heroes
-04. Nick Murray & Roger Shah – Singularity(   Читать дальше...   )Жанр: Soundtrack, ClassicПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04205CA385B145EEAA41109D6F36ED973A08B33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046461   (551850) от 27.08.2016
-
-Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551850.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Smooth
-2. Dig Your Roots
-3. Life Is a Honeymoon (Feat. Ziggy Marley)
-4. H.O.L.Y.(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD88A5BD4398DEF34FDB254AF247FBAA3F6A54DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

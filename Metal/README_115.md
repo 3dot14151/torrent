@@ -1,3 +1,119 @@
+###  Публикация: 1777494   (70984) от 06.02.2025
+
+Drohkaal - Divinity Within (2024) [MP3|320 Kbps] <Thrash, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Shot
+02. Best Served Cold
+03. The Witch
+04. Where Are We Headed(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F53E36E7E7155E0A3242740D16BE4E1A347FE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778302   (70902) от 08.02.2025
+
+Dream Theater - Parasomnia (2025) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Arms Of Morpheus (05:22)
+ 02. Night Terror (09:55)
+ 03. A Broken Man (08:30)
+ 04. Dead Asleep (11:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C9829356F92E8CDA4BFACCF5675064D4F2C058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780656   (70373) от 19.02.2025
+
+Wretch - Visitors (2025) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In My Time of Reckoninig [00:03:28]
+02 - The Voice [00:04:19]
+03 - Chernobyl [00:05:29]
+04 - The Mad Butcher of Kingsbury Run [00:04:12](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721637B1985F02AA8CE95D7044EDF77C1F3B10A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781165   (70327) от 21.02.2025
+
+Limuria - Lost World (2025) [MP3|320 Kbps] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tale Of A Thousand Years (Feat. Stu Block) 07:40
+02. The Forest Maze (Feat. Stu Block & Berzan Onen) 09:00
+03. End Of Days (Feat. Berzan Onen) 08:02
+04. A Deadman's Tale (Feat. Berzan Onen) 06:50(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D6924B0FF1B7B71C307DCD53966E1BCC1CF143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783701   (69742) от 07.03.2025
 
 Throne Of Iron - Adventure Two (2025) [MP3|320 Kbps] <Heavy Metal>
@@ -629,122 +745,6 @@ Bloodtooth - Bloodtooth (2025) [MP3|320 Kbps] <Industrial Black, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95A36FE7FA53A60244C754AFB8DA04E043DAFBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795564   (67047) от 05.05.2025
-
-Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maniac Attack
-02. Eye of the Night
-03. Call of the Void
-04. KIA(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DD6E5798F85BE300894AAE3D8B2C80FAEA86F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795545   (67046) от 05.05.2025
-
-Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foeman's Flesh
-02. Desolation Hexx
-03. Total Bicep
-04. Violence Dimension(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7C4228EA9B4CD94DD239516240266F91EAAD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795286   (67037) от 05.05.2025
-
-Changeling - Changeling (2025) [MP3|320 Kbps] <Progressive, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introject
-02. Instant Results
-03. Falling In Circles
-04. World? What World?(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAE39CDD118B583AAAEC042918EAD0E9B7247CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795797   (67028) от 06.05.2025
-
-Dredge the Lethe - Blood Metal (2025) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die. Drink. Forget
-02. Blood Metal
-03. Mortal Throne
-04. Triumph Over The Horde(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E616A8B7DF6EA16962CA75AD3EDE4910B6CA4978
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1394039   (765474) от 03.07.2020
+
+Ben Webster - Ben Webster's First Concert In Denmark 1965 (2019) Storyville Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In A Mellotone rehearsal [2:22]
+02. Pennies from Heaven [4:37]
+03. Blues in B-Flat [6:29]
+04. My Romance [8:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A520EF1D1B156DD8F5EFE84FE6DDF374ED0E687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279562   (765469) от 30.01.2019
 
 Dena DeRose - Another World (1999) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Straight-Ahead Jazz>
@@ -716,35 +745,6 @@ Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B6E50E3DDAAD1B74F9CAF502D4E22725AAB25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280059   (763726) от 01.02.2019
-
-Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Compilation [6:31]
-02. Love Dance [8:20]
-03. Emily [3:40]
-04. I'm All for You [8:37](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6CA28CC5A9D3813C7B3B90EAD9193AF558A598E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,183 @@
+###  Публикация: 1568115   (466018) от 06.08.2022
+
+V.A. - So Amazing and Beautiful Moments Relaxing Tunes for Two of Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. eJazz Artistry – You're Makin' Me High
+02. Kool&Klean – I Can Only Imagine
+03. Chillaxonic – Together We Fly
+04. Chillaxing Jazz Kollektion – Into You(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 01:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55ED666095CB864B405CF186AE5A1FD4BC85A7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246221   (465750) от 09.09.2018
+
+Ike Quebec - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiny's Exercise [3:42]
+02. She's Funny That Way [4:29]
+03. Indiana [4:00]
+04. Blue Harlem [4:38](   Читать дальше...   )Жанр: BopПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4395BB7B4BF99BCA317DD52F028E78A175ADFCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161676   (465705) от 29.08.2017
+
+John Surman - Flashpoint: NDR Jazz Workshop, April 1969 (2011) Cuneiform [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mayflower [08:41]
+02. Once Upon A time [08:41]
+03. Puzzle [05:57]
+04. Gratuliere [08:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1996173B5DABD93D9213B225E4DBBCA7E727D8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246017   (465686) от 09.09.2018
+
+Peter Bernstein - Solo Guitar - Live At Smalls (2013) [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465686.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Django
+2 I Love You
+3 Crepuscule With Nellie
+4 Pannonica(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601EEAD4FA10299206D9B0A084B84FA8FB92E712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320895   (465520) от 21.08.2019
+
+Pat Martino - Mission Accomplished: Interchange / Nightwings (1994) 2CD, 1999, 32 Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465520.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Catch [7:07]
+02. Black Glass [6:52]
+03. Interchange [10:37](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF3AEB6C327285D2CA15FC294D84FFC7DEC75F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548791   (465183) от 19.09.2012
+
+VA - Ladies First (2012) [FLAC|Lossless]<Jazz Vocal, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - I Will Always Love You [04:26]
+02. Celine Dion - The Power Of Love [04:49]
+03. Bette Midler - From A Distance [04:41]
+04. Faith Hill - There You'll Be [03:43]
+05. Linda Lonstadt - Desperado [03:36]
+06. Beverly Craven - Promise Me [03:38]
+07. Lisa Stansfield - All Around The World [04:28]
+08. Susan Boyle - I Dreamed A Dream [03:12]
+09. Sarah McLachlan - I Will Remember You [04:50]
+10. Cyndi Lauper - True Colours [03:50](   Читать дальше...   )Жанр: Jazz Vocal, Jazz-PopПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940726   (465064) от 26.09.2015
 
 Chanticleer - Lost in the Stars (1996) /Teldec/[FLAC|tracks+.cue]<Vocal Jazz>
@@ -590,186 +770,6 @@ Lena Horne - The Young Star (1941 - 1944) 2002, BMG [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C3F7862FCDC1BC9FD9132DAF1204EAA8802B421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549496   (462868) от 20.09.2012
-
-VA - Smooth Jazz Hits for Lovers (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney Jones - Send One Your Love [04:35]
-02. Dave Koz - feat. Herb Alpert - This Guy's In Love With You [04:56]
-03. Jessy J - True Love [03:49]
-04. Peter White - Always, Forever [05:09]
-05. Mindi Abair - feat. Ryan Collins - Get Right [03:25]
-06. Marion Meadows - Flirt [04:21]
-07. George Benson - Show Me The Love [04:18]
-08. Jeff Lorber - You Got Something [04:19]
-09. The Rippingtons - feat. Russ Freeman - Love Story [04:07]
-10. Norman Brown - Sending My Love [04:19](   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941480   (462861) от 27.09.2015
-
-Martin Denny - The Exotic Sounds of Martin Denny (1996) 2CD /Capitol Records/[FLAC|tracks+.cue]<Lounge, Easy Listening, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462861.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01.Quiet Village [03:43]
-02.Isle of Love [02:30]
-03.Manila [02:28](   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 02:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD486532F4542C4752B4A2DA164C9CE0182A09A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941034   (462859) от 27.09.2015
-
-Rufus Harley - King / Queens (1970) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Eight Miles High [06:00]
-02.Moon River [06:05]
-03.Love Is Blue [06:37]
-04.Windy [04:12](   Читать дальше...   )Жанр: Post-Bop, Ethnic JazzПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B0F5172BBC4C3F8F40155EFF9C63C9819F6F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407687   (462767) от 09.09.2020
-
-June Christy with The Lou Levy Sextet - Impromptu (1977) 1992, Discovery Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Shining Hour [3:23]
-02. Once Upon a Summertime [4:50]
-03. Show Me [2:27]
-04. Everything Must Change [6:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC9FBDDCC8896F4A83450214D0B1CFF1F968C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407691   (462765) от 09.09.2020
-
-Bob Berg - Back Roads (1991) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Roads [5:35]
-02. Travellin' Man [6:36]
-03. Silverado [8:12]
-04. When I Fall in Love [4:14](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342665AF0687421302F6673211CF31007338A4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407575   (462750) от 09.09.2020
-
-Tessa Souter - Nights Of Key Largo (2008) Venus Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Island [6:02]
-02. Close Enough for Love [7:19]
-03. Moondance [4:20]
-04. So Many Stars [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941005A1765FDA6BAAF7409924BB9BD0A2F3FCFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

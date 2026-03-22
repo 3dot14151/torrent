@@ -1,3 +1,113 @@
+###  Публикация: 904110   (655390) от 02.06.2015
+
+Simply Red - Big Love (2015) [MP3|320 кб/с]<Pop, R&B, Nu Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On (03:12)
+02. Daydreaming (03:38)
+03. Big Love (04:09)
+04. The Ghost of Love (03:16)(   Читать дальше...   )Жанр: Pop, R&B, Nu SoulПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB4D41C7C438F94D5FC2A740145B924444365FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145117   (655121) от 02.06.2015
+
+Pink - The Hits (2009) [MP3|320 kbps]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_655121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, RockПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140749   (654923) от 07.06.2017
+
+Jonzun Crew - Lost In Space (1983) LP [MP3|320 Kbps] <Electronic, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are The Jonzun Crew (6:25)
+02. Space Is The Place (6:32)
+03. Electro Boogie Encounter (6:41)
+04. Ground Control (5:41)(   Читать дальше...   )Жанр: Electronic, ElectroПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC97B5E53B5379FD7383104AB7D20054B95B79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515491   (654657) от 27.06.2012
+
+Glenn Frey - After Hours (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, Piano, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Piano, VocalПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEC40D8FD878D2A112CAA02F9302519DA9FFF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904575   (654131) от 03.06.2015
 
 Toto Cutugno - Toto Cutugno - The Very Best Of (2015) [MP3|320 кб/с]<Pop>
@@ -655,122 +765,6 @@ Adele - 21 (Limited Edition) (2011) [MP3 |320 кб/с]<POP>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5747AB9904622C1D75CD4DA147EB41695AE1379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141986   (646510) от 12.06.2017
-
-Chromatics - Just Like You (2016) Vinyl, EP [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Never Be Myself When You're Around
-02. Just Like You
-03. Hands In The Dark
-04. Lady Night Drive(   Читать дальше...   )Жанр: Electronic, Alternative Pop, SynthpopПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE578E0A4924F25757519A0A02AE607621B47B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142014   (646326) от 12.06.2017
-
-Chromatics - Cherry (2016) [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry
-02. Candy
-03. Headlight's Glare
-04. Ceremony(   Читать дальше...   )Жанр: Electronic, Alternative Pop, SynthpopПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002CFD4E2097D02E4FA2DD1769D068F63EFBEDB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906310   (645655) от 08.06.2015
-
-Izia - La Vague (2015) [OGG|497-517 кб/с]<Alternative, French Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey (03:59)
-02. La vague (03:55)
-03. You (03:48)
-04. Les ennuis (03:02)(   Читать дальше...   )Жанр: Alternative, French Pop RockПродолжительность: 00:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D518EF25155C7EB387FDB205E9B9B1B4A9AC73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906414   (645530) от 08.06.2015
-
-James Blunt - All The Lost Souls (2007) [MP3|320 кб/с]<Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1973 (04:40)
-02. One Of The Brightest Stars (03:12)
-03. I'll Take Everything (03:05)
-04. Same Mistake (04:59)(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D60DC90ECC2EBD942B058CFB8C0E291B6341F46
 ```
 
 https://mybot314.ru/tekegram_catalog/

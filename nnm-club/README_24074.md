@@ -1,22 +1,25 @@
-###  Публикация: 482068   (99340) от 12.04.2012
+###  Публикация: 1758245   (103425) от 01.11.2024
 
-[Wallpapers] HQ Wallpapers by KSV (12.04.12)
+Delusions Of Godhood - Salvation's Withdrawal (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99340.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. The Bitter End
+02. Salvation's Withdrawal
+03. Sunward Rise
+04. On The Edge Of The River Styx(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
+magnet:?xt=urn:btih:8D1810157B2BF815CE9125F674C04A7C8DB8E9C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,33 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481751   (99336) от 12.04.2012
+###  Публикация: 1758267   (103424) от 01.11.2024
 
-Solar Spectrum - Source Energy Creations (2011) [MP3|320 кб/с]<Psychedelic / Progressive>
+Неуравновешенный / Unstable (2024) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) ViruseProject [AD]
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99336.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 9th Wave [8:00]
-02. African Star [9:18]
-03. Energetic Particles [8:18]
-04. Super Groover [7:39]
-05. Universe [7:24]
-06. Ola Catuaba [7:41]
-07. Higher Dimensions [8:48]
-08. Deep Connections [9:04]
-09. Stereophonic Senses [8:21]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:33
+Чтобы сблизиться со своим отцом, молодой человек устраивается к нему на работу — в биологический исследовательский центр. Правда, эксцентричный отец все равно больше поглощен собой и своей карьерой.Производство: США / Garfield Grove Productions, Loweprofile, Netflix StudiosЖанр: комедияРежиссер: Марк Баклэнд, Клер Скэнлон, Джей Чандрашекхар и др.Актеры: Роб Лоу, Джон Оуэн Лоу, Шан Клиффорд, Aaron Branch, Rachel Marsh, Emma Ferreira, Фред Армисен, Ламорн Моррис, Айрис Апатоу, Tom Allen и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:20:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
+magnet:?xt=urn:btih:606640C06E03FBEA69F37EFB586837382DC4C8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -58,34 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480498   (99335) от 12.04.2012
+###  Публикация: 1758256   (103421) от 01.11.2024
 
-Арс Ворошиловский - Паутина (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+Brad Smith - Broken Bones And Bullet Holes (2024) [MP3|320 Kbps] <Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99335.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103421.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BAD трип
-02. Выше только небо
-03. Давай еще споем (при уч. Артём Татищевский)
-04. Далеко от дома
-05. Ищу тебя (при уч. Артём Татищевский)
-06. Как на войне
-07. Минувшие дни (при уч. Flexa)
-08. Моя улица
-09. Мусора (при уч. Никита Мутный)
-10. Поэту нужна тишина(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:58:18
+01 - Broken Bones and Bullet Holes (04:42)
+ 02 - Late is the Hour (05:18)
+ 03 - Troubles Enough (03:52)
+ 04 - Lift Me Up (03:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0800A7C828E83C26AF821CCE18313F4B7BC0FC46
+magnet:?xt=urn:btih:7DD500F18072E64BF0DF769DAFC7C01F16746472
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -93,25 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481036   (99333) от 12.04.2012
+###  Публикация: 1758274   (103420) от 01.11.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (11.04.12)
+Замкнутый круг / Full Circle (1977) BDRip [H.264] [DVO]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99333.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Фильм основан на романе «Джулия» американского писателя Питера Страуба... Находясь в глубокой депрессии после смерти 8-летней дочери, Джулия Лофтин уходит от мужа и селится в старинном доме, в котором происходят необъяснимые вещи. Ей чудится, будто призрак дочери постоянно преследует её, словно предупреждая о грозящей опасности...Производство: Канада, Великобритания / Canadian Film Development Corporation (CFDC), Famous PlayersЖанр: ужасы, драма, детективРежиссер: Ричард ЛонкрэйнАктеры: Миа Фэрроу, Кейр Дуллеа, Том Конти, Джилл Беннетт (I), Робин Гэммел, Кэтлин Несбитт, Анна Уинг, Эдвард Хардуик, Мэри Моррис, Полин ДжеймисонПеревод: любительский двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:37:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
+magnet:?xt=urn:btih:1B15D6D511353A529A99C0CB6A8E2260896B1D24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -119,322 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482088   (99330) от 12.04.2012
+###  Публикация: 1758281   (103419) от 01.11.2024
 
-[Wallpapers] Best HD Wallpapers Pack (13.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481321   (99328) от 12.04.2012
-
-VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orion Signs - I Believe In Other Earth 08:25
- 02. Aviron - Tonal (original mix) 07:08
- 03. Smoke Sign - Out Of Body (original mix) 07:41
- 04. Interactive Noise And Fabio And Moon - Coming Home Late 06:56
- 05. Elevated Mix - Humidity Gro 07:23
- 06. Principles Of Flight - Sputnik (White Russian edit) 07:44
- 07. Inner Peace - Nothing Really Dies 06:46
- 08. Rocky - Largetto (Gaudium remix) 07:45
- 09. Felucia - Fly In The Sand 08:40
- 10. Dimension X - Eyeless 11:30(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482053   (99327) от 12.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99327.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers №12
-Название: Girls Desktop Wallpapers №12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6F611020512ED4510D8B854DB036108428ECAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479898   (99325) от 12.04.2012
-
-VA - Klubnye novinki Vol.63 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addictive Elements - Losing My Way (Extended Mix)
-02. AlexUnder Base feat. Soel - Set Me Free (Extended Mix)
-03. Alya - Damelo (Club Mix)
-04. Andrew Peret & Jose Garcia - Sunrise Love (Extended Mix)
-05. Archi Rich - Just To Be In Love (Original Mix)
-06. Bel-Agio feat. Vybrate - Seek Love Tonight (Extended Mix)
-07. Benassi Bros. feat. Sandy - lllusion ( DJ ЖеК@ Version)
-08. Bob Sinclar feat. Pitbull & DragonFly & Fatman Scoop - Rock The Boat (Club Mix)
-09. Buddy - So Lang Der DJ Nicht Ins Bett Geht (Michael Mind Project Extended Version)
-10. Chekarino Project - Occupation(   Читать дальше...   )2012Жанр: Club,DanceПродолжительность: 04:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719F36395203B65D967D9ECBE148AA41454B8B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482066   (99321) от 12.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (12.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6429FA4D2EF71FB4900762D525D1FAACD259B001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481745   (99320) от 12.04.2012
-
-Simple Man - Galactic Prophecy (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Planet 09:02
- 02. Pulsar 09:11
- 03. Venus 06:51
- 04. Piece Forest 05:59
- 05. Magic Live 06:17
- 06. Aliens 07:48
- 07. Universe 05:58
- 08. Supernova 07:47
- 09. Ganesha 09:32
- 10. Festival On A Space Station 07:48(   Читать дальше...   )2012Жанр: Psychedelic / ProgressiveПродолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1070F48FAE4F547C08BE9201B2765600AEF5AD18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481735   (99317) от 11.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 31
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99317.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 31 
-Название:  Girls Desktop Wallpapers Pack 31 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 5616х3744
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85701B4C8AA224A95AB421364890449885A1669B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481546   (99315) от 11.04.2012
-
-Т. Воробьева, Т. Гаврилова | Блюда из птицы и мяса [2004] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99315.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой книге подробно и доступно описаны лучшие рецепты приготовления различных блюд из мяса говядины, свинины, баранины и птицы. Здесь вы также найдете полезные советы, которые помогут узнать тонкости кулинарии. С помощью рецептов этой книги вы сумеете приготовить вкусные и полезные блюда и порадовать ими своих гостей.2004Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106FB729C7F81B15D07447B1EB3AD2B7B548FCC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481613   (99313) от 11.04.2012
-
-Wise Disk Cleaner v7.21 build 478 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Disk Cleaner - программа для быстрого и легкого освобождения свободного места на жестком диске. Утилита удаляет ненужные мусорные файлы, которые не используются программами, установленными в вашей системе. Программа может определять более 50 типов мусорных файлов, и вы можете сами добавлять любые типы файлов, которые считаете мусором. После того, как программа просканирует систему на наличие мусорных файлов, можно индивидуально посмотреть каждый файл и подробную информацию о нем, после чего решить, стоит ли его удалять.
-
-Это программа предназначенная для поддержания вашего жесткого диска в чистоте и порядке тем, что она удаляет ненужные и устаревшие файлы. Обычно эти файлы возникают в результате неполного удаления во время деинсталляции программ, или как временные файлы интернета и т.п. Лучше всего время от времени их удалять, поскольку они могут со временем занять довольно большое пространство на вашем жестком диске. Wise Disk Cleaner с его интуитивно понятным и удобным интерфейсом поможет вам легко избавиться (   Читать дальше...   )Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481311   (99311) от 11.04.2012
-
-С. Колосова, Л. Поливалина | Магия соусов и пряностей [2000] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена соусам и пряностям. Именно они придадут неповторимый вкус вашим кулинарным шедеврам. Воспользуйтесь рецептами использования различных пряностей, «возраст» которых превышает тысячелетия, и вы почувствуете себя настоящими кудесниками-кулинарами.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481529   (99310) от 11.04.2012
-
-Журнал | Кухни & ванные комнаты №12-1 [2011 декабрь - 2012 январь] [PDF]
+Журнал | Армейский сборник №11 (ноябрь 2024) [PDF]
 
 >>Журналы
->>Домоводство (журналы)
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99310.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "Кухни и ванные комнаты" содержит актуальную информацию об основных стилях и направлениях, последних дизайнерских и технологических решениях, новых материалах, идеи и полезные советы по обустройству кухонь и ванных комнат в целом, включая декорирование и аксессуары.2011 декабрь - 2012 январьФормат: PDF
+«Армейский сборник» — ежемесячный иллюстрированный военно-технический и практико-методический журнал. На его страницах – объективная информация о строительстве Вооруженных Сил России, боевой и специальной подготовке войск, а также об их тыловом и техническом обеспечении. Объект журналистского внимания – виды Вооруженных Сил и рода войск, охватывающие сферы земля, (   Читать дальше...   )Жанр: Научный, практико-методический журналИздательство: ФГБУ "РИЦ "Красная звезда" МО РФФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC138AFC2D673ABF760885F27A08CF846964D126
+magnet:?xt=urn:btih:4B670FAE4668476733AC3D447562A4C0C1CD6F97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,26 +134,221 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481545   (99309) от 11.04.2012
+###  Публикация: 1758277   (103418) от 01.11.2024
 
-Ричард Пратер | Дорогой, это смерть [2005] [MP3]
+НХЛ 2024-2025. Анахайм Дакс - Питтсбург Пингвинз (31.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 ноября 2024, пятница. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 14 945 зрителей (80% при вместимости 18 673)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Бо Халкидис (Лондон, Канада); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Бен О'Куинн (Вудсток, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B37AFB943BB9CB7771CCC2FEA39957F11B8220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758276   (103417) от 01.11.2024
+
+НХЛ 2024-2025. Монреаль Канадиенс - Вашингтон Кэпиталз (31.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 ноября 2024, пятница. 02:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 15 789 зрителей (85% при вместимости 18 573)
+Главный судья: Джейк Бренк (Детройт Лейк, США); Главный судья: Майк Салливан (США); Линейный: Марк Шевчук (Канада); Линейный: Либор Суханек (Стод, Чехия)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7623F7E6E5C7D5884893644ACFD29331FB61A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758123   (103416) от 01.11.2024
+
+Под зубьями пилы / Under Savklingens Taender (1913) WEBRip [H.264/720p] [EN / RU sub]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ростовщик Бартлет живет только деньгами, думает только о деньгах и самое главное в его жизни это деньги. А вот его сын добросердечный альтруист. И что, ростовщик должен оставить в наследство все нажитое ему? Никогда! Собрав все свои последние старческие силы, он все деньги прячет в саду, а завещание-распоряжение неподалеку, в дупло старого бука.Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Карл Альструп, Лауриц Олсен, Оскар Стриболт, Ольга Свендсен, Занни Петерсен, Фредерик Бух, Паула Рафф, Ингеборг Дженсен, Kristian Møllback, Franz SkondrupПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7544F604591F18B905F97B314D1CA2C734E73BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758235   (103415) от 01.11.2024
+
+Charles Tolliver - New Tolliver (1977) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earl's World [12:46]
+02. Impact [5:38]
+03. Compassion [11:00]
+04. Truth [9:48]Жанр: Post-BopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C866DAE135F76D2BA9AFC789466378502473ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758292   (103414) от 01.11.2024
+
+Aaron Rimbui - Imani (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imani (7:38)
+02. Kothbiro (7:58)
+03. Stamina (6:32)
+04. Nakutamani (7:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C092DF4E04FC7790249DD93376B0F320178BBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758301   (103413) от 01.11.2024
+
+Rosalie Cunningham - To Shoot Another Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock, Vintage Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Shoot Another Day (5:02)
+02. Timothy Martin's Conditioning School (2:43)
+03. Heavy Pencil (6:30)
+04. Good To Be Damned (4:52)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, Vintage RockПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54E1FDF1A6ECBD7727E5AE7B224053407A94937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758287   (103412) от 01.11.2024
+
+От графа до бармена / Fra fyrste til knejpevaert (1913) WEBRip [H.264/720p] [DK / RU sub]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карты, деньги, любовь и гордость. Если коротко. Печальная история о том, как благородный граф из-за своей порочной страсти к игре потерял все - деньги, семью, положение и достоинство.
+Не играйте в карты с ворами, пацаны!Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Хольгер-МадсенАктеры: Алф Блютехер, Рита Саккетто, Cajus Bruun, Аугуста Блад, Marie Niedermann, Лау Лауритцен, Йоханнес Мейер, Занни Петерсен, Johanne Krum-Hunderup, Йоханнес РингПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF0F62D5F6714C4F1682E2A6F80F9B336CBDB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758259   (103411) от 01.11.2024
+
+Евгений Замятин | На куличках (2020) [MP3, Пётр Таганов]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99309.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман из серии о частном детективе Шелле Скотте.
-Шелл Скотт приехал в Акапулько по своим детективным  делам. И надо же такому случиться - именно здесь собрались гангстеры со всей Америки, а объект его расследования погибает загадочной смертью...Жанр: Детектив
+Серия/Цикл: Классика.
+Евгений Иванович Замятин (1884–1937) – русский писатель, публицист и литературный критик.
+«Есть у всякого человека такое, в чем он весь, сразу, чем из тысячи его отличишь. И так же у Андрея Иваныча – лоб: ширь и размах степной. А рядом нос – русская курнофеечка, белобрысые усики, пехотные погоны. Творил его Господь Бог, размахнулся: лоб. А потом (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: МедиаКнигаПродолжительность: 03:03:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4893FCA754D17071C6FC678A3FD75E8EE142D7F
+magnet:?xt=urn:btih:B665E8CC4BEAF8C56A8EA224F40D548EF198F868
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,60 +356,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481309   (99308) от 11.04.2012
+###  Публикация: 1758200   (103410) от 01.11.2024
 
-[Wallpapers] Wallpaper Sexy Girls 0.4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на рабочий стол.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E1A98867791D6D2BAF27893C541E8A2DF2643F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480835   (99306) от 11.04.2012
-
-Andreas Vollenweider - Air (2009) [MP3|320 кб/с]<Electronic, New Age, Ambient>
+VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
->>Easy listening
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99306.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Airdance
-    02.Prescious Smile
-    03.Oxygenia & Icarus
-    04.Windseeds
-    05.Milonga Magica (Thematic Improvisatoin)
-    06.World Inside A Grain Of Sand
-    07.Tumbleweed Dreams
-    08.One Breath
-    09.Keep On Dancing (For Heavens Sake!)
-    10.Liebeslied(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 00:52:33
+01. Mark Norman – Phantom Manor (Daniel Wanrooy Remix)
+02. Vintage Culture & Fideles ft. Be No Rain – Fallen Leaf (Massano Remix)
+03. Yoel Lewis – Meteor
+04. MRPHLNDR – Tron (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC0E4163BBC2D493F6E7EDA21DDA4A574542D0E3
+magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,29 +385,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481731   (99305) от 11.04.2012
+###  Публикация: 1758263   (103409) от 01.11.2024
 
-[Wallpapers] Full HD Wallpapers Pack 11
+Евгений Замятин | Островитяне (2021) [MP3, Пётр Таганов]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99305.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Full HD Wallpapers Pack 11 
-Название:  Full HD Wallpapers Pack 11 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Серия/Цикл: Классика.
+Студия «МедиаКнига» представляет аудиокнигу Евгения Ивановича Замятина (1884–1937) – великого русского писателя, публициста и литературного критика, киносценариста.
+Повесть «Островитяне» рассказывает о незамысловатой истории избранных англичан начала XX века. Автор высмеивает уклад жизни в отдельно взятом английском тихом городке и каждого персонажа (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: МедиаКнигаПродолжительность: 02:15:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D460370FFDE8D0D6E5600DFAB4F7F8A0C7F2296B
+magnet:?xt=urn:btih:E9985852A45BC3E33C77C35EFA719D31448B1CC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,28 +413,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481106   (99304) от 11.04.2012
+###  Публикация: 1758296   (103408) от 01.11.2024
 
-iO and Goshva - Lazy Time EP (2012) [MP3|320 кб/с]<Tech House>
+Warren Haynes - Million Voices Whisper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99304.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Time (Original Mix) 07:54
-02. Salamander (Original Mix) 07:26
-03. Salamander (Alex Celler Spaced Out Dub) 07:20
-04. Getaway (Original Mix) 07:542012Жанр: Tech HouseПродолжительность: 00:30:35
+01. Warren Haynes feat. Derek Trucks - These ChangesЖанр: Blues RockПродолжительность: 01:09:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
+magnet:?xt=urn:btih:65C3F73280CC8D9D95C73FE36A0A9225F2956802
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,128 +439,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481586   (99303) от 11.04.2012
+###  Публикация: 1758479   (103407) от 02.11.2024
 
-St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 кб/с]<Hard Rock, Sleaze Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Come The Prostitutes [3:59]
-02. Say When It's Over [3:48]
-03. I'm Not Falling [3:46]
-04. Dreaming Of You [3:39]
-05. The Highway Hitcher Murder Blues [3:05]
-06. Hell Yeah!! [4:10]
-07. Medicine [4:04]
-08. A Bitter Man's Lullaby [4:22]
-09. Schizophrenia [3:33]
-10. Crisis [3:45]2012Жанр: Hard Rock, Sleaze RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1E15482C4F7698833F33462B8DFFF8F51D1CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481580   (99302) от 11.04.2012
-
-Murder Bay - Never Was An Angel (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land Of Plenty [3:58]
-02. Honey Child [3:43]
-03. Outta Line [4:13]
-04. Ultraglide [4:26]
-05. Simple Man [6:23]
-06. Dirty Work [3:05]
-07. Never Was An Angel [3:55]
-08. What's Good For You [3:22]
-09. Long Time Comin' [3:15]
-10. Keep Me In Mind [4:05](   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F304FDCE09864CCFC58FDD70C6BF695930F2224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478965   (99301) от 11.04.2012
-
-Gary Boyle - Electric Glide (1993) [FLAC|Lossless]<Jazz-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Snap Crackle 5:17
-2. Hayabusa 3:58
-3. Electric Glide 4:05
-4. Morning Father Joys 5:06
-5. Gaz 6:40
-6. It's Almost Light Again 4:17
-7. Grumble 2:34
-8. Brat No. 2 4:281993Жанр: Jazz-RockПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481699   (99299) от 11.04.2012
-
-Вопрос времени. Смена сустава (2012) SATRip
+Пятеро на одного (02.11.2024) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
->>
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99299.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Идеальная улыбка - одна из несомненных составляющих успеха. Неудивительно, что в США здоровые зубы - это целая индустрия и сверхприбыльный бизнес. А между тем, американские ученые обещают в скором времени выращивать зубы во рту, как цветы в горшке! Да не только зубы, но и здоровые суставы на месте больных и изношенных! Как они собираются это делать? Попробуем узнать об этом уже сегодня.Жанр: ДокументальныйРежиссер: И. ПавловПродолжительность: 00:25:01
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DC4C48E2CEDA6A62E7C2DB3D6F99DC7EDD846AE
+magnet:?xt=urn:btih:E542654516556B4F4A52E8A8FA033A78043F706F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -718,34 +465,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480219   (99298) от 11.04.2012
+###  Публикация: 1758496   (103406) от 02.11.2024
 
-Upon A Burning Body - Red. White. Green. (2012) [MP3|~245 кб/с (V0)]<Metalcore>
+MotoGP. Этап 19 из 20. Гран-при Малайзии. Квалификация (02.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99298.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Game Over
-02. Sin City
-03. Once Upon A Time In Mexico
-04. Texas Blood Money
-05. El Mariachi
-06. Desperado
-07. Mimic
-08. Predators
-09. From Dusk Till Dawn
-10. Planet Terror(   Читать дальше...   )2012Жанр: Metalcore / DeathcoreПродолжительность: 00:34:11
+2 ноября 2024, суббота. 05:50 МСК, Этап 19 Куала-Лумпур. Гран-при Малайзии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3035EDC57753ABA97B00B7DBBE743786839F60D
+magnet:?xt=urn:btih:E69B62FF7DA86FDC7284B77075914FF5C76F80AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -753,25 +491,225 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481682   (99295) от 11.04.2012
+###  Публикация: 1758369   (103405) от 02.11.2024
 
-Каникулы в Мексике - 2. Выпуск №28 (2012.04.11) SATRip
+Boney James - Slow Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MARCUS MILLER - Arcadia (4:32)
+02. Cory Henry - Butterfly (4:27)
+03. BONEY JAMES - Slow Burn (4:14)
+04. October London - All I Want Is You (3:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD94212460D68955AC1A70A91F160D948661D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758370   (103404) от 02.11.2024
+
+Christophe Goze - My Kind Of Blue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resolution (3:53)
+02. Butterflies (3:51)
+03. Timelapse (4:14)
+04. Smoothin' (4:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54443D87AD024AC90FE3FD093BB8193F824CBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758433   (103403) от 02.11.2024
+
+Frank Sinatra - Close To You And More (2002) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close To You [3:37]
+02. P.S. I Love You [4:21]
+03. Love Locked Out [2:42]
+04. Everything Happens To Me [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFA183D54FDFC250EF0C4228D3A304F1B5B9B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758427   (103402) от 02.11.2024
+
+Поедем, поедим! Екатеринбург: Уральский Марс, поедание чебуреков на скорость, пикник на тракторе (02.11.2024) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99295.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:39
+Путешественник Федерико Арнальди отправился в Екатеринбург, а оказался на Уральском Марсе! Ведущий запустил тарелки в небо, побывал на детской железной дороге и поработал на картофельных полях. А еще Федерико протестировал аппарат по повышению самооценки, поучаствовал в поедании чебуреков на скорость и устроил необыкновенный пикник на тракторе.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C676CE29E82D06763425908616A23979F0ECB776
+magnet:?xt=urn:btih:F437E32FE070BBF40958EABC13CC9E03D8FE5A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758385   (103401) от 02.11.2024
+
+Kristin Korb - Sweet Dreams (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Dreams (3:16)
+02. There Must Be An Angel (4:06)
+03. Here Comes The Rain Again (5:36)
+04. We Two Are One (4:01)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A211D51003F1DC2993777EBF255C804E10529C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758503   (103400) от 02.11.2024
+
+MotoGP. Этап 19 из 20. Гран-при Малайзии. Спринт (02.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103400.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 ноября 2024, суббота. 10:00 МСК, Этап 19 Куала-Лумпур. Гран-при Малайзии. Спринт (10 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD430061CEFECFDBFE9E347B44789BC814E0C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758392   (103399) от 02.11.2024
+
+Brothers of Metal - Fimbulvinter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sowilo (4:08)
+02. Flight of the Ravens (4:58)
+03. Giantslayer (3:21)
+04. Heart of Stone (5:03)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A268EBF0AC0663FCCC364EA1C1823FBA3C0AF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758386   (103398) от 02.11.2024
+
+Scarlet Bandit - Lose Your Blues (Late Night City Feeling Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Everything Will Be Alright I (00:50)
+ 02 - Young and Feral (03:30)
+ 03 - Leak in the Roof (03:34)
+ 04 - California (04:01)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE248D730760C207DCE828F1F85E721D397FD066
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1344273   (170556) от 10.12.2019
+
+DJ Shadow - Our Pathetic Age (2019) 2CD [FLAC|Lossless|tracks + .cue] <Trip Hop, Bass Music, Abstract Hip-Hop, Instrumental, D'n'B, Rock>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drone Warfare (feat. Nas & Pharoahe Monch) (3:43)
+02. Rain On Snow (feat. Ghostface Killah, Inspectah Deck & Raekwon) (3:39)
+03. Rocket Fuel (feat. De La Soul) (3:16)
+04. C.O.N.F.O.R.M. (feat. Infamous Taz, Lateef The Truth Speaker & Gift Of Gab) (2:52)(   Читать дальше...   )Производство: Mass Appeal, Liquid Amber – MSAP0088Жанр: Trip Hop, Bass Music, Abstract Hip-Hop, Instrumental, D'n'B, RockПродолжительность: 01:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0B2B96B816BC82FB8E989CF98418DB5488C315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671928   (170330) от 27.10.2023
+
+VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soul Crusaders - A Fading Memory (6:00)
+02. Clelia Felix - Fleurs Du Desert (Original Mix) (4:17)
+03. Marie Therese - Soul Talk (Original Mix) (4:33)
+04. Marco Moli - Flashpoint (Original Mix) (3:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22B18548C6840F99FE79DFC826328D8CB1A44BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344680   (169774) от 11.12.2019
 
 VA - Good Morning Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ VA - Soulful Downtempo  Vol. 2 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C43019DA5F7A22E6A22B3078F7610BF4DEB2391B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598023   (160090) от 22.12.2022
-
-VA - Soulful Downtempo, Vol. 1 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig McKnight - Reach Out (03:22)
-02. Wonderphazz - Every Time You Call Me (02:37)
-03. Silk Factory - Summer Dream (Radio Mix) (02:40)
-04. Climaxx - Slow It Down (Radio Edit) (02:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9E682A8122CDCC9F3205C4958A9E7482A2C61D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675785   (159862) от 10.11.2023
-
-VA - Sweet Soulful: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss Deep Sound Lab - Je Sais (French Version) (6:24)
-02. Schwarz & Funk - Phil Me (Original Mix) (5:26)
-03. Lounge Groove Avenue - Hold You Tight (3:45)
-04. Soul Trend - Before It Gets Too Late (4:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D987330D4C108A857F8F6B621FEBEF8EDD08DB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

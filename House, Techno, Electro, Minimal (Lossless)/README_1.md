@@ -1,3 +1,61 @@
+###  Публикация: 1605088   (1045079) от 16.01.2023
+
+Danilo Ercole - Profundo Collected Vol.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bit (6:45)
+ 02. Deep Space (6:08)
+ 03. Dopamina (6:46)
+ 04. Payback (6:08)(   Читать дальше...   )Жанр: Progressive House, Electro House, Tech HouseПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92404ADF85B8205DD049EECF1FB03B6627629D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605543   (1044854) от 18.01.2023
+
+Boundless - 100Sec to Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Tech House, Bassline>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subliminal Villages (Original mix) (8:08)
+ 02. Contrast (ft. Synesthetic) (Original mix) (7:03)
+ 03. Butterfly  (ft. Luis M) (Original mix) (7:21)
+ 04. Modern Miracles (Original mix) (8:26)(   Читать дальше...   )Жанр: Progressive House, Electro House, Tech House, BasslineПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6394930EFE1FA6FD13A38112EAE41141838B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606789   (1044301) от 23.01.2023
 
 VA - Black Hole House Music 01-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House>
@@ -683,64 +741,6 @@ VA - Defected Presents House Masters - Mr. V (2022)[FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:381C57D6C86A27659FF1194823E2ABD68EB8407C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614240   (1038862) от 21.02.2023
-
-VA - The Sound of 2023 Mix 1: Hong Kong (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  F4T4L3RR0R -  The Pulse of Darkness (Intro)  (2:06)
-02.  One Release -  Helm's Deep  (5:41)
-03.  Monodusk -  Eden 2099  (5:21)
-04.  James De Torres -  Out of Darkness  (5:12)(   Читать дальше...   )Жанр: Progressive House, Techno, TranceПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9756BB2A556E6CED5701D1C964FB2E190A9F1A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440582   (1038848) от 17.01.2021
-
-VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BestInSpace - Emmanuelle Kant (4:16)
-02. Hong Kong Syndikat - Too Much (7:12)
-03. Massimo Vanoni - For Your Love (8:24)
-04. Tripman & Sandrobianchi - Woman (6:24)(   Читать дальше...   )Жанр: House, Nu-Disco, DiscoПродолжительность: 09:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B3F558C1339F12A6B77E740380A39F9FC62408
 ```
 
 https://mybot314.ru/tekegram_catalog/

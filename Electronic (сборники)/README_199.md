@@ -1,3 +1,232 @@
+###  Публикация: 1431457   (167916) от 13.12.2020
+
+VA - Beatport Techno: Electro Sound Pack #208 (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима вступает в свои права, поэтому пришло время глобально обновлять музыкальную библиотеку и начинать слушать только веселую, качественную, энергичную и позитивную музыку от ведущих европейских диджеев. Все это Вы сможете получить, если скачаете 208-ю подборку клубного техно от Beatport!001. Aleeg - La Push
+002. Deep Spirit - Lonely 2K17
+003. Ike Release - Television Sky
+004. Space Native - Aphelion (Club Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8917BF601DE5ED87DFF4777CA1BE4B36275210F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431454   (167831) от 13.12.2020
+
+VA - Club Dance: Fitness Version (2020) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это активная, бодрящая, воодушевляющая музыка, ведомая силой и духом. Её можно использовать на тренировке в спортзале или при пробежке в парке. Она поможет ощутить яркую бурлящую жизнь внутри себя, единство силы и воли для достижений и побед в спорте.001. Dj Gang - Dance With Me
+002. Diego A Ft Oscar Yestera - Me Gustas Tanto
+003. Awaiik Ft. Sabacca - Lets Get It
+004. Teknova - Mistik(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1A5263A6BD230565F06C44A50562ACA53169F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515857   (167805) от 09.12.2021
+
+VA - Beatport Tech House: Sound Pack #381 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка которая находится на стыке двух стилей - ещё не техно, но уже не хаус. Это уже даже не стиль, а точка пространства, где встречаются и взаимопроникают две большие музыкальные стихии – техно и хаус.001. Cristhian Balcazar - Body Trap
+002. Dexxx Gum - Lights
+003. Ron Flatter - Dragoon
+004. Arni & Kazuma Akasaki - Kage(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 10:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE0214AC1906C3B2D859A7E765D9DD5602F4F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515862   (167789) от 09.12.2021
+
+VA - Beatport Electro House: Sound Pack #382 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый всеядный жанр танцевальный музыки, заходящий одним краем в радиоформат. В хаусе гораздо чаще, чем в остальной электронике, встречаются мелодии, вокал и прочие атрибуты поп-музыки. Этому жанру не чуждо стремление к гламуру, театральности, иногда даже китчу.001. From Tokyo To Sao Paulo - U're Funked
+002. Jason Lindell - Disco Dancin
+003. Luke Chable - Melburn
+004. Dirty Clone - Raw Mood(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB0187A3DE1F1BF16BC20D358E2A29F8FDC56A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380061   (167587) от 13.12.2020
+
+aQuaLuna - Best of Destination Paradise (2020) [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345223   (167454) от 14.12.2019
+
+VA - Sphinx: Synth Electronica (2019) [MP3|320 Kbps] <Electronic, Syntheti>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Z · Axis - Voluptous
+002. Geomatic - Shadow World
+003. Asc - Scattered Mind
+004. Dmitry Molosh - Only U (Original Mix)(   Читать дальше...   )Жанр: Electronic, SynthetiПродолжительность: 11:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1ABFC0D02D32496F02462B611A753D21A6B14AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345225   (167361) от 14.12.2019
+
+VA - Digital Madness: Retrowave Music (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167361.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Analogue-X - World Of Silence
+002. Surge - Escape From Xylon
+003. Robert Parker - Final Moment
+004. Michael Hunter - Dusk Road(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectronicПродолжительность: 12:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7A3F5F6BE74D8135B7ACF35075C206716ABCAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826495   (167359) от 19.10.2025
+
+VA - Record Super Chart 18.10.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanco & AYA - Ma Tnsani (Yalla Habibi) (Samuel Prince Remix) (4:25)
+02. Rudimental & Khalid - All I Know (Ely Oaks Remix) (2:29)
+03. Inna, R3HAB - I'll Be Waiting (2:03)
+04. Hurts, Purple Disco Machine - Wonderful Life 25 (Original Mix) (2:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C9FA4C41993327F6E8E2303CDDDBB96C2CF210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345222   (167350) от 14.12.2019
 
 VA - Sweet Green Dreams: Natural Relaxed Mix (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
@@ -513,238 +742,6 @@ VA - crazyДвиж number pyat (2020) [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C31223D729534D80448218FD5220BD886A296C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517743   (162355) от 16.12.2021
-
-VA - Euphoric Techno Dec (2021) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162355.jpg" />
-</div>
-
-
-###  Подробнее
-
-В техно музыке скрывается простая идея - музыка берется из машины, но душу вкладывает в неё человек. Поэтому считать этот жанр абсолютно бездушным наверное тоже неправильно.001. Jacidorex - Speed Of Love
-002. Anml Mthr - Outside
-003. Interfearence - The Carpenter
-004. Sins Of Insanity - Stay Behind(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381866430F659097FCAF782EFCFCA86E632562BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517505   (162288) от 16.12.2021
-
-VA - Electro House: Neon Plasma Party (2021) [MP3|320 Kbps] <Electro House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаем наслаждаться музыкой и оценивать самые последние танцевальные новинки электронной сцены. Впереди на треках сборника под названием "Electro House: Neon Plasma Party" нас ожидает множество интересных музыкальных новинок уходящего года.001. Edu Schwartz - Shadows On The Wall
-002. Praana & Liel Kolet - Waterfall
-003. Ilan Bluestone - Sinai
-004. Graziano Raffa - The Only Way(   Читать дальше...   )Жанр: Electro House, DanceПродолжительность: 12:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B66F18ACDC3AE577FA809F6AADC73A228883872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432857   (162287) от 19.12.2020
-
-VA - Beatport Tech House: Sound Pack #212 (2020) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный ритм и оригинальные мелодии порадуют не только завсегдатаев клубных вечеринок, но и просто тех, у кого отличный музыкальный вкус!001. Tex - The Life Is Experiment
-002. Mattia Pompeo - River (Original Mix)
-003. Ednner Soares - Artifacts
-004. Diego Sosa - Funk Up(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 10:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEE6453BF9E36878B3BDD990D27F4419919A491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517511   (162268) от 16.12.2021
-
-VA - Inter Galactic: Best Of Future House (2021) [MP3|320 Kbps] <House, Electro, Future House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заглавная тема музыки сборника "Inter Galactic" является фантастика и космические путешествия, и многие композиции вполне подошли бы в качестве саундтрека для кинематографических космических сиквелов. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам лонгплея.001. Dallanoras - Sat Nam
-002. Marko Valentino - Repeat
-003. Lewis Mcklein - Better Than Yesterday
-004. The Polymode - Class A(   Читать дальше...   )Жанр: House, Electro, Future House, ProgressiveПродолжительность: 11:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C43D5DFD8394DD51CDA3518CA702D6F22A8559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432860   (162107) от 19.12.2020
-
-VA - Essential EDM Selection (2020) [MP3|320 Kbps] <Club, Dance, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не просто очередной однообразный музыкальный сборник, это настоящий широкоформатный винегрет танцевальных стилей состоящий исключительно из эксклюзивных работ музыкантов работающих в отличных друг от друга жанрах электронной музыки. Вас ждет хорошая разнообразная подборка в виде ста позитивных композиций.001. Malcom Vicious - Around The Globe
-002. King Joshua - I Don't Know Anybody Else
-003. Ben Salgado - Melilla
-004. Keinklang - Blow My Mind(   Читать дальше...   )Жанр: Club, Dance, EDMПродолжительность: 08:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8C57952E4567D794CF10D949EC48E799706CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517501   (161990) от 16.12.2021
-
-VA - The Disco Dream (2021) [MP3|320 Kbps] <Disco, Dance, Funky House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник ремиксов на незабываемые для многих легендарные диско-песни. Для каждого из Вас найдется здесь хотя бы несколько мелодий, которые напевали в минуты радости или те, что подбадривали в минуты печали. Диско, это именно та музыка, под которую не только хочется танцевать, но и жить. Именно этот жанр оставляет не забываемые следы в нашем сердце и душе. Вспоминайте, (   Читать дальше...   )001. Gzz - Groove For Sale
-002. Sugarstarr - Get Up
-003. DJ Ross - Emotion
-004. Dan Shake - Wake, Bake & Shake(   Читать дальше...   )Жанр: Disco, Dance, Funky House, Nu DiscoПродолжительность: 09:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4AA85DC639A903F88773F18AD6DB6C7CCBDD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517920   (161589) от 17.12.2021
-
-VA - Drum Dance: Electro Bass Session (2021) [MP3|320 Kbps] <Electro Bass, D&B, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастический и эстетичный вокал в сочетании с завораживающей, ласкающей мелодией, на фоне которой звучит заводная драм-партия. Композиции этой подборки написаны с душой, что привлечёт внимание многих слушателей, которые несомненно захотят добавить их к себе в персональный плейлист.001. Addicted - Alarm
-002. Disrupta - Run Dem
-003. Stillz - The Music
-004. Refracta - Cobra(   Читать дальше...   )Жанр: Electro Bass, D&B, DubstepПродолжительность: Electro Bass, D&B, Dubstep
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41F9B542616A038BE3243356B3841AD7194D799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517918   (161513) от 17.12.2021
-
-VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам хочется романтики, хочется послушать относительно спокойную музыку, но не лишённую ритма, то эта подборка для вас. В ней вы найдете 120 отличных треков, которые помогут вам по-настоящему насладиться музыкой.001. Deejay Terry - Misterioso
-002. Salvatore Bruno - Want To Get Down
-003. In-Sane - B-Ben
-004. Roy Rosenfeld - Cherry On Top(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23759DC7B40CAEA10712B5CAA1FA386FD0F2C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

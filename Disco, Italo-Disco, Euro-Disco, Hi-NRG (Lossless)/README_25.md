@@ -1,3 +1,31 @@
+###  Публикация: 1730877   (107817) от 18.06.2024
+
+Dutch Rhythm Combo Ft. Isa GT - Alerta (remixes) (2010) [FLAC|Lossless|tracks] <Disco, Nu-Disco, House, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dutch Rhythm Combo Ft. Isa GT - Alerta (Lipelis and Simple Symmetry remix) (6:30)
+02. Dutch Rhythm Combo Ft. Isa GT - Alerta (Paul Marmota remix) (4:10)
+03. Dutch Rhythm Combo with Jan Willems Ft. Isa GT – Alerta (Turntable Dubbers redub) (6:00)Жанр: Disco, Nu-Disco, House, ElectroПродолжительность: 00:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22B5D4A7A4F335ED0748A7FC572E13053DB4251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730942   (107815) от 18.06.2024
 
 Chillymouse - Only You (Bootmasters & Visioneight remix) (2021) [FLAC|Lossless|tracks] <Deep House, Disco House, Future House>
@@ -741,35 +769,6 @@ Rapture - Rapture (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2C5ACDBB7B03ADD145DA5BAFBB4C80D74AD910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708985   (62128) от 22.03.2024
-
-Gazebo - Maxi & Singles Collection Part 2 (2023) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunatic (Extended Version) 6:20
-02. Masterpiece (Vocal) 9:40
-03. Ladies (Andy Romano Flashback Rmx)
-6:13(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAECC2A21E3F82F2A5016E134E64420E207EE597
 ```
 
 https://mybot314.ru/tekegram_catalog/

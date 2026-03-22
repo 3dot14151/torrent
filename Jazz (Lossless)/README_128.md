@@ -1,3 +1,177 @@
+###  Публикация: 1295296   (622508) от 11.04.2019
+
+Nubiyan Twist - Jungle Run (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Afrobeat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell It to Me Slowly (feat. Nick Richards) (5:15)
+02. Jungle Run (feat. Nubiya Brandon) (5:14)
+03. Basa Basa (feat. K.O.G.) (5:59)
+04. Brother (feat. Nubiya Brandon) (5:09)(   Читать дальше...   )Жанр: Jazz, Funk, AfrobeatПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA381AE82F86E4ECE755B7D77DA0CD5EC2960B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910457   (622389) от 20.06.2015
+
+The Pentagon - The Pentagon (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manteca [05:59]
+02. Darn That Dream [05:20]
+03. Una Mas [05:18]
+04. D.B. Blues [04:41](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4211ACC89BB098B930A19C473EFAD42F2CC27CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910227   (622388) от 20.06.2015
+
+Larry Young - Of Love And Peace (1966) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pavanne [14:13]
+02. Of Love And Peace [06:34]
+03. Seven Steps To Heaven [10:17]
+04. Falaq [10:09]Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6CBE7693FD8173B92B6AAF9F0FBEA1F657662E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910393   (622386) от 20.06.2015
+
+Sonny Rollins - Freedom Suite (1958) /2008, Concord/[FLAC|tracks+.cue]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Freedom Suite [19:36]
+02. Someday I'll Find You [04:41]
+03. Will You Still Be Mine? [02:59]
+04. Till There Was You (take 4) [05:01](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A18B45BD77235FDFACBA890656C5774F0FAF13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295203   (622374) от 11.04.2019
+
+Norah Jones - Begin Again (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Is Full
+02. Begin Again
+03. It Was You
+04. A Song with No Name(   Читать дальше...   )Жанр: Contemporary Jazz, PopПродолжительность: 00:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EC303D3A11E1C8873D539DDE825BA99A4CC421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295185   (622372) от 11.04.2019
+
+Anthony Wilson - Goat Hill Junket (1998) Mama Foundation [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W-2 Blues [8:21]
+02. Here's That Rainy Day [10:24]
+03. The Cherry Tree [5:12]
+04. It Has Happened to Me [6:37](   Читать дальше...   )Жанр: Post-Bop, Hard Bop, Guitar JazzПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A440897DA6B1B6767E95B1FE39F02FFB4A538D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910438   (622022) от 20.06.2015
 
 Mario Biondi - Beyond (2015) /[FLAC|tracks|WEB-DL]<Funk, Soul, Disco>
@@ -571,180 +745,6 @@ Warren Bernhardt Trio - Ain't Life Grand (1990) Digital Music Products[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5297544F4A3D914B57AD62F62538AAB0C6B6345D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036820   (619146) от 21.07.2016
-
-VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название диска происходит от известнейшей композиции впервые исполненной Louis Armstrong - When The Saints Go Marching In (Когда святые маршируют). Впоследствии практически каждый джазист почитал своим долгом перепеть (и переиграть) эту, ставшую классикой, композицию. Ну и, конечно, только от одного перечисления имен тех, кто представлен на этом сборнике может у (   Читать дальше...   )01. Louis Armstrong - When The Saints Go Marching In  (3:12)
-02. Duke Ellington - The Mooche  (5:26)
-03. Benny Goodman - King Porter Stomp  (3:08)
-04. Nat King Cole - It's Only A Paper Moon  (1:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517A7391146DB05EBA9E7797CD0829796A611CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230067   (619076) от 10.06.2018
-
-Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight In Vermont [3:27]
-02. Thou Swell [1:43]
-03. I Could Write a Book [2:40]
-04. Gone With the Wind [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE6AD531EB812118A5FDC3846603105E3C9229D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230172   (618973) от 10.06.2018
-
-Club Des Belugas - Ragbag (2018) [FLAC|Lossless|image + .cue] <Swing-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is What You Want  [05:27.64]
-02. Ragbag  [03:55.25]
-03. Tequila [04:23.26]
-04. Beyond The Window   [04:42.64](   Читать дальше...   )Жанр: Swing-JazzПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450C654BBB106C28FD66F80A21EB288F67B64F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295604   (618858) от 13.04.2019
-
-Carlos Martins - Passagem (1996) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sofia [3:35]
-02. Mali m'Bule Baaba [5:58]
-03. Duo [5:46]
-04. A Espera [6:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A870DBF34EC8DFC38B9659CEAD819446C254AFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911426   (618495) от 22.06.2015
-
-Charlie Byrd - Bossa Nova Pelos Passaros (1962-1963) /2002, Riverside/[FLAC|tracks+.cue]<Jazz, Latin Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yvone [01:58]
-02. Um Abraco Do Bonfa [02:23]
-03. Meditacao [03:13]
-04. Voce E Eu [02:58](   Читать дальше...   )Жанр: Jazz, Latin Jazz, Bossa NovaПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BDA7C83AB038EDE5200589CB040BA2AFC620FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910983   (618489) от 22.06.2015
-
-Duke Ellington - Live in Zurich, Switzerland 2.5.1950 (2007) [FLAC|tracks]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Suddenly It Jumped
-2. Ring Them Bells
-3. Creole Love Call
-4. Paradise(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9210521FA79A2B4DDDEEC731099D80D8385FBB65
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1676177   (157214) от 13.11.2023
+
+Slade - And Now the Waltz(es) (2023) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everyday [03:09]
+02. Far Far Away [03:35]
+03. How Does It Feel [05:53]
+04. My Oh My [04:10](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D0FB3B24DB206FB9F109A906533BE2C47821C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968430   (157203) от 23.12.2015
+
+Warpig - Warpig (1970) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Flaggit (3:07)
+02.  Tough Nuts (2:20)
+03.  Melody With Balls (6:01)
+04.  Advance Am (7:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E12B7C367705832AEE4906A2C649ECEC0A8EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600545   (155905) от 28.12.2022
+
+Bon Jovi - Keep The Faith (1992) Reissue, Remastered, 2017, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe
+02. Keep The Faith
+03. I'll Sleep When I'm Dead
+04. In These Arms(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123C521CB14F54C00846A43F26643AF73E55DBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270817   (155459) от 20.12.2018
+
+Santana - Best Ballads (1996) Compilation [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chill Out (Things Gonna Change) 4:48
+02.Samba Pa Ti 4:39
+03.Flor D'Luna (Moonflower) 4:49
+04.I Love You Much Too Much 4:43(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EED53FDC6140D41C32AC98778B82FCAC49308D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433757   (155085) от 22.12.2020
+
+Eondry - 7 Echoes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger (06:14)
+ 02. Waterfall (04:42)
+ 03. Fistful of Something (06:43)
+ 04. King of Sand (08:06)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic, ExperimentalПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22177E9B32BF7DBBE1BBFD8F2754A0025372E7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433892   (155029) от 22.12.2020
 
 Marco Ragni - If (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
@@ -598,153 +743,6 @@ Charlie - AOR/хард-рок-группа из Лондона, Великобр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE11B9C836564C4A27ECA221F9885B73C721BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601357   (150913) от 31.12.2022
-
-Gnarbot - Mystery Lodge (2022) [MP3|320 Kbps] <Progressive Rock / Jazz Rock / Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Defender Covington (07:34)
- 02 - Thrapticious (10:02)
- 03 - Yunz (07:17)
- 04 - Crude Boi (feat. Ricky Hess) (06:52)(   Читать дальше...   )Жанр: Progressive Rock, Jazz Rock, Math RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9C811C4F5B52AFB180686C63ECAE684777B11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434690   (149868) от 25.12.2020
-
-Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Голосом олова
-2. О людях
-3. Я за тобой
-4. Беларусы(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEF1FCF106D4E95263990BE09025FA5EFBD408F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519194   (149502) от 23.12.2021
-
-VA - Pink Floyd Tribute (2021) 2xSet [MP3|320 Kbps] <Psychedelic Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Set - 1:
- 01. Steve Lisenbe - Ripples on a Blue Moon (03:01)
- 02. Steve Lisenbe - Tribute to Syd (05:50)
- 03. Soundelicious - Lost Romance (02:48)(   Читать дальше...   )Жанр: Psychedelic Rock, Classic RockПродолжительность: 02:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D1FE64C1D2020C2C45A5AE48FCF4A161B517F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677680   (149381) от 19.11.2023
-
-Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023, Frank Zappa Catalog [MP3|320 Kbps] <Jazz-Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Over-Nite Sensation
-Disc 2: Bonus Session Masters / Bonus Vault Sensations
-Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(   Читать дальше...   )Жанр: Jazz-Rock, Prog-RockПродолжительность: 4CD: 04:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6869F66A162C8EDD313A446972FDFB6C2D4D2C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589520   (148986) от 15.12.2012
-
-The Police - Message In A Box: The Complete Recordings (1993) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 04:45:32
-
-  Disc: 1-  01:14:54
-  Disc: 2-  01:33:04
-  Disc: 3-  01:04:28
-  Disc: 4-  01:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1978030B3FFB66D5389AA001213AF8A269856A
 ```
 
 https://mybot314.ru/tekegram_catalog/

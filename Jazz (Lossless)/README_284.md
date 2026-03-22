@@ -1,3 +1,178 @@
+###  Публикация: 1433005   (161866) от 19.12.2020
+
+Katie Melua - Call Off The Search (2003) Dramatico DRAMCD0002 [FLAC|Lossless|image + .cue]<Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Off the Search (3:25)
+ 02. Crawling Up a Hill (3:25)
+ 03. The Closest Thing to Crazy (4:12)
+ 04. My Aphrodisiac Is You (3:35)(   Читать дальше...   )Жанр: Vocal Jazz, BluesПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333BB49EF3CBDCEB148991EC5A6BD2BDBE111CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517823   (161738) от 17.12.2021
+
+Erroll Garner - 1949, Vol.2 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erroll-A-Garner [2:40]
+02. Stars Fell On Alabama [2:25]
+03. Laura [2:48]
+04. Lavande (Little Girl) [2:49](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA35CE0AAA5860DCEC7C596D83914ED96B0FD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517827   (161698) от 17.12.2021
+
+Johnny Hodges, Rex Stewart, Barney Bigard - The Great Ellington Units (1940 - 1941) 1993, Musical Heritage Society [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Hodges & His Orchestra - Day Dream [3:02]
+02. Johnny Hodges & His Orchestra - Good Queen Bess [3:06]
+03. Johnny Hodges & His Orchestra - That's The Blues, Old Man [3:00]
+04. Johnny Hodges & His Orchestra - Junior Hop [3:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CECA131344275AFF2EA3C401F3B35DB90F753BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598889   (161464) от 21.12.2022
+
+Count Basie & His Orchestra - The Count Basie Collection (1937 - 1939) 3CD, 2021, Acrobat [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161464.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pennies from Heaven [3:03]
+02. Swinging at the Daisy Chain [2:51]
+03. Honeysuckle Rose [2:59](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36FADB99A43100F0DFC36A5EC9EB393E3B5D095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674372   (161438) от 05.11.2023
+
+Sonny Rollins - Go West!: The Contemporary Records Albums (1957, 1958) 3CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm an Old Cowhand (Alternate Take) [10:12]
+02. Come, Gone (Alternate Take) [10:30]
+03. Way Out West (Alternate Take) [6:41]
+04. The Song Is You (Alternate Take) [6:17](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21700499B017DF76968B3D5382B13E25349BB2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599046   (161428) от 21.12.2022
+
+Ulf Meyer & Martin Wind Featuring Billy Test And Alex Riel - Time Will Tell (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ulf Meyer & Martin Wind, featuring Billy Test and Alex Riel - Time will Tell: expressive musical testimony of a supergroup
+Some supergroups arise out of pure calculation - others out of sheer coincidence or happy coincidence. The latter proves the quartet around Ulf Meyer (guitar), Martin Wind (double bass), Alex Riel (drums) and Billy Test (piano/organ/Fender (   Читать дальше...   )01. Django (Lewis) - 8:53
+02. October Blues (Meyer) - 6:29
+03. Solitude (Wind) - 7:18
+04. Maya (Wind) - 8:24(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B7E5DDA065A5E861F5757BE1B255D4FC0D7FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433433   (161425) от 20.12.2020
 
 Matt Belsante - White Christmas (2008) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
@@ -571,180 +746,6 @@ Eva Alcaide Quintet - Dive Into The Sea (2022) Errabal Jazz [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39072495B6EE5FDD6DBD3129AB214BEEBE99CFE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599698   (159663) от 24.12.2022
-
-Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Come Eleven [2:48]
-02. Wholly Cats [3:05]
-03. Good Enough to Keep (Air Mail Special) (first version - alternate take) [2:57]
-04. Flying Home (alternate take) [3:17](   Читать дальше...   )Жанр: Swing, Bop, Guitar JazzПродолжительность: 00:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE52CE632A9AF6DAD5FD48DE39234B7A48948B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599405   (159662) от 24.12.2022
-
-Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Tho't You Ought to Know [2:55]
-02. It Only Happens Once [2:57]
-03. Black Market Stuff [2:46]
-04. Laguna Leap [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1321046A3A57EEB1522BAE467EC75A087AAE0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599625   (159660) от 24.12.2022
-
-Oscar Peterson - Plays Porgy and Bess (1959) 1993, PolyGram [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Plenty o'Nuttin' [6:26]
-02. I Wants to Stay Here (aka I Loves You Porgy) [6:22]
-03. Summertime [3:51]
-04. Oh Dey's So Fresh and Fine (Strawberry Woman) [0:56](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314DCEF42C5AAC716E4F34C5BAE86DD8BF15EE16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599629   (159659) от 24.12.2022
-
-Carol Kidd - Dreamsville (2008) Linn Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Never Entered My Mind [5:40]
-02. A Nightingale Sang In Berkeley Square [2:45]
-03. How Deep Is The Ocean [4:04]
-04. How Long Has This Been Going On [5:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3019F8454806F34691B5950CE666827EE6C515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599878   (159433) от 25.12.2022
-
-Pete Rugolo - Adventures In Rhythm (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's Pete [2:25]
-02. My Funny Valentine [2:49]
-03. Mixin' The Blues [3:13]
-04. Poinciana (Song Of The Tree) [2:17](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B1678BD3E3ADABB59B2BA89F806D4849222F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599876   (159427) от 25.12.2022
-
-Nat King Cole - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe That You're in Love with Me [3:05]
-02. The Way You Look Tonight [3:10]
-03. Airiness a la Nat [2:38]
-04. My Old Flame [3:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17B0A8C76C72C9C950DCB506F68C0C8055034BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

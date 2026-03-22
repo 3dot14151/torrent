@@ -1,3 +1,90 @@
+###  Публикация: 1484977   (1005734) от 23.07.2021
+
+Heavy Water - Red Brick City (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solution
+02. Turn to Black
+03. Red Brick City
+04. Tree in the Wind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F5BA84B53803D0777377AA98697F7703540833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485126   (1005609) от 24.07.2021
+
+Platens - Of Poetry And Silent Mastery (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conspiracy
+02. Wait For Me
+03. Easily
+04. The Path(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075D2D57A4C0DCC5488236CA716D9F920D06888B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485574   (1005326) от 26.07.2021
+
+Guild Of Ages - Rise (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Deep In Heaven
+03. Around The Sun
+04. Addicted(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35991A0A33668F33EABDC243A301D2275DF8DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264366   (1005258) от 26.07.2021
 
 Rare Bird - 9 albums, 1 Box-set, 16 CD (1969-2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -652,105 +739,6 @@ Deep Purple - On The Wings Of A Russian Foxbat  (1976) 2CD /1995, Connoisseur Co
 ###  Подробнее
 
 Жанр: Hard RockПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599922   (998754) от 08.01.2013
-
-Led Zeppelin - Mothership: The Very Best Of Led Zeppelin (2012) Limited Celebration Day Version [FLAC|Lossless]<Hard Rock, Blues-Rock, Folk-Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Blues-Rock, Folk-Rock, Heavy MetalПродолжительность: 01:09:20
-
-01. The Song Remains the Same (5:32)
-02. Over the Hills and Far Away (4:49)
-03. D'Yer Mak'er (4:24)
-04. No Quarter (7:00)
-05. Trampled Under Foot (5:36)
-06. Houses of the Holy (4:04)
-07. Kashmir (8:30)
-08. Nobody's Fault But Mine (6:16)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606783   (994762) от 22.01.2013
-
-VA - High Voltage: The Ultimate AC/DC Tribute (2008) 2CD [FLAC|Lossless]<Hard Rock, Blues Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Bang Tango Feat. Fred Coury – 	Shoot To Thrill 	5:25
-02. 	The Vibrators – 	Rocker 	2:47
-03. 	Sister Machine Gun – 	T.N.T. 	3:49
-04. 	Stephen Pearcy With Tracii Guns – 	Whole Lotta Rosie 	4:22
-05. 	Day Glo Abortions – 	The Jack 	3:29
-06. 	16 Volt – 	Dirty Deeds Done Dirt Cheap 	4:40
-07. 	Dave Meniketti – 	Night Prowler 	5:45
-08. 	Genitorturers – 	Squealer 	4:39
-09. 	Groovie Ghoulies – 	Rock 'N' Roll Damnation 	3:06
-10. 	Whitfield Crane & Claus Eichstadt – 	Live Wire 	5:52(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Heavy MetalПродолжительность: 02:07:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162448   (991954) от 01.01.2010
-
-Foreigner - The Best Ballads (1995) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starrider 04:01
-“Foreigner” (1977)
-02. I Want To Know What Love Is 04:58
-“Agent Provocateur” (1984)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:19
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,32 @@
+###  Публикация: 1572932   (383646) от 06.09.2022
+
+Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Roi Est Mort, Vive Le Roi!	1:57
+02. Morphing Thru Time	5:47
+03. Third Of Its Kind	0:19
+04. Beyond The Invisible	5:00(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419659B5305E843B52266522C5B2D2273178233A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068093   (382955) от 31.10.2016
 
 Dominique German - God's Peace (2016) [MP3|320 Kbps] <New Age, Piano>
@@ -753,35 +782,6 @@ Bob Lowey - The Journey (An Emotional Soundscape) (2016) [MP3|320 Kbps] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B8ECA2ED4DE64764944A361D724459654949BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179932   (344579) от 02.11.2017
-
-Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking Together
-02. Silver Sound
-03. Moment of Silence
-04. Just a Little Song(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0E7A333504CDD6525068A259BC7D1042B356CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1086190   (154341) от 23.12.2016
+
+Nine Inch Nails - Not The Actual Events (2016) EP [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Branches / Bones
+02. Dear World
+03. She's Gone Away
+04. The Idea of You(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A87B09712EA613F6209F80D0B66D5B97C3D4CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600946   (154300) от 29.12.2022
+
+Ocean of Grief - 3 Albums, 2 Singles (2016-2022) [MP3|320 Kbps] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2016 - After a Long Time (Single)
+2016 - Fortress of My Dark Self
+2017 - In Bleakness (Single)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 5 CD, 02:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0CBB45B24004839DC64BFF5DE8F9BCBF8C9B9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601034   (154245) от 29.12.2022
+
+The First Assembly - The Prolet Kult (2023) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Incantation (Intro) [00:05:48]
+02 Dunes [00:06:04]
+03 Fist of Tyrants [00:10:36]
+04 The Siren's Call [00:15:59](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D9AFCC911F1C4E35D6451E9D4CD43B8C7AB3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601219   (152770) от 30.12.2022
+
+Monster God - Clouds Of Grey (2022) [MP3|320 Kbps] <Stoner Doom Meatal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (pre) Mortal (01:22)
+ 02. Sorrow (05:52)
+ 03. Infliction (05:16)
+ 04. Dark (04:48)(   Читать дальше...   )Жанр: Stoner Doom MeatalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217CEEB6360EE386BDAC6F60DEA892660A614048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271103   (152505) от 22.12.2018
 
 Phlebotomized - Deformation Of Humanity (2019) [MP3|320 Kbps] <Progressive Death Metal, Avant-garde Metal>
@@ -638,122 +754,6 @@ VA - Greatest Ever! Heavy Metal - The Definitive Collection (2012) 3CD, Box Set,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC834DA254BEEB973F6D52BCB4C2F44313601268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087316   (146756) от 27.12.2016
-
-Neurotech - Symphonies (2016) [MP3|320 Kbps] <Industrial Metal, Symphonic Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146756.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Elysian Symphony
-2. The Halcyon Symphony
-3. The Ophidian Symphony
-4. The Veneration SymphonyЖанр: Industrial Metal, Symphonic Metal, InstrumentalПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B5F2D8C6F200F28EF39D61C4C78FCB364B32BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435214   (146680) от 27.12.2020
-
-Erzengel - 3 Albums (2019-2020) [MP3|320 Kbps] <NDH, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Es Geht Voran [00:04:22]
-02. Herr Der Lügen [00:04:14]
-03. Mensch-Maschine [00:04:04]
-04. Social Media [00:05:20](   Читать дальше...   )Жанр: NDH, Industrial MetalПродолжительность: 3 CD, 02:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CE7CA04D0A66471D79DD14D058FBBF971F9994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678429   (146172) от 21.11.2023
-
-Mizmor - 8 Albums (2012-2023) [MP3|320 Kbps] <Black Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Mizmor
-2016 - Yodh
-2018 - Mishlei(   Читать дальше...   )Жанр: Doom Metal, Black Metal, Drone MetalИздательство: Profound LoreПродолжительность: 8 CD, 07:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD9A4C1954D6698A9AA4DF3C2FBF928BFE79B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969639   (146036) от 28.12.2015
-
-E-Force - 4 Альбома (2003 - 2015) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146036.jpg" />
-</div>
-
-
-###  Подробнее
-
-2003 - Evil Forces
-2008 - Modified Poison
-2014 - The Curse…
-2015 - DemonikholЖанр: Thrash MetalПродолжительность: 03:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F72717BB98FAA6D24784076D5F813015B110B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

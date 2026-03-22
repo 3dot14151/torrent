@@ -1,0 +1,790 @@
+###  Публикация: 533777   (777772) от 03.05.2016
+
+Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Universal Music Company [FLAC|Lossless]<Progressive rock, pop, Celtic fusion, world, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To France (with Maggie Reilly) (4:48)
+ 02. The Lake (13:43)
+ 03. The Killing Fields (2:44)
+ 04. Etude (4:38)(   Читать дальше...   )Жанр: Progressive rock, Pop, Celtic Fusion, World, New AgeПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D10CD9FD8DA70676AF2B9D2917E8FA064EECAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014434   (776376) от 07.05.2016
+
+Mariza - Mundo (2015) [FLAC|Lossless|tracks  + .cue] <Folk, World, Country, Fado>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rio De Mágoa [03:17]
+02. Melhor De Mim [04:08]
+03. Alma [03:12]
+04. Saudade Solta [03:32](   Читать дальше...   )Жанр: Folk, World, Country, FadoПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F256B1DA70FDCB3AF5503A0B8BFB98DE039BE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392124   (769371) от 25.06.2020
+
+Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-psychedelia, World>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Class (04:47)
+02. Time (You And I) (05:42)
+03. Connaissais De Face (04:21)
+04. Father Bird, Mother Bird (03:05)(   Читать дальше...   )Жанр: Reggae, Funk, Neo-psychedelia, WorldПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6F4C3F2B78E37D13A06E5C2F225C3DE080FFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278809   (768467) от 26.01.2019
+
+Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classical, Instrumental, Cello>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Hour Story (12:16)
+02. Imbalance (04:14)
+03. Conditional Futures (04:02)
+04. Floating City (03:38)(   Читать дальше...   )Жанр: Contemporary Classical, Instrumental, CelloПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A49DA98E482CBFD0859F9879444B5A65B75FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125471   (767036) от 16.04.2017
+
+Объединенный хор Свято-Троицкой Сергиевой Лавры и Московской Духовной академии - Русская святая Пасха. The Russian Holy Easter. Избранные праздничные гимны (1995) [FLAC|Lossless|image + .cue] <R ...
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767036.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лаврский пасхальный звон и крестный ход
+2. Пасхальное начало (Московский напев)
+3. Пасхальный канон (Московский напев, катавасия киевского распева в гармонизации иеромонаха Нафанаила)
+4. Кондак Пасхи (Напев Свято-Троицкой Лавры)(   Читать дальше...   )Жанр: Russian choral musicПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C64A9FAB190273D17608D30F5F9B0B2AD60E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 180350   (732824) от 01.08.2020
+
+VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если хотите по-настоящему отвлечься, весело провести время и отдохнуть - эта коллекция специально для вас. Антология самых популярных танцевальных мелодий и самые известные исполнители со всего мира. Незабываемый праздник музыки и ритмов, которые увлекут вас на танцплощадку, где вы проведете, танцуя, 3 незабываемых часа. Ваш конек - вальс? Тогда кружитесь в медленном (   Читать дальше...   )01 - Хорошее настроение. Разаф, Гарленд (03:25)
+02 - Лунная серенада. Миллеруем (02:09)
+03 - Воспоминания, тема из мюзикла «Кошки». Ллойд Уэббер, Швеппе (03:12)
+04 - Прекрасная мечтательница. Фостеруем (03:22)(   Читать дальше...   )Жанр: Instrumental, DanceПродолжительность: 03:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7713A6342244389A439CFB2C1D5FB66F5D9B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217670   (722852) от 03.08.2020
+
+VA - Seven Lounge (2009) 2CD Digipack Edition [APE|Lossless|image + .cue] <Lounge, House>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722852.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1: Seven Lazy Lounge
+01. First Song - Desansis - First Song - Desansis (3:51)
+02. Sunlight - Island Groove - Sunlight - Island Groove (6:24)
+03. Seaside - Enigmatic - Seaside - Enigmatic (5:37)(   Читать дальше...   )Жанр: Lounge, HouseПродолжительность: 02:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01ED1A91AF60617537E14DB897DC8EDBDC27669A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 234819   (720826) от 04.08.2020
+
+Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar Concertos>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granados: Danzas espanolas, op.37 no.5 "Andaluza" (04:00)
+02. Granados: Danzas espanolas, op.37 no.4 "Villanesca" (05:33)
+03. Granados: Danzas espanolas, op.37 no.2 "Oriental" (04:40)
+04. Granados: Goyescas: Intermedio (04:43)(   Читать дальше...   )Жанр: Instrumental, Guitar ConcertosПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0367653D71AA03379BD5AFA7100A7ED42C932C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 229946   (718753) от 05.08.2020
+
+Vittorio Del Monaco - Histoires D'amour (1991) (2CD) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Ballade Des Gens Heureux (03:03)
+ 02. Mediterraneenne 		 (04:20)
+ 03. L'amour En Mer 		 (03:08)
+ 04. Voyage Voyage 		 (04:18)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E335E7072BDF2A8B8C12F863E9D238A353A6443E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219439   (718734) от 05.08.2020
+
+VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, Relax>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megabyte - Valee De Mai    		(08:12)
+02. Dansing Fantasy - Nautilus    	(04:22)
+03. Venja - Eliah`s Ascension    	(04:14)
+04. Software - Island Sunrise    	(02:51)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DDDB1E6BCFBE7FA966AD7EBC364BDA25687423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327808   (718731) от 05.08.2020
+
+Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] <Instrumental, crossover>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter 		 - Vivaldi	(05:25)
+02. Sarabande         	 - Handel	(04:36)
+03. Ave Maria 		 - Caccini	(05:16)
+04. In the Hall of the Mountain King 	 - Grieg 	(02:48)(   Читать дальше...   )Жанр: Instrumental, crossoverПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892940   (717091) от 27.04.2015
+
+V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717091.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - 01:19:56 | CD2 - 01:19:21 | CD3 - 01:19:54Треклист CD1:
+01. Seal - Dont Cry
+02. Chicago - Hard to Say Im Sorry
+03. Percy Sledge - When A Man Lovers A Woman(   Читать дальше...   )Жанр: Pop, Rock |Продолжительность: 03:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9520A6FA9789EBE829EAFCBCD7A5F24EC499CF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285613   (714825) от 01.03.2019
+
+Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, Roots Reggae>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Brown in Town (04:28)
+02. Mr. Brown Dub (04:11)
+03. Trendsetter (04:18)
+04. Trendsetting Dub (04:17)(   Читать дальше...   )Жанр: Dub, Roots ReggaeПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1E758CF8FAE5E5A3A493688965088F17847B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894230   (708949) от 01.05.2015
+
+VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance, Rock, Pop-Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем начатую здесь серию. На очереди - Исполнители одного хита. Да уж бывает так, что всего один хит у исполнителя, но зато какой! И все его помнят. Вот и получается, что все три диска - это 100% хиты.CD1:
+01. Crazy Town - Butterfly  (3:36)
+02. Dante Thomas - Miss California  (4:09)
+03. Toploader - Dancing in the Moonlight  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Pop-RockПродолжительность: 03:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8D26B15CDAB9E81FC2F288BFE248B56241FB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025666   (707843) от 13.06.2016
+
+Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Soundtrack, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [00:04:08]
+02. Code 44 [00:04:32]
+03. The Arrival [00:02:50]
+04. Future Noir [00:03:25](   Читать дальше...   )Жанр: Electronica, Soundtrack, New Age, Synthwave, ElectroПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BEC82D45E9E399BA21BE16792621463BE9C7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401575   (707521) от 11.08.2020
+
+The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breakaway (03:17)
+2. Jeepers Creepers (02:50)
+3. Piccolo Pete (02:58)
+4. The Very Thought of You (03:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03124F4B4561E290135534CBAB846C826C3A7777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 328145   (706993) от 11.08.2020
+
+VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armik - Sailing To Bimini (05:14)
+02. The Ventures - Blue Chateau (02:43)
+03. Hugo Strasser - Raindrops Keep Falling On My Head (02:30)
+04. Boris Zepyr - Fernando (04:25)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 03:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E66ABB2198EC3FA015AD9BA52933E092715E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472893   (696585) от 11.05.2017
+
+Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Trance, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (5:54)
+02. One & One (3:54)
+03. Textures (3:16)
+04. Fable (6:26)(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BAB1CA6859BF6CEFE3CFCB56701A1769471E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134137   (689100) от 15.05.2017
+
+CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jazz, Trip Hop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daybreak
+02. Rockets
+03. Steel
+04. Through(   Читать дальше...   )Жанр: Future Beats, Nu Jazz, Trip Hop, Electronic Rock, Bass, Downtempo, Female VocalПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7386FE3F8F18F6BA2DDB2C30AEC12C077C33E45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508558   (677200) от 11.06.2012
+
+Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Folk, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harvestmesse (05:21)
+02. Trinity (02:53)
+03. March To Loch Barren (02:38)
+04. Pure Space (05:02)
+05. Amongst The Heather (06:06)
+06. Dig (04:24)
+07. Don't Play With Water (03:42)
+08. Dead Flowers (04:50)
+09. Pure Phase (03:50)
+10. Reflections (03:47)(   Читать дальше...   )2005-2010Жанр: Drone Ambient, Psychedelic Folk, ExperimentalПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508605   (677062) от 11.06.2012
+
+Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Grave Is A Grim Horse (04:02)
+02. Clothes Of Sand (02:30)
+03. The Acre (03:28)
+04. Willow Tree (03:42)
+05. Valley Of The Moon (06:27)
+06. The Spider Song (03:25)
+07. Looking For Dry Land (06:42)
+08. Western Son (04:46)
+09. Brigit's Cross (04:12)
+10. Promises (03:06)(   Читать дальше...   )2000-2008Жанр: Acoustic, Neofolk, AmbientПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507629   (676899) от 11.06.2012
+
+Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_676899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malachite (06:34)
+02. Pneumonic (05:34)
+03. Lonesome (08:00)
+04. Oran Mor (05:17)
+05. Safety In Numbers (07:53)
+06. Everything All Of The Time (09:38)
+07. Saint (09:01)1999-2006Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509995   (672202) от 13.06.2012
+
+Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain Leuh (05:08)
+02. Jeroen Van Aken (09:11)
+03. Three (05:26)
+04. Adolescent (05:30)
+05. Abutting, Dismantling (06:26)
+06. Young and Old (06:33)
+07. Du Meine Leise / ALTMIX (03:52)
+08. XXX / GS + Tiempo (04:40)
+09. Lean / GS + B Donne (07:09)2002-2009Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510253   (670651) от 14.06.2012
+
+Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacques Arcadelt - La pastorella mia [03:03]
+02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
+03. Francesco da Milano - Fantasia 16 [01:10]
+04. Marchetto Cara - Mal un muta per effecto [02:24]
+05. Anonimo - Perla mya cara [02:32]
+06. Francesco da Milano - Fantasia 31 [01:17]
+07. Joan Ambrosio Dalza - Piva [02:04]
+08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
+09. Vincenzo Capirola - Balletto [01:59]
+10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510748   (668470) от 15.06.2012
+
+Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_668470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1. Telegraphs in Negative: (00:43:56)
+01. Deja, Comme Des Trous De Vent, Comme Reproduit (06:43)
+02. Small Steps Against Inertia / Echo Of A Dead End (03:01)
+03. Measure De Mesure (04:45)
+04. Holy Throat Hiss Tracts To The Sedative-Hypnotic (03:38)
+05. When Sorrow Shoots Her Darts (03:11)
+06. Kill Fatigue Frequencies (01:28)
+07. In Prelight Isolate (15:11)
+08. Tehran In Seizure / Telegraphs In Negative (05:56)2001-2003Жанр: Post-Rock, Instrumental, Ambient, ExperimentalПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511347   (667225) от 16.06.2012
+
+Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimental, Post-Rock, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Closet (13:07)
+02. Pai Nai (01:44)
+03. Early Reptilian Memories (03:20)
+04. Monobrow (08:32)
+05. Half Life (06:55)
+06. Beluga (02:39)
+07. Harpie (06:24)
+08. Vegas Radiation (04:46)
+09. Skin Job (04:20)2001-2005Жанр: Instrumental, Experimental, Post-Rock, AmbientПродолжительность: (00:51:49)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

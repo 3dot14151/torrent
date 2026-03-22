@@ -1,3 +1,119 @@
+###  Публикация: 1298708   (595976) от 03.05.2019
+
+VA - Classical Voices (2007) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montserrat Caballé - Hijo de la luna (5:22)
+02. José Carreras - Some enchanted evening (3:19)
+03. Charlotte Church - She moved through the fair (3:03)
+04. Ernst Daniël Smid - Like a bird (4:19)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F343BE5DBFDFB05A157E0ABC0058AF5AC291B6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548583   (594857) от 05.05.2022
+
+Jennifer Bate - British Organ Music - Elgar And His Contemporaries (1995) [FLAC|Lossless|tracks] <Classical, Organ>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sir Edward Elgar Organ Sonata No. 1 in G, Op. 28: Allegro maestoso [00:09:01]
+02. Sir Edward Elgar Organ Sonata No. 1 in G, Op. 28: Allegretto [00:05:29]
+03. Sir Edward Elgar Organ Sonata No. 1 in G, Op. 28: Andante espressivo [00:05:41]
+04. Sir Edward Elgar Organ Sonata No. 1 in G, Op. 28: Presto (commodo) [00:07:27](   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4A019E2F422F79C102B34CE8DB6C97F35D495B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039698   (594275) от 02.08.2016
+
+Jose Miguel Moreno - Sylvius Leopold Weiss: Ars Melancholiae (1993) 2008, Glossa Music [MP3|256 Kbps] <Classical, Baroque>
+
+>>Классика
+>>Камерная
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciaconne for lute    05:36
+02. Sonata in D major - I. Prélude    02:19
+03. Sonata in D major - II. Allemande    04:49
+04. Sonata in D major - III. Courante    03:59(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F102B4F5F7BBBEEF865560F8586BF045D099C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300225   (593778) от 05.05.2019
+
+New London Chorale - The Young Puccini (A Tom Parker Project) (1991) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (3:35)
+02. I only want to stay here (3:31)
+03. What would I do (3:06)
+04. Only words (3:55)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93570C806848040ECB97E77F1AEEC0BE94CD7A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039894   (593473) от 03.08.2016
 
 Salvatore Accardo, Orchestra da Camera Italiana - Vivaldi: The Four Seasons / Baroque Music (1995) Compilation, Promo, Reissue [APE|Lossless|image + .cue] <Classical, Baroque>
@@ -632,125 +748,6 @@ Lars Vogt, Orchestre De Chambre De Paris - Mendelssohn: Piano Concertos, Capricc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7D1B286F94B50C38473AAD1CFE0D8458039337D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043114   (574577) от 15.08.2016
-
-Gossec - Aux Armes, Citoyens! (2010) [FLAC|Lossless|tracks + .cue] <Music for Winds>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574577.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 La grande chasse de Chantilly 3:13
-2 Chant funebre sur la mort de Ferraud (arr. M. Lussier) 2:40
-3 Air des marseillais pour le camp de la federation (arr. M. Lussier) 2:55
-(   Читать дальше...   )Жанр: Music for WindsПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF65639EFEF62901FDD76BABCB68126F2326AE16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224416   (570610) от 05.08.2010
-
-Richard Wagner / Friedmann Dressler: The Symphonic Ring (2009) [FLAC 2.0 192/24 |tracks (WEB DL)]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_570610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922041   (569868) от 28.07.2015
-
-Gyrowetz - Symphonies (Matthias Bamert & London Mozart Players Orchestra) (2000) [FLAC|image +.cue]<Classical, Classical Period, Orchestral,Romantic Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony in E flat major, Op.6 No.2
-01. Allegro (06:10)
-02. Andante (04:42)
-03. Minuetto: Allegretto (03:44)(   Читать дальше...   )Жанр: Classical, Classical Period, Orchestral,Romantic Period, SymphonyПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA55CF9A1CC12C3FE39D2EC7740CA6090B3E432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528370   (568498) от 30.07.2012
-
-Kronos Quartet - 25 Years - 10CD BoxSet (1998) [FLAC|Lossless]<Classical, Classical Chamber Music, Modern Classical, Contemporary>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jabiru Dreaming, Quartet No. 11: I. Deciso (Sculthorpe) [05:03]
-02. Jabiru Dreaming, Quartet No. 11: II. Amoroso (Sculthorpe) [07:30]
-03. Quartet No. 8: I. Con dolore (Sculthorpe) [02:03]
-04. "Quartet No. 8: II. Risoluto; calmo (Sculthorpe)" [03:14]
-05. Quartet No. 8: III. Con dolore (Sculthorpe) [03:02]
-06. Quartet No. 8: IV. Con precisione (Sculthorpe) [01:35]
-07. Quartet No. 8: V. Con dolore (Sculthorpe) [01:50]
-08. From Ubirr (Sculthorpe) [11:12]
-09. Tragedy at the Opera (Phan) [06:29]
-10. White Man Sleeps, Quartet No. 1: First Dance (Volans) [04:03](   Читать дальше...   )Жанр: Classical, Classical Chamber Music, Modern Classical, ContemporaryФормат: 10CD BoxSetПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E653E931188EA072348BCEB25902A3740FC417CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1019616   (748198) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 10 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - Diamonds Never Made A Lady ( 1985 )
+02. Grant Miller - Doctor For My Heart ( 1986 )
+03. Les McKeown - It' A Game ( 1989 )
+04. Trans X - Living On Video ( Radio Mix 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5D1E4CA183C4CC1D06CC9F25C601858B72010F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019564   (747865) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 1 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - The Loco-Motion ( 1988 )
+02. Modern Talking - You're My Heart, You're My Soul ( 1984 )
+03. Bad Boys Blue - Pretty Young Girl ( 1985 )
+04. Silent Circle - Sib Dub Dua ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF11C526BBEE87A06A512455B6198E26CB2C260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396498   (746839) от 15.07.2020
+
+VA - Modern Disco Fever (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746839.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sunner Soul - The Mystery Of Loops
+002. Tj Edit - Xfunk (Original Mix)
+003. Cavego - Rask Gange (Extended Mix)
+004. The Familys Ja - Throught The Night(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 11:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4370AB5CF5466AEE59A0B86978338A24E0CB63F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396514   (746754) от 15.07.2020
 
 VA - Новички в попсе Vol 4 (2020) [MP3|320 Kbps] <Pop>
@@ -658,93 +745,6 @@ VA - Танцевальный Рай - The Best 90s (2018) [MP3|320 Kbps] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5753F6424787FA9C694283BF2B516CF57C4FB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217485   (742261) от 05.04.2018
-
-VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742261.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Billy Ocean - When The Going Gets Tough The Tough Get Going (7:33)
-002. Europe - The Final Countdown (5:10)
-003. George Michael - A Different Corner (4:05)
-004. UB40 - Sing Our Own Song (4:02)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DD72BA9E99D4A3F9FCD9F4A263050CE19A3CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397024   (741367) от 19.07.2020
-
-VA - German Top 100 Single Charts 17.07.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Bläulich
-02. Kontra K - Tiefschwarz (feat. Samra)
-03. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat)
-04. KC Rebell, Summer Cem, Loredana - GEH DEIN WEG (feat. Loredana)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568FB144F98B49B3CDB987FB4BA532D2DC5CE155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397308   (741258) от 19.07.2020
-
-VA - Disco Charm: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741258.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hard Ton - On And On
-002. Tj Edit - Nightblues (Original Mix)
-003. Martin Eve - Night Train
-004. Alan Barry - Come On(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 08:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4516E4C438ED6DEBE2E914168BF04767B06F55D
 ```
 
 https://mybot314.ru/tekegram_catalog/

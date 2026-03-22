@@ -1,3 +1,140 @@
+###  Публикация: 950814   (365072) от 28.10.2015
+
+VA - Осенний марафон № 200 / Видеоклипы (Презент Хитовой Двухсоточки) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (27.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
+Представляю юбилейный, двухсотый сборник популярной музыки для хорошего настроения.01. 5 Seconds of Summer - Hey Everybody! (Official Video) (00:04:03)
+02. Alex Sparrow - She's Crazy But She's Mine (ПРЕМЬЕРА!) (00:04:18)
+03. Armin van Buuren ft. Cimo Fränkel - Strong Ones (Official Video) (00:03:29)
+04. BT and Senadee ft. Dragon and Jontron - Lifeline (Official Video) (00:03:58)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494605E8979914BC467E07C9408CC893DC2343E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950661   (365066) от 28.10.2015
+
+Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое видео британской певицы Adele на песню  "Hello"Жанр: поп-джаз/соул, блюз.Продолжительность: 00:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BCBC5EAA027C23913EAC3EE30F6C45A5117598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177465   (360351) от 26.10.2017
+
+The best of Zero project (2017) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда в нашей жизни необходимо упасть, чтобы начать всё заново, с пересмотренной точкой зрения, делая более твёрдые шаги. Это - значение названия "Zero-project". Проект отрывает от ноля и предаёт мечтам... Привет, это - "Zero-project", но мое настоящее имя - “Nikos”. Я родился в Греции в 1972. Музыка - одна из самых важных частей моей жизни. (   Читать дальше...   )01. Andromeda [03:53]
+02. Echoes [04:33)
+03. The Great Spirit [06:26]
+04. Sarabande (George Frideric Handel) [05:26](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2610629EAB9846C4FC3D1A310E4BC339C935E702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415504   (360212) от 19.10.2020
+
+Epica - Abyss of Time - Countdown to Singularity (2020) WEB-DL [VP9/2160p-LQ] <Symphonic Gothic Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Epica - Abyss of Time - Countdown to Singularity (Single)Производство: Nuclear Blast RecordsЖанр: Symphonic Gothic MetalПродолжительность: 00:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7B3A0C5DC73259EEB9B3D8EF0D95BED59B62B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577735   (358725) от 19.11.2012
+
+Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93310584671C0FB9610ED2A135CA0493ABCF5673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577697   (358722) от 19.11.2012
 
 Usher - Numb (2012) [H.264/1080p] HDTVRip
@@ -537,142 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B938B13A4FACA98A15F43F61570A2694822BB88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577867   (357402) от 19.11.2012
-
-Иван Дорн - Идолом (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A925DE36A15880209E09A867F34A41920674C7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577722   (357396) от 19.11.2012
-
-LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B66AC015A41ED6E8B1AC2DE08D164086E985CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577500   (357388) от 19.11.2012
-
-Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A429A398A9220B521F5E7E6D1207F94EA584B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177957   (355490) от 28.10.2017
-
-Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355490.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
-001 Кайрат Баекенов & Формат тобы - Махаббат
-002 Lashyn - Казагымнын арулары-ай
-003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопПродолжительность: 03:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951898   (353150) от 02.11.2015
-
-VA - Осенний марафон № 201 / Видеоклипы (Популярные треки осени) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (30.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01.Bob Moses - Tearing Me Up (Official Video) (00:03:33)
-02. Carina Dahl - Champions (Official Video) (00:03:40)
-03. Damon Paul ft. Joelina Drews - Soulmate (Official Video) (00:03:23)
-04. Geo Da Silva - I Love U, Baby (Official Video) (00:03:29)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, PunkПродолжительность: 01:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC77119A54A8E6488A1184C0274B0921474AB35
 ```
 
 https://mybot314.ru/tekegram_catalog/

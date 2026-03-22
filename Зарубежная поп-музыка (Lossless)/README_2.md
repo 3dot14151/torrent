@@ -1,3 +1,207 @@
+###  Публикация: 1610065   (1042899) от 05.02.2023
+
+Bryan Adams - Cuts Like A Knife - 40th Anniversary, Live From The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only One (Live at The Royal Albert Hall) [00:03:00]
+02. Take Me Back (Live at The Royal Albert Hall) [00:04:20]
+03. This Time (Live at The Royal Albert Hall) [00:03:23]
+04. I'm Ready (Live At The Royal Albert Hall) [00:04:02](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144F9DAB9A630E425CB4C96F34D8A20E82D2A6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437002   (1042555) от 03.01.2021
+
+Karizma Duo - Late Night Karizma (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sail On (4:03)
+02. Dream a Little Dream of Me (3:14)
+03. Feel (3:15)
+04. Mandy (2:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9C20263B498DDA335B04A93872C9D5C8FDFB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437106   (1042535) от 03.01.2021
+
+VA - From Sweden With Love - The Next Generation (2006) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Knife / Silent Shout 04:53
+02. Peter Bjorn and John / Young Folks 04:39
+03. Vapnet / Färjemansleden 03:35
+04. Timo Räisänen / Let's Kill Ourselves a Son 03:15(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62E4DC44BAACFF6CBCE60A359D3901C3841F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610082   (1041889) от 09.02.2023
+
+Janet Jackson - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, Hardcore, Post-Hardcore, Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.D. (Interlude) [00:00:47]
+02. Feedback [00:03:38]
+03. LUV [00:03:09]
+04. Spinnin (Interlude) [00:00:07](   Читать дальше...   )Жанр: Funk, Disco, Hardcore, Post-Hardcore, Pop, R&BПродолжительность: 01:01:38
+https://deezer.com/album/400976817
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3BC4EA7E5BC0D7F07FF8FE6D461C1AB553ED01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611364   (1041419) от 11.02.2023
+
+V.A. - The Best Valentines Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lewis Capaldi - Someone You Loved
+002. Sting - Shape Of My Heart
+003. Sam Smith - Stay With Me
+004. Diana Krall - Let's Fall In Love(   Читать дальше...   )Жанр: Pop, RnB, Rock ...Продолжительность: 06:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BAA0ABDADECFC96C318177ECAC5141BBD3E4D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438466   (1041146) от 08.01.2021
+
+Seemone - Seemone (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brun de Folie (02:52)
+02. La Belle Et la Bête (03:03)
+03. Parle-moi (03:12)
+04. Coeur de Pierre (03:21)(   Читать дальше...   )Жанр: Pop, Vocal, InstrumentalПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA53B042E99BB4DA8038776C5071DBC262D588D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438387   (1041076) от 08.01.2021
+
+Barry Gibb & Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’ve Gotta Get A Message To You (feat. Keith Urban)
+02. Words Of A Fool (feat. Jason Isbell)
+03. Run To Me (feat. Brandi Carlile)
+04. Too Much Heaven (feat. Alison Krauss)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D585CC806C484F475089EB926DB3DAF848558529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438369   (1041069) от 08.01.2021
 
 VA - 80s Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -542,209 +746,6 @@ Rhye - Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, RnB, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1896B0E3A93CB12F8706641456A82A806F1EC30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441334   (1037762) от 21.01.2021
-
-Selena Gomez - Rare (Box Set, Limited Edition, Special Edition ) - [Japan] (2020) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rare (03:4)
-02. Dance Again (02:50)
-03. Look At Her Now (02:42)
-04. Lose You To Love Me (03:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDA8956DECB543A510D5181F6703749F89D85C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442026   (1037242) от 23.01.2021
-
-Henk van Daam - Millionen Kusse (2014) [FLAC|Lossless|image + .cue] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037242.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wann
-2. Millionen Küsse
-3. Ich steh dir zur Seite
-4. Wann bist du bei mir(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E6817D8C673AC1D6C381368E07750AA51BF33F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441751   (1037204) от 23.01.2021
-
-The Fortunes - All The Hits and More (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seasons In The Sun (3:47)
-02. You've Got Your Troubles (3:28)
-03. Here It Comes Again (3:14)
-04. Caroline (2:28)(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5049F4C5394D098BCC0026010DD54CDFE3F0E941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441775   (1037189) от 23.01.2021
-
-The Marmalade - Greatest Hits (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Ob La Di - Ob La Da
-2.	Wait For Me Marianne
-3.	Reflections Of My Life
-4.	Radancer(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5C9A33DE3159D6CC25646914730BF6D7D53BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442177   (1036934) от 24.01.2021
-
-VA - Happy Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Here Comes the Sun (02:58)
-02. Karizma Duo - (Your Love Keeps Lifting Me) Higher and Higher (03:17)
-03. Logan York - Light My Fire (02:39)
-04. The Shaken Bakers - Don’t Stop Movin’ (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C047732C9E8462DC5B0C2C8F6185F0577FFE7D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442483   (1036582) от 25.01.2021
-
-VA - 2000s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (03:02)
-02. Selena Gomez - Lose You To Love Me (03:26)
-03. Calum Scott - Dancing On My Own (04:20)
-04. Justin Bieber - Love Yourself (03:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1430CC5C17601ACFEE6DE11230328791CEF27318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442468   (1036573) от 25.01.2021
-
-VA - 90s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Adams - (Everything I Do) I Do It For You (06:34)
-02. Extreme - More Than Words (05:35)
-03. Shania Twain - You're Still The One (03:32)
-04. Bon Jovi - Bed Of Roses (06:34)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E13C9D5F3FAE16255470C14435961D4758C7023
 ```
 
 https://mybot314.ru/tekegram_catalog/

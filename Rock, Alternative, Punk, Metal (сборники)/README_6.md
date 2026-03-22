@@ -1,3 +1,32 @@
+###  Публикация: 1369206   (903553) от 23.03.2020
+
+VA - Rock Drive 10 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. H.E.A.T - Rise
+02. Intelligent Music Project - A Kind Of Real Life
+03. Tomas Bergsten's Fantasy & Maria Radsten - Hunted
+04. Robert Hart - Scene Of The Crime(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFF5F65D1BA7BD49D3D25125328E2AA3A79F4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990917   (902590) от 01.03.2016
 
 VA - Alternative Winter by Evaluator (2016) [MP3|128 - 320 кб/с] <Alternative, Metal, Rock>
@@ -716,35 +745,6 @@ VA - Alterportal HITS 14 Vol. 65 - January (2014) [MP3|128-320 кб/с]<Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B94F4C4947C7DE745DBDBD83EE3AD3B91ADFE6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371221   (891848) от 30.03.2020
-
-Jimi Hendrix - 100% Jimi Hendrix (2020) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Haze
-02. Little Wing
-03. Bold as Love
-04. Mannish Boy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B8910AF7BC18E39E687852FAAA0B388A336B55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1294373   (629976) от 07.04.2019
+
+VA - Let's Dance - Das Tanzalbum (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629976.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Queen - I Want To Break Free (Foxtrott - Cha Cha)
+02. Rick James - Super Freak (Cha Cha)
+03. Santana Feat. Rob Thomas - Smooth (Radio Edit) (Cha Cha)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD340D008E915E0BE93E1D409DEC05AF91D6ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229209   (629968) от 04.06.2018
+
+The Hornettes - 2 Albums (1982, 1994) [MP3|320 Kbps] <Electronic, Europop, Disco, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629968.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Hornettes - девичья группа из Германии - была основана в 1979 году, тогда с Gitta Walther, Dagmar Hellberg, Lucy Neale и Christina Harrison. "We Are On The Way-O" - редкий альбом, выпущенный на знаменитом "чингизхановском" лейбле Jupiter Records. К нескольким песням приложил руку сам владыка Ralph Siegel. Альбом "Welthits" в основном (   Читать дальше...   )01.  Waikiki Tamoure (4:00)
+02.  Motorbike Ride (2:45)
+03.  We Are On The Way-O (3:39)
+04.  Carry Me Home (3:45)(   Читать дальше...   )Жанр: Electronic, Europop, Disco, SchlagerПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21556033E9FC862E85979A7738503506664D132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294173   (629911) от 07.04.2019
+
+VA - NRJ Urban Hits 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629911.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Aya Nakamura - La dot
+02. Bigflo & Oli - Sur la lune
+03. Angèle - Tout oublier(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDB85D50D1FBC062590E8DC65ACFE6E0116F711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294116   (629887) от 07.04.2019
+
+VA - Magic 90s (2018) 4CD [MP3|320 Kbps] <Pop, Rock, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629887.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01.George Michael - Freedom
+02.Take That - Back For Good
+03.Natalie Imbruglia - Torn(   Читать дальше...   )Жанр: Pop, Rock, HouseПродолжительность: 05:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999AF2F5DF08471375D4B067116D46261D62B36C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228961   (629849) от 04.06.2018
 
 VA - NRJ Summer Hits Only (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
@@ -639,128 +755,6 @@ Paradisio - Greatest Hits (20th Anniversary) (2017) [MP3|320 Kbps] <Eurodance, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38D2D3AFAA8EF5EF16ED7854095E3E95F492BC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911335   (618027) от 22.06.2015
-
-VA - Dance Collection The Remixes 2010s (2015) [MP3|320 кб/с]<Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D' Mixmaster - Bad Romance (Bad Romance) (07:27)
-02. Kate Project - California Gurls (The Factory Team Remix) (05:05)
-03. All Stars Generation - Waka Waka (This Time for Africa) (Lysark & Simone Farina Remix) (05:52)
-04. MC Joe, The Vanillas - Love the Way You Lie (R.P. Remix) (05:19)(   Читать дальше...   )Производство: Dance FlavourЖанр: Euro Dance, Pop DanceПродолжительность: 02:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759EA753F705E5A11F8042439D6C13389FAE2E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523548   (616988) от 16.07.2012
-
-Bananarama - 30 Years of Bananarama (2012) [MP3|242-290 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aie A Mwana
-02 Really Saying Something
-03 Shy Boy
-04 Na Na Hey Hey Kiss Him Goodbye
-05 Cruel Summer
-06 Robert De Niro's Waiting
-07 Venus
-08 I Heard A Rumour
-09 Love In The First Degree
-10 I Can't Help It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 1:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF35AE95401BF2EFCE19FEBD9CDE4192EF66F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295663   (616906) от 14.04.2019
-
-VA - 100 Greatest Number Ones (2019) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616906.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit - Solo (feat. Demi Lovato) (3:42)
-002. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (3:31)
-003. Lukas Graham - 7 Years (3:57)
-004. Charlie Puth - Marvin Gaye (feat. Meghan Trainor) (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D04D46B248934E84592E570E03FCC48A8BD599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146186   (616586) от 28.06.2017
-
-VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlager, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ‘Die immer lacht’ – Die immer lacht 03:30
-02. Andy Luxx – Wir sind die Mallorca Familie 03:36
-03. Mallorca Cowboys – Eskalation 03:53
-04. Till Simon – Wenn sie tanzt 04:49(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 950260   (362490) от 29.10.2015
+
+Amira Willighagen - Amira (2014) [FLAC|Lossless]<Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Mio Babbino Caro
+02. Nella Fantasia
+03. Voi Che Sapete
+04. Pie Jesu(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CB6001426B325426D39D3558F9D643EC1E22C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576373   (362425) от 17.11.2012
+
+Beethoven - Complete Symphonies, Ouvertures (Bohm - Wiener Philharmoniker) (1995) [MP3|320]<Classical, Symphony, Ouverture>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все симфонии Бетховена и его увертюры в исполнении оркестра Венской Филармонии под управлением дирижёра Карла Бёма, изданные на шести дисках.1 1 01-04Жанр: Classical, Symphony, OuvertureПродолжительность: 06:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED212C60A126900661F26F548F41379D3820C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070782   (361533) от 09.11.2016
+
+Arturo Benedetti Michelangeli - Beethoven: Piano Sonata No.32, Op.111  (1965) 1988, Decca [FLAC|Lossless|image + .cue] <Classical, Piano >
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ludwig van Beethoven:
+Piano Sonata No.32 in C minor, Op.111
+01. I. Maestoso.Allegro con brio ed appassionato (9.23)
+02. II. Arietta.Adagio molto, semplice e cantabile (17.14)Жанр: ФортепианоПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94A23C6B4E1BEF86D2CE370898EA355098C56B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566457   (360368) от 30.10.2015
+
+Giuseppe Verdi - Un Ballo in Maschera: Herbert von Karajan, Vienna Philharmonic Orchestra, &c. (1989) 2CD [FLAC|Lossless]<Classical, Romantic Period, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Romantic Period, OperaПродолжительность: 01:03:16 - CD1
+01:12:14 - CD2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCA6250A137A3CA42106CFE0DC95D904AADE486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328397   (359054) от 02.10.2019
 
 Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Christophorus Columbus Paraisos Perdidos - Lost Paradise [2CD] (2006) Alia Vox [MP3|320 Kbps] <Classical>
@@ -660,127 +771,6 @@ Mozart - The Authorised Recordings: Sviatoslav Richter (1994) 2CD [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B59C666DCB67788F2C7D94A9D808E7323BD0B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418939   (343945) от 26.10.2020
-
-Русский народный хор имени М. Е. Пятницкого - Русские народные песни (2006) 2 CD [FLAC|Lossless|tracks + .cue]<Русский народный фольклор>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молодцы-удальцы
-02. На березе ворон кряча
-03. Как уехал муж у поле
-04. Воробушка-воробей(   Читать дальше...   )Жанр: Русский народный фольклорПродолжительность: 02:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C774EAF9AA4E85E7FCF8BDB7CCB2868B75B673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581284   (340333) от 26.11.2012
-
-Brian Crain - Sienna (2003) [MP3|320 кб/с]<Neoclassical, New age, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340333.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:09) 01. Song For Sienna
-(3:09) 02. Lavender Hills
-(4:58) 03. Crimson Sky
-(3:06) 04. The Secret Letter
-(4:22) 05. Eclipse Of The Moon
-(3:10) 06. Midnight Blue
-(3:44) 07. The Garden Gate
-(3:29) 08. At First Light
-(3:25) 09. Season Of Joy
-(4:01) 10. Tears In The Fountain(   Читать дальше...   )Жанр: Neoclassical, New age, PianoПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399019B70257A3C2F7FC8DE1B732A258748DE064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073735   (340226) от 18.11.2016
-
-Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und Orchester Nr. 5 Es-Dur, op. 73 (1982) [FLAC|Lossless|image + .cue] <Фортепиано>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340226.jpg" />
-</div>
-
-
-###  Подробнее
-
-I. Allegro (21:37)
- II. Adagio un poco mosso - attaca (8:36)
- III. Rondo. Allegro (12:11)Жанр: ФортепианоПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BFDB029A50405447D847DE943CF5663AFC6562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954714   (339850) от 08.11.2015
-
-Cherubini - Requiem (Christoph Spering & New Berlin Chamber Orchestra) (1994) [FLAC|image +.cue]<Classical, Classical Period, Requiem>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymne et march funbre, for chorus & orchestra (04:47)
-Requiem No.1 ( la mmoire de Louis XVI), for chorus & orchestra in C minor
-02. Introitus (06:09)
-03. Graduale (01:18)(   Читать дальше...   )Жанр: Classical, Classical Period, RequiemПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F2B7600F7997732A35B7A963B912ED181C7D43
 ```
 
 https://mybot314.ru/tekegram_catalog/

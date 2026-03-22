@@ -1,3 +1,119 @@
+###  Публикация: 1657231   (193155) от 02.09.2023
+
+Mind Swell - Mind Swell (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Beatdown, Deathcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painted Worlds
+02. Memories
+03. Hands of Fire
+04. Sever the Hand(   Читать дальше...   )Жанр: Beatdown, Deathcore, HardcoreПродолжительность: 00:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0769CD553093C8328E25384739C51E4737815879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657197   (193117) от 02.09.2023
+
+Sprain - The Lamb as Effigy (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Post-Hardcore, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man Proposes, God Disposes [00:07:09]
+02. Reiterations [00:06:42]
+03. Privilege of Being [00:05:28]
+04. Margin For Error [00:24:36](   Читать дальше...   )Жанр: Noise Rock, Post-Hardcore, Experimental RockПродолжительность: 01:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8948E64657E03B6B49459B60177DF795780A019F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587225   (193019) от 30.10.2022
+
+Dr. Acula - Dr. Acula (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epilogue [00:01:00]
+02. Apotheosis [00:01:47]
+03. The Abominable Snowman of Pasadena [00:02:36]
+04. How to Kill a Monster [00:02:40](   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12891E0077C0B6F965C223537A32E0538B9C2DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587236   (192965) от 30.10.2022
+
+The Damned - A Night of a Thousand Vampires (Live in London) (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beauty of the Beast (Live in London) [00:03:45]
+02. Wait for the Blackout (Live in London) [00:04:06]
+03. Plan 9 Channel 7 (Live in London) [00:04:49]
+04. Standing on the Edge of Tomorrow (Live in London) [00:04:15](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 01:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC210CAD1A260E68705CEC9BC1620D6C168DD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587197   (192947) от 30.10.2022
 
 Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:599C8919F82E102989EFFBC6C6A05197413CE4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383532   (188382) от 15.11.2022
-
-The Pretty Reckless - Collection 7 Releases (2010-2022) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188382.jpg" />
-</div>
-
-
-###  Подробнее
-
-2010 - The Pretty Reckless EP (Interscope Records B001447232, CA)
-2011 - Light Me Up (Interscope Records - UICS-1227, JP)
-2012 - Hit Me Like a Man EP (Interscope Records B001678002, CA)
-2014 - Going to Hell (Deluxe Edition) (Victor - VIZP-130, JP)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-Grunge |Продолжительность: 04:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4FAB952C5768B808B6E0C131355F522BA0E610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591219   (187451) от 17.11.2022
-
-Nickelback - Get Rollin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Quentin (3:31)
- 02. Skinny Little Missy (3:38)
- 03. Those Days (3:39)
- 04. High Time (3:55)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-GrungeПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC90183E3A525AA4F7C961904F4D9909B181DD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591573   (187198) от 18.11.2022
-
-Saint Asonia - Extrovert (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge, Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devastate (3:32)
-02. Break the Mold (2:59)
-03. Over It (3:06)
-04. Wolf (3:18)(   Читать дальше...   )Жанр: Alt.Metal, Post-Grunge, Modern Hard RockПродолжительность: 00:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9929B384C25BB814C878EB2A82EA0074166B5413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662948   (187171) от 20.09.2023
-
-Filter - The Algorithm (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Metal, Industrial Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Drowning
-02. Up Against the Wall
-03. For the Beaten
-04. Obliteration(   Читать дальше...   )Жанр: Alt. Rock, Alt. Metal, Industrial RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C9D29E3A43A54527F0C37556551AAAD5A95280
 ```
 
 https://mybot314.ru/tekegram_catalog/

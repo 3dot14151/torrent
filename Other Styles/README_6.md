@@ -1,3 +1,32 @@
+###  Публикация: 1470592   (1015479) от 18.05.2021
+
+VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Ambiance - Deep Thinking (3:28)
+02. Serenity Calls - Morning of Clouds (3:15)
+03. Serenity Calls - Arabic Nights (3:17)
+04. AlFa RaYn - Deep Concern (1:49)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC050CAB0E9FDF44D01F55705DA54ED92A654351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470761   (1015292) от 19.05.2021
 
 Shamanic Channel - Collection (2021) 4альбома [MP3|320 Kbps] <Native American, New age, Meditative>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D10EA6348041E2E0E49B65D343EB4EA4843ED81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464013   (1006398) от 17.07.2021
-
-Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture of Massy (5:20)
-02. Your Tranquillity Matilda (4:51)
-03. Simmering Souls (6:01)
-04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar |Продолжительность: 04:48:21 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B58A024D6B9B6B8FF89C86AB3AED31A07E1F320
 ```
 
 https://mybot314.ru/tekegram_catalog/

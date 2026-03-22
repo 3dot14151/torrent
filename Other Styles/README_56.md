@@ -1,3 +1,90 @@
+###  Публикация: 1217433   (743359) от 04.04.2018
+
+Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ease (5:20)
+02. Atme (8:32)
+03. Thank You (6:19)
+04. Sigh (4:50)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019549   (742434) от 28.05.2016
+
+Erik Wøllo - Visions - Visions (2016) [MP3|320 кб/с] <Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echotides No. 4 7:22
+02. Revealed In Time 7:00
+03. Gateway 5:27
+04. Visions 6:06(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31F26829CB240041039A97F709ECC2F0436AEF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217500   (742139) от 05.04.2018
+
+VA - Яркость / Bright: The Album (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Logic - Broken People (3:32)
+02.Bastille - World Gone Mad (3:17)
+03.Machine Gun Kelly - Home (3:23)
+04.Camila Cabello - Crown (3:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C561AC05EF4E6D5A6F205778C79D04B0BD914544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217483   (742137) от 05.04.2018
 
 Sam Green - Just Stand Still (2017) [MP3|320 Kbps] <Acoustic Folk, Acoustic Rock>
@@ -650,93 +737,6 @@ Carl Davis & Royal Liverpool Philharmonic Orchestra - ABBA for Orchestra (2014) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6593371BD3133074682D8ACC5FDB011B110C2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837756   (736334) от 29.01.2022
-
-Fausto Papetti - Magic Sax (2012) 2CD [MP3|320 кб/с]<Instrumental, Saxophone, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736334.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. London Fever (4:10)
-2. Medley - Samba Pa Ti (3:59)
-3. Brivido Felino (3:56)(   Читать дальше...   )Жанр: Instrumental, Saxophone, Easy ListeningПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527858   (735838) от 30.01.2022
-
-Anais Mitchell (Anaïs Mitchell) - Anais Mitchell (Anaïs Mitchell) (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooklyn Bridge (4:19)
- 02. Bright Star (3:11)
- 03. Revenant (3:30)
- 04. On Your Way (Felix Song) (2:54)(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9835910F7B21D765902FD1AF28F2DB8BAAB751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398776   (735125) от 27.07.2020
-
-Нейромонах Феофан - Акустика (2020) [MP3|320 Kbps] <Folk, Acoustic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735125.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Под Драм Легко (Акустическая Версия)
-2. Пойдём Со Мной (Акустическая Версия)
-3. Сияние (Акустическая Версия)
-4. Камыш (Акустическая Версия)(   Читать дальше...   )Жанр: Folk, AcousticПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F281B0BA47E620E6A39AD43EBD9E5684567F3743
 ```
 
 https://mybot314.ru/tekegram_catalog/

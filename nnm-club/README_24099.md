@@ -1,22 +1,25 @@
-###  Публикация: 475388   (98197) от 31.03.2012
+###  Публикация: 1764124   (102773) от 05.12.2024
 
-Юджин Пеппероу | Бумеранг [1991] [MP3]
+Fans Of The Dark - Video (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98197.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юджин Пеппероу (1991Жанр: Детектив
+01. Meet Me On The Corner (3:51)
+02. Let's Go Rent A Video (4:31)
+03. The Neon Phantom (3:51)
+04. Christine (5:52)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02DC5172C92E38A41A262F6F56C7784874F9A578
+magnet:?xt=urn:btih:21C8257F2CB83B4D40A781A28A9DC3EE889587A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475402   (98196) от 31.03.2012
+###  Публикация: 1764098   (102772) от 05.12.2024
 
-Юджин Пеппероу | Портрет работы Дега [1991] [MP3]
+Radioactive - Reset (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98196.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юджин Пеппероу (1991Жанр: Детектив
+01. Sentimental (4:33)
+02. Shame On You, Shame On Me (5:02)
+03. Gaia (5:03)
+04. When The Lights Go Down (4:08)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29D3C7FE161BE6D3FD4D0BE9ECF4087BF1FAC185
+magnet:?xt=urn:btih:BAAC8749F6EAB7716B2E8640E0A68593CD7E2878
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476072   (98194) от 31.03.2012
+###  Публикация: 1763992   (102771) от 05.12.2024
 
-Журнал | Сам [Россия] №4 (апрель 2012) [PDF]
+На необитаемом острове / Auf einsamer Insel (1913) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98194.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Сам» - журнал домашних мастеров: описания, схемы и чертежи самодельных станков и приспособлений, оригинальной мебели, теплиц и других конструкций. Советы по ремонту автомобиля и квартиры, предметов интерьера и бытовых приборов. Много полезного найдут для себя рыболовы и туристы, домашние хозяйки и радиолюбители. Много новых практических идей.Формат: PDF
+Драма в рыбацком поселке. Ну, все эти известные дела - красотка любит хорошего, но бедного. Ее любит богатый, но нехороший. Этот нехороший задумывает против хорошего недоброе... Все знакомо.Производство: Германия / Eiko FilmЖанр: короткометражный, драма, немое киноРежиссер: Йозеф ДельмонтАктеры: Фред Зауэр, Миа Кордес, Йозеф ДельмонтПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEF6CB20466F72AA1AC9F2E6433BFBBB28F03837
+magnet:?xt=urn:btih:1ED7D6FC82A4F6FEA7883CE8C3454CCCF91AA504
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476404   (98190) от 31.03.2012
+###  Публикация: 1764120   (102770) от 05.12.2024
 
-Журнал | Domus Design №4 [апрель 2012] [PDF]
+VA - Gaming Music 2024: EDM For Players (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98190.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Domus Design – это высококлассный глянцевый журнал, посвященный дизайну интерьеров как олицетворению стиля жизни. Издание анализирует современные мировые тенденции в дизайне интерьеров и мебели, декоре и арт-культуре, представляет лучшие работы современных украинских и иностранных дизайнеров и помогает читателям воплощать собственные идеи в интерьере дома, о котором они мечтали.апрель 2012Формат: PDF
+01. MaxRiven - Loveparade (02:24)
+02. Lorenz Koin - Adrenaline (02:05)
+03. JLUIS & Teknova - Fast Love (02:26)
+04. Gash & Cee-Mon - Feels Like Home (02:00)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8F9E8F46E38DD19F3AF312A523CE1AAB7073A8E
+magnet:?xt=urn:btih:48C5D865190480C534E30F6649D6A4DA02E34E2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475938   (98187) от 31.03.2012
+###  Публикация: 1763955   (102769) от 05.12.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (31.03.12)
+Maleficium Arungquilta - Касание сквозь стекло (2011) [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal, Symphonic Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98187.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+1. Ангелы Не Дышат
+2. Мразь
+3. Я Стала Морем
+4. Шелковый Рассвет(   Читать дальше...   )Жанр: Dark Metal, Gothic Metal, Symphonic MetalПродолжительность: 00:57:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E471EEE9D4D51823A87EC466D93314A83B04C04
+magnet:?xt=urn:btih:ABEE15684E37F3813DEDB651D02FEF24BAB9CB78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,69 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474111   (98185) от 31.03.2012
+###  Публикация: 1763872   (102768) от 05.12.2024
 
-VA - Trance Cookbook Vol.22 (2012) [MP3|320 кб/с]<Uplifting Trance,Vocal Trance,Trance>
+Maleficium Arungquilta - Транс для сестры (2013) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98185.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abstract Vision & Elite Electronic - Always Exotic (Original)
-002. DNS Project feat. Madelin Zero - Another Day (KhoMha Remix)
-003. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix)
-004. JES & Andy Duguid - Before You Go (Taxigirl Edit)
-005. Andrew Bennett - Break Away (Original Mix)
-006. Armin van Buuren feat. Fiora - Breathe In Deep (The Blizzard Remix)
-007. Ben Coda & Innate - Brighton Rocks (Original)
-008. Karanda feat. Radmila - Coming Closer (Karanda Club Mix)
-009. Raneem - Equinox (Evgeny Bardyuzha Second Remix)
-010. Lemon & Einar K feat. Paul Johannessen - Everlasting (Original Mix)2012Жанр: Uplifting Trance,Vocal Trance,TranceПродолжительность: 02:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B63BA446E4340975BAF356466DB68A0285ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473019   (98184) от 31.03.2012
-
-Before Their Eyes - Redemption (2012) [MP3|320 кб/с]<Post-Hardcore>
-
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98184.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102768.jpg" />
 </div>
 
 
 ###  Подробнее
 
 1. Intro
-2. Lies
-3. Dream (feat. Breathe Carolina)
-4. Find
-5. Everything
-6. Redemption
-7. Revenge
-8. Revival
-9. Surrender
-10. Backstabber(   Читать дальше...   )2012Жанр: Post-HardcoreПродолжительность: 00:34:36
+2. Лицемер
+3. Нибиру
+4. Снег(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4306838ABECF0985F62477629CD28220D9E13BEB
+magnet:?xt=urn:btih:6AD91B7FCF9B05B8788495D10CE3037F8010CCFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,25 +169,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475397   (98183) от 31.03.2012
+###  Публикация: 1764083   (102767) от 05.12.2024
 
-Юджин Пеппероу | Пока жива любовь [1991] [MP3]
+Smooth Jazz All Stars - Smooth Jazz Renditions of Lady Gaga (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloody Mary (Instrumental) (3:31)
+02. Hold My Hand (Instrumental) (3:33)
+03. Always Remember Us This Way (Instrumental) (3:29)
+04. Shallow (Instrumental) (4:16)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CC14D1F5DBBFF04662491492B757A227EBEDE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764059   (102766) от 05.12.2024
+
+Greg Koch - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Lose What You Never Had (feat. Jimmy Hall + Memphis Horns) (4:32)
+02. Can't Be Satisfied (feat Larry McCray) (3:54)
+03. The Stumble (3:53)
+04. Stormy Monday (9:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C2AF6379CAFF0F6910653ED50546DFBBC1A3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764187   (102765) от 05.12.2024
+
+The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toxic Envy (4:02)
+02. Unwanted (3:22)
+03. Tind (3:50)
+04. World Between Us (4:11)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4116AC9E1120B632BFDB24CB7DA62E4B85F614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764056   (102764) от 05.12.2024
+
+Август Стриндберг | Пляска смерти (2005) [MP3, Михаил Янушкевич, Александра Николаева, Владимир Яворский]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98183.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юджин Пеппероу (1991Жанр: Детектив
+"Ад - это другие," - изрек когда-то Жан-Поль Сартр. "Ад - это мы сами", - следовало бы провозгласить после знакомства с пьесой Стриндберга "Пляска смерти", созданной им в 1901 году. Механизм рождения ненависти, его безжалостная цикличность, способность безвозвратно втягивать человека-жертву в свой круговорот исследуются драматургом на (   Читать дальше...   )Жанр: Аудиоспектакль, драмаИздательство: Нигде не купишьПродолжительность: 01:35:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:832BA098D56B57380D811CA12CF56CC1BE5BDB1E
+magnet:?xt=urn:btih:E56C8AF4A8CC38127534D8DB85EF125F46BB3F85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,29 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475965   (98182) от 31.03.2012
+###  Публикация: 1764103   (102763) от 05.12.2024
 
-[Wallpapers] Nature HD Wallpapers Pack 8
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98182.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature HD Wallpapers Pack 8 
-Название:  Nature HD Wallpapers Pack 8 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2974х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Pierpaolo Cricenti & Kekko DMC - Love Don't Let Me Go (Aux In Re-Edit Mix) (07:39)
+02. KARMIN SHIFF, JULIANA PASINI & Kryz Santana - Ole Ola (I'm From Brazil) (New York Brazil Mix) (03:09)
+03. B.A. Lance - Summer (A Tribute To Calvin Harris) (Radio Mix) (03:38)
+04. Mikee Introna - Get It All (03:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:59:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BA43E34BF5FA4D76805F2A00435041EBAA7758F
+magnet:?xt=urn:btih:E11E30A29AC34C36B222BA0A8669C35B2210B73D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,34 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475693   (98180) от 31.03.2012
+###  Публикация: 1764123   (102762) от 05.12.2024
 
-Eivissa Salinas - Dear Father (2012) [MP3|320 кб/с]<Chillout, Lounge>
+Mel Torme & The Marty Paich Dek-Tette - In Concert Tokyo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98180.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emotions Time (Radio Edit) (3:50)
-02. Between Two Rocks (6:55)
-03. Life is Dancing (3:41)
-04. Raining Day (3:49)
-05. Spring Miles Flower (5:16)
-06. All These Years (5:03)
-07. Past to Present (6:24)
-08. Midnight Jazzy Moon (3:36)
-09. Emotions Time (Cartage Mix) (3:38)
-10. Dear Father (3:56)(   Читать дальше...   )2012Жанр: Chillout, LoungeПродолжительность: 00:52:20
+01. It Don't Mean a Thing (If It Ain't Got That Swing) (Instrumental) [3:30]
+02. Sweet Georgia Brown [3:56]
+03. Just in Time [3:12]
+04. When the Sun Comes Out [4:11](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5EE4D1E74E942EFCCBEAE4D3C381BF45B09B4D9
+magnet:?xt=urn:btih:7E76C4A15E3EE16FE8D82239B6F5616F3E11389A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,34 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476146   (98178) от 31.03.2012
+###  Публикация: 1764035   (102761) от 05.12.2024
 
-VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Dance, Club, Dubstep>
+Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Black Metal, Melodic Black Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98178.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above & Beyond - Sun & Moon ( A-Peace Remix ) (6:07)
-02. Adele - Set Fire To The Rain (House Hunters Remix) (5:59)
-03. Afrojack & Shermanology - Can't Stop Me (MADEin82 Remix) (6:33)
-04. Avicii - Levels (Massive DJ's Bootleg Remix 2012) (6:03)
-05. Azealia Banks feat. Lazy Jay - 212 (Tommie Sunshine & Disco Fries Edit) (5:52)
-06. Beat Service - Fortuna (5:24)
-07. Carl Kennedy feat. Cheyenne - Once Upon A Time (Original Mix) (7:30)
-08. Childish Gambino - Heartbeat (Proper Villains Remix) (4:15)
-09. Cliffhanger - Dont Look Behind You (Original Mix) (3:23)
- 10. Clockwork & Loreen - The Nox Euphoria (Mart's Mashup)2012Жанр: Electro-House, Trance, Dance, Club, DubstepПродолжительность: 04:45:26
+01 - Nocturne [1:54]
+02 - Sciomancy and Sortilege [7:31]
+03 - Through Mirrors Beyond [6:25]
+04 - Of Hexcraft and Laws Three-fold [6:57](   Читать дальше...   )Жанр: Symphonic Black Metal, Melodic Black MetalПродолжительность: 00:45:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54B760A4EFB5AB00D8BD24FFE829A2560B83FF0F
+magnet:?xt=urn:btih:3CD87B08C88DCB07BB8DFD9BFA4FC0CA1E7E61C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,25 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475401   (98177) от 31.03.2012
+###  Публикация: 1764068   (102760) от 05.12.2024
 
-Юджин Пеппероу | Попытка к бегству [1991] [MP3]
+Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98177.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юджин Пеппероу (1991Жанр: Детектив
+01. Do You Remember How to Dance? (3:31)
+02. Something to Sell (3:31)
+03. HollyHood Tay - Focusing on Me (2:32)
+04. Gotta Slow It Down (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:297F68FADD9A7937D9A901D562781E1279D8DCFF
+magnet:?xt=urn:btih:44A770F92C69FAE46257A38C3F685960F95E3CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,34 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475662   (98175) от 31.03.2012
+###  Публикация: 1764064   (102759) от 05.12.2024
 
-Ektomorf - The Acoustic (2012) [FLAC|Lossless]<Acoustic/Groove Metal>
+Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98175.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Know Them (4:39)
-02. I'm In Hate (3:46)
-03. Be Free (3:26)
-04. Redemption (3:37)
-05. Simple Man (5:01)
-06. To Smoulder (3:17)
-07. Folsom Prison Blues (3:10)
-08. Again (4:07)
-09. Through Your Eyes (3:22)
-10. Fate (2:07)(   Читать дальше...   )Жанр: Acoustic/Groove MetalПродолжительность: 00:47:15
+01. Old Enough to Know (3:57)
+02. Taboo Love (4:45)
+03. You Hurt Me (3:35)
+04. Crazy over You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:12BF8EC7981603EDB786F053E7D7EF704E36E6BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -385,25 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475393   (98172) от 31.03.2012
+###  Публикация: 1764066   (102758) от 05.12.2024
 
-Юджин Пеппероу | Открыватель талантов [1991] [MP3]
+Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98172.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юджин Пеппероу (1991Жанр: Детектив
+01. No Fun (2:59)
+02. Six Strings Down (3:14)
+03. I'm a Man (3:17)
+04. Hey, Hey (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AFFD12B9D60CC570A519C225DAD0A492F034493
+magnet:?xt=urn:btih:0AD0A66A48EC7B806B2D4D3AC543BB0DC7BCF3D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -411,34 +456,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476467   (98171) от 31.03.2012
+###  Публикация: 1764054   (102757) от 05.12.2024
 
-VA - MAXI. Super Dance на Maximum FM (2012) [MP3|192 кб/с]<Pop,Dance>
+Chocolate George - House of Make Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98171.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. ThomTree - When The Sun Comes Out (Justin Corza meets Greg Blast Edit) (3:32)
-2. Temple One Feat. Neev Kennedy - Love The Fear (Eximinds Remix) (7:53)
-3. Stefy De Cicco ft. Dhany - Deep Down Inside Of You (Elegance Ext. Mix) (6:26)
-4. Rob Mayth - Another N8(Exclusive Edit) (3:33)
-5. Rihanna - S&M (DJ Kez & Nexboy Remix) (5:31)
-6. Rene De La Mone & Slin Project - 2012 (Get Your Hands Up)(Topmodelz Edit) (3:22)
-7. Power Play - Wole Ole ( Oj Tam Oj Tam 2 ) (5:06)
-8. Pitbull feat. Flo Rida - Move Shake (4:38)
-9. Young London - Let Me Go (DJ Solovey Remix) (5:02)
-10. Tradelove - Pum Back (Original Mix) (5:46)2012Жанр: Pop,DanceПродолжительность: 08:19:44
+01. Ain't No Sign (3:22)
+02. Detroit Crank (3:14)
+03. Bloomer Pudding (3:20)
+04. House of Make Believe (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35C00ACD33D3358AA6A410EEAF07F6363646BB8D
+magnet:?xt=urn:btih:5CF32B08FADBB669939382A6E9FE3D3D50788152
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,34 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475757   (98170) от 31.03.2012
+###  Публикация: 1764062   (102756) от 05.12.2024
 
-VA - Горячая 200ка@Ru (2012) [MP3|128 kbps]<Pop>
+Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98170.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Каста - Такое Чувство
-002. San J & В. Дайнеко - Перезвони
-003. Непара - В Облаках
-004. Батишта - Перелестни Страницу (Только Так)
-005. Джиган feat. Ж. Фриске - Ты Рядом
-006. Ika - Дорогой Мой (DJ Vengerov Remix)
-007. DJ Smash - Можно Без Слов (DJ Smash vs Yoko Remix)
-008. А. Седокова - Love U (Graver&kerim Muravey Remix)
-009. Пачуля (Pachulya) - Ты Же Все Знаешь
-010. Ради Славы - Стану Снегом(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:36:52
+01. Incantation (4:38)
+02. The Preacher (5:44)
+03. I Found Your Letter (6:43)
+04. Time Is Tight (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2A75048C4A4ED6E4A366E75D02B2100CB507765
+magnet:?xt=urn:btih:7ADF260A7BD9DC270F3B4396F517D3DFBA04ECEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,29 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476159   (98169) от 31.03.2012
+###  Публикация: 1764072   (102755) от 05.12.2024
 
-[Wallpapers] Best Wallpapers Pack 13
+Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98169.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 13
-Название: Best Wallpapers Pack 13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Soul in the City (4:01)
+02. Moonlight in My Eyes (2:58)
+03. Twilight Groove (2:02)
+04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:176EB163DBDA308733BBC759C1E788715A0A9FBB
+magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,34 +543,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474758   (98168) от 31.03.2012
+###  Публикация: 1764063   (102754) от 05.12.2024
 
-VA - House Vip (24.03.12) [MP3|320 кб/с]<Electro House>
+Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98168.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 2 Edit - Mee Lortimer (Stix Remix) (5:00)
- 2. Adele - Rolling In The Deep (JAY FOKIN Remix) (4:48)
- 3. Bodybangers feat. Gerald G - Set The Night On Fire (Rene Rodrigezz Remix) (5:21)
- 4. Christopher S feat. Jamayl Da Tyger - Jump! (Mike Candys Remix) (4:36)
- 5. DAB, Sissa, Chris Cobra - I Wonder (Chris Cobra Remix) (4:26)
- 6. Dada Life – Kick Out The Epic Motherf..ker (Extended Vocal Mix) (5:50)
- 7. Fast Foot feat. Dubble JD - Fuck (Original Mix) (5:02)
- 8. Laidback Luke, Arno Cost & Norman Doray - Trilogy (Sam O Neall & C6 Remix) (6:16)
- 9. Spencer & Hill - Miami Girlz (Club Mix) (5:48)
- 10. Sygma, Alessio Silvestro, Big One - Another Brick in the Wall (Alessio Silvestro Alternative Remix) (5:09)24.03.12Жанр: Electro HouseПродолжительность: 00:52:20
+01. Blues All over You (2:45)
+02. Dance the Blues Away (2:31)
+03. I Am the Blues (3:38)
+04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E505B4578C129DF158FAAB0D021163BA02D22FC
+magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,34 +572,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474277   (98167) от 31.03.2012
+###  Публикация: 1764162   (102753) от 05.12.2024
 
-DJ Kocmoc - Dutch compilation vol.1 (14.03.2012) [MP3|320 кб/с]<Dutch House, House>
+Athena XIX - Everflow Pt 1: Frames of Humanity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98167.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Big Ali ft Lucenzo & Gramps Morgan - Coconut Rum (Willi William Official Remix)
- 2. Blah One - Cassandra (JayyFresh Remix)
- 3. Eva - Body On Mine (Mixin' Marc & Tony Svejda Peak Hour Dub)
-4. Dohr & Mangold - B.i.C. (Born In Chicago) (Original Mix)
- 5. Neon Hitch - F U Betta (Chuckie Club Remix)
-6. Sean Finn - Show Me Love 2K12 (Rene Rodrigezz Remix)
- 7. Reepr - Higher feat. Ennovi (Original Mix)
-8. John Dahlback - Soldier (Original Mix)
-9. Lenny Kravitz - Are You Gonna Go My Way (Christian Sims Remix)
- 10. Frank Degrees, Markus H, Kool Koor - Me In Ibiza (Explicit Extended Mix)(   Читать дальше...   )14.03.2012Жанр: Dutch House, HouseПродолжительность: 01:11:10
+01. Frames of Humanity (04:06)
+ 02. Legacy of the World (03:55)
+ 03. The Day We Obscured the Sun (04:20)
+ 04. The Seed (04:41)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:54:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FF8447AFFA99A83CE8E6497B9BF0E0905DAC3B5
+magnet:?xt=urn:btih:2DDF309E5FC518597403BA22195DCCEA8424B2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,34 +601,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474762   (98166) от 31.03.2012
+###  Публикация: 1764052   (102752) от 05.12.2024
 
-VA - House Vip (26.03.12) [MP3|320 кб/с]<Electro House>
+Anna Black - Jammin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98166.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Bit Twisted - C'Mon (Original Mix) (5:57)
- 2. Christopher S feat. Gianina - Hypnotic Tango (Christopher S & Mike Candys 2012 Rework) (4:20)
- 3. Edyta Nawrocka - Escape This World (David No Fuck & Vnalogic Remix) (5:07)
- 4. Gotye - Somebody That I Used To Know (Sundave & Victor Teeg Remix) (6:18)
- 5. Ian Davecore & Overdrive - Together (Novik Electro Remix) (3:50)
- 6. Jessie J - Domino (The Scene Kings Remix) (5:03)
- 7. Jim Marlaud feat. Ambra – The Night (Extended Mix) (4:49)
- 8. John Dahlback - Bingo (DJ MELNIKOFF Remix) (3:12)
- 9. Matt Pryde Feat. Candy - Zombie (Matt Pryde & Sublevel Remix) (5:17)
- 10. The Digital Monkey - Radeon (Danny Blaze Remix) (6:16)26.03.12Жанр: Electro HouseПродолжительность: 00:50:14
+01. Fire It Up (4:02)
+02. Blues Man (6:55)
+03. Drinkin' Daddy (6:17)
+04. Bird (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9228D14942BB7986B027AD62334D90601A050654
+magnet:?xt=urn:btih:8161CEE4BAA906432056DE4AE7010808A3701B86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,29 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475968   (98164) от 31.03.2012
+###  Публикация: 1764073   (102751) от 05.12.2024
 
-[Wallpapers] Nature HD Wallpapers Pack 9
+The Brisbane Project - Ode To The Alley (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98164.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature HD Wallpapers Pack 9 
-Название:  Nature HD Wallpapers Pack 9 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 3600х2000
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Lude Mood (2:34)
+02. Blow A Fuse (4:28)
+03. S.O.S. (3:39)
+04. Ode To The Alley (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7B762C0A218D298FFF428BFD31B1F0862F2A2B7
+magnet:?xt=urn:btih:B7934BAD4E612EF48F1B3DFA9E5B3402D7762592
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,29 +659,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475885   (98162) от 31.03.2012
+###  Публикация: 1764075   (102750) от 05.12.2024
 
-[Wallpapers] Best Wallpapers Pack 11
+The Reliables - The Reliables (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98162.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Best Wallpapers Pack 11
-Название: Best Wallpapers Pack 11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280x1024 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Same Old Thing (3:51)
+02. Checking in at Midnight (3:25)
+03. Joy and Pain (3:26)
+04. My Pride, Your Shame (4:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54F127EFCA45BE75629D7F811E21030C239605C
+magnet:?xt=urn:btih:42DCD47FC63C7137F092E5138097FDFC49C0044C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,29 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475970   (98161) от 31.03.2012
+###  Публикация: 1764065   (102749) от 05.12.2024
 
-[Wallpapers] Nature HD Wallpapers Pack 10
+Nick Evans Mowery - From the Top Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98161.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature HD Wallpapers Pack 10 
-Название:  Nature HD Wallpapers Pack 10 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 3861х2574
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Give Peace a Try (2:51)
+02. Headed for the Break (3:22)
+03. From the Top Down (3:45)
+04. The Night I Met John Prine (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0343078155069B8BD16A86E5A985FDE281CE715
+magnet:?xt=urn:btih:C6EB0A5C4B6F63BCE33AA3E32088F964605F2E75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,104 +717,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474760   (98160) от 31.03.2012
+###  Публикация: 1764081   (102748) от 05.12.2024
 
-VA - House Vip (25.03.12) [MP3|320 кб/с]<Electro House>
+Smooth Jazz All Stars - Smooth Jazz Renditions of Dua Lipa (Instrumental) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98160.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Antoine Clamaran, Vladimir K - Bub (Original Re Edit By Antoine Clamaran) (6:48)
- 2. Bootyman Feat. Danny Gee - For A Life With You (MD Electro Remix) (6:11)
- 3. Demon Groove feat. Sonny Black - Crazy Glue (Original Mix) (5:50)
- 4. Porn Stars & Jay Jacob - Time To Party (FTampa Remix) (5:37)
- 5. PTN, Deface - Droid (PTN Remix) (5:05)
- 6. Sebastian Ivarsson - Mo Drinks (Rolvario Remix) (5:10)
- 7. Slin Project & Christopher S Ft. Tommy Clint - Tear Down The Club (Original Mix) (5:18)
- 8. Sven Laakenstyk - Akomashi (Original Mix) (5:36)
- 9. Tocadisco feat. Julian Smith - That Miami Track (Original Mix) (6:22)
- 10. York, Lifted Emotion - iPhonic (Chris Schweizer Remix) (7:26)25.03.12Жанр: Electro HouseПродолжительность: 00:59:28
+01. Training Season (Instrumental) (3:08)
+02. Houdini (Instrumental) (2:26)
+03. One Kiss (Instrumental) (3:29)
+04. New Rules (Instrumental) (3:15)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60AEAB2A494ECB1541157A9849FAB8BD81DFB5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476058   (98158) от 31.03.2012
-
-VA - Клубные Новинки Vol.57 from AGR (2012)
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Format B - Atomizer (Sebastien Leger Remix)
-02. Vitodito - Fede (Michael Elliot Remix)
-03. John O'Callaghan & Neptune Project - Rhea (Suncatcher Extended Remix)
-04. Alex D'Elia, Nihil Young - Rave-O-Lution (Dualitik Remix)
-05. Umek & Beltek - Touch After (Original Club Mix)
-06. Giuseppe Francaviglia - Crown (Original Mix)
-07. Omnia feat. Melissa Loretta - Halo (Original Mix)
-08. Angger Dimas feat. Polina - Release Me (Vandalism Remix)
-09. Fedde Le Grand, Deniz Koyu & Johan Wedel - Turn It (Original Mix)
-10. Hampenberg feat. Pitbull, Fatman Scoop & Nabiha - Raise The Roof (Hawkins & Ravemod Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC44194D5A2B02B96630BC1317B96833A1A4CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474484   (98157) от 31.03.2012
-
-VA - Klubnye novinki Vol.54 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parker & Hanson - Afterthought
-02. JPS - Hear Me Out (Steve Brian Remix)
-03. Oscar Akagy - El Ritmo 1983 (Mijail Candyloop Remix)
-04. Fergus Keogh feat. Tiff Lacey - Darkest Hours (Erick Strong Remix)
-05. Q.u.a.k.e. - Move & Groove (Original Mix)
-06. Smoothiesforme - Forbidden (Stereopole Remix)
-07. Da Fresh & Max Freegrant - Barberry (Andrea Bertolini Remix)
-08. Leven Mervox - Shrinked Strings (Original Mix)
-09. Neomotion - Moonlight (Original Mix)
-10. Second Way - Tokyo Samurai (Airsoul Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA8EA1DBDDF00176EFD004C2C6ABB2B46670D21
+magnet:?xt=urn:btih:976109725706834F3253E198A3BD86EFCE7E3CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

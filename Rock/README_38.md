@@ -1,3 +1,154 @@
+###  Публикация: 1035113   (630587) от 15.07.2016
+
+Tomorrow - Tomorrow (1968) Reissue, 1991, See For Miles Records Ltd. [MP3|320 Kbps] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My White Bicycle
+2. Colonel Brown
+3. Claremont Lake
+4. Real Life Permanent Dream(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59857F78EC504584E2FC192E1CA5C68816E3096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035119   (630584) от 15.07.2016
+
+Fever Tree - Fever Tree / Another Time Another Place (1968) 2006 Reissue Collectors' Choice Music [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630584.jpg" />
+</div>
+
+
+###  Подробнее
+
+FEVER TREE
+01. Imitation Situation (Toccata And Fugue) / Where Do You Go?
+02. San Francisco Girls (Return Of The Native)
+03. Ninety-Nine And One Half(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80341E1385D3C5B9ABDBB8F95510DDAE35ADFE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294348   (629990) от 07.04.2019
+
+Thump'n Pig & Puff'n Billy - Downunda (1973) CD, Remastered, 2005, Aztec Music [MP3|320 Kbps] <Classic Rock, Blues Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Straightman
+02. I've Cried over You
+03. You Look After Me, I Look After You
+04. Moving with Rock(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Rock'n'RollПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4800413C9477A4E20B539DD0B2F599D399314768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521024   (628804) от 10.07.2012
+
+Asia - The Platinum Collection 1982-2010 (5 CD Box Set) (2011) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628804.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Showdown
+02. Countdown To Zero
+03. End Of The World
+04. The Longest Night
+05. Wishing
+06. Through My Veins
+07. You're The Stranger
+08. Wherever You Are
+09. Rock And Roll Dream(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03FD20ABECD8C924691CE23CCEE9BAB548C8638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035125   (628672) от 16.07.2016
+
+Mutzie - Light of Your Shadow (1970) Reissue Synton Archive Productions[MP3|320 Kbps] <Heavy Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Highway
+2. The Light Of Your Shadow
+3. Cocaine Blues
+4. Jessie Fly(   Читать дальше...   )Жанр: Heavy Psychedelic RockПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838894275CA74B0C0DDC43DBA5EE127EBC7AAD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909581   (628577) от 17.06.2015
 
 Kegan DeBoheme - Songs of Woe (2015) [MP3|320 кб/с]<Classic Rock 70's>
@@ -597,157 +748,6 @@ Mom's Apple Pie - Mom's Apple Pie (1972) Reissue, 2015, Hifly Sound Anstalt [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B13FDB124E0746016491EE510F727D29FF63681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145463   (621644) от 25.06.2017
-
-Donna Dunne & The Mystery Men - Voodoo (2017) [MP3|320 Kbps] <Rockabilly, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo (02:58)
-02. Shame (02:15)
-03. Moonbird (02:44)
-04. Restless Nights (03:58)(   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BAE0BAC2F4663CCA5AA7512DE8D297D297FD55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910303   (621553) от 20.06.2015
-
-Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [MP3|320 кб/с]<Pop rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babe It's Up To You
-02. It's Your Life
-03. Oh Carol
-04. Baby It's You(   Читать дальше...   )Жанр: Pop rockПродолжительность: 02:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3272A17666DE7A3E82FAC8188176A423976D0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036500   (621162) от 20.07.2016
-
-Fields - Fields (1969) [MP3|320 Kbps] <Heavy Psych>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621162.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elysian Fields
-2. Bide My Time
-3. Take You Home
-4. Jump On You(   Читать дальше...   )Жанр: Heavy PsychПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9E92E23F51703AD74CEF17BEA2DE6556167628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036244   (621096) от 20.07.2016
-
-Mitch Ryder And The Detroit Wheels - Breakout !!! (1966) 1993, Sundazed Music [MP3|320 Kbps] <Rock, Rockabilly, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking The Dog
-02. I Had It made
-03. In The Midnight Hour
-04. Ooh Poo Pah Doo(   Читать дальше...   )Жанр: Rock, Rockabilly, Rock & RollПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB34E3E7C2E7FE703A158553B8B9A80CF67700B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522826   (620389) от 14.07.2012
-
-VA - Rock Ballads - The Most Beautiful Classic Rock Songs (2004) [MP3|320 кб/с]<Alternative Rock, Pop Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jeff Healey Band - While My Guitar Gently Weeps
-02. David Bowie - Starman
-03. Chad Kroeger Feat. Josey Scott - Hero
-04. Santana - Samba Pa Ti
-05. Bryan Ferry and Roxy Music - Jealous Guy
-06. Phil Collins - Another Day in Paradise
-07. The Corrs - Only When I Sleep
-08. Roxette - It Must Have Been Love
-09. Marillion - Kayleigh
-10. Toto - Africa(   Читать дальше...   )Жанр: Rock Ballads |Продолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C363365BDFA8CC6FE96A6B570EA3B44F26B9F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

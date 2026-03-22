@@ -1,3 +1,322 @@
+###  Публикация: 1632297   (254485) от 09.05.2023
+
+Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1/24|image+.cue|SACD] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop This World 4:11
+02. The Girl In The Other Room 4:05
+03. Temptation 4:29
+04. Almost Blue 4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C5CFE74BAD67E1F1D25454ED4E6D18678BD044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836720   (254164) от 12.11.2025
+
+VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254164.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Arlo Guthrie - City Of New Orleans
+A2 Harry Nilsson - Everybody's Talkin'
+A3 Kris Kristofferson - Me And Bobby McGee
+A4 James Taylor - Handy Man(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC6CD7DD9158C2E550B2A81C63FB6B333FA315B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836664   (254151) от 12.11.2025
+
+Rod McKuen - Love's Been Good To Me (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254151.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Love's Been Good To Me
+A2 I Don't Know Who I Belong To
+A3 Good For Nothin' Bill
+A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836661   (254150) от 12.11.2025
+
+Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Swing, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254150.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dixie Charleston
+A2 Te Digo No
+A3 El Camino Verde Del Lugar Donde Naci
+A4 Mis Amigos(   Читать дальше...   )Жанр: Pop, Swing, Rock & RollПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73606FF671830C07BC5A6B57306F7C8B9ABF4D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836658   (254149) от 12.11.2025
+
+Roberto Delgado & His Orchestra - South America In Super Stereo (1970) Series: Polydor Special [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254149.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 El Condor Pasa (If I Could)
+A2 Tu Amor Mi Amor
+A3 Tabasco
+A4 Estrellita(   Читать дальше...   )Жанр: Latin, Easy ListeningПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E2F01FEA7592510FCB98C7593434B11E4FBFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836548   (253082) от 11.11.2025
+
+Herb Alpert - Rise (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul-Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253082.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 1980
+A2 Rise
+A3 Behind The Rain
+A4 Rotation(   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD66781E3BEE23B8B9DA6483DCCB81CA76EF10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608534   (253061) от 11.11.2025
+
+The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pretty Reckless — американская рок-группа из Нью-Йорка, образованная в 2009 году.
+В состав группы входят Тейлор Момсен (вокал, ритм-гитара), Бен Филлипс (соло-гитара, бэк-вокал), Марк Дэймон (бас) и Джейми Перкинс. (ударные).2011 - Light Me Up
+2014 - Going To Hell
+2016 - Who You Selling For
+2021 - Death by Rock and RollЖанр: Hard Rock, Post-GrungeПродолжительность: 04:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD27DE2B99D15C9F60FE92D4D39361A38FE8183C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836401   (252509) от 10.11.2025
+
+Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Godark - метал-группа из Португалии, основана в 2010 году.2015 - Reborn from Chaos (EP)
+2020 - Forward We March
+2025 - OmniscienceЖанр: Melodic Death MetalПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494949   (251202) от 11.05.2012
+
+Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Hung, Drawn And Quartered[04:35]
+ 02. - Stalingrad[05:59]
+ 03. - Hellfire[06:08]
+ 04. - Flash To Bang Time[04:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834720   (250468) от 04.11.2025
+
+Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250468.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Boyd Brothers–	Keep It Coming	(7:19)
+A2	Charlene Davis–	Aggression	(4:29)
+A3	Nancy Dean–	Too Many Promises	(5:56)
+A4	Hippies With Haircuts–	Eye On You	(4:45)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617214   (250260) от 07.03.2023
+
+Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Insomnium — финская англоязычная группа из города Йоэнсуу, играющая музыку в стиле мелодик-дэт-метал. Основными темами песен являются скорбь, мистицизм, природа. Их стиль содержит в себе некоторые элементы doom metal. В творчестве группы также присутствуют элементы нордического фолка и симфонической музыки.2002 - In the Halls of Awaiting
+2004 - Since the Day it All Came Down
+2006 - Above the Weeping World
+2009 - Across The DarkЖанр: Melodic Death MetalПродолжительность: 09:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617966   (250117) от 09.03.2023
 
 Имант Ванзович, Мирдза Зивере и Группа «Опус'' - Високосный Год. Песни Зигмара Лиепиньша (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
@@ -422,325 +741,6 @@ A2 Марыля Родович - Баллада О Поезде
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624768   (244997) от 07.04.2023
-
-Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244997.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Human Beings 4:35
-A2 State Of Grace 4:59
-A3 Latest Craze 4:27
-A4 Just Like You Said 4:14(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621BB3724FC425A93AFF2836B39F31F87ADDA40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624816   (244978) от 07.04.2023
-
-LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244978.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 There's A Beat Going On
-A2 Beat Patrol
-A3 Failing In Love Again
-A4 9AM (The Comfort Zone)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06507D2E611CFFDD83FB9666FF9139CA25810404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631497   (244756) от 06.05.2023
-
-ВИА Экспресс - Экспресс 2 (Венгрия) (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244756.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Всегда мало времени
-A2 Наш вечер
-A3 Мы были друзьями
-A4 Ты ушла из моей жизни(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451637   (244688) от 05.03.2021
-
-ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244688.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vikend Zacina (Weekend Is Beginning)
-A2 Rozcarovani (Disillusionment)
-A3 Riky Sejk (Rilay Sheila)
-A4 Colorado(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E63FA16F823187A7A3E7DACF7095CE054BA6042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622959   (244082) от 30.03.2023
-
-Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamtale — финская группа, играющая пауэр-метал, образованная в 1999 году.2002 - Beyond Reality
-2003 - Ocean's Heart
-2005 - Difference
-2008 - PhoenixЖанр: Melodic Power MetalПродолжительность: 08:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8870D5E32E79A2FB57376BF8A99690B6CB86DB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626064   (244039) от 13.04.2023
-
-Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Beginning
-02 Deep Water
-03 Crazy
-04 Killer(   Читать дальше...   )Жанр: Downtempo, SoulПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C231EDD558512BE59B71FFF597E39A607F7C2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626149   (244034) от 13.04.2023
-
-Robbie Williams - The Heavy Entertainment Show 2LPs (2016)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244034.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Heavy Entertainment Show
-A2 Party Like A Russian
-A3 Mixed Signals
-A4 Love Of My Life(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E487750EE461A5148EE9249CD0161C6EF2210F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626259   (244011) от 13.04.2023
-
-Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tell Me Why [5:36]
-2. Pleasure Victim [3:51]
-3. Sex (I'm A...) [5:08]
-4. Masquerade [4:09](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C635D82B613769A21F231D3548F9A3639A4984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536471   (244006) от 12.03.2022
-
-David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244006.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lamplight
-A2 Turn Me Loose
-A3 On And On
-A4 Streetfight(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDB6FEEFB2105AEBD52597198BD5C62A11236A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271662   (243948) от 03.08.2022
-
-The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tchaickovsky, Strauss, Verdi, Delibes, Rubenstein) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. Adolphe Adam - ''Giselle''
-02. Franz Schubert - ''Rosamunde''
-(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626412   (243825) от 14.04.2023
-
-Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243825.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 New Beginning
-A2 You And Your Heart So Blue
-A3 Soul Motion
-A4 Magical(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E89FC969B8A8DF38CA19B97AD69536A4939BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1011798   (795636) от 29.04.2016
+
+Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Present
+02. Space Between Us
+03. Relax (feat. From P60 & Virag)
+04. Thinkin About(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6104A61135EA7E0B0CF91E46168FA4F0D664F172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200734   (795599) от 21.01.2018
+
+VA - DJ Зорькин - Приключения Электроника (1998) Gagarin Music [FLAC|Lossless|image+.cue] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Artist - Intro: Otmychka (01:16)
+ 02. Dr. Rockit - Worm In My Food (02:54)
+ 03. R.A.C. - Continua (02:32)
+ 04. Bomb the Bass - Absorber (Jedi Knights remix) (03:02)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD90E93E32BFFC804DA9BA6DC8F86AAFEAD834CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011935   (795502) от 29.04.2016
 
 VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks + .cue] <House>
@@ -681,63 +739,6 @@ Dark Strands - Unknown Truths (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFB05825B0909C87E09240FEDE9FCE1A0347A925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201498   (792233) от 25.01.2018
-
-DJ Koze - Seeing Aliens (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeing Aliens (04:52)
-02. Seeing Aliens (extended Breakthrough Listen) (08:17)
-03. Nein König Nein (07:18)Жанр: House, DeepПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FFE07039F1D54321802BCA2B62E42C9F2C972C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387270   (791852) от 01.06.2020
-
-St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Köpenickerstr (05:28)
- 02. Oberbaumbrücke (06:56)
- 03. Cass Ave (05:23)
- 04. Skalitzerstr (06:37)(   Читать дальше...   )Жанр: Dub Techno, Techno, LeftfieldПродолжительность: 00:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F475CA595DFE1F0772BA876AB31428ACE333FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

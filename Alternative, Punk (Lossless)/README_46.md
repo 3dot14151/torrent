@@ -1,3 +1,119 @@
+###  Публикация: 1259988   (316786) от 05.11.2018
+
+Primus - Frizzle Fry (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Defy The Laws Of Tradition (6:42)
+ 02. Ground Hog's Day (4:58)
+ 03. Too Many Puppies (3:58)
+ 04. Mr. Knowitall (3:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7275F89C0B819A409BFFA37BC4AE1B753FECA810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259976   (314695) от 06.11.2018
+
+Primus - Brown Album (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Return of Sathington Willoughby (5:05)
+ 02. Fisticuffs (4:25)
+ 03. Golden Boy (3:06)
+ 04. Over the Falls (2:42)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C99878CEF299D21BD41392D907C5802875401D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259975   (314673) от 06.11.2018
+
+Primus - The Desaturating Seven (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Valley (4:43)
+ 02. The Seven (3:08)
+ 03. The Trek (7:50)
+ 04. The Scheme (2:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D960C6294DFF59A34A6588A0B868F21018E622AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583110   (314669) от 13.10.2022
+
+Dagger Threat - Weltschmerz (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue [00:02:36]
+02. Jaded [00:02:53]
+03. Scum Will Rise [00:01:55]
+04. Wither [00:03:47](   Читать дальше...   )Жанр: Nu-Metal, Metalcore, HardcoreПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4889ABF1D19687E76C91E99549B3172F3CE048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583033   (314556) от 13.10.2022
 
 Once Was Never - The Great Dying (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
@@ -629,122 +745,6 @@ Nothing But Thieves - What Did You Think When You Made Me This Way? (2018) EP [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D2D5E7CA9D85580C898579680D24CA4CA23F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261855   (298600) от 13.11.2018
-
-Welshly Arms - No Place Is Home (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Blues Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Way Up
-02. Indestructible
-03. Sanctuary
-04. How High(   Читать дальше...   )Жанр: Alternative Rock, Blues Rock, Indie RockПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE72CDA01949BEBC70664C7EA646F7EE3BE0E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420683   (297984) от 09.12.2011
-
-Gogol Bordello - Моя Цыганиада (2011) [FLAC|image + .cue]<Gypsy Punk / Folk Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Трансмиграция (Мы с тобой заодно) (4:09)
-02. Моя Цыганиада (Трансконтинентальный Hustle) (3:51)
-03. Бесконечное Буги (С участием Марианны Эберт) (4:50)
-04. Песенка об Одессе (2:31)(   Читать дальше...   )Жанр: Gypsy Punk / Folk PunkПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262345   (295009) от 15.11.2018
-
-The Smashing Pumpkins - Shiny and Oh So Bright Vol. 1 / LP: No Past. No Future. No Sun. (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knights of Malta (4:37)
-02. Silvery Sometimes (Ghosts) (3:32)
-03. Travels (5:22)
-04. Solara (4:20)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F676A75F067C498DC024000F41EB79A235ACDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268657   (293680) от 11.12.2010
-
-Billy Idol - Rebel Yell (1983) remaster, 2010, Audio Fidelity [FLAC|Lossless|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebell Yell (4:48)
-02. Daytime Drama (4:05)
-03. Eyes Without A Face (4:59)
-04. Blue Highway (5:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

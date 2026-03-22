@@ -1,3 +1,32 @@
+###  Публикация: 1139662   (659194) от 03.06.2017
+
+David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassical, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Repercussions
+02. Magdalena
+03. Valhalla
+04. Delia(   Читать дальше...   )Жанр: Classical, Neoclassical, New AgeПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA13E5DF9B0AC2AE8217469433FD3E361B01735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515110   (656816) от 25.06.2012
 
 Шедевры Этнической Музыки - Африканские барабаны (2007) [MP3|224 кб/с]<Ethnic Africa>
@@ -735,41 +764,6 @@ Karushanti - Celtic New Age  (2017) [MP3|320 Kbps] <New Age, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:755932F28AE7ECD769D06CD824DFC7434279839E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520904   (629093) от 10.07.2012
-
-Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival
-02. Night Sky Song
-03. Village Child
-04. Traveler's Story
-05. Edge of the World
-06. Faces in the Smoke
-07. Dance for the Gods
-08. Longing Heart
-09. Message from the Past
-10. Secret Love(   Читать дальше...   )Жанр: New age,EnigmaticПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502ECBD17C8B788117FD76EC92573866D3CC7FDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

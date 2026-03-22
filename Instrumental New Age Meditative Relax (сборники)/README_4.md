@@ -467,6 +467,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 15325   (761666) от 06.07.2020
+
+Трибьют Энио Морриконе "We all Love Ennio Morricone" 2007
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_761666.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Knew I Loved You - Celine Dion
+2. The Good, The Bad and The Ugly - Quincy Jones featuring Herbie Hancock
+3. Once Upon a Time in the West - Bruce Springsteen
+4. Conradiana - Andrea Bocelli(   Читать дальше...   )Жанр: OfherПродолжительность: 02:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54112AF39B28E3A5676B6261462B8EA5AD015D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017465   (761216) от 17.05.2016
 
 VA - Acoustic Roots: Latin America (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -583,6 +612,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215488   (757788) от 26.03.2018
+
+VA - Guitar World: Instrumental Collection (2018) [MP3|320 Kbps] <Instrumental, Guitar>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757788.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boyce Avenue - Game of Thrones
+002. Carlos Estevez - Brisa Mananera
+003. Dieter Geike - Indigo
+004. Chuck Ragan - In The Eddy(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 06:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC6FD8BDE860EE24204F5F5EE53D2A995D775F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215697   (756214) от 27.03.2018
 
 VA - Blessing New Age Music (2018) [MP3|256-320 Kbps] <New Age, Relax, Meditative>
@@ -692,64 +750,6 @@ VA - Acoustic Cafe: Relaxing and Easy Listening (2016) [MP3|320 кб/с] <Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F9C336CD846FCA9202674A81917169E04FD70FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018675   (753943) от 21.05.2016
-
-VA - Sleep Deep Piano Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Amadeus Mozart - Sonata no8 rondo allegro D major
-02. Johann Sebastian Bach - Goldberg Variations BWV988 Aria
-03. Richard Strauss - The Blue Danube
-04. Wolfgang Amadeus Mozart - Sonata No. 11 A major (Alla Turca) , KV 331(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDB23DB4D314EB651AE623F656216D435FCCB8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523471   (751429) от 11.01.2022
-
-Dj kolhoz - Compilation (2021) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последние поцелуи
-02. Вечер в Париже
-03. Вспомни...!!!
-04. Ласковый май(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1134F9E50019D4257B6BCE2053C51A1BAB2EFCB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

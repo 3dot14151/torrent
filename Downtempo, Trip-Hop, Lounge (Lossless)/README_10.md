@@ -1,3 +1,61 @@
+###  Публикация: 1280677   (760629) от 03.02.2019
+
+CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solemn (2:03)
+02. Sundown (4:08)
+03. Sway (5:18)
+04. Styx (4:04)(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675E27D93EE99449597FB3CE0C9965AC0F89333B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215501   (758094) от 26.03.2018
+
+Michael E - Cotton Blossom (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cotton Blossom (Original Mix)  5:35
+02.  Tropic Of Capricorn (Original Mix)  8:01
+03.  Recuring Dream (Original Mix)  6:00
+04.  It's True (Original Mix)  6:05(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818BC4A186CE1CEA69464EF662AFCC53EDDC857D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522803   (756641) от 08.01.2022
 
 VA - Invisible Smile: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -688,64 +746,6 @@ Geotronika - Hypnosis Of Happiness (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC4A6BD46E619E33CEE5BDDE13A9DE59787A84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529709   (732559) от 07.02.2022
-
-Geotronika - In The Moonlight (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillwave>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайны жизни (7:59)
-02. Небесный работник (5:55)
-03. В лунном свете (3:56)
-04. Двигаясь по звёздам (5:31)(   Читать дальше...   )Жанр: Ambient, ChillwaveПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DD9581086A7B225375D44E41E4D461ACB24F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283759   (732046) от 18.02.2019
-
-Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizarre Love Triangle (02:48)
-02. Sorry for Laughing (03:11)
-03. Wishing (If I Had a Photograph of You) (02:43)
-04. Shack Up (03:46)(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FEA2185E20F115412DCD179FCEB63199F63E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

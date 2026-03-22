@@ -1,3 +1,116 @@
+###  Публикация: 937723   (479691) от 19.09.2015
+
+Beethoven - Symphonies and Overtures (Jos Van Immerseel & Anima Eterna Orchestra)(6CDs) (2008) [FLAC|image +.cue]<Classical, Orchestral, Romantic Period, Symphony, Overture>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphonie 9 Op.125 d min
+01. Allegro ma non troppo, un poco maestoso (15:21)
+02. Molto vivace (13:32)
+03. Adagio molto e cantabile (12:32)(   Читать дальше...   )Жанр: Classical, Orchestral, Romantic Period, Symphony, OvertureПродолжительность: 06:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9A0DAAFC79A02C2AD240582E0858544EA4D5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545491   (477934) от 13.09.2012
+
+VA - Мировая Классика в современной обработке Vol.3 (2012) [MP3|320 кб/с]<Classic, Blues>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic, Blues ||Формат: MP3 ||Продолжительность: 04:25:30 ||
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE49DB440A9AF51CD8192B7537A90F78981442F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160061   (477841) от 23.08.2017
+
+VA - The Musicals Album (2017) [MP3|320 Kbps] <Classical, Soundtrack>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Michael Ball & Alfie Boe - Somewhere (West Side Story)
+2. Michael Crawford - The Music Of The Night (The Phantom of the Opera)
+3. Julie Andrews, London Musicians Orchestra, Ian Fraser - The Sound of Music (The Sound Of Music)
+4. Anne Hathaway - I Dreamed A Dream (Les Misérables)(   Читать дальше...   )Жанр: Classical, SoundtrackПродолжительность: 03:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA365EDA26B1DE018DD4C3A4806A1B3F4A625D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320022   (475074) от 16.08.2019
+
+Biber - Missa Bruxellensis (Jordi Savall) (1999) [FLAC|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Missa Bruxellensis XXIII vocum
+1 Kyrie 5:00
+2 Gloria 17:01
+3 Credo 15:38(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6B49CA62D2679F754381D2A4FA6432760A7D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 239009   (474869) от 24.09.2010
 
 Jordi Savall + Montserrat Figueras + Arianna Savall - 6 альбомов (2000-2010) [APE|Lossless|image + .cue] <Classic, Sacred>
@@ -638,122 +751,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:590D2A47DDDF8C25365FF1A3246A284FA0610D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321259   (456703) от 25.08.2019
-
-Ludovico Einaudi - Seven Days Walking (Day 6) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low Mist Var. 1 (Day 6) (3:09)
- 02. Low Mist (Day 6) (3:20)
- 03. Gravity (Day 6) (5:55)
- 04. Matches (Day 6) (3:12)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD30E6AAF26BDE209F77DA2078AD45FF1C003CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162598   (456502) от 02.09.2017
-
-Luciano Pavarotti - The People's Tenor (2017) [MP3|320 Kbps] <Classical, Opera>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456502.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Puccini: Turandot / Act 3 - "Nessun dorma!" (Remastered 2014)
-2. Puccini: Manon Lescaut / Act 1 - "Donna non vidi mai"
-3. Verdi: Rigoletto / Act 3 - "La donna è mobile" (Remastered 2014)
-4. Donizetti: La fille du régiment / Act 1 - "Ah! mes amis, quel jour de fête!"(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A97101849E35894DC62BC13399B7001E66E940C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942335   (455863) от 30.09.2015
-
-Respighi - Ancient Airs and Dances (Rico Saccani & National Symphony Orchestra of Ireland) (1996) [FLAC|image +.cue]<Classical, 20th Century Period, Modern, Suite, Dance - Classical, Air>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancient Airs and Dances, Set 1, arrangements (4) for orchestra, P. 109
-01. Balleto detto `Il Conte Orlando' (02:60)
-02. Gagliarda (Allegro marcato) (03:35)
-03. Villanella (Andante cantabile) (05:55)(   Читать дальше...   )Жанр: Classical, 20th Century Period, Modern, Suite, Dance - Classical, AirПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003C7FE2FBD33061DB5516C41E9868625DD58599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941861   (455742) от 30.09.2015
-
-Tchaikovsky - Serenade for Strings, Souvenir de Florence (Philippe Entremont & Vienna Chamber Orchestra) (1992) [FLAC|image +.cue]<Classical, Romantic Period, Chamber Music, Orchestral, Sere ...
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serenade For Strings In C Major, Op. 48
-01. Pezzo in forma di Sonatina (09:32)
-02. Walzer (03:53)
-03. Elegie (09:10)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Orchestral, SerenadeПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DDD45A83B586E6FEA4CF261C8B85B898502C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

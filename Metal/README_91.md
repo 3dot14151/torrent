@@ -1,3 +1,119 @@
+###  Публикация: 1643730   (234227) от 04.07.2023
+
+Iratus Vir - Under a Midnight Sun (2023) [MP3|320 Kbps] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thy Strength Applied
+02. Adam's Penitence
+03. Treacherous Eve
+04. Under A Midnight Sun(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DA622F76634214E108D5B2FFC95C19E306B218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643794   (234209) от 04.07.2023
+
+Jag Panzer - The Hallowed (2023) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bound As One (03:44)
+02. Prey! (03:27)
+03. Ties That Bind (04:10)
+04. Stronger Than You Know (05:05)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA28DDB3CA10DB8CA058C4A9690D2D6471626865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644082   (234202) от 04.07.2023
+
+Levith - Around the Impulse (2023) [MP3|320 Kbps] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Me(n)tal Trap
+02 - Uncycled
+03 - New Skin
+04 - Hypnotics(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1ACE94F5D874D73CA639CF57AA4D47159528EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643402   (234182) от 04.07.2023
+
+Dead Shape Figure - The Sworn Book (2023) [MP3|320 Kbps] <Melodic Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dark Encounter
+02 - A Labyrinth Chain
+03 - Antigone
+04 - Honour's Godlike Zest(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B996588E8CF6C57A12C31428AF4A5980E91F91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547332   (234117) от 02.05.2022
 
 Slomatics & Domkraft - Ascend/Descend (2022) Split [MP3|320 Kbps] <Psychedelic Sludge Metal>
@@ -629,122 +745,6 @@ Legal Hate - Moral Destruction (2022) [MP3|320 Kbps] <Thrash, Death Metal, Femal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91651CA423062B9C95DF94143CBA589206E5DA3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580261   (233089) от 30.09.2022
-
-Leather Lung - 4 Albums (2014-2022) [MP3|320 Kbps] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:45]
-02. Pissing Gasoline [00:03:04]
-03. Gas Station Metal (Interlude) [00:01:20]
-04. Road Soda [00:03:41](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 4 CD, 01:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2A7173384F4B430D3B832BBAE737AE747EA96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580089   (233054) от 30.09.2022
-
-Hammerstar - Hammerstar (2022) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart of Stone  05:15
-02. Power of Metal  04:14
-03. Midnight Ride  04:31
-04. Burned Alive  03:34(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9565D89D8816943AB114C33040EA88520FD228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635549   (232978) от 27.05.2023
-
-Trespass - Wolf At The Door (2023) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackthorn [00:04:30]
-02. Daggers Drawn [00:04:03]
-03. Force of Nature [00:05:34]
-04. Other Worlds [00:05:25](   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C632CC661FAA925243687F609A8D815E529CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645730   (232947) от 11.07.2023
-
-Stray Gods - Olympus (2023) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of Nowhere (04:16)
-02. Ghost from the Future (04:07)
-03. The Other Side of the Mirror (06:42)
-04. The Sign (06:22)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4219B11511DA8A7AE16D360D50B9E568681A8C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

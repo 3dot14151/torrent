@@ -1,3 +1,177 @@
+###  Публикация: 1223705   (671648) от 06.05.2018
+
+Chris Standring - Sunlight (2018) Time Blues [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Static in the Attic [04:50]
+02. Aphrodisiac [07:43]
+03. Love Street [03:43]
+04. The Revisit (featuring Bob James) [06:53](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D57C2AC4125FB2E16E90FF3271D27CE90BDAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899810   (671404) от 20.05.2015
+
+Tape Five - Circus Maximus (2015) [FLAC|Lossless]<Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction: Le Grand Salon
+02. Mad Dogs On The Scene
+03. Sax Me Up
+04. Gipsy VIP (Album Edit)(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8C8E2D6B38BC00D53DB7817DFC30E5B38ED2A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136852   (671205) от 24.05.2017
+
+Ed Thigpen - It's Entertainment (1998) 2000, Stunt Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Bird [09:28]
+02. Softly as in a Moring Sunrise [07:59]
+03. Meaning [05:17]
+04. Cosmic Voyage [13:06](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A11164FA5B441253DAD27574241C0CDDE74C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136883   (671204) от 24.05.2017
+
+Joe Zawinul - Dialects (1986) 2002, Columbia [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Harvest [06:05]
+02. Waiting For The Rain [07:37]
+03. Zeebop [04:53]
+04. The Great Empire [03:57](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDA7F6F70C9F83AE63440208FBBB43F442EFF6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136846   (671202) от 24.05.2017
+
+Lambert, Hendricks & Ross - The Hottest New Group In Jazz (1959) 2017, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charleston Alley [03:21]
+02. Moanin' [02:37]
+03. Twisted [02:18]
+04. Bijou [03:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B027DCA54FBA153431929968F0D8B9EF9B3342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136898   (671151) от 24.05.2017
+
+Dave Brubeck - On Time (2001) Sony Music Special Products [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Five [05:26]
+02. Blue Rondo a la Turk [06:45]
+03. Unsquare Dance [02:03]
+04. Out of Nowhere [07:03](   Читать дальше...   )Жанр: CoolПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A19A4D404DD4D5CB933D9B8A9AAA6F6FFE8C0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136900   (671150) от 24.05.2017
 
 Dave Brubeck - Lullaby in Rhythm (1949 - 1955) 4CD, 2006, Membran Music [FLAC|Lossless|tracks + .cue] <Cool>
@@ -571,180 +745,6 @@ Duke Ellington - The Best Of (1987) [APE|Lossless|image + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:461744431006995C1C149F6824F365A65DFECC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224101   (668246) от 08.05.2018
-
-Jack Teagarden - 1940 - 1941 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love For Sale [03:00]
-02. You, You Darling [03:07]
-03. The Moon And The Willow Tree [03:16]
-04. Wham (Re-Bop-Boom-Bam) [03:11](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B913F69FC6802EE2E9460236001719ECEC0D94CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224105   (668191) от 08.05.2018
-
-Johnny Lytle - The Loop & New And Groovy (1965, 1966) 1990, BGP [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Loop (Johnny Lytle) (2:18)
-02. The More I See You (Mack Gordon, Harry Warren) (4:20)
-03. The Man (Johnny Lytle) (2:42)
-04. Time After Time (Sammy Cahn, Jule Styne) (4:28)(   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E93DA78B5872FC2805212BEFA985FC383DD57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224130   (668187) от 08.05.2018
-
-Lucia Minetti - Jazz Nature (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nearness of You
-02. Alone Together
-03. Wild Is the Wind
-04. So in Love(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B132CEBA14109A4A36612461C9C6C25059AC84B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137421   (667999) от 26.05.2017
-
-Humphrey Lyttelton - The Best Of Humphrey Lyttelton (1951 - 1957) 3CD, 2003, EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667999.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bad Penny Blues [02:46]
-02. March Hare [02:37]
-03. The Onions [02:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 03:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19135974D121391821C6066E5544133B4FD8FF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137205   (667996) от 26.05.2017
-
-The Walter Norris Quartet - Sunburst (1991) Concord Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunburst [05:45]
-02. What's New [07:45]
-03. Bird [04:20]
-04. Naima [05:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCA6858FF9B401A03B417B17BAABC2CF94D5D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137426   (667990) от 26.05.2017
-
-The Zawinul Syndicate - The Immigrants (1988) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Lost Children (4:16)
-02. Criollo (4:21)
-03. Shadow And Light (5:06)
-04. King Hip (5:04)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC83B129BBF392B352973B93BB93FB788E353FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

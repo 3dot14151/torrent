@@ -1,48 +1,25 @@
-###  Публикация: 561408   (406248) от 17.10.2012
+###  Публикация: 1413235   (409997) от 03.10.2020
 
-Sexy Girls Pack Wallpapers (16.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 6144x4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8888E2A7B8299BF4DB4525BACD7C3EE68628F3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561411   (406247) от 17.10.2012
-
-Gilrs Wallpaper Collection (16.10.12) [Wallpapers 16+]
+Футбол. Серия А. Чемпионат Италии 2020-2021. 1-й тур. Верона — Рома (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406247.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
+Серия А. Чемпионат Италии по футболу 2020-2021.
+19 сентября 2020, суббота. 21:45 МСК
+1-й тур
+Эллас Верона (Верона) — Рома (Рим)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28366C3C4C0EC10F5AD9A9968CD4A8645E89ADED
+magnet:?xt=urn:btih:BF83C1C46B0A0B98344180D8EC6924A57EEB2242
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,34 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 560855   (406245) от 17.10.2012
+###  Публикация: 1413237   (409996) от 03.10.2020
 
-VA - Trance Night (2012) [MP3|320 кб/с]<Progressive, Trance, Dream>
+Футбол. Серия А. Чемпионат Италии 2020-2021. 1-й тур. Парма — Наполи (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406245.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cosmic Gate & Andrew Bayer - Nothing Ever Lasts 07:14
-02. Manufactured Superstars & La Riots Ft Selina Albright - Born To Rock (Original Mix) 06:06
-03. Above & Beyond - On My Way To Heaven (Above & Beyond Club Mix) 07:52
-04. Sean Tyas And Giuseppe Ottaviani - Arcobaleno (Club Mix) 07:34
-05. Joop Feat. Tiffany Johnston - Just One Night (Original Mix) 06:54
-06. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix) 05:12
-07. Matt Bukovski - In Dreams (Original Mix) 06:35
-08. Ernesto Vs Bastian & Kay Wilder - Just In Bibber (Original Mix) 05:10
-09. Burzhuy & Tigran Oganezov - Springboard (Original Mix) 06:33
-10. Cj Arthur - Magnet (Den Rize Pres Blur8 Remix) 07:10(   Читать дальше...   )Жанр: Progressive, Trance, DreamПродолжительность: 01:41:58
+Серия А. Чемпионат Италии по футболу 2020-2021.
+20 сентября 2020, воскресенье. 13:30 МСК
+1-й тур
+Парма (Парма) — Наполи (Наполи)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93F41AD3868B430989231EF81652B5A4DF3852C0
+magnet:?xt=urn:btih:3722172B83338C7B93BCF7032DBD27B407B96DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561376   (406244) от 17.10.2012
+###  Публикация: 1413315   (409995) от 03.10.2020
 
-Nature Wallpapers (15.10.12) [Wallpapers]
+Ben Granfelt - True Colours (2020) [MP3|320 Kbps] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Victorious (04:52)
+ 02. No Turning Back (05:28)
+ 03. Hey Stranger (04:33)
+ 04. Arms of an Angel (05:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDC4FFD3BCBD337286FE1BBE6F96D1065307A8FE
+magnet:?xt=urn:btih:C296F5BCDD2062255D5FF3E5ED92BB699BE91415
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561412   (406243) от 17.10.2012
+###  Публикация: 1413285   (409994) от 03.10.2020
 
-Gilrs Wallpaper (16.10.12) [Wallpapers 16+]
+VA - The Official UK Top 40 Singles Chart 02.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406243.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 3000х2000
+01. 24kGoldn - Mood (feat. iann dior)
+02. Cardi B - WAP (feat. Megan Thee Stallion)
+03. Headie One - Ain't It Different (feat. AJ Tracey & Stormzy)
+04. Paul Woolford & Diplo - Looking For Me (feat. Kareen Lomax)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD9AE38A614B0D32348FF9E81D467CB34B9BEFA0
+magnet:?xt=urn:btih:07295C2328C1444016CAC29EB7E41179C6A94110
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,34 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559890   (406241) от 17.10.2012
+###  Публикация: 1413403   (409993) от 03.10.2020
 
-VA - All Colours Of Deep (2011) [MP3|320 кб/с]<Drum and Bass>
+Петр Волцит | Почемучкины книжки. Почему животные дружат? (2016) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406241.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mage - Cosmic Station
-02. Aaron Bond - Face The Truth
-03. High Feel - Clone
-04. Nemanoe - Movement In Uncertainty
-05. Kasper & TekSketch - ReEntry
-06. Mage & DJ Ike - Visions Of Love
-07. Nelver - Grand Case
-08. Nelver - Flatline (Nelver Remix)
-09. Beatchemist - I Can't Explain It
-10. White Fang - ConcealedЖанр: Drum and BassПродолжительность: 01:01:13
+Книга биолога, известного популяризатора науки Петра Волцита «Почему животные дружат?» расскажет о том, как возникает невероятная дружба животных, которые «по всем законам природы» должны были бы стать не друзьями, а едой и едоком. На примере множества животных вы узнаете, как они учатся охоте, что такое инстинкт, как хищников разводят в неволе и многое-многое другое. (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28ED36309E90BCB452AAEB2AB0E1BCA583D75279
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,34 +140,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 560862   (406240) от 17.10.2012
+###  Публикация: 1413084   (409992) от 03.10.2020
 
-VA - Tranceffect 33 (2012) [MP3|320 кб/с]<Trance>
+Julia Gjertsen & Nico Rosenberg - Los Océanos (Oceanos) (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Neoclassical>
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406240.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ill Listen (Original Mix) - Armin van Buuren feat. Ana Criado
-02. Amsterdam (Original Mix) - Orjan Nilsen
-03. K Ta (Original Mix) - Andy Moor
-04. From Bad To Worse (Original Mix) - I5land Vs.Matt Pincer
-05. New Born (Original Mix) - Tom Colontonio & Orla Feeney
-06. Plify (Original Mix Edit) - Ram
-07. Sirius (Ikerya Project Remix) - Eddie Lung
-08. Galactica - Nick Rowland
-09. Everblue (Adam Foley Remix) - Michael Lee
-10. Seek The Shore (Next DJ ILNY Mashup) - Sandeagle & Electribe vs Amanda Wilson(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:41
+1. Los Océanos 06:19Жанр: Ambient, Drone, Minimal, NeoclassicalПродолжительность: 00:06:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03467B36D490303036E6C2F8CB7E575D731F9643
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,29 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561578   (406238) от 17.10.2012
+###  Публикация: 1413286   (409991) от 03.10.2020
 
-[Wallpapers] HQ Wallpapers №56
+Blue Stahli - Blue Stahli (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial, Electronic Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406238.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HQ Wallpapers №56
-Название: HQ Wallpapers №56
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. ULTRAnumb [00:04:25]
+02. Scrape [00:04:46]
+03. Anti You [00:03:29]
+04. Doubt [00:03:58](   Читать дальше...   )Жанр: Alternative Metal, Industrial, Electronic RockПродолжительность: 01:27:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1172EAB0E85F1A98F24528672CE1F8589DB8074
+magnet:?xt=urn:btih:8C6703F74516419EB8AD993D7AAF83D308488E4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,34 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 560744   (406237) от 17.10.2012
+###  Публикация: 1413270   (409990) от 03.10.2020
 
-Butterfly - Favorite Colors Episode 052: 1 Year Anniversary Special (06.10.2012) [MP3|320 кб/с]<Progressive, Trance>
+Живая еда с Сергеем Малозёмовым (03.10.2020) SATRip
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406237.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Glenn Morrison -  I See You In Me (Original Intro Mix)
-02. Matt Bukovski feat. Tiff Lacey -  Swept Away (Original Mix)
-03. Velvetine feat. Aruna -  The Great Divide (Soundprank Remix)
-04. Protoculture -  Perpetual Motion (Original Mix)
-05. Phillipo Blake & EDDY feat. Nika -  We Stroll Together (Alex Tasty Remix)
-06. Ralphie B -  The Holy Grail (Original Mix)
-07. Stoneface & Terminal -  Gallery Of Sound (Club Mix)
-08. Bobina -  The Space Track (Andrew Rayel Stadium Remix)
-09. Tenishia -  Where Do We Begin (Andrew Rayel Remix)
-10. Menno De Jong -  Guanxi (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 01:59:44
+Ряженка: как именно подделывают товар недобросовестные производители, как отличить фальсификат на вкус и правда ли ряженка полезнее других кисломолочных продуктов? Чем дорогая фермерская кабачковая икра отличается от дешевой промышленной? Действительно ли премиальный продукт полезнее и вкуснее? За что крыжовник так любили русские писатели и действительно ли с помощью (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:27:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A94275FC8E5D0ADAB1BC11C76D48B37955BC20A6
+magnet:?xt=urn:btih:4A519530473185C328B0E8E376F8F5670EE25114
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,297 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561400   (406234) от 17.10.2012
+###  Публикация: 1413430   (409989) от 03.10.2020
 
-Wallpapers Fantasy (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B028D04FF3A90ADFD3B5D8668825141829F561B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561331   (406232) от 17.10.2012
-
-Reel People - 10 Years Of Soulful Bliss (2012) [MP3|320 кб/с]<Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star (feat. Tony Momrelle)
-02. Can't Stop (feat. Angela Johnson)
-03. It Will Be (feat. Tony Momrelle)
-04. Butterflies (feat. Dyanna Fearon)
-05. Outta Love (feat. Omar)
-06. Golden Lady (feat. Tony Momrelle)
-07. The Light (feat. Vanessa Freeman)
-08. Alibi (feat. Darien)
-09. Second Guess (feat. Jag)
-10. The Rain (feat. Sharlene Hector)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FFF2BD3A33943C0C7011E6905A5FE89E655996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561706   (406230) от 17.10.2012
-
-Журнал | Формула ремонта №2 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационный журнал о дизайне, строительстве и ремонте. Состоит из редакционных статей с комментариями специалистов на данную тему, демонстрации интерьеров дизайнеров, тест-драйвов и мастер-классов от хендмейкеров. Кто, как не мы можем рассказать, что ремонт в доме можно делать с удовольствием!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97239A06DA76F0DEE8FBE0D660BE45BBE83C83DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561381   (406227) от 17.10.2012
-
-HQ Wallpapers for a desktop (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D650D8B0F42153FC2A3109DD989860FB7902BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559933   (406224) от 17.10.2012
-
-VA - dBridge & InstraMental - Fabriclive 50 (2010) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riya - Seems Like
-02. Instra-mental - From the Start
-03. Stray - Pushed
-04. Dan Habarnam - Nu Este Roz
-05. Vaccine - Ochre
-06. ASC - Starkwood (Consequence Remix)
-07. Consequence - Lover's Shell
-08. Distance - Sky's Alight (Dub)
-09. Alix Perez - Self Control
-10. Genotype - Distorted Dreams / Meleka - Go (Accapella) - Meleka(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EF509AB2D33C862E7580CF0509FFCA6C653105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559928   (406222) от 17.10.2012
-
-VA - Danny Wheeler Presents - The Brazil Project (2010) [MP3|128 - 320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Laranjeiras - Azymuth (Danny Wheeler Remix)
-2. Juntos Mais Uma Vez - Azymuth (Danny Wheeler Remix)
-3. Sem Pressa - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
-4. 4 Eyed Viper - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
-5. Vibrasom - Sabrina Malheiros (Danny Wheeler Remix)
-6. Copa A Noite - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
-7. Nao Quero Nem Saber - Sabrina Malheiros (Danny Wheeler Remix)
-8. Butterfly - Azymuth (Danny Wheeler Remix)
-9. Maracateura - Sabrina Malheiros (Danny Wheeler Remix)
-10. Deixa a Nega Gingar - Clara Moreno (Danny Wheeler Remix)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C52C63BA832C7ABAE2350C59EAD064EAF2D8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561563   (406221) от 17.10.2012
-
-Журнал | Здоровье в доме №41 [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406221.jpg" />
-</div>
-
-
-###  Подробнее
-
-О печени уже писали. И читатели знают, что от нее зависит здоровье всего организма. Но все равно многие не на шутку рискуют печенью. Бьют по ней ежедневно! Алкоголем, жирной или фастфудовской едой, токсичными веществами (в быту их полно!) и лекарствами.
-То, что печень современного человека нуждается в защите, уже не секрет. Так чем же ее защитить? Правильным питанием. Включите в рационе продукты из 5 основных групп: злаки, молочные продукты, овощи и фрукты, а также жиры и белки (чтобы определить суточную долю белка в граммах, умножьте свой вес на 0,8). Пейте от 1 до 2 литров жидкости в день. И посвящайте минимум 30 минут физическим нагрузкам. При работе с химикатами используйте маску и перчатки, проветривайте помещение. Будьте осторожны со спиртным. А если вам назначены лекарства, попросите врача также посоветовать вам гепатопротекторы (средства для защиты печени).
-И еще - не злитесь, а лучше улыбнитесь!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B784310AB13680C04D5BC8ED3C92436BE3D026BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561682   (406218) от 17.10.2012
-
-Журнал | Народный лекарь №19 [октябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал создан для тех, кто заботится о своем здоровье, ведёт здоровый образ жизни и интересуется как традиционными, так и народными методами лечения и профилактики различных заболеваний. В каждом номере – авторские статьи, интервью с ведущими специалистами в области фитотерапии, гомеопатии и народной медицины, а также письма читателей с советами и рецептами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79B023C9975DD5DD4EA3FECD8239D6602CD9C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561399   (406214) от 17.10.2012
-
-Desktop Wallpapers (16.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDB4372CD8D803C4612BDBE5E586D06B8F88EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561419   (406212) от 17.10.2012
-
-VA - Deep+   Vol. 5 (2012) [MP3|320 кб/с]<Deep House(Tech House,Vocal House)>
+VA - Record Super Chart 656 (2020) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alloise - Love Me Or Leave Me (Anturage & Amnesia Haze Dual Sided Mix) (4:56)
-02. Andrew Bayer - You (8:08)
-03. Biotones - My Little Inner World (Original Mix) (6:12)
-04. Kasper Bjorke - Bohemian Soul feat. Laid Back (Adana Twins 'On A Cloudy Day' Remix) (7:05)
-05. Brian Berg, Voxhoff - Have It All (Original Mix) (6:51)
-06. Bunte Bummler - The Hunger (feat. Daniel Wilde)(Betoko Remix) (7:16)
-07. Calippo - When Freddy's Done (Original Mix) (5:49)
-08. Chocolate Avenue - see dem boys (original mix) (7:06)
-09. Chocolate Puma - Destiny feat. Colonel Red (Lorenzo Kurizu Remix) (7:25)
-10. Chris James feat. Ria Moran - Song For Her (Audiojack's Dub for Ra) (6:09)(   Читать дальше...   )Жанр: Deep House(Tech House,Vocal House)Продолжительность: 04:30:01
+01. Bastard! - F..k That (3:38)
+02. DJ Smash feat. Poët - БЕГИ (3:06)
+03. twocolors - Lovefool (3:10)
+04. AronChupa & Little Sis Nora - The Woodchuck Song (2:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFE8B05A60F3A080F4771ECECBA730C52DA4F698
+magnet:?xt=urn:btih:04C892A61E15ACA626F78D80C22872430B75D246
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561441   (406204) от 17.10.2012
+###  Публикация: 1413434   (409988) от 03.10.2020
 
-Artworks by BossLogic [Графика]
+Mr.Fables - Melodic Snaps Vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Hop, Abstract Hip-Hop, Jazz Hop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406204.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Artworks by BossLogic
+01. Confidence (1:54)
+02. Speck (1:54)
+03. Fallin (1:58)
+04. A Minute of Reality (1:52)(   Читать дальше...   )Производство: S!X MusicЖанр: Instrumental Hip-Hop, Abstract Hip-Hop, Jazz Hop, Beats, Trip HopПродолжительность: 00:36:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69D41B9DEF3229B17AD454C88DD989E884FDC375
+magnet:?xt=urn:btih:747C3C03941E3A669703A1FC0371448B88922F12
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,112 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561728   (406202) от 17.10.2012
+###  Публикация: 1413406   (409987) от 03.10.2020
 
-Р.А.Шмаков (глав.ред.) | Дельфины служат флоту [1998] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник статей, посвященный истории создания и деятельности научно-экспериментальной базы Военно-Морского Флота на Черном море в районе Севастополя. База была создана для проведения исследований в натурных условиях по гидродинамике, гидроакустике, бионике и включала в себя экспериментальные лаборатории, специальные полигоны и единственный в Советском Союзе дельфинарий, в котором были выполнены уникальные эксперименты с дельфинами. В базе были проведены многочисленные исследования на крупномасштабных буксируемых и автономных моделях; база обеспечивала проведение испытаний на экспериментальной подводной лодке-лаборатории проекта 1710, которые были прерваны из-за распада Союза.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA6BE0FD4040534DDE97A5B0D58B018DF42775B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561731   (406200) от 17.10.2012
-
-Журнал | Энциклопедия здоровья №18 [сентябрь 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание своего рода настольная энциклопедия здоровья, в каждом выпуске которого вы найдете информацию посвященную лечению и профилактике наиболее распространенных заболеваний.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0A34BC7698DAE5476B827F05ECE4D551F39105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561700   (406199) от 17.10.2012
-
-И.К.Антонова | Марксизм вне политики. Источники, генезис и структура работ Маркса и Энгельса по естествознанию [2004] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406199.jpg" />
-</div>
-
-
-###  Подробнее
-
-В работе дан философско-текстологический анализ химических, геологических и других эксцерптов Маркса, а также его математических рукописей. Изложению данных вопросов предшествует исследование места естествознания в философском и экономическом наследии Маркса на основе достижений современной философии, текстологии и методологии науки. Отдельная глава посвящена анализу работ Энгельса по вопросам философского обобщения естествознания.  В научный оборот вводятся ранее не исследованные рукописи Маркса и Энгельса. Рукопись написана в результате работы автора над подготовкой и рецензированием томов Полного собрания сочинений Маркса и Энгельса на языках оригинала (МЭГА).Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F71B031E129F634BA91CD67B4282094FD7F49C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560775   (406196) от 17.10.2012
-
-Tiesto - Club Life 289 (14.10.2012) [MP3|192 кб/с]<House / Electro House>
+The Black Queen - 3 Albums, 1 Single (2016-2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Synthpop, Darkwave, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406196.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hour 1:
-01. Gossip - Move In The Right Direction (Kaz James Remix)
-02. Jordy Dazz & Dannic vs. Rihanna - Where Has Fuego Been? (ID Remix)
-03. Jensby - Foldback
-04. Lenny Kravitz vs. Leon Bolier - Are U Gonna Go Us (Dannic Mashup)
-05. Hard Rock Sofa & Squire feat. Max'C - Just Can't Stay Away
-06. Felix Da Housecat feat. Miss Kittin - Silver Screen Shower Scene (Brainless Bootleg)
-07. Tommy Trash & A-Trak - Tuna Melt
-08. Sebastian Ingrosso & Tommy Trash - Reload
-09. EITRO - Character?(   Читать дальше...   )Жанр: House / Electro HouseПродолжительность: 01:55:25
+01. Even Still I Want To [00:02:10]
+02. Thrown into the Dark [00:05:00]
+03. No Accusations [00:05:38]
+04. Your Move [00:05:12](   Читать дальше...   )Жанр: Synthwave, Synthpop, Darkwave, AmbientПродолжительность: 02:46:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF91368A8719144DF5AF3AD082F7DAA5B1DCA44D
+magnet:?xt=urn:btih:0D8820662F3BE1E831037C62588B576662FEC99B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -709,33 +308,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561635   (406195) от 17.10.2012
+###  Публикация: 1413246   (409986) от 03.10.2020
 
-Газета | Вятская правда № 233 [15 октября 1921] [PDF]
+Франсиш ди Понтиш Пиблз | Воздух, которым ты дышишь (2020) [MP3]
 
->>Журналы
->>Другие журналы
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406195.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Читайте в номере:
-— Промышленный кризис в Англии;
-— Наша внешняя торговля;
-— Достижения на хозяйственном фронте;
-— Борьба с голодом;
-— В Вятке: Пленум Губисполкома
-и др. материалы.
+Нескладная сиротка Дориш работает на кухне в усадьбе сахарного плантатора на севере Бразилии. Она ничего не знает, кроме господского дома и окружающих его полей с сахарным тростником. Но однажды в доме появляется ее сверстница, дочь хозяина – Граса, красивая, умная и нахальная. Дориш и Граса, девочки из разных миров, оказываются связаны одиночеством в глухом уголке (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683CD0981A8D519ED1A6858A1034361BAE574891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168094   (409985) от 23.09.2017
+
+Книжная серия | «Русская литература. Большие книги» [16 книг] (2014-2016) [FB2, EPUB]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409985.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русская литература. Большие книги» - серия классической и современной русской прозы, в которой издаются произведения авторов XX - начала XXI веков.
+Серия оформлена наподобие серии «Иностранная литература. Большие книги» издательства «Иностранка»Жанр: Современная прозаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168076   (409984) от 23.09.2017
+
+128 ударов сердца в минуту / We Are Your Friends (2015) BDRip [H.264/1080p-LQ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Анджелес, Калифорния — это мир бесконечных возможностей днем и нереальных голливудских вечеринок ночью. Оба этих мира стремится покорить молодой DJ по имени Коул, неустанно работающий над своим пробивным треком, который должен взорвать весь мир. Его замечает и берет под крыло опытный продюсер Джеймс, но все становится крайне запутанным, когда Коул влюбляется (   Читать дальше...   )Производство: Великобритания, Франция, США / Studio CanalЖанр: драма, мелодрама, музыкаРежиссер: Макс ДжозефАктеры: Зак Эфрон, Уэс Бентли, Эмили Ратаковски, Джонни Уэстон, Шайло Фернандес, Алекс Шеффер, Джон Бернтал, Алисия Коппола, Уайли М. Пикетт, Джон АбрахамсПеревод: Дублированный (iTunes)Субтитры: Английские (full+SHD)Продолжительность: 01:36:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168363   (409983) от 23.09.2017
+
+Сергей Залевский | Специалист (2017) [FB2]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Макс Шнитке».
 
-В номере 2 страницы, собственный скан.Формат: PDF
+Макс и его подруга живут, учатся, зарабатывают кредиты — в общем, как все граждане в Содружестве. Новые знания, новый продвинутый космический корабль — герой развивается и движется к новой цели. Не все проходит у него гладко и просто — местное общество расчетливее и жестче к рядовым гражданам, чем на Земле. Повсеместное применение (   Читать дальше...   )Жанр: Боевая фантастика, Книги о приключениях, Космическая фантастика, Любовно-фантастические романыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A32CA692BBD4DF5366627CE559973C16BA25B3EF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -743,25 +415,286 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561534   (406194) от 17.10.2012
+###  Публикация: 1168316   (409982) от 23.09.2017
 
-О.В.Черенин | Шпионский Кенигсберг [2012] [PDF]
+Макс Шарп | Arduino: Практическое программирование для начинающих (2017) [EPUB] [En]
 
->>Научная и техническая литература
->>Военная литература
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406194.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга посвящена деятельности спецслужб Германии, Польши и СССР на территории Восточной Пруссии в 1920-1940-е годы. Был ли ректор Кенигсбергского университета агентом советской разведки? Какую роль сыграл японский консул в Кенигсберге в освещении хода подготовки Германии к нападению на Советский Союз? Какую работу проводил источник советской разведки "Люкс" в окружении гауляйтера Эрика Коха? На эти и другие вопросы читатель получит ответ, прочитав эту книгу.Формат: PDF
+Эта книга - исследование программирования в Ардуино. Первая часть книги поможет вам начать работу с Arduino. Вы узнаете, что такое Arduino и для каких целей он используется. Затем вы научитесь устанавливать программное обеспечение Arduino в вашей системе. Даны шаги для Windows, Mac OS X и Linux. Обсуждаются скетчи, переменные и процедуры, поэтому вы будете знать, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:692AADB78281F7758365CC5D31760A6B64B50FB8
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168289   (409981) от 23.09.2017
+
+The KMPlayer 4.2.2.2 Final RePack (& Portable) by D!akov  [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409981.jpg" />
+</div>
+
+
+###  Подробнее
+
+The KMPlayer – один из самых универсальных плееров, способный воспроизводить практически любые форматы медиафайлов: VCD, DVD, AVI, MKV, Ogg Theora, OGM, 3GP, MPEG-1/2/4, WMV, RealMedia, QuickTime и многие другие. Также программа понимает титры на DVD дисках и способна записывать звук, видео или картинки из любой части проигрываемого фрагмента. Проигрыватель может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168044   (409980) от 23.09.2017
+
+Звездная пыль / Stardust (2007) BDRip [H.264]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая английская деревенька отделена древней стеной от сверхъестественной параллельной вселенной, где царят магия и волшебство. Молодой Тристан Торн опрометчиво обещает самой красивой девушке деревни, что принесёт ей слетевшую с неба звезду, упавшую по ту сторону стены.
+На своём пути по следам древних легенд Тристан встретит заговорщиков-сыновей всесильного короля, (   Читать дальше...   )Производство: Великобритания, США, Исландия / Di Bonaventura Pictures, Ingenious Film Partners, Marv Films, Paramount Pictures, Truenorth Productions, Vaughn ProductionsЖанр: Фэнтези, Мелодрама, Приключения, СемейныйРежиссер: Мэттью ВонАктеры: Чарли Кокс, Клэр Дэйнс, Мишель Пфайффер, Роберт Де Ниро, Марк Стронг, Джейсон Флеминг, Руперт Эверетт, Кейт Магоуэн, Сиенна Миллер, Натаниель Паркер, Бен Барнс, Питер О’Тул, Иэн МакКелленПеревод: Дублированный, многоголосый, двуголосый, одноголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:07:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167343   (409979) от 23.09.2017
+
+Adobe Muse CC 2017.1.0.821 Portable by XpucT [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: русский и английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF4D5AF47682AA0AA71C2C11829483E8C77A80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168358   (409978) от 23.09.2017
+
+Про уродов и людей (1998) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало двадцатого века. Две благополучные с виду семьи. И загадочный Иоган, владелец фотостудии, в подвальном помещении которой создан некий фотографический театр Маркиза де Сада. Где снимаются фотографические открытки с униженной наготой человеческого тела, вызывающие похоть и злорадствующее торжество власти. Взгляд фотографа, умеющий увидеть в девочке ангельские (   Читать дальше...   )Производство: Россия / Союзкино, Кинокомпания CTBЖанр: Драма, комедия, историяРежиссер: Алексей БалабановАктеры: Сергей Маковецкий, Виктор Сухоруков, Анжелика Неволина, Динара Друкарова, Алеша Де, Чингиз Цыдендамбаев, Вадим Прохоров, Александр Мезенцев, Игорь ШибановПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B529CD7BD1DAC73630892EE084D2AAB08875F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168215   (409977) от 23.09.2017
+
+CHIP | DVD приложение к журналу CHIP №10 Октябрь (2017) [unpacked]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip (Чип) — первый компьютерный журнал в Европе. Издается в 16 странах Европы и Азии тиражом более 1 миллиона экземпляров, с общим охватом более 3,5 миллионов читателей. Уже 8 лет каждый месяц журнал Chip в России — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, коммуникации. Актуальные (   Читать дальше...   )Жанр: Журнал информационных технологийФормат: unpacked
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168282   (409976) от 23.09.2017
+
+Техасская резня бензопилой: Кожаное лицо / Leatherface (2017) WEBRip [Звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409976.jpg" />
+</div>
+
+
+###  Подробнее
+
+При побеге из лечебницы для душевнобольных, четверо подростков похищают молодую медсестру. В погоню за ними пускается отряд полицейских во главе с техасским рейнджером Хэлом Хартменом, мстительным и беспощадным. Один из беглецов встает на полный трагедий и ужасов путь, который превратит его в маньяка — легенду по имени «Кожаное лицо».Производство: США, Campbell Grobman Films, LF2 Productions, Lionsgate, Millennium FilmsЖанр: Триллер, УжасыРежиссер: Александр Бустильо, Жюльен МориАктеры: Стивен Дорфф, Ванесса Грасс, Сэм Страйк, Лили Тейлор, Финн Джонс, Николь Эндрюс, Джеймс Блур, Сэм Коулман, Симона Левин, Кристофер АдамсонПеревод: Дублированный (Звук с TS)Субтитры: ОтсутствуютПродолжительность: 01:26:08Реклама: Присутствуют видео, голосовые и текстовые вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168380   (409975) от 23.09.2017
+
+World of One (2017) [Ru/Multi] (1.3.1)  License HI2U
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы живете в собственном маленьком мире, в котором есть все – уютный домик, двор с креслом-качалкой, цветами и деревьями, и даже собственный парк развлечений с музыкой, бесконечным запасом фейерверков, и даже колесо обозрения, с которого можно дотянуться до звезд! Ничто не мешает Вашему уединению, и лишь маленькое чувство беспокойства говорит Вам, что что-то идет (   Читать дальше...   )Тип издания: LicenseРазработчик: Grimwood TeamЖанр: Arcade (Platform)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053700   (409974) от 23.09.2017
+
+Little Deviants / Дурдом в кармане (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_409974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте верным другом забавным малышам дурикам и помогите им справиться с коварными чудиками. Примите участие в череде веселых сумасбродных приключений — изучите сказочный мир, используя все те чудесные возможности, которыми PlayStation Vita оснащена по последнему слову техники. В вашем распоряжении сенсорный экран, реагирующая на прикосновения задняя панель, датчики (   Читать дальше...   )Тип издания: LicenseРазработчик: BigBig StudiosЖанр: Аркада, ГоловоломкаЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168041   (409973) от 23.09.2017
+
+Отчий берег (2017) WEBRip (серии 1-16 из 16)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматическая сага, действие которой разворачивается на Урале в довоенные, военные и послевоенные годы. В центре повествования - жизнь семьи Морозовых, двух братьев и двух сестер: Алексея, Степана, Алены и Варвары, между которыми складываются непростые взаимоотношения. Всех Морозовых пропустит через мясорубку Великая Отечественная война, всем им предстоит узнать, (   Читать дальше...   )Производство: Россия / «Star Media»Жанр: ДрамаРежиссер: Милена ФадееваАктеры: Юрий Борисов, Арина Жаркова, Максим Керин, Алина Кизиярова-Ланина, Алексей Кравченко, Светлана Колпакова, Мария Смольникова, Виталий Хаев, Виктория Толстоганова, Сергей Сосновский и др.Продолжительность: ~ 00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514C07CECE2693EFA34CE217397BD2103865DB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168258   (409972) от 23.09.2017
+
+Проекты - VideoHive - Glitch Logo Reveal - 19640249 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект "Glitch Logo Reveal" идеально подойдет для создания начального интро-ролика для вашего фильма, или просто для демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A02A8903F6AFB79C4AB813FA38E750B946E14C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1266272   (271159) от 01.12.2018
+
+Bebo Valdes - Bebo de Cuba (2004) 2CD, Calle 54 Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271159.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Suite Cubana:
+01. Ar Ni Froken Pehrson? (Intro) [0:30]
+02. Cachao, creador del Mambo [7:44]
+03. Devocion [4:02](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, World FusionПродолжительность: 01:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7431ED30D386F60F94022ABC4D601C2F39EB32F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266362   (270994) от 01.12.2018
+
+Bryan Ferry And His Orchestra - Bitter-Sweet (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alphaville
+02. Reason Or Rhyme
+03. Sign Of The Times
+04. New Town(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B7659B2AA6B6777D3F62B9F195CFB227D13A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337965   (270688) от 14.11.2019
+
+James Williams, Richard Davis, Ronnie Burrage - I Remember Clifford (1990) DIW [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As I Live and Breathe [9:01]
+02. I Remember Clifford [6:29]
+03. Take the Coltrane [5:29]
+04. Simone [7:48](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B13233326B077226E9DBC44DB61E6EEA904D1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338216   (270682) от 14.11.2019
+
+Jay Thomas With The Oliver Groenewald Newnet - I Always Knew (2018) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yama [7:29]
+02. Ernie's Tune [4:12]
+03. I always Knew [4:26]
+04. Deep Passion [5:42](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC3315359DCC9129F990A72F587D0DA2490C21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189550   (270491) от 06.12.2017
+
+Floris Kappeyne Trio - Interchange (2017) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude [02:03]
+02. Interchange [05:05]
+03. Counter [03:02]
+04. Bliss [05:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0B7F3DD66729733641679124B171E5F4A18329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189554   (270487) от 06.12.2017
+
+Lou Levy - By Myself (1993) 1995, Verve [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Walked In [04:53]
+02. Embracable You [05:15]
+03. By Myself [03:36]
+04. Everything Happens to Me [04:42](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90E57A2DB28A2AA1118C1D346F2568ED68392BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189300   (270485) от 06.12.2017
 
 Steve Lacy - More Monk (1989) 1991, Soul Note [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40F4E29FBBDAD21785989856B40A129BFD2C969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338646   (269013) от 16.11.2019
-
-Jay Thomas & The Cantaloupes - The Art of Jazz: Live At SAM (2015) McVouty Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Leo [8:05]
-02. Me and My Baby [8:26]
-03. Compulsion [7:13]
-04. Jitterbug Waltz [8:12](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED2868C3A3ED714F8DB00E961F905DD68ED7D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338639   (269012) от 16.11.2019
-
-Jazzmeia Horn - A Social Call (2017) Prestige [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tight [3:05]
-02. East of the Sun (And West of the Moon) [6:07]
-03. Up Above My Head [3:36]
-04. Social Call [2:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62523E6BEE9E12511C6CEE497559ED80BB6A7F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338636   (269010) от 16.11.2019
-
-Jazzmeia Horn - Love & Liberation (2019) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Your Mind [4:47]
-02. Time [1:55]
-03. Out the Window [3:30]
-04. No More [3:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78F02E70C4F058C3B1A5F8837E135472BBEB8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338644   (269008) от 16.11.2019
-
-David Liebman, Eric Ineke, Mario Laginha Quintet - Is Seeing Believing? (2016) Daybreak [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Folks [7:07]
-02. Coracao Vagabundo [5:59]
-03. Skylark [6:20]
-04. Everybody's Song But My Own [8:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971DC76AB060F70B0D9C7AA261FC739E279A3CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338641   (268979) от 16.11.2019
-
-Eliane Elias - Love Stories (2019) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Man and a Woman [3:17]
-02. Baby Come to Me [5:03]
-03. Bonita [5:53]
-04. Angel Eyes [5:25](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7152A86208BD95B3312A5244FA7C11501E9387F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190101   (268926) от 08.12.2017
-
-Bobby Timmons - Six Classic Albums (1957 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268926.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cliff's Edge [06:32]
-02. Tenderly [07:05]
-03. Princess [06:18](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 03:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6DB3A3F40DFAC2B56AC284A981E34328188117
 ```
 
 https://mybot314.ru/tekegram_catalog/

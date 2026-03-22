@@ -1,3 +1,195 @@
+###  Публикация: 546954   (476628) от 14.09.2012
+
+Armen Chakmakian & Djivan Gasparyan - Ceremonies (1998) [WavPack|Lossless]<Jazz, World, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Gypsy Rain [5:25]
+02. - A Kiss And A Sign [5:21]
+03. - Ceremonies [5:15]
+04. - A Time To Heal [6:14]
+05. - Imaginings [5:41]
+06. - Enchantress [4:15]
+07. - Distant Lands [5:55]
+08. - Rain, Rain Go Away [4:57]
+09. - Echoes Of A Prayer [6:21]
+10. - Moonlight In Your Eyes [6:09]Жанр: Jazz, World, New AgeПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567085   (476504) от 01.08.2022
+
+Joe Williams - Four Classic Albums (1956 - 1960) 2CD, 2021, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476504.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Indiana [7:36]
+02. More Than One For My Baby [7:27]
+03. Too Marvellous For Words [5:30](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EB70C75A6F010B48CEF2C2C0F665D5C057187C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546704   (476481) от 14.09.2012
+
+Cecilia - 2 альбома (1994 & 1996) [FLAC|Lossless]<Jazz Vocal, Ballad, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violet 19 [07:46]
+02. Star Child [05:31]
+03. Lightness of Being [02:46]
+04. The Protection Song [06:08]
+05. Pavane Pour Une Infante Defunte [06:04]
+06. The Tracker's Song [03:56]
+07. My Boy Hero [04:22]
+08. In Heaven a Castle [05:19]
+09. The Snow Leopard's Prayer [05:21]
+10. The Riddle [08:27]Жанр: Jazz Vocal, Ballad, Easy ListeningФормат: Продолжительность: 00:55:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160332   (476273) от 24.08.2017
+
+Milton Nascimento - Millennium (2000) 2006, Mercury [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz, Brazilian Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unencounter Cancao da America [03:49]
+02. Raca [02:51]
+03. Cacador de Mim [03:53]
+04. Nos Bailes da Vida [04:13](   Читать дальше...   )Жанр: Ethnic Jazz, Latin Jazz, Brazilian PopПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61A5A0AA5381E1C481AB4F01DCDA57DFE4EBED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245031   (476212) от 04.09.2018
+
+Isao Suzuki Group - 1998, New (1998) Platz [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together [9:57]
+02. Blues for Isao [12:19]
+03. Jump Monk Jump [14:10]
+04. Yesterday [8:41](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C5B5B4A5116FA63CA60D08AD8D4C8B529395D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546371   (476185) от 14.09.2012
+
+VA - Voices of Love (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476185.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Susan Wong - When You Say Nothing At All [04:09]
+2. Julienne Taylor - I Know I Loved You [03:43]
+3. Katie Melua - I Cried For You [03:38]
+4. Chantal Chamberland - How Deep Is Your Love [03:52]
+5. Cheryl Bentyne - Don't Know Why [04:34]
+6. Stacey Kent - You're Got a Friend [04:20]
+7. Clare Teal - Chasing Cars [04:52]
+8. Emi Fujita - Wishes [04:00]
+9. Olivia Ong - Sometimes When We Touch [04:07]
+10. Ann Sally - I Wish You Love [04:18](   Читать дальше...   )Жанр: JazzФормат: HQCDПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939389   (476102) от 21.09.2015
 
 Gary Bartz - Episode One Children Of Harlem (1994) /Challenge/[FLAC|tracks+.cue]<Post-Bop>
@@ -583,180 +775,6 @@ Tsuyoshi Yamamoto Trio - Blues For Tee (1974) Remaster, 2014, Think! Records[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D9F706FF7D72BE2AD0ACE62F3E4B3FF664DA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406619   (473205) от 04.09.2020
-
-Lionel Hampton - Priceless Jazz Collection (1942 - 1964) 1999, GRP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Home [3:12]
-02. Evil Gal Blues [3:17]
-03. Red Cross [3:46]
-04. Hamp's Boogie Woogie [3:24](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A901702146E56CC2352AACFFF3267C5320CE510D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406620   (473197) от 04.09.2020
-
-Joe Williams, Carmen McRae & Friends - Blues In My Heart (1979) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suivez le Chef [3:08]
-02. Work Song [2:59]
-03. Blues in My Heart [3:11]
-04. Just the Way You Are [6:42](   Читать дальше...   )Жанр: Vocal Jazz, Bop, SwingПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA7CE5168F38D204879E1CFBE90DB8E22A17B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051399   (472764) от 04.09.2020
-
-VA - Dave Grusin, Lee Ritenour, Diane Schuur, Dave Valentin: GRP Live In Session (1985) GRP Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mountain Dance [06:11]
- 02.Oasis [07:26]
- 03.The Rit Variations [06:19]
- 04.Reverend Lee [04:54](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42062A03E6399A972D4065688A9A7638E322510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567489   (472465) от 03.08.2022
-
-James Morrison - On The Edge (2003) Morrison Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Dangerous [7:43]
-02. Da Speech [9:33]
-03. Self Portrait [8:24]
-04. Even Seiben [13:04](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E929BB5F29D99862E7F70E1CB62213E4003834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160798   (471998) от 26.08.2017
-
-The Dave Brubeck Quartet - 25th Anniversary Reunion (1976) 1989, Jazz Heritage [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Louis Blues [09:06]
-02. Three To Get Ready & Four To Go [06:12]
-03. African Times Suite: African Time / African Breeze / African Dance [08:06]
-04. Salute To Stephen Foster [06:26](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BB164E1FDFB64B5D4533737306B48E1AAE843F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160919   (471992) от 26.08.2017
-
-Charles Mingus & Jazz Artists Guild - Newport Rebels (1960) 2001, King Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mysterious Blues [08:45]
-02. Cliff Walk [09:49]
-03. Wrap Your Troubles in Dreams [03:56]
-04. T'ain't Nobody's Bizness if I Do [07:22](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB9A849FE03F376679706F1EA9DE963213E70D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,261 @@
+###  Публикация: 685185   (614529) от 31.07.2013
+
+Настя - Звездная серия. Рок Энциклопедия (2003) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снежные Волки (2:26)
+02. Ариандна (4:50)
+03. Невеста (5:08)
+04. Москва (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA0FC1B9B156BC163EE6143C9BFD7A9C38FFCB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146719   (614451) от 29.06.2017
+
+СерьГа - Приметы (2017) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сказочный лес
+02. Приметы
+03. Крылья за спиной
+04. Блюз Шапито(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E204846B9D93EBE483F3A59ACEE41B62FF259654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911782   (614086) от 24.06.2015
+
+Юта - Лучшие песни (2009) [FLAC|image+.cue]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хмель и солод
+02. Одинокое шоссе
+03. Имя
+04. Сигнал(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DB59CFD3079784FF9641A85366847D74364130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912033   (614012) от 24.06.2015
+
+Чайф - 30 лет. Рожденный в Свердловске (2015) 2CD [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город мой
+02. Вольный ветер
+03. Время не ждёт
+04. Камарека(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B0B8931AA7539560CBBFD5753013C18C872EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230650   (613849) от 13.06.2018
+
+ДДТ - Галя ходи (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альтернатива
+02. Если
+03. Уездный город
+04. Звезда-старуха(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2204169F364427B8E615BDDAF50E91E767412E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296299   (613451) от 16.04.2019
+
+Адаптация - Оруэлл (2019) [FLAC|lossless|image + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1984 (05:01)
+02. Беспризорные люди (04:55)
+03. Искренний рок (05:38)
+04. Небо в огне (05:02)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F384D9AE49E4145A8180DDE50ED6C064DD13EDA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354190   (610345) от 23.06.2011
+
+Андрей Макаревич - Избранное [6CD Box Set] (2004) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_610345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 04:35:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296769   (610259) от 18.04.2019
+
+Нервы - Слэм и депрессия (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зажигалки (2:59)
+ 02. Будь осторожен (4:02)
+ 03. Еле бьется (3:09)
+ 04. Укачу (2:19)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9041EAC8AC0FAD750E4E80129EC0383C94A4D921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296751   (610250) от 18.04.2019
+
+Akado - Oxymoron № 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 001 (2:19)
+ 02. Oxymoron №2 (3:41)
+ 03. Dirty Easter (3:31)
+ 04. Oxymoron №2 ( Karaoke Version ) (3:41)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09BCB06AE091F644F9F6B915C10A9C8F4B4F375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296556   (610132) от 18.04.2019
 
 Альянс - Сделано в белом (1991) Made In White (Aljans-3) [FLAC|Lossless|tracks + .cue] <Folk Rock>
@@ -480,279 +738,6 @@ Vector Of Underground (Виктор Андеграундъ) - 5 Albums / 2 Singl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB470A5BBB963BB9B7BB4ADCFE20A1B0B4CC8690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548459   (598362) от 03.05.2022
-
-Bastard Folk - Трактир на перекрестке (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Эй, налей [00:03:20]
-02 - Раз весёлый каннибал [00:02:20]
-03 - Ведьмина вода [00:02:53]
-04 - Кот за дрот [00:03:21](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EE46AC2FA582F100D95AFDC9214AEE0977FA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914290   (597975) от 02.07.2015
-
-Браво - Grand Collection (2008) [FLAC|image+.cue]<Rock, Rock-n-Roll>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Король Оранжевое Лето
-02. Верю я
-03. Московский бит
-04. Будь со мной(   Читать дальше...   )Жанр: Rock, Rock-n-RollПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B00B37A57CF2B3107F384781468128F01F5F1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039236   (597265) от 31.07.2016
-
-Давид Тухманов и группа Москва - НЛО (1982) Reissue, 2007 [FLAC|Lossless|image + .cue] <Art Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НЛО  (05:28)
-02. Игра в любовь  (06:37)
-03. Миллион лет до нашей эры  (05:58)
-04. Дождь  (05:31)(   Читать дальше...   )Жанр: Art Rock, Pop RockПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4EB05054E102A0E28E0F7CCE3671528D0E638C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165593   (596178) от 04.05.2022
-
-IZTUMANA - Zoomorph (2014) [APE|Lossless|image + .cue] <Space-Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chudo
-02. Utro
-03. Tsar
-04. Rujana(   Читать дальше...   )Жанр: Space-Rock, Psychedelic RockПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CEDC97219D9A2F49B26435466E0AF299D39241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526727   (595753) от 25.07.2012
-
-Северные врата - 5 альбомов (2000-2008) [Flac, Ape|Lossless] <Slavonic Folk Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года выпуска: 2000-2008Альбомлист:
-2000 - Отчизна
-2001 - На войну
-2003 - Правь
-2005 - Равновесие
-2008 - ВолотЖанр: Slavonic Folk Metal, Black MetalПродолжительность: 00:43:28
-
-01 | Волчья воля | 03:51
-02 | Знамение | 03:49
-03 | Выбор | 04:59
-04 | Пир | 03:54
-05 | Родные берега | 04:24
-06 | Укреп | 04:34
-07 | Притча | 03:35
-08 | Доблесть | 04:03(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549133   (593901) от 06.05.2022
-
-Гран-КуражЪ - IX жизней (2022) 2xCD, Live [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593901.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Интро
-02. Достучаться до небес (П. Елфимов)
-03. Только вперёд (П. Елфимов)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DE09A754A0FFB06F1EFE10CAE4F184C6BCE85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525993   (593518) от 06.05.2022
-
-СерьГа (Сергей Галанин) - 13 Albums + 2 Live`s + 3 Compilation (1993-2021) [FLAC, APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593518.jpg" />
-</div>
-
-
-###  Подробнее
-
-«СерьГа» - российская рок-группа, образованная в 1994 году Сергеем Галаниным. Девиз группы — «Для тех, у кого есть уши». Днём рождения группы считается 1 июня, в честь дня защиты детей.1993 - Собачий вальс
-1995 - Серьга
-1997 - Дорога в Ночь
-1999 - Страна ЧудесЖанр: RockПродолжительность: 16:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024E71897F6F2E90A019E2DFBA21AE2FF8BD47AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242955   (593063) от 06.05.2019
-
-Ариэль - Золотая коллекция (2001) [FLAC|Lossless]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокально-инструментальный ансамбль "АРИЭЛЬ" (г. Челябинск), дебютировал в 1967 г. Основа репертуара и стиля — русский музыкальный фольклор.
-Из первоначального состава в «АРИЭЛЕ» до сих пор работают нынешний руководитель ансамxxx Ростислав Гепп (р. 14 ноября 1951) — клавишные, флейта, вокал; Борис Каплун (р. 17 января 1951) — ударные, скрипка, вокал; Лев (   Читать дальше...   )01. "Зимы и вёсны (Музыка и слова В. Ярушина)"
-02. "Маленькая история (Музыка и слова В. Ярушина)"
-03. "Обращение к России (Музыка и слова В. Ярушина)"
-04. "Орган в ночи (Р. Паулс - Д. Авотыня , перевод Л. Азаровой)"(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 04:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FAAB3376E0ABCB9F15363CD5FF27A2C2C6CD2FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233503   (593010) от 30.06.2018
-
-Татьяна Зыкина - Ощущение реальности (2009) [FLAC|Lossless|image + .cue]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты-то кто? (feat. «Танок на майданi Конго»)
-02. Водопадами (08 version)
-03. Сдала (roublevka light version)
-04. 2 кота (light version)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7764C7778E6BA1CE6D769CA4F9BF841EADDA067
 ```
 
 https://mybot314.ru/tekegram_catalog/

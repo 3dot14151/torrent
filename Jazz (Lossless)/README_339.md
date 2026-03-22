@@ -1,3 +1,177 @@
+###  Публикация: 1767083   (101196) от 21.12.2024
+
+VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr. ThruouT - Spiral (5:44)
+02.  Mr. ThruouT - Giving You Four (5:20)
+03.  DJ Mister Funk - Audio Funk (3:42)
+04.  DJ Mister Funk - Dirty Groove (3:16)(   Читать дальше...   )Жанр: Jazz, Funk, R&BПродолжительность: 01:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B78E64CFDBDEDF65C41B45ED51D0D0E08AE8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767078   (101195) от 21.12.2024
+
+VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Afro Dub - Street Life (3:42)
+02.  Afro Dub - Free Nights (3:31)
+03.  Afro Dub - Speed Day (3:16)
+04.  Afro Dub - Tense Day (3:12)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C464BAD31965B2E22F6228B407E186EBCBE9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767567   (101174) от 22.12.2024
+
+VA - NYC Jazz Bar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sammy Davis Jr. - Feeling Good (3:03)
+02.  Michael Bublé - The Way You Look Tonight (4:40)
+03.  Andy Williams - My Funny Valentine (3:59)
+04.  David Sanborn - Ain't No Sunshine (4:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59758F66C28098A87C97D3766A51B007992D0F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767557   (101172) от 22.12.2024
+
+VA - Calm Late Night Jazz Music (Instrumental Jazz Sax Piano Guitar) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lo Greco Bros - Naima (4:40)
+02.  Alfredo Bochicchio - If I Can't Have You (3:49)
+03.  Swingin' Cats Jazz Quartet - Summertime (4:24)
+04.  Lo Greco Bros - Loving (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9541CB0DE31F9852828043372918C3FA7AD483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767564   (101166) от 22.12.2024
+
+VA - Jazz Vocalists (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scarlett Johansson - Summertime (3:54)
+02.  Donny Hathaway - Misty (3:39)
+03.  Max Mutzke - Season (feat. Max Mutzke) (4:46)
+04.  Leona Berlin - Nothing Compares 2 U (4:12)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFA88B3E6C6057CFA60BDE8A3D3E0C7CF7C5067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766962   (101153) от 22.12.2024
+
+Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Baby [6:30]
+02. Our First Christmas [4:16]
+03. A Christmas Love Song [5:25]
+04. Blue Christmas [6:51](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3316B6BC92FBCACB3F432F23D2450132E304E75F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767467   (101150) от 22.12.2024
 
 Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
@@ -594,211 +768,6 @@ Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jaz
 08. Temporary Feelings (7:46)
 09. Tarantula (6:01)
 10. War Poem (1:54)(   Читать дальше...   )2011Жанр: Jazz-Rock, Contemporary JazzПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482711   (99624) от 14.04.2012
-
-Серия "Giants of Jazz - Immortal Concerts" / Art Blakey & Clifford Brown - Birdland Club with Horace Silver, Lou Donaldson, Curley Russell (1954) [APE|Lossless]<Jazz, Hard Bop, Bop ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Split Kick (8:34)
-02. Once In A While (5:02)
-03. Quicksilver (6:34)
-04. A Night In Tunisia (9:18)
-05. Mayreh (5:57)
-06. Wee-Dot (6:54)
-07. If I Had You (3:33)
-08. The Way You Look Tonight (10:00)
-09. Now's The Time (8:23)
-10. Confirmation/Lullaby Of Birdland (0:25)1954Жанр: Jazz, Hard Bop, BopПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477231   (98524) от 03.04.2012
-
-Najee - My Point of View (2005) [FLAC|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98524.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sidewayz (5:34)
-2.3 A.M. (5:12)
-3.Fallin' in Love with You (5:09)
-4.Back in the Day (4:37)
-5.Charm (3:30)
-6.My Point of View (4:40)
-7.2nd 2 None (3:50)
-8.Emotional (4:03)
-9.How Lovely You Are (5:16)
-10.Miyuki (3:55)2005Жанр: Jazz, Smooth JazzПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475575   (98153) от 31.03.2012
-
-Excess Luggage - Hand Luggage Only (2011) [FLAC|Lossless]<Bop, Post-bop, Soul-jazz, Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annoying You (6:55)
-02. Jimmy's Thai Kitchen (6:11)
-03. Corrupted Mirror (5:27)
-04. After All (6:43)
-05. Fast Swing (5:47)
-06. Kun-ming (5:10)
-07. If I Should Lose You (8:32)
-08. Laat (4:54)2011Жанр: Bop, Post-bop, Soul-jazz, OrganПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471878   (97453) от 22.03.2012
-
-Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97453.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Houston Shuffle
-2. Anywhere but Here
-3. Bye Bye Blackbird
-4. When I Go Away
-5. The Pillaging Pug
-6. Good Neighbours (Make Great Fences)
-7. Remember Me
-8. Song for Selim
-9. A Harbinger of Swing to Come - Movements I & II2011Жанр: Jazz, Mainstream JazzПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468247   (96686) от 15.03.2012
-
-David "Fathead" Newman - Davey Blue (2001) [FLAC|Lossless]<Hard Bop, Mainstream jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cellar Groove (6:10)
-02. Cristo Redentor (6:48)
-03. For Stanley (5:33)
-04. A Child is Born (5:49)
-05. Black (5:34)
-06. Amandla (4:18)
-07. Davey Blue (13:00)
-08. Freedom Jazz Dance (6:26)2001Жанр: Hard Bop, Mainstream jazzПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467211   (96646) от 14.03.2012
-
-VA - Electro Swing IV mixed by Bart & Baker (2011) [FLAC|Lossless]<Nu Jazz, Swing, Modern Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Zoowax - Nine To Five (3:35)
-02.Bart&Baker presents Nuno Endo - Christopher Columbus (Squirr.. (2:41)
-03.Lionel Hampton - It Don't Mean A Thing (If It.. (3:37)
-04.Goodluck - Hop On Hop Off (Pascal And P.. (3:19)
-05.Grand St. feat Philip Alexan.. - Joe Palooka (3:19)
-06.Kitten & The Hip - By My Side (Special Mix For .. (3:35)
-07.Tape Five - Tequila (Gardener Of delight.. (2:02)
-08.Lazy Flow - Mambo Fever (2:10)
-09.Biboulakis feat. Nina Zitlin - Is That Too Much To Ask ? (3:03)
-10.Enzo Siffredi feat. The Alls.. - Jungle Dancing (2:40)(   Читать дальше...   )2011Жанр: Nu Jazz, Swing, Modern JazzПродолжительность: 01:11:42
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,177 @@
+###  Публикация: 1135462   (679376) от 20.05.2017
+
+Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dream (2017) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart in Hand [08:20]
+02. Ilimba [09:53]
+03. The Dreamer Is The Dream [08:19]
+04. Memory And Desire [07:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6ABCC508A37E31C7558CCA89ED682B9C006D7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223056   (679369) от 02.05.2018
+
+The Lanny Morgan Quartet - Pacific Standard (1997) Contemporary [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Still of the Night [06:14]
+02. People Will Say We're in Love [07:43]
+03. Stella by Starlight [07:19]
+04. The Song Is You [07:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3D0A8E832B94AFFC04BF35099713A85C82C6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222956   (679368) от 02.05.2018
+
+Mel Lewis & Friends - Gettin' Together (1957) 1987, Vee Jay [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motif [03:59]
+02. My Buddy [02:35]
+03. Neat Foot [03:03]
+04. The Song Is Ended [02:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DCFC4A31E709017D9AF2E2386ECDD48E090DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 212806   (679321) от 28.06.2010
+
+Nicki Parrott - Fly Me To The Moon (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_679321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bei Mir Bist Du Schoen
+02. I Love The Way You're Breakin' My Heart
+03. Do It Again
+04. Fly Me To The Moon(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135551   (679303) от 20.05.2017
+
+The Jazz At The Lincoln Center Orchestra & Wynton Marsalis - The Music of John Lewis (2017) Blue Engine Records [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Degrees East, 3 Degrees West [07:09]
+02. Animal Dance [03:56]
+03. Django [04:53]
+04. Jon Batiste Introduces the Band [01:04](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BC69DE15AD9A64F10639A2E80708F381CB7F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223112   (679268) от 02.05.2018
+
+Nils - Play (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coast to Coast
+02. We Got Love
+03. Straight Down The Line
+04. Sway(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEE93CC8EF98608EB435CE15D69920F4083CEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290456   (678614) от 20.03.2019
 
 Masahiko Sato - All-In, All-Out (1979) 1991, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
@@ -577,186 +751,6 @@ Brian Bromberg - Compared to That (2012) [FLAC|Lossless]<Contemporary Jazz, Fusi
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508872   (676805) от 11.06.2012
-
-Oscar Peterson Piano Solo - Tracks (1971) [FLAC|Lossless]<Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me The Simple Life (4:03)
-02. Basin Street Blues (4:19)
-03. Honeysuckle Rose (3:10)
-04. Dancing On The Ceiling (5:11)
-05. Child Is Born (2:41)
-06. If I Should Lose You (5:23)
-07. Little Jazz Exercise (2:47)
-08. Django (5:20)
-09. Ja Da (4:21)
-10. Just A Gigolo (5:27)1971Жанр: Piano JazzПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536340   (676694) от 11.03.2022
-
-Howard Alden And Bucky Pizzarelli - In A Mellow Tone (2003) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In  A Mellow Tone [7:32]
-02. Do Nothing Till You Hear From Me [7:05]
-03. Tangerine [4:59]
-04. Snow Fall [5:23](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Guitar JazzПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3411919055F0858ADDE1FF7AFCF37389E06424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290782   (676684) от 21.03.2019
-
-Lars Gullin - First Walk, Vol.5 (1951, 1952) 2002, Dragon Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's It [2:55]
-02. Gull in a Gulch [2:43]
-03. All Yours [3:01]
-04. Deep Purple [2:35](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D468E7E2B6AE23D7A85C90F8C0864C93A4C6AFCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029933   (676682) от 29.06.2016
-
-VA - Milestones - Un incontro in Jazz (2007) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time After Time (4:45)
-02. Sapore Di Sale (6:18)
-03. Vivere Ancora (5:12)
-04. I Fall In Love Too Easily (5:01)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6EA92E1D7C13A52F79F78D99933391DCFA8145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029927   (676678) от 29.06.2016
-
-Tim Bowman - Tim Bowman (2008) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Sundays (03:45)
-02. High Def (04:54)
-03. For You, My Love (04:02)
-04. Motor City Shuffle (04:13)(   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EDA8ABE2F8838A821850F041024FD57519871D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290753   (676598) от 21.03.2019
-
-Bo Kaspers Orkester - Hittills (1999) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svart att saga nej (3:25)
-02. Ett & noll (4:08)
-03. Allt ljus pa mig (4:12)
-04. Det gar en man omkring i mina skor (2:38)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47A6A1306CDA4EBD9C6B6A0CEA64CB3549BE636
 ```
 
 https://mybot314.ru/tekegram_catalog/

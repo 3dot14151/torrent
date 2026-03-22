@@ -1,3 +1,61 @@
+###  Публикация: 993475   (893455) от 06.03.2016
+
+Etienne De Crecy - Super Discount 3 (2015) [FLAC|Lossless|tracks + .cue] <Electro, House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night (Cut The Crap) (5:23)
+02. You (with Madeline Follin) (3:34)
+03. WTF (with Pos & Dave) (3:34)
+04. Hashtag My Ass (3:12)(   Читать дальше...   )Жанр: Electro, House, DiscoПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1948673A4F094C373A70DAF83FEDC781D1F83AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994310   (891542) от 07.03.2016
+
+VA - Die Hit-Giganten - Hits Der 90er (2004) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haddaway - What Is Love (4:28)
+02. Londonbeat - I've Been Thinking About You (3:48)
+03. Crystal Waters - Gypsy Woman (La da Dee la da Da) (3:42)
+04. Robin S. - Show Me Love (4:25)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5732EB870F467ADCD53904E567AA295D7DC072EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102899   (889319) от 10.02.2017
 
 Blank & Jones - #WhatWeDoAtNight (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -680,64 +738,6 @@ VA - Erotic Piano Music (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0C72653B544B6DC16CBAC6F54A22DDCDF20DB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997613   (873764) от 17.03.2016
-
-Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pop Kids (Offer Nissim Drama Mix) (06:30)
-02. The Pop Kids (MK Dub Radio Edit) (03:35)
-03. The Pop Kids (PSB Deep Dub Radio Edit) (03:17)
-04. The Pop Kids (MK Dub) (07:18)Жанр: Progressive House, Electro HouseПродолжительность: 00:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133D09C4277A7376E519EBFEF0AD33992EE55934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643636   (873464) от 14.04.2013
-
-David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helpe Through
-02. For Eternity
-03. Phenomena
-04. Anthem(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

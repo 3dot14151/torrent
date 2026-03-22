@@ -1,3 +1,206 @@
+###  Публикация: 1357598   (973084) от 04.02.2020
+
+Murray Head - Emotions (My Favourite Songs) (2005) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Ballad, 70s-90s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Even Thought (4:51)
+ 02. Say It Ain't so, Joe (4:29)
+ 03. Make It Easy (3:21)
+ 04. Corporation Corridors (3:47)(   Читать дальше...   )Жанр: Pop-Rock, Ballad, 70s-90sПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F131268927C435D96FA2F9558BB393EFBC3C87F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357763   (973076) от 04.02.2020
+
+Kovacs - Cheap Smell (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Priceless (03:47)
+02. Adickted (03:16)
+03. It's the Weekend (03:33)
+04. Freakshow (03:18)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189D142B019EC26B579870EB2DBC3EB320FF6E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975124   (973036) от 14.01.2016
+
+Julio Iglesias - Noche De Cuatro Lunas (2000) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gozar la vida (3:46)
+02. Dia a día (4:36)
+03. Me siento de aquí (4:30)
+04. Te voy a contar mi vida (4:55)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97775E043B89A3203CC52BE28217F94292CB8C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357730   (973004) от 04.02.2020
+
+Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Pay The Ferryman (3:25)
+ 02. Missing You (4:07)
+ 03. The Lady In Red (4:15)
+ 04. Live For The Day (with Tina Yamout) (3:22)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975661   (972099) от 15.01.2016
+
+VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiziano Ferro - Xdono (4:02)
+02. Tiromancino - Due destini (4:37)
+03. Lunapop - Resta con me (2001 version) (4:14)
+04. Velvet - Boyband (3:37)(   Читать дальше...   )Жанр: Italian PopПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975364   (972028) от 15.01.2016
+
+Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soy un truhan, soy un senor (3:05)
+02. Sono io (4:21)
+03. Si me dejas no vale (2:19)
+04. Por un poco de tu amor (2:58)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975622   (971938) от 15.01.2016
+
+Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor [FLAC|Lossless|tracks + .cue] <Pop, Rock, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Amour A Deux [04:55]
+ 02. Dis Lui Toi Que Je T'Aime [03:58]
+ 03. L'Amour En Soi [05:07]
+ 04. La Vague A Lames [03:21](   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975495   (971936) от 15.01.2016
 
 Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
@@ -543,209 +746,6 @@ Tomas N'Evergreen - Since You've Been Gone (2003) [APE|Lossless|image+.cue] <Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C295B18BFEDA1C878E46BA46B9A1F8FF05DB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977982   (964556) от 22.01.2016
-
-VA - I Grandi Successi Degli Anni 80 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mango - Nella Mia Città (7:02)
-02. Patty Pravo - Per Una Bambola (3:21)
-03. Luca Barbarossa - Roma Spogliata (3:47)
-04. Massimo Ranieri - Perdere L'amore (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE83D9F6D4C8C0FBAE9D0B9F8C0FF5298A62A255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977956   (964535) от 22.01.2016
-
-VA - I Grandi Successi Degli Anni 80 Vol.1 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gianni Morandi, Enrico Ruggeri - Si Puo Dare Di Pu (4:28)
-02. Raf - Inevitabile Follia (4:32)
-03. Fiorella Mannoia - Caffe Nero Bollente (4:26)
-04. Francesco Baccini - Le Donne Di Modena (5:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4C26F7377FA67CD9FE294E487C31A696CBD926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978003   (963639) от 23.01.2016
-
-VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piano Daniele - Quando (3:35)
-02. Umberto Tozzi - Gli altri siamo noi (5:31)
-03. R.Casale e G.Di Michele - Gli amori diversi (3:39)
-04. Cristiano De Andre - Dietro la porta (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B74C2E2FCC9B90B4C09F63589572B8AAAE11FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978085   (963515) от 23.01.2016
-
-VA - Viva Italia - Canzone Italiana (2006) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gepy & Gepy - Angelo Blu (3:17)
-02. Morena - Attenti Al Lupo (4:08)
-03. Stefano Borgia - Se Ti Senti Veramente Un Amico (3:28)
-04. Aleandro Gualdi - Passera' (4:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FBDB6E12CE2EB392BE2CB6817B726E9C78EDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978316   (963341) от 23.01.2016
-
-a-ha - Scoundrel Days (1986) 2CD, Deluxe Edition, Remastered, 2010, Warner Bros [FLAC|Lossless|image + .cue] <Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scoundrel Days (04:01)
-02. The Swing Of Things (04:14)
-03. I've Been Losing You (04:26)
-04. October (03:54)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 02:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C99FA968FB07384692745D427AB17EF8F15E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359982   (963264) от 13.02.2020
-
-Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Haunt You (02:32)
-02. Need Your Love (03:51)
-03. How to Forgive (03:36)
-04. Runner (03:36)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979091   (961122) от 25.01.2016
-
-Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Renegade Runaway 3:40
-02 Dirty Laundry 3:25
-03 Church Bells 3:15
-04 Heartbeat 3:31(   Читать дальше...   )Жанр: Pop, Pop Rock, CountryПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
 ```
 
 https://mybot314.ru/tekegram_catalog/

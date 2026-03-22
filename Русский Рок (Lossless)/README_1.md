@@ -1,3 +1,32 @@
+###  Публикация: 1607672   (1043955) от 27.01.2023
+
+Лич - Чувства Рэдо (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чувства Рэдо [00:02:42]
+02. Ворон [00:03:21]
+03. Вампирская (Acoustic Version) [00:02:46]
+04. Улыбка [00:03:12](   Читать дальше...   )Жанр: RockПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653A359466159158DF9A86E6A1989DF4288FC7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608373   (1043657) от 30.01.2023
 
 Одиссея - Эра Героев (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -715,35 +744,6 @@ Lowering - Struggling With The Dark (2020) [FLAC|Lossless|Web-DL|tracks] <Depres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB306AC60B0C405F54CD334E4025AC6FDD4099CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428322   (1040026) от 12.01.2021
-
-Кипелов - Концерт с симфоническим оркестром (2020) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дыхание тьмы
-02. Безумие
-03. Свет дневной иссяк
-04. Мёртвая зона(   Читать дальше...   )Жанр: Heavy MetalФормат: 2CD + DVDПродолжительность: 01;08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB9B784E2FA7EA6FF27EE2BA53ECDFCBCEF795
 ```
 
 https://mybot314.ru/tekegram_catalog/

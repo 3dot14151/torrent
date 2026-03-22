@@ -1,3 +1,38 @@
+###  Публикация: 483622   (88768) от 16.04.2012
+
+Jiang He Shui - Water of Jangce River (2007) [MP3|128-320 кб/с]<Ethnic, Folk>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88768.jpg" />
+</div>
+
+
+###  Подробнее
+
+(06:48) 01. River water
+(05:31) 02. Jackdaw play water
+(05:49) 03. Moonnight
+(05:34) 04. Er Quan Spring reflects the moon
+(06:27) 05. Chant for leisurely days
+(07:29) 06. Fishing-boat sings in evenfall
+(06:44) 07. Zhaojun went into frontier fortress
+(01:38) 08. Horse race
+(11:06) 09. Perfect drum visit the path
+(06:57) 10. Color lamps melody(   Читать дальше...   )2007Жанр: Ethnic, FolkПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D0CDAB17E3758247367822F8770E7FCE95F689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477850   (86337) от 04.04.2012
 
 Coldrain - The Enemy Inside (2011) [MP3|320 кб/с]<Alt. Rock / Post-Hardcore>

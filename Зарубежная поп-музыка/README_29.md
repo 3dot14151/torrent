@@ -1,3 +1,119 @@
+###  Публикация: 1288631   (694312) от 12.03.2019
+
+VA - Ballermann Hutten Mix 2019 (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Ballermann Hьtten Mix 2019, Pt.1
+02. DJ Mix - Ballermann Hьtten Mix 2019, Pt.2
+03. Almklausi & Specktakel - Mama Laudaaa (Aprиs Ski Edition)
+04. Tobee - Helikopter 117 (Mach den Hub Hub Hub) (Aprиs Ski Version)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 04:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8668F63282A4B4395CDF039E00E4DAA52117D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288680   (694305) от 12.03.2019
+
+Eugenio In Via Di Gioia - Natura Viva (2019) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lettera al prossimo (3:17)
+02. Inizia a respirare (3:14)
+03. Altrove (3:09)
+04. Albero (3:11)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDDB6F5683FB109ECD90A8D8A1EAB95A4AEB457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288605   (694195) от 12.03.2019
+
+Carmen - Più forti del ricordo (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabato subito (2:55)
+02. Più forti del ricordo (3:48)
+03. Non è amore (4:00)
+04. Punto a capo (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A795118D84AE176AC8E7E429C70916C5690A579E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403156   (694149) от 18.08.2020
+
+VA - Summer Acoustic (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Johnson - Better Together (3:28)
+02. Vanessa Carlton - A Thousand Miles (3:57)
+03. Corinne Bailey Rae - Put Your Records On (3:35)
+04. Maroon 5 - Sunday Morning (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5680869726E2932A27881340B8BFF172C231254E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288681   (694055) от 12.03.2019
 
 VA - Latino - 30 Summer Hits (2019) [MP3|320 Kbps] <Salsa, Pop, Latin Dance, Reggaeton>
@@ -632,122 +748,6 @@ Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE4DF5099DADDAF0887793799095A5B4789B83DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135136   (682910) от 18.05.2017
-
-Цвет Алоэ - В белом платье (2017) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В белом платье
-02. 9 жизней
-03. Белым снегом
-04. Лёд(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4284803FA5FFA6AB76863A4C8AD746AF76012418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029339   (682478) от 26.06.2016
-
-Cash Cash - Blood, Sweat & 3 Years (2016) [MP3|320 кб/с] <Electronic, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How To Love (feat. Sofia Reyes) [03:39]
-02. Broken Drum (feat. Fitz Of Fitz & The Tantrums) [03:18]
-03. Millionaire (feat. Digital Farm Animals & Nelly) [03:06]
-04. Hero (feat. Christina Perri) [03:18](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C332517D2B07541E53C24C7E02AA39C87DBB8C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029281   (682133) от 26.06.2016
-
-Alle Farben - Music Is My Best Friend (2016) [MP3|320 кб/с] <Electronic, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro    01:56
-02.  Please Tell Rosie    02:52
-03.  Bad Ideas    02:46
-04.  Remember Yesterday    03:10(   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2173B1D8F660D96EBEEAFC44C536782AC773903B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290114   (682081) от 18.03.2019
-
-VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682081.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelique - Lieder der Nacht (Price Tunes Extended DJ Mix)
-002. Pat - Dieser eine Augenblick (DJ Tanz Mix)
-003. Lyane Hegemann - Halt mich fest (Wetcat EDM Mix)
-004. Connor Meister - Liebesvisionen (Price Tunes DJ Mix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 06:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FF211D33A0E3ADC7E599011103D2A854E8ED08
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1776306   (71303) от 31.01.2025
+
+Eddie Daniels - Blue Bossa (1972, 1973) 1996, Candid [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Bossa [3:23]
+02. Wistful Moment [4:16]
+03. Emily [3:29]
+04. Samia [3:43](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB7399076E3F1AE4626973375DF65F241FDB597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776304   (71299) от 31.01.2025
+
+Larry Coryell - Bolero & Scheherazade (1983) Philips [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scheherazade: 1. The Sea and Sindbad's Ship [6:53]
+02. Scheherazade: 2. The Story of the Kalender Prince [4:43]
+03. Scheherazade: 3. The Young Prince and the Young Princess [4:45]
+04. Scheherazade: 4. Festival at Baghdad - The Sea - The Shipwreck [6:14](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AC94E39B98AFE0ED6231B2CC5974285A64DEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776498   (71241) от 01.02.2025
+
+The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blame It on My Youth [7:09]
+02. Fairytale Countryside [9:54]
+03. The Smile of the Snake [6:03]
+04. Third Avenue [8:21](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC761B06899A1F53C5C2A6D07BA471E86E551C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776481   (71240) от 01.02.2025
+
+Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossless|tracks + .cue] <Hard Bop, Poat-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Bass [9:21]
+02. Gypsy Jingle Jangle [4:41]
+03. Povo [12:14]
+04. Love Is a Many Splendored Thing [7:29](   Читать дальше...   )Жанр: Hard Bop, Poat-BopПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D800F211B9AE72187ED0555F1764E2B81E26779A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776489   (71238) от 01.02.2025
+
+The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone an' Git It Y'all [4:49]
+02. A Night at El Morocco (Easy As It Goes) [5:43]
+03. Right On, Right On [5:04]
+04. That's the Kind of Love I'm Talking About (For Cecile) [5:11](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD46B395B3E14C64DE8F8D6BD6EF906CAC4FD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776484   (71221) от 01.02.2025
+
+Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now's the Time [6:30]
+02. All the Things You Are [7:02]
+03. A Night in Tunisia [7:46]
+04. 'Round Midnight [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3206EDE920C4E0E5D983B8B7D664F497493FA4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776492   (71219) от 01.02.2025
 
 The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
@@ -571,180 +745,6 @@ John Hicks Quartet - Naima's Love Song (1988) DIW Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0DB5C042E4D70F2229C5DAF1C4A4C8296E2E126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777456   (70989) от 06.02.2025
-
-The Buddy Rich Big Band - Mercy, Mercy (1968) 1997, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mercy, Mercy, Mercy [5:35]
-02. Preach and Teach [4:07]
-03. Channel 1 Suite [12:50]
-04. Big Mama Cass [3:22](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0795046B0B694D972E056907C36F82451CDC4CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777459   (70985) от 06.02.2025
-
-Dick Hyman - Face The Music: A Century Of Irving Berlin (1988) Musicmasters [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady of the Evening [5:31]
-02. Let's Face the Music and Dance [2:31]
-03. The Night Is Filled with Music [3:02]
-04. Soft Lights and Sweet Music [3:32](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC47447E064C8191648AFFA4ACC2AB87C1D81DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777841   (70958) от 07.02.2025
-
-Buddy Rich And The Big Band Machine - Speak No Evil (1976) 2008, Wounded Bird Records [FLAC|Lossless|image + .cue] <Jazz-Funk, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak No Evil [3:48]
-02. Yearnin' Learnin' [5:40]
-03. Storm at Sunup [6:37]
-04. Love Me Now [4:27](   Читать дальше...   )Жанр: Jazz-Funk, Big Band, SwingПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC2B8064B0F3CD508238B67A04A447965F4F88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777839   (70945) от 07.02.2025
-
-Art Farmer Quintet - Live At Sweet Basil (1992) 1994, Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fairy Tale Countryside [14:38]
-02. Modulations [10:37]
-03. Yesterdays [9:56]
-04. Straight No Chaser [9:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693DD8CE09FA8BCDE8A4CF85F2849F602D593ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777843   (70942) от 07.02.2025
-
-John Hicks & Elise Wood - Beautiful Friendship (2000) Hi Wood [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn in New York [5:30]
-02. Beautiful Friendship [4:58]
-03. But Beautiful [6:43]
-04. Corcovado [6:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC4F596375DD857C13F02E61E17A0F7EFC0671B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778329   (70921) от 08.02.2025
-
-Julee Cruise – Floating Into The Night (1989) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Downtempo, Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating
-02. Falling
-03. I Remember
-04. Rockin' Back Inside My Heart(   Читать дальше...   )Жанр: Smooth Jazz, Downtempo, AmbientПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1CD4FC39BB814154B20669210E605366B70731
 ```
 
 https://mybot314.ru/tekegram_catalog/

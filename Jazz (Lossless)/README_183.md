@@ -1,3 +1,178 @@
+###  Публикация: 1323148   (440026) от 02.09.2019
+
+Euge Groove - Slow Jams (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Jam
+02. Rain Down On Me
+03. The Healing (Groove On)
+04. The Gospel Truth(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6502D0105B850AFAFFCDE881832E9BAF283391C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164747   (439896) от 10.09.2017
+
+Bill Evans & Jimm Hall - Undercurrent (1962) 1986, Toshiba [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine [05:24]
+02. I Hear A Rhapsody [04:40]
+03. Dream Gypsy [04:35]
+04. Romain [05:24](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42918D26379871BF4DCF5936BDCF07A5FBDACC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323153   (439849) от 02.09.2019
+
+Caravan Palace - Chronologic (2019) [FLAC|Lossless|WEB-DL|tracks] <Future Jazz, Gypsy Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miracle
+02. About You (feat. Charles X)
+03. Moonshine
+04. Melancolia(   Читать дальше...   )Жанр: Future Jazz, Gypsy Jazz, SwingПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C9258A014CF096BA2DDB8B85EF0C01FEA97546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248815   (439831) от 21.09.2018
+
+Nina Simone - The Colpix Singles (1959 - 1964) 2CD, 2018, Stateside [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439831.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Chilly Winds Don't Blow [2:46]
+02. Solitaire [3:24]
+03. Children Go Where I Send You [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D272B6C09FC617D388BE0A1B89CD82EC06BAE2A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410140   (438633) от 20.09.2020
+
+Sidney Bechet - The Best of Sidney Bechet (1939 - 1953) 1994, Blue Note Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime [4:12]
+02. St. Louis Blues [4:48]
+03. Blue Horizon [4:27]
+04. Muskrat Ramble [3:41](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEFD0DD66FE0E308480EF78CB4177BB09C17049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410146   (438542) от 20.09.2020
+
+Ella Fitzgerald - Oh, Lady, Be Good!: Best of the Gershwin Songbook (1959) 1996, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два великих имени в одном релизе! Про каждого из них можно с уверенностью сказать, что он самый великий в своей музыкальной нише, которых должен знать не просто каждый любитель музыки, но просто культурный человек.
+Однако оба выделяются среди своих современников как творцы, которые воспроизвели музыку высочайшего уровня и стремились раздвинуть границы джаза к новым (   Читать дальше...   )01. Fascinating Rhythm [3:26]
+02. 'S Wonderful [3:32]
+03. Someone to Watch over Me [4:35]
+04. He Loves and She Loves [2:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4081F61A4B8E6FEF2546CD5DB7FD1E3422BF9F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570847   (438474) от 19.08.2022
 
 Art Blakey & The Jazz Messengers - A Day With Art Blakey, Vol.I (1961) 1987, Intercon Music Corp. [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -571,180 +746,6 @@ The Dutch Swing College Band - Stompin' The Hits (1989) LaserLight [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88328BDBF9057823A5F4C80D84D8A3C6959C674B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165086   (437389) от 11.09.2017
-
-One For All - Killer Joe (2005) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer Joe [06:19]
-02. Island [06:49]
-03. Night Mist Blues [11:07]
-04. Mating Call [06:53](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A73F2AE558A44119522F46F709D6E5147E9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164977   (437388) от 11.09.2017
-
-Rossella Graziani 4Tet - My Favourite Songs (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Love Is Here to Stay
-02. Just One of Those Things (feat. Leo Carboni)
-03. Falling in Love with Love
-04. Cosa cambia(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15108782B19890E5EDD426EEF708062D96497EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164906   (437236) от 11.09.2017
-
-Pat Metheny - One Quiet Night (2009) [FLAC|Lossless|image + .cue] <Acoustic, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Quiet Night (5:02)
- 02. Song For The Boys (4:32)
- 03. Don't Know Why (3:09)
- 04. Another Chance (6:54)(   Читать дальше...   )Жанр: Acoustic, Contemporary JazzПродолжительность: 01:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D082276328D3703D93B6260D7600AD26D952BF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410502   (436232) от 21.09.2020
-
-Allen Farnham - 5th House (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fifth House [7:20]
-02. It's Not Always Where You Think It Is [6:38]
-03. You Stepped Out of a Dream [4:49]
-04. You Know I Care [5:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA624322DDEB4162B7507D0C5907FD7755D0B8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410500   (436230) от 21.09.2020
-
-Duke Ellington And His Orchestra - Early Ellington (1927 - 1934) 1989, BMG Music [APE|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black And Tan Fantasie [3:11]
-02. Washington Wabble [2:51]
-03. Creole Love Call [3:13]
-04. Blues I Love To Sing [3:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3409345A6233FF4968F2E5D826721493FCDCC00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945165   (436176) от 09.10.2015
-
-Clark Terry & Chris Woods - Swiss Radio Days Jazz Series: Lucerne 1978, vol.8 /1997, TCB/ [FLAC|image+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Hymn [06:28]
-02.The Silly Samba [05:29]
-03.I Want a Little Girl [05:03]
-04.Straight No Chaser [08:12](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD46000C0F5B14FEBB9F2C3D6F041F5713A7225F
 ```
 
 https://mybot314.ru/tekegram_catalog/

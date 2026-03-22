@@ -1,3 +1,32 @@
+###  Публикация: 1524562   (743634) от 16.01.2022
+
+The J.B.'s - Groove Machine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Groove Machine (9:04)
+02. Georgia Peach Disco (10:19)
+03. Just Wanna Make You Dance (8:08)
+04. Rock Disco #1 (7:26)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E45C42181132DBE772B7C058EE7FF31C604A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021126   (742190) от 28.05.2016
 
 Azoto - 2 Albums (1978, 1980) [MP3|320 кб/с] <Electronic, Disco, Funk, Soul>
@@ -716,35 +745,6 @@ The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6CB7FF4D889BC57A4148DA5A392B66CB374EB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129189   (724362) от 27.04.2017
-
-Fun Fun - 2 Albums (1984, 1987) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девичий Italo-Disco дуэт "Fun Fun"  был образован в 1983 году, и в его первоначальный состав вошли две симпатичные девушки-модели: Франческа Мерола (Francesca Merola) и Роберта Сервелли (Roberta Servelli), которую позже заменила Элена (Elena). Однако реальными же вокалистками проекта были Antonelle Pepe, Angela Parisi и популярная певица Ivana Spagna, позднее (   Читать дальше...   )01. Give Me Your Love (5:32)
-02. Sing Another Song (5:06)
-03. Tell Me (4:57)
-04. Living In Japan (5:18)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3795E5F28A7FAD6C7E19047AC121A90B1192515
 ```
 
 https://mybot314.ru/tekegram_catalog/

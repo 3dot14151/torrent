@@ -1,3 +1,119 @@
+###  Публикация: 1475431   (1011997) от 09.06.2021
+
+Electric Mistress - Mind Trip (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner, Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:02:49]
+02. Introspection [00:08:44]
+03. Queen of Sound [00:03:16]
+04. Mind Trip [00:06:09](   Читать дальше...   )Жанр: Stoner, Desert RockПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAED0BD82FFFF0D20D5CC6C87FC51B43B01DD1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475949   (1011833) от 10.06.2021
+
+Motorpsycho - Kingdom Of Oblivion (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic, Progressive Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Waning, Pt.1 & 2 (7:29)
+02. Kingdom of Oblivion (6:56)
+03. Lady May (3:21)
+04. The United Debased (9:03)(   Читать дальше...   )Жанр: Psychedelic, Progressive Rock, Alternative RockПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3608DD7AC836919495DD9490A6C93884A51ABA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475175   (1011827) от 10.06.2021
+
+Sunglasses For Jaws - Everybody's Made Of Bones (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Me Home [00:03:22]
+02. Parti en vacances [00:02:56]
+03. Bone [00:08:50]
+04. Woke Up from Something [00:03:56](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877C3C420CBFDCDD383B0B04F6DF0CF93BF00506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476398   (1011673) от 11.06.2021
+
+Vince DiCola - Only Time Will Tell (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bound & Gagged
+02. Karla
+03. Miracles
+04. Just Hanging On(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043E7FA99B844F58453DCA7DD1841DA16AF218B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476314   (1011653) от 11.06.2021
 
 Cirkus - Page 12 on the Right (2021) [FLAC|Lossless|image + .cue] <Eclectic Progressive Rock>
@@ -629,122 +745,6 @@ Winding Road - Winding Road (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A484957211C3C5699B8A605D999920B62490705E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481180   (1008468) от 02.07.2021
-
-Escape - Fire In the Sky (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost And Found (4:35)
-02. Heroes In The Night (4:40)
-03. Temptation (4:33)
-04. Restless Heart (4:35)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA79E7139DD7140DC063ABB9EC8D722D6AEFAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481183   (1008442) от 02.07.2021
-
-Ring Van Mobius - The 3rd Majesty (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Seven Movements Of The Third Majesty (22:06)
-a) Universal
-b) Spectrum
-c) Reaction(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44353329AF8F176EA35F122AD60EBCE58D639A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481320   (1008429) от 02.07.2021
-
-Atlanta Rhythm Section - Atlanta Rhythm Section (1972) Remaster, 1991,  MCA Records [FLAC|Lossless|image + .cue] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008429.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Me Just A Little (Sometime) - 6:05
-2. Baby No Lie - 3:52
-3. All In Your Mind - 3:18
-4. Earnestine - 2:34(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD1FA33CEAF7A4C554C9D5B1E7F8BF5851DE558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481429   (1008322) от 03.07.2021
-
-Shooting Star - 2 Albums (1982 - 1983) Remastered, 2007, Renaissance Records [FLAC|Lossless|tracks + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preview
-02. Straight Ahead
-03. Taken Enough
-04. Go For It(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F31D87D45D8C88652AE67581FC6643371B5888
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1421693   (317763) от 05.11.2020
+
+Evildead - United States of Anarchy (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Descending (03:12)
+02. Word of God (03:04)
+03. Napoleon Complex (03:08)
+04. Greenhouse (03:58)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029D44C8D3BEEC9004ADA361E47C897054B89832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421710   (317751) от 05.11.2020
+
+Fates Warning - Long Day Good Night (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Destination Onward (08:13)
+ 02. Shuttered World (05:14)
+ 03. Alone We Walk (04:44)
+ 04. Now Comes the Rain (04:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA612303B5AFEEA2B9D1C378C02FFE24ED125CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959441   (317392) от 24.11.2015
+
+Battlecreek - Hate Injection (2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317392.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dealing Death
+2. Redneck Riot
+3. Kill Or Be Killed
+4. Hate Injection(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9A36C22C5696C4CC03391CF6E0AAB8E0EF02C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421749   (315525) от 06.11.2020
+
+White Magician - Dealers of Divinity (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dealers of Divinity (07:32)
+ 02. Mad Magic II_ In the Absence of Gods (Bad Magic) (05:11)
+ 03. Fading into the Obscurity of Ages (04:13)
+ 04. In Memoriam_ Love and Magic (Magic and Love) (07:49)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78FCBD0AD712465D1E68749DFB043DDA7141389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421728   (315519) от 06.11.2020
 
 Lucid Dreaming - The Chronicles, Pt. III (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
@@ -633,125 +749,6 @@ Game Over - Claiming Supremacy (2017) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD7AD3FDD6E6E3D3025F9746E472F00051A5394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183895   (305422) от 15.11.2017
-
-Primal Fear - Best of Fear (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305422.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. Area 16
-2. Predator
-3. If Looks Could Kill (Heart cover)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 02:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EFDC6D48B03F20EE5DCD2AE3D71A064B455773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077781   (305103) от 29.11.2016
-
-Monomad - The Art of the Broken Mind (2016) [MP3|320 Kbps] <Avant-Garde, Thrash, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roadkills
-02. Runamok
-03. Goose
-04. Violet(   Читать дальше...   )Жанр: Avant-Garde, Thrash, Doom MetalПродолжительность: 00:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9366D457BC5B6CDB54DFC32EC1F791D89DBBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078070   (304826) от 29.11.2016
-
-Napalm Death - The Best of Napalm Death (2016) [MP3|320 Kbps] <Grindcore, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scum
-02. Suffer the Children
-03. Nazi Punks Fuck Off
-04. Breed to Breathe(   Читать дальше...   )Жанр: Grindcore, Death MetalПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF130DF53CA76EFCF24075697D625CC11EB7D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583292   (303596) от 06.12.2012
-
-Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [MP3|320 кб/с]<Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Act I: The First Seal - 09:39
-2. Act II: Beyond the Black Diamond Gates - 07:14
-3. Act III: Carnal Delight in the Vortex of Evil - 06:13
-4. Act IV: Congressus Cum Daemone - 10:24
-5. Act V: The Magic Temple - 04:16
-6. Act VI: The Sixth Seal - 07:50
-7. Bela Lugosi's Dead (Bauhaus cover) - 05:28Жанр: Symphonic Black MetalПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D98AC0E3A926EC9142E1C4A684054D312D3574
 ```
 
 https://mybot314.ru/tekegram_catalog/

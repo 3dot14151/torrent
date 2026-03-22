@@ -1,3 +1,32 @@
+###  Публикация: 1427301   (184424) от 27.11.2020
+
+Leslie O'Hara - Gipsy Boy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_184424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gipsy Boy  (7:07)
+02. No War Love  (2:48)
+03. It's America  (3:32)
+04. Disco Banjo  (6:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E286FBC866DB9AF7B3FFE4FD41A70193374D5920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427224   (184307) от 27.11.2020
 
 101 Strings Orchestra - 101 Strings Goes Disco (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -712,35 +741,6 @@ VA - Italo 2000 - Italo Rarities Vol. 3 (2000) 2 CD [OGG Vorbis|480 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2C9D733667B94F667E17CF6EF5C8C79AA5DD7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670434   (171898) от 21.10.2023
-
-VA - Dos Décadas Dance 2 (2002) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Hernandez - Born To Be Alive
-02. Sylvester - You Make Me Feel (Mighty Real)
-03. Amii Stewart - Knock On Wood
-04. Delegation - You And I(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 06:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419FD849BA0455A4A0A401C8FFAE365CFD369151
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1421322   (317474) от 05.11.2020
+
+VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rare80 Volume 2 CD1
+01. Shanghai - Ballerina (Club Mix)
+02. Andrea - Macho Man (Macho Man Version)
+03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182216   (316947) от 10.11.2017
 
 VA - Sunlover Records Compilation Vol.1 - Italo Disco is Back! (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop>
@@ -717,35 +746,6 @@ VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52FF031A5CAE6EA4871C378B0EE5BF6FFC50EFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341216   (262615) от 27.11.2019
-
-VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.M. Samurai - Secret Entrance (4:42)
-02. Marco Rochowski - Voyage Of Discovery (5:46)
-03. Synthesis - Strange Land (6:51)
-04. Rygar - Illusion In C Minor (6:37)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
 ```
 
 https://mybot314.ru/tekegram_catalog/

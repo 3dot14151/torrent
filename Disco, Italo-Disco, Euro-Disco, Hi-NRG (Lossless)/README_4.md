@@ -1,3 +1,32 @@
+###  Публикация: 1090339   (947442) от 06.01.2017
+
+JohnnyM5 - Fantasy Of Love (Extended & Remixed) (2009) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night (For You & Me) (Extended Version) (6:40)
+02. Take The Heat (Extended Mix) (6:08)
+03. Fantasy Of Love (Maxi Version) (5:08)
+04. Give Me Your Love (Obsession Remix) (3:52)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Hi-NRGФормат: CD, AlbumПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F506D3B62DD719E9F1EC1FC23DAF18C51DC7D502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 751137   (946404) от 30.01.2014
 
 C.C. Catch - Maxi Hit-Sensation: Nonstop DJ-Mix+Extra Bass (2006) [FLAC|Lossless]<Disco, Euro House, Synth-pop>
@@ -721,35 +750,6 @@ Ottawan - All Gold Of The World (2004) [FLAC|Lossless|tracks + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:461CB344D8E5B82F955C544A119DE01F85D6BC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491529   (898842) от 01.09.2021
-
-MFSB - Philadelphia Freedom & Summertime   (2010)  2CD [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Picnic In The Park (04:16)
-02. Summertime (04:54)
-03. Plenty Good Lovin' (04:35)
-04. Sunnin' And Funnin' (04:17)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A7F2A87D5E024066ED8930D8B236BE35178EA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

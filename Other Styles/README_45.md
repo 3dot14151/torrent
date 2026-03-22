@@ -1,3 +1,61 @@
+###  Публикация: 1274187   (792250) от 08.01.2019
+
+Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of the East (5:48)
+ 02. Racing Against the Sunset (4:53)
+ 03. The Approaching Night (6:40)
+ 04. Darkness Falls (4:42)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC52A6863772248A7446855DF2D2A62C35195EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274846   (792238) от 08.01.2019
+
+Trent Reznor & Atticus Ross - Bird Box (2019) The Null Corporation [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Dark Ambient, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside (12:42)
+ 02. Undercurrents (04:03)
+ 03. Looking Forwards And Backwards (09:00)
+ 04. What Isn't Anymore (07:49)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Dark Ambient, ScoreПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023655D2D13D5166E92EA7489F9ABA2E01D02D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201263   (792170) от 25.01.2018
 
 Aryeh Frankfurter - Celtic Whispers (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
@@ -686,64 +744,6 @@ Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511037   (789839) от 19.11.2021
-
-Wellküren - Das Mensch: Traditionals (2003) [APE|Lossless|image + .cue] <Volksmusik>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Joseph-Jodler 0:36
-02 - Der junge schwarz' Schlossergesell 3:15
-03 - Evi-Landler 3:52
-04 - Bim Bam & Mäh-Jodler 3:23(   Читать дальше...   )Жанр: VolksmusikПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DC4611B92DED6350E17B3A623910E153B53586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202437   (789829) от 29.01.2018
-
-Celtic Woman - Homecoming: Live from Ireland (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homecoming Lament (Live 2017) (02:02)
-02. Mo Ghile Mear (My Gallant Star) (Live 2017) (04:09)
-03. My Heart Will Go On (Live 2017) (04:26)
-04. Walk Beside Me (Live 2017) (04:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FE4237F08D3EA8450484665FBB7A6D2199F9B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

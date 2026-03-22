@@ -1,3 +1,151 @@
+###  Публикация: 209440   (707726) от 13.06.2010
+
+Russ Ballard - 13 альбомов (1974-2006) [MP3|128-320 kbps] <Classic Rock / Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_707726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1974-2006Жанр: Classic Rock / Progressive RockПродолжительность: 01:08:12
+
+01 | It's My Life (Stand In My Shoes) | 02:38
+02 | Crazy World | 04:33
+03 | In The Dark | 03:27
+04 | When You Sleep | 03:09
+05 | Love Works In Strange Ways | 03:00
+06 | Like Father Like Son | 04:12
+07 | Is There Anybody Out There | 05:06
+08 | I'm Just Not Made For This World | 04:45(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209097   (707449) от 13.06.2010
+
+Roy Orbison - Discography (1960 - 2008)[MP3|192-320 kbps]<Rockabilly, Rock’n Roll, Rock, Ballads, Country, Pop>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_707449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанры: Rockabilly, Rock’n Roll, Rock, Ballads, Country, PopПродолжительность: 01:14:33 + 01:15:38 + 01:15:55 + 01:18:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532833   (707213) от 23.02.2022
+
+Velvet Volume - Nest (2022) [MP3|320 Kbps] <Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Look Like Your Father (03:27)
+ 02. In The End (03:49)
+ 03. Mother And Man (04:35)
+ 04. Remedy (03:06)(   Читать дальше...   )Жанр: Rock, Female VocalПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4540F38F40FF4ECE4FC004F0F60AF55EA9D52DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220316   (706184) от 18.04.2018
+
+Roland Nipp - In the Cool of the Dawn (2017) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, Electric Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Cool of the Dawn
+02. Beauty and Demons
+03. Sand
+04. It's Time(   Читать дальше...   )Жанр: Roots Rock, Instrumental Rock, Electric GuitarПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BC61679541FAE59B34FDA4618E32FFAF79F7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220284   (706183) от 18.04.2018
+
+Roland Nipp - Better Days (2018) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, Electric Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake These Blues
+02. Better Days
+03. In a Lifetime
+04. Echoes(   Читать дальше...   )Жанр: Roots Rock, Instrumental Rock, Electric GuitarПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33CEFC20A41D131E33FA5E498E600017C65517A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220234   (706182) от 18.04.2018
 
 Joe's Garage - The Best Of (2018) [MP3|320 Kbps] <Electronic Pop Rock, Female Vocal>
@@ -600,151 +748,6 @@ Aaron Fink (ex. Breaking Benjamin) - Wolves & Butterflies (2018) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9278E268DA095D13DE204C1E428866191841985E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221687   (693082) от 25.04.2018
-
-Aaron Fink (ex. Breaking Benjamin) - Heavy Feathers (2016) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damned If I Do
-02. Surrender
-03. Reckless
-04. Strange Days(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEFF881A5A84D1B95C0006EC75466C318BCFEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221564   (692978) от 25.04.2018
-
-BrainStorm - Par to zenu, kas sit skarda bungas (2018) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692978.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Par to zēnu, kas sit skārda bungas
-2. Ogles
-3. Pašu dārgāko
-4. Tevis dēļ(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824235F292F87638953AACC216DCD4E670B0B416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027960   (692971) от 21.06.2016
-
-Cate Rox - Mind vs. Heart (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames (02:34)
-02. Wake Up (03:38)
-03. Magical Girl (03:11)
-04. Lone Warrior (02:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55CF4DA77C3B51F4CE02607B3739A8C302C8109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221690   (692894) от 25.04.2018
-
-BrainStorm - Wonderful Day (2018) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Контакты
-2. Мой друг океан
-3. Для тебя
-4. For a Friend(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1111BDED259961B7D16FEA545E87E7AFC53EB070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403349   (691935) от 19.08.2020
-
-VA - Women In Rock (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pretenders - Middle of the Road
-02. Alannah Myles - Make Me Happy
-03. Tori Amos - Heart of Gold
-04. The Joy Formidable - Little Blimp(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD90648D6AA5D5D06B830470062633C40D4901C
 ```
 
 https://mybot314.ru/tekegram_catalog/

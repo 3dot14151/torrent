@@ -1,3 +1,119 @@
+###  Публикация: 1135136   (682910) от 18.05.2017
+
+Цвет Алоэ - В белом платье (2017) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В белом платье
+02. 9 жизней
+03. Белым снегом
+04. Лёд(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4284803FA5FFA6AB76863A4C8AD746AF76012418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029339   (682478) от 26.06.2016
+
+Cash Cash - Blood, Sweat & 3 Years (2016) [MP3|320 кб/с] <Electronic, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How To Love (feat. Sofia Reyes) [03:39]
+02. Broken Drum (feat. Fitz Of Fitz & The Tantrums) [03:18]
+03. Millionaire (feat. Digital Farm Animals & Nelly) [03:06]
+04. Hero (feat. Christina Perri) [03:18](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C332517D2B07541E53C24C7E02AA39C87DBB8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029281   (682133) от 26.06.2016
+
+Alle Farben - Music Is My Best Friend (2016) [MP3|320 кб/с] <Electronic, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro    01:56
+02.  Please Tell Rosie    02:52
+03.  Bad Ideas    02:46
+04.  Remember Yesterday    03:10(   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2173B1D8F660D96EBEEAFC44C536782AC773903B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290114   (682081) от 18.03.2019
+
+VA - Schlager Total - Die Hits aus den Discotheken 2019 DJ Dance Mixe (2019) [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682081.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelique - Lieder der Nacht (Price Tunes Extended DJ Mix)
+002. Pat - Dieser eine Augenblick (DJ Tanz Mix)
+003. Lyane Hegemann - Halt mich fest (Wetcat EDM Mix)
+004. Connor Meister - Liebesvisionen (Price Tunes DJ Mix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 06:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF211D33A0E3ADC7E599011103D2A854E8ED08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222790   (681083) от 01.05.2018
 
 VA - Mallorca Megaparty 2018 - Die WM Party! (2018) [MP3|320 Kbps] <Pop, Schlager>
@@ -626,122 +742,6 @@ VA - 100 Greatest Love Songs (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90A9CCB5697B1B1E250DC60FDCDA347D70A84AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291572   (668671) от 25.03.2019
-
-VA - 100 Greatest Motivation Songs (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit, Jess Glynne - Rather Be (feat. Jess Glynne)
-02. Birdy - Keeping Your Head Up (Don Diablo Remix; Radio Edit)
-03. Rudimental, John Newman - Feel the Love (feat. John Newman)
-04. Flo Rida - Good Feeling(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0ED605D4D049C9FE2871DB5BC9F0476B019328A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224069   (668188) от 08.05.2018
-
-VA - Voll Bock auf Ballermann (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo ohne Flamingo - Saufen morgens, mittags, abends
-02. Almklausi - Mama Laudaaa
-03. Tobee - Helikopter 117 (Mach'den Hub Hub Hub) (Mallorca Version)
-04. Willi Herren - Nachttischlampe(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9867506FDC56F59009F046F272CB3D7D9CEDD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537184   (667891) от 16.03.2022
-
-VA - Mastermix Pro Disc 259 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Oh My God
-02. Danny Byrd & D Double E - Selecta
-03. Joy Crookes - Trouble
-04. D.O.D feat. Carla Monroe - Still Sleepless(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:10:54 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95E15D0EB7FEB0C6D354E986B72F6B3F8FDEF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537192   (667844) от 16.03.2022
-
-VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alesso & Katy Perry - When I'm Gone
-02. Amaarae Ft. Moliy - Sad Girlz Luv Money (Clean)
-03. Anne-Marie - Beautiful
-04. Belters Only Ft. Jazzy - Make Me Feel Good(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:15:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631730BCA8F465460E3B43A43D625A312D681D45
 ```
 
 https://mybot314.ru/tekegram_catalog/

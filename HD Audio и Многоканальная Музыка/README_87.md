@@ -1,3 +1,322 @@
+###  Публикация: 1692226   (122722) от 15.01.2024
+
+Chris Wragg and Greg Copeland - The Last Sundown (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alabama Train (3:54)
+02. Can't Shake These Blues (4:52)
+03. 1964 (6:33)
+04. Don't Let The Devil Ride (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2D446B552D97124954E116EA1B878A3CAAF0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692228   (122719) от 15.01.2024
+
+Sean McKee Band - In This Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lusting For Gold (3:14)
+02. In This Life (2:51)
+03. Broke Tired and Lonely (3:15)
+04. East Valley Lane (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EAE5ABB46CF5C9DDB868E8648B02058D8959FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692229   (122704) от 15.01.2024
+
+The Fixed Trio - Talladega (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:47)
+02. Keep It Down (2:28)
+03. Talladega (3:16)
+04. Nice! (2:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BD213F1A46D85F87CD1173520284213C352B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692516   (122519) от 16.01.2024
+
+Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122519.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Asl
+A2. Born To Survive
+A3. You've Lost Yourself
+A4. Dance(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4B718E820F99A53875D54D416B7ABC7F9D2CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692275   (122507) от 16.01.2024
+
+Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anthem — метал-группа из Японии, основанная в 1981 году в Токио.1985 - Anthem
+1986 - Tightrope
+1987 - Bound To Break
+1988 - Gypsy WaysЖанр: Heavy/Power MetalПродолжительность: 16:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6711036FF2939873896775730D1A71597E5C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692491   (122494) от 16.01.2024
+
+Lair - The Hidden Shiv (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Sludge>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Taken Apart (00:04:38)
+02 - A Human Trench, Pt. 1 (00:05:30)
+03 - Saltlicker (00:06:23)
+04 - Something's at the Door (00:04:51)(   Читать дальше...   )Жанр: Doom Metal, SludgeПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28509FAFDCC92B057D5BEF6A94B4BF8F7E6E0188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692286   (122493) от 16.01.2024
+
+Elegy - Graveflowers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graveflowers
+02. Ship Of Hopes
+03. In Exodus
+04. Mirages(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0999F1D938E589B2DC8DC9A2DAED2016336FE81C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692347   (122489) от 16.01.2024
+
+Hannah Wicklund - The Prize (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell in the Hallway (03:33)
+02. Witness (04:16)
+03. Hide and Seek (04:17)
+04. Lost Love (02:47)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Female VocalПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3AF2DAA8C2BE8D6E64950D3A4973C0D51D1CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692743   (122344) от 17.01.2024
+
+Bagual - Inhumar (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Psych/Stoner/Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhvmar [00:02:59]
+02. Panteones [00:04:03]
+03. Volcanes [00:06:19]
+04. Monolitos [00:04:33](   Читать дальше...   )Жанр: Heavy Psych/Stoner/ProgПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E450DDEE439BCB1EA963D490BE09E7F3FED2C2BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692697   (122343) от 17.01.2024
+
+Greg Puciato - FC5N (2024) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You, Staring at Me, Staring at You [00:01:11]
+02. Absence as a Presence [00:05:20]
+03. Don't Wanna Deal [00:02:59]
+04. Crazy All Around [00:05:59](   Читать дальше...   )Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 00:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1F9BF79A1DA73CA8F7329CA463D4BAF7557FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692668   (122326) от 17.01.2024
+
+Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122326.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vermin Feast
+A2 Esophageal Mutilation
+B1 Coffin Birth
+B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692882   (122178) от 18.01.2024
 
 Saxon - Hell, Fire And Damnation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -426,323 +745,6 @@ Saxon — английская рок-группа, одна из ярких п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1C38FAAC544AD9051D3A177815806307F29EDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693618   (121708) от 21.01.2024
-
-30 Seconds to Mars - Stuck (TroyBoi Remix) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuck (TroyBoi Remix) [00:02:54]
-02. Seasons [00:02:47]
-03. Stuck [00:03:02]Жанр: Alternative rockПродолжительность: 00:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6EDDBD80D7A6AAB5F57B13FD62B3A468B74751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693709   (121688) от 21.01.2024
-
-Balint Gyemant (Bálint Gyémánt) - Vortex Of Silence (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pyramidion (6:44)
-02. Waltz for Mr Diamond (6:28)
-03. The Storm is Approaching (0:59)
-04. Dunning-Kruger Effect (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACAA1FBE490977F762C49B8715273094F3E970A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693690   (121685) от 21.01.2024
-
-Caitlyn Smith - I Think of You (The Heartache Collection) (2024) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Pop, Folk, World, Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Think Of You [00:03:17]
-02. High [00:03:47]
-03. This Town Is Killing Me [00:03:46]
-04. Do You Think About Me [00:03:32](   Читать дальше...   )Жанр: Pop, Folk, World, CountryПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96906B7FCCFFBA2999FA7257EB08183AA67AA9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693713   (121681) от 21.01.2024
-
-Circus Maximus - Studio Albums (5 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circus Maximus — норвежская прогрессив-метал-группа. Основана в городе Осло в 2000 году.2005 - The 1st Chapter
-2007 - Isolate
-2012 - Nine
-2016 - HavocЖанр: Progressive MetalПродолжительность: 04:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB2CB25F947163C6755F7403400E03EC34F3E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693703   (121666) от 21.01.2024
-
-Kari Antila - Dahill Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Toninho (5:19)
-02. Dahill Road (6:02)
-03. Moving Clouds (7:01)
-04. Wild Rooster (6:20)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750EB53EC2B4A473BD20809A80E59C84F1A2B9D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823196   (121583) от 10.10.2025
-
-Collapse 7 - Studio Albums (4 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Collapse 7 - метал-группа из Зальцбурга, Австрия, основана в 2003 году.2004 - In Deep Silence
-2007 - Supernova Overdrive
-2011 - Doomsday Odyssey
-2023 - Human Monster MadnessЖанр: Melodic Death MetalПродолжительность: 03:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A748F49EBDCDB4680C01D90DA1CCA630EB37C80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823154   (121581) от 10.10.2025
-
-Immorium - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Immorium - австралийская метал-группа, основанная в 2008 году в Канберре.2015 - Universum
-2020 - This Too Shall Pass
-2024 - Rose Water BlackЖанр: Melodic Death MetalПродолжительность: 02:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F882FE0E09D050209503E618A4A2890A1EB512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823242   (121517) от 10.10.2025
-
-Neil Young - Neil Young Archives Vol. III 1976 - 1987 (2025) Box Set [FLAC 24/192|Lossless|WEB-DL|tracks] <Country Rock, Roots Rock, Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Shine (Live) [4:45]
-02 - Mellow My Mind (Live) [3:13]
-03 - Too Far Gone (Live) [3:16]
-04 - Only Love Can Break Your Heart (Live) [3:05](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 14:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2705BDA712B6A1D91E2E280AE30B6B732B97DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693783   (121497) от 22.01.2024
-
-Jeremy Renner - Love and Titanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Man (2:57)
-02. The River (3:51)
-03. Wait (3:03)
-04. Love And Titanium (3:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF970C02C6CB6FB724DB7F8E79A252B51B89C6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693779   (121495) от 22.01.2024
-
-Evan Nicole Bell - Runaway Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catfish Blues (3:03)
-02. Runaway Girl (Radio Edit) (3:59)
-03. Burn (3:58)
-04. Runaway Girl (Extended Mix) (6:16)Жанр: BluesПродолжительность: 00:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7313216450A018E8BF6CE3DF0EB1D7B2E17046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693174   (121487) от 22.01.2024
-
-Background Music Masters, Instrumental Jazz Music Guys - Evening Revelry Harmonies of Evening Gatherings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always and Always (3:33)
-02. We'll Meet Again (3:19)
-03. Prelude to a Kiss (3:27)
-04. Straight Ahead (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C58D6735C16FC4882B3B987D7BF2FD4B97B1E82
 ```
 
 https://mybot314.ru/tekegram_catalog/

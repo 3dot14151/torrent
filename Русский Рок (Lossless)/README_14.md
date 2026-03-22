@@ -1,3 +1,32 @@
+###  Публикация: 1501085   (837990) от 08.10.2021
+
+Кипелов - Часы Судного Дня (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Огненная Дуга
+02. Часы Судного Дня
+03. Лунный Ковчег
+04. Крик ТишиныЖанр: Heavy MetalПродолжительность: 00:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB78BBCD2C1E40BF89F2D373F80E8E22E2E5D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113601   (836608) от 12.03.2017
 
 VA - Отражения (Tribute to Каталог) (2016) [FLAC|lossless|tracks + .cue] <Rock>
@@ -740,35 +769,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6CFFF53E0F12A3671AFBE53917355950C7D8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382486   (813742) от 14.05.2020
-
-Modern Blues Band - Блюз опадающих листьев (2006) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайна
-02. Преследование
-03. Мамин блюз
-04. Его блюз(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FD2DC846DD8344DD1C9F66D66B0AA66D298E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

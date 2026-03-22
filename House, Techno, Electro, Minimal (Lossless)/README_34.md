@@ -1,3 +1,148 @@
+###  Публикация: 1230133   (618694) от 10.06.2018
+
+VA - Be Free 5 Years (2018) Be Free Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darse – Alone | Love Over Entropy Remix (07:37)
+02. Dave Nyx Aether – Forgive Me | Talul Remix (06:56)
+03. Eleonora – With You Here | Javier Orduna Remix (07:13)
+04. Gianluca Corvesi – Viaggio | Gabriele Carasco Meet Sehija Remix (09:15)(   Читать дальше...   )Жанр: Deep Progressive House, Tech House, Nu DiscoПродолжительность: 03:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7235ACE3404DBFA835C339CE54D8BE8372263041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295318   (618603) от 13.04.2019
+
+DJ Smash - Twenty Three (Special Burger King Edition) (2011) Special Edition [FLAC|Lossless|tracks + .cue] <House, Electronic, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Need You (Feat. Terri B! & MC Shayon) (4:08)
+02.Show Me To Your Love (Feat. Los Devchatos) (3:25)
+03.From Russia With Love (Feat. Los Devchatos) (3:17)
+04.Этой ночью (Feat. Лариса Долина) (3:47)(   Читать дальше...   )Жанр: House, Electronic, PopПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEEFE82D4A614AB7DE66823DCF0FFD30ECEB602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544947   (618388) от 17.04.2022
+
+Swedish House Mafia - Paradise Again (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Euro House, Bassline>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (feat. Mapei) (04:41)
+02. Heaven Takes You Home (feat. Connie Constance) (03:34)
+03. Jacob's Note (feat. Jacob Muhlrad) (01:04)
+04. Moth to a Flame (feat. The Weeknd) (03:54)(   Читать дальше...   )Жанр: EDM, Electro House, Euro House, BasslineПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A66DA5DE1B5926F236DF38E9D081834A025CB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146359   (616089) от 28.06.2017
+
+Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|tracks + .cue] <Progressive House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Away (feat. Eli & Fur) (5:00)
+ 02. Set My Mind (3:42)
+ 03. Oceans (feat. Liu Bei) (5:01)
+ 04. Lullaby Horizon (5:13)(   Читать дальше...   )Жанр: Progressive House, DowntempoПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7455A8553A26721DFA016DE186E85F7AE9686E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146633   (614656) от 29.06.2017
+
+Pitch Black - Filtered Senses (2016) [FLAC|Lossless|tracks + .cue] <Techno, Dub, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Filtered Senses (7:11)
+ 2. Circuit Bent (7:31)
+ 3. Invisible Chatter (5:29)
+ 4. Dub Smoke (6:51)(   Читать дальше...   )Жанр: Techno, Dub, DowntempoПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEDC55F6EF70C9E10503BF39A6E44B4C9EA34A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296312   (613366) от 16.04.2019
 
 Gesaffelstein - Hyperion (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Downtempo>
@@ -614,151 +759,6 @@ Eluize - Confide (2019) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <House, Lef
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F152AACD41EA1222311BB6ED5ACDF0EF989495F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262038   (603995) от 22.04.2019
-
-Gëinst (Geinst) - Discography 5 Releases (2016-2019) Arts [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milobelus (08:08)
- 02. Mantra (09:16)
- 03. Totemo (10:13)
- 04. Ecnart Infinity (08:04)Тип издания: WebЖанр: TechnoПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1009B71D4D347288F44BA212CE2D0E4AA8DEA371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512865   (603808) от 26.04.2022
-
-Boris Brejcha - Never Stop Dancing (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spicy (feat Ginger) (8:52)
- 02. House Music (feat Arctic Lake) (6:34)
- 03. Take A Ride (feat Ginger) (8:12)
- 04. Twisted Reality (7:54)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444AFC2CF2ED90BAAA18A2EFB3A106AC0E721E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297521   (603632) от 23.04.2019
-
-Sacred Grove - Untitled (2019) City-2 St. Giga [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (02:47)
- 02. Untitled (04:58)
- 03. Untitled (05:44)
- 04. Untitled (05:03)Жанр: Leftfield, Techno, ElectroПродолжительность: 00:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DF7EE452181858DC3A2C01415ED4E9A085DA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297376   (603602) от 23.04.2019
-
-Yotto - Turn It Around (Remixes) (2019) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn It Around (Extended Mix) (6:31)
- 02. Turn It Around (Monkey Safari Remix) (3:46)
- 03. Turn It Around (Ruede Hagelstein's Rise Again Remix) (3:54)
- 04. Turn It Around (Monkey Safari Extended Mix) (7:57)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 00:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4966056FE01D78C26D49BFD7888FBE1FD472B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297595   (603552) от 23.04.2019
-
-Bob Moses - All In All (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Hard House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From The Tree (8:07)
- 02. Winter's Song (7:10)
- 03. All I Want (7:48)
- 04. Interloper (4:44)(   Читать дальше...   )Жанр: Electronic, Deep House, Hard House, DowntempoПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7244378AD8B4C0CDAA76D72CBE7861415AD334C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1571702   (429843) от 23.08.2022
+
+Woody Shaw - The Complete CBS Studio Recordings Of Woody Shaw (1977, 1979, 1981) 3CD, 1992, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429843.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Legend Of Cheops [6:06]
+02. Rosewood [7:15]
+03. Everytime I See You [7:15](   Читать дальше...   )Жанр: Bop, Post-Bop, Big BandПродолжительность: 02:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4191C19891417E31DF590B5AE334874E68FA9F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946189   (429412) от 12.10.2015
+
+John Coltrane - Interstellar Space (1967) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mars [10:45]
+02.Venus [08:37]
+03.Jupiter [05:26]
+04.Saturn [11:34]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28C240CB2B2C21F8938238AF6566F194129AB9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249984   (429380) от 26.09.2018
+
+The Four Freshmen with Stan Kenton And His Orchestra - Live At Butler University (1972) 1989, Creative World [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Will Never Be Another You [3:32]
+02. After You [4:18]
+03. Byrd Avenue [2:18]
+04. Surfer Girl [2:29](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4C2799E2915BA3454E8F076DA8BBC1E7D3F884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249986   (429372) от 26.09.2018
+
+The Four Freshmen - More 4 Freshmen and 5 Trombones & In Person, Vol. 2 (1963, 1964) 2002, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, Dolly! [2:53]
+02. I Left My Heart in San Francisco [1:55]
+03. Midnight Sun [3:33]
+04. The Girl from Ipanema (Garota de Ipanema) [3:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA44B01F48529C70AF5877C9855903A82E75B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250033   (429353) от 26.09.2018
+
+Ruby Braff - Linger Awhile (1953 - 1955) 1999, Vanguard Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Sue [9:19]
+02. Ghost of a Chance [7:26]
+03. Wishing [3:17]
+04. I Cover the Waterfront [8:29](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40E1C3FC3B4AED16D5994014254CD30B2342CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249989   (429271) от 26.09.2018
+
+The Four Freshmen - Voices in Love & Love Lost (1958, 1959) 1998, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Always Chasing Rainbows [3:05]
+02. There Is No Greater Love [2:56]
+03. Moonlight [3:04]
+04. It Could Happen to You [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A044D9378E849F96EB5D80BD2068AEA58E8BC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166016   (428657) от 15.09.2017
 
 Miles Davis Quintet - Winter in Europe 1967 (2006) Gambit Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -571,180 +745,6 @@ Jonathan Fritzen - Fritzenized (2015) [FLAC|image + .cue]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C749DDE73AE5D4C3347F56C735CF4CFE61CF1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946707   (425159) от 14.10.2015
-
-Freddie Roach - Brown Sugar (1964) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brown Sugar [04:23]
- 02.The Righ Time [07:20]
- 03.Have You Ever Had The Blues [06:43]
- 04.The Midnight Sun Will Never Set [06:56](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Hammond OrganПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF728B86B0B9CCF6A1AEDFE2FF7A5942D4BEF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411615   (425076) от 26.09.2020
-
-Louis Armstrong - The Complete RCA Victor Recordings (1932 - 1956) 1997, 4CD, BMG Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425076.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. That's My Home [3:14]
-02. Hobo, You Can't Ride This Train [3:04]
-03. I Hate to Leave You Now [3:15](   Читать дальше...   )Жанр: Swing, Big Band, DixielandПродолжительность: 04:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FDBC4BB31FA97D08D32E51E4DA269239FD0892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250652   (424872) от 28.09.2018
-
-Doug Raney & Thorgeir Stubo - Everything We Love (1983) 1998, Prevue [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Friends [4:12]
-02. We'll Be Together Again [7:28]
-03. Half Nelson [6:23]
-04. So Do It! [5:56](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F532D71F509497D09DC7C12F2FDBB89290EC7410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250656   (424870) от 28.09.2018
-
-Jimmy Raney & Doug Raney - Duets (1979) 1986, SteepleChase [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Met Miss Jones? [4:06]
-02. My One and Only Love [5:27]
-03. Action [5:14]
-04. Invitation [6:35](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17240A255A049CEC9E7B5D0A35E91D87264F002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166576   (424742) от 17.09.2017
-
-The Clayton-Hamilton Jazz Orchestra - Live at MCG (2005) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georgia [03:59]
-02. Jody Grind [05:43]
-03. Nature Boy [04:44]
-04. Lullaby of the Leaves [08:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E3BC3AE8A3D11A8B76563D06F3A5DC3D42D64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166561   (424733) от 17.09.2017
-
-Norman Connors - Take It To The Limit & Mr. C (2010) Expansion Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It To The Limit [03:57]
-02. Melancholy Fire [04:01]
-03. You've Been On My Mind [04:25]
-04. I Don't Need Nobody Else [03:54](   Читать дальше...   )Жанр: Jazz-Funk, SoulПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A833994E068C90A6EE6C5D8E55181C5AB3AEDF66
 ```
 
 https://mybot314.ru/tekegram_catalog/

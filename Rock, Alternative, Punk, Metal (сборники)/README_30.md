@@ -1,3 +1,235 @@
+###  Публикация: 1165388   (434318) от 12.09.2017
+
+VA - Для Тех, Кто Помнит! Русский Рок Vol.4 (от Ovvod7) (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Пикник - Вечер  5:06
+02.  Автограф - Город  4:25
+03.  Король и Шут - Маска  4:42
+04.  Чайф - Вольный Ветер  3:56(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB941BFAE7C64108CC6AB52B06ABBA1DEF18F3D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323633   (433785) от 05.09.2019
+
+VA - Burn This Town (2019) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433785.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sex Park - Atrium
+002. Jonas Bergsten - Minnet Kanske
+003. Sven Atterton - Cast Away
+004. Aescer - Let Go(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 11:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4C2FD20309BF52079D8B691399CE3E137B77BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945554   (433100) от 10.10.2015
+
+Sting - Good Songs (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Stand Losing You(The Police) (1978)
+02. Roxanne(The Police) (1978)
+03. So Lonely(The Police) (1978)
+04. Bring On The Night(The Police) (1979)(   Читать дальше...   )Жанр: RockПродолжительность: 06:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3056CB2C3D25378718E88B9C4467D06867372A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945546   (432963) от 10.10.2015
+
+Scorpions - Good Songs (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Goin' Mad
+02. Leave Me
+03. Inheritance
+04. Fly People Fly(   Читать дальше...   )Жанр: RockПродолжительность: 06:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1B6EBC5963146AD8A71D5D88BEEB8ED42725DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165506   (432219) от 13.09.2017
+
+VA - Для Тех, Кто Помнит! Русский Рок Vol.5 (от Ovvod7) (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ария - Встань, Страх Преодолей  4:13
+02.  Ночные Снайперы - Катастрофически  3:30
+03.  Ва-Банкъ - Хулиган  2:52
+04.  Калинов Мост - Имя Назвать  5:18(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6122071CCCC42A992DBAD7CF7EACAE1500592F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410758   (431722) от 23.09.2020
+
+VA - Invasion Wendigo: Metal Alliance (2020) [MP3|320 Kbps] <Hard Rock, Metal, Core>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431722.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evade - As You Beg
+002. Roadsaw - Fat Rats
+003. Child Bite - Persistance Award
+004. Visitantes - Ahora(   Читать дальше...   )Жанр: Hard Rock, Metal, CoreПродолжительность: 09:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E97FDFB8F5A32E14A97A6AFEB19902611618FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411000   (429831) от 24.09.2020
+
+VA - Shell: Indie Rockstar (2020) [MP3|320 Kbps] <Indie, Alternative, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dopamoon - Who Says
+002. James Righton - The Performer
+003. Tigerwine - Black Water
+004. Radula - Playing My Guitar(   Читать дальше...   )Жанр: Indie, Alternative, RockПродолжительность: 07:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2430B81522DF52FD26E1A6A7944360010319386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 830266   (426728) от 12.10.2014
+
+VA - Alterportal HITS 14 Vol. 73 - September (2014)  [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7th Cycle - Beauty In My Silence
+02. Marmozets - Hit The Wave
+03. Poets Of The Fall - Rumors
+04. Disciple - Yesterday Is Over(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A4313155BE2FDF44602249721176DD723B9052D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064683   (425559) от 20.10.2016
 
 VA - Hits of My Soul Vol. 15 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
@@ -516,238 +748,6 @@ VA - Path To The Reason: Hard Rock Selection (2018) [MP3|320 Kbps] <Hard Rock, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5682C65FE28F33A573095031B05190A792DD89B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948649   (410928) от 20.10.2015
-
-Bon Jovi - 25 Best Songs (2015) [MP3|~245 кб/с (V0)]<Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's My Life 2000 (03:47)
-02. Everyday 2002 (03:03)
-03. Livin' On A Prayer 1986 (04:00)
-04. Have A Nice Day 2005 (03:51)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 01:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18ABDB875DE8BDAC495BEB3FD5A1AF6980FEC15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717758   (410817) от 20.10.2015
-
-Smokie - Super Hits (1975-1982) (2013) (3CD) [MP3|320 кб/с]<Glam Rock, Hard Rock, Rock'N'Roll, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Other Side Of The Road (1979)
-02. Do To Me (1979)
-03. Don't Take Your Love Away This Time (1979)
-04. London Is Burning (1979)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Rock'N'Roll, Soft RockПродолжительность: 03:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CCAD6AE38DE940CB09C59C69AEDB3D7B15F23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719028   (410808) от 20.10.2015
-
-Chris Norman - 100 Best Hits (6CD) (1978-2013) (2013) [MP3|320 кб/с]<Glam Rock, Soft Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Caravan Moves On (2003) (04:15)
-02. Only You (2003) (03:25)
-03. Nothing Stays The Same (2003) (03:56)
-04. Amazing (2004) (04:20)(   Читать дальше...   )Жанр: Glam Rock, Soft RockПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE641AF75981E7F428E44B8BCF2A4C330A54D4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325642   (409954) от 16.09.2019
-
-VA - В Нарушение Правил. Русский Рок-Обзор (2019) 2CD [MP3|320 Kbps] <Рок, Альтернатива>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409954.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-001. Би-2 - Виски
-002. Atava - Жить Сейчас(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 18:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2DC172FEADE0F6CDE261EAB2143476E1D68146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948700   (409256) от 21.10.2015
-
-VA - Рок впрок 3 (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ундервуд - Точка невозврата
-02. Бригадный Подряд - Жесть
-03. КняZz - Джокер - карта судьбы
-04. Гребля - Север(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95350BCE81E9F65B8DDA1F0FF8BFC8AED0A186B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252393   (409089) от 05.10.2018
-
-VA - Black Dog: Metal Compilation (2018) [MP3|320 Kbps] <Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Napalm Death - What Is Past Is Prologue
-002. Phobia - Death To Freedom
-003. Moretotheshell - Giving Away
-004. Power Crue - Dark Bridges(   Читать дальше...   )Жанр: MetallПродолжительность: 08:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA51E0078BDD37EE9CAF6BECF8EC41E4B98FBC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168535   (408779) от 24.09.2017
-
-VA - Lust And Love Vol.2: Alternative Rock Revue (2017) [MP3|192-320 Kbps] <Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elephant Plaza - Naked
-002. Kepler Ten - Ultraviolet
-003. Blackwater Conspiracy - Decadent Highway
-004. Yasi Hofer - Tender Storms(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 08:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3199113DEDA38383DC69001F91A060A53EB162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168496   (408713) от 24.09.2017
-
-Doro - I Am What I Am (Compilation) (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take No Prisoner
-02. I'll Make It On My Own
-03. World Gone Wild
-04. Thunderspell(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F911F0BC9B4F9E72E90364B8FC61B198608CF80
 ```
 
 https://mybot314.ru/tekegram_catalog/

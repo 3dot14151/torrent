@@ -1,3 +1,264 @@
+###  Публикация: 1772860   (31144) от 12.01.2025
+
+Санкт-Петербург - Очарована, околдована (1996) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Русская звезда
+02. Шаг навстречу
+03. Очарована, околдована
+04. Русские(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1C77E7C871C33439FF6F12AEF7E1199FD22221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773100   (31072) от 13.01.2025
+
+Чёрный кофе - Светлый Металл (1986) Reissue, Remastered, 2024, Moroz Records [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это – рок!
+02. Дьявол во плоти
+03. Путешествие в жизнь
+04. Светлый металл(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B607C87CBD92236DDAC4AD66AD979C26FEAD6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773286   (30953) от 14.01.2025
+
+Фаренгейт - Венец творения (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Восхождение
+02. Снег
+03. Вечная жизнь
+04. Зеркала(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C477014EDF342B9ED9A0EA04E1B90DED60D051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774549   (29991) от 23.01.2025
+
+Группа Зодчие - Это не мы (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Какой тебе нужен мужчина? [00:02:53]
+02. Новый год [00:03:00]
+03. День рождения [00:03:29]
+04. О чём ты хотел со мной помолчать?.. [00:04:25](   Читать дальше...   )Жанр: RockПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89AF9BE90831BA16B5054AEDFBEDA19EF05BC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777068   (28674) от 04.02.2025
+
+Андрей Лефлер - Солнце (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнце  04:29
+02. Двигай в горы  04:10
+03. Новый мир  03:51
+04. Сияй 04:49(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C110BAA72223FD38A55BE54593CAB6F6AFDD0B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783986   (25304) от 08.03.2025
+
+Владимир Кузьмин - Десять новых песен о любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аметист
+02. Крик твоей души
+03. Любовь ведет в психушку
+04. Секрет(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B78DFAD1B5A9648B7B93E7D1F31A171BF73B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784256   (25103) от 10.03.2025
+
+Lumen - Три пути. 20 лет (Live) (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Neo Classic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро + Ну и пусть (Live) [00:04:36]
+02. Хорошо (Live) [00:01:57]
+03. Моё время (Live) [00:02:24]
+04. Непонятно (Live) [00:02:39](   Читать дальше...   )Жанр: Symphonic Rock, Neo ClassicПродолжительность: 01:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2013DFB3A158CBDB1A50041E0DCB7972BA7578A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 27233   (23282) от 28.03.2025
+
+Константин Никольский - Я сам из тех... (2004) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_23282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. От любви в любви
+2. Когда поймешь умом
+3. Воскресенье
+4. Один взгляд назад(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B050DC81F1B80ACA4BC38A215314C26A5D9425E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790282   (22092) от 08.04.2025
+
+Arida Vortex - The Illustrated Man (2015) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreword 00:34
+02. The Concrete Mixer 03:55
+03. Marionettes, Inc. I (Let Me Stop Your Heart) 04:07
+04. The Veldt 04:54(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDD75F4DDFB986CF6471BBCCAFF84912F14DA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791031   (21308) от 15.04.2025
 
 VA - Охота! 87 (2019) [FLAC|Lossless|tracks + .cue] <Rock>

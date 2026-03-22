@@ -1,3 +1,177 @@
+###  Публикация: 1706013   (113690) от 11.03.2024
+
+George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming Virginia [3:06]
+02. Time After Time [4:48]
+03. La chanson de rue [3:59]
+04. Too Marvelous for Words [4:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780FBE1B23B51C6785F5372161BC0FC620F504D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706198   (113667) от 12.03.2024
+
+Steve Baxter - Crusade Blvd (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crusade Blvd (4:17)
+02. Scam Call (4:22)
+03. Hands Together (4:42)
+04. Old School Jam (feat. Ellis Hall) (3:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83126295DF31F39058FB2F9C693C0EDB5C9DF154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706352   (113659) от 12.03.2024
+
+Sonny Stitt - Constellation (1971) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Constellation [5:03]
+02. (I Don't Stand) A Ghost of a Chance with You [4:50]
+03. Webb City [3:33]
+04. By Accident [6:41](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129D2E74DED8D247CB419C4380D2140F14B942EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706192   (113653) от 12.03.2024
+
+Peela - Notbad (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notbad (4:09)
+02. Don't Touch My Pizza (3:38)
+03. Try Again (6:40)
+04. Liar (4:57)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86F6CE03ECD7FADCBA7E182C5D0A2D896ECB393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706191   (113651) от 12.03.2024
+
+Muzozoic - Fuzock (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oberek goes Dakar (5:55)
+02. From Empty to Nothing (3:55)
+03. Red Cat Samba (5:45)
+04. Telegram from Palermo (6:13)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA2BF415616647FE1A1143CB874D80FE41ED2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706201   (113648) от 12.03.2024
+
+Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uptown Jazz (3:28)
+02. Time Travel (4:11)
+03. Peace In The Melody (3:13)
+04. Funky Smooth (2:53)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 02:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA7F6A503C7FCFC8CC931C37549952AC381F83C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706345   (113633) от 12.03.2024
 
 Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
@@ -571,180 +745,6 @@ Dave McKenna - Solo Piano (1973) 1994, Chiaroscuro Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3F4F9B763DDD1F7AA74E44BC8267D876C478FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707030   (113375) от 15.03.2024
-
-Ranee Lee & Oliver Jones - Just You, Just Me (2005) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just You, Just Me [4:22]
-02. Traveling Man [5:15]
-03. Stardust [6:07]
-04. Sister Sadie [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9A8E9291EC52A479E5C21A06D1BB5450BE99D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707343   (113370) от 16.03.2024
-
-Papik & Laura Lanzillo - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abitudini
-02. Che Ore So'
-03. Nu' Pensiero Felice
-04. Se Mi Vuoi (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, Nu Jazz, FunkПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB7CCB820FA7767FA4FCA1E796E8B5E9F1E576A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706295   (113347) от 16.03.2024
-
-Naoya Matsuoka - Watermelon Dandies (1985) [FLAC|Lossless|tracks + .cue] <Fusion, Latin Jazz, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wakuwaku Songo! (N.Matsuoka) - 6:12
-02. A First Flight (N.Matsuoka) - 5:43
-03. Tango Rengue (N.Matsuoka) - 4:38
-04. A Midnight Lament (N.Matsuoka) - 5:48(   Читать дальше...   )Жанр: Fusion, Latin Jazz, DiscoПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E321B1F831A91F159C09C01B06EE332A212F66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707291   (113334) от 16.03.2024
-
-John Coltrane - Sheets Of Sound (1962) 2CD, 2002, Snapper Music [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. PC [8:17]
-02. I Want to Talk About You [13:59]
-03. Bye Bye Blackbird [23:28]
-04. Autumn Leaves [10:37](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2594F6B1A1E822C9B466118E561C7399A35555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707334   (113324) от 16.03.2024
-
-VA - Paramount Jazz Lounge Chilling Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Like a River (5:23)
-02. Chillaxonic - Aurora (5:13)
-03. Love Suggestions - Little Talks (4:59)
-04. Kool&Klean - I Smile (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49676B7614A9D9C6B81DB6B861AF4F557C4C6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707338   (113322) от 16.03.2024
-
-VA - Supreme Lounge Chill Selection Jazzy Vibe Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Cosmic Visions (4:26)
-02. Chillaxing Jazz Kollektion - Have Your Way (5:17)
-03. Kool&Klean - Lost (4:33)
-04. eJazz Artistry - We Belong Together (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6D71354118ECD04A52F8BFDD1A50E6C7111307
 ```
 
 https://mybot314.ru/tekegram_catalog/

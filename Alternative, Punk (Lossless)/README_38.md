@@ -1,3 +1,119 @@
+###  Публикация: 1062755   (439255) от 14.10.2016
+
+Alter Bridge - The Last Hero (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me A Leader
+02. The Writing On The Wall
+03. The Other Side
+04. My Champion(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7141B3B8571D32FA4D31D6EF9595E85E539588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164658   (439060) от 10.09.2017
+
+Tori Amos - Native Invader (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reindeer King
+02. Wings
+03. Broken Arrow
+04. Cloud Riders(   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC333F9FD07C7DBAFCCDA405DF9756F35B33FA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410274   (438436) от 20.09.2020
+
+Fall Out Boy - Believers Never Die (Greatest Hits) (2009) Limited Edition [FLAC|Lossless|tracks + .cue] <Punk, Emo, Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead On Arrival (3:16)
+ 02. Grand Theft Autumn/Where Is Your Boy (3:12)
+ 03. Saturday (3:38)
+ 04. Sugar, We're Goin Down (3:51)(   Читать дальше...   )Жанр: Punk, Emo, Power Pop, Pop RockПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2001C4FA550A4A53EF2B997B664EB5748B6592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164899   (437047) от 11.09.2017
+
+Katatonia - The Great Cold Distance (2006), Reissue, 2017, Peaceville, [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LEADERS (4:21)
+ 02. DELIBERATION (4:00)
+ 03. SOIL'S SONG (4:12)
+ 04. MY TWIN (3:41)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4288CFBCB8D5628387BA7842E5F7F9A5B2B6DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943252   (435250) от 09.10.2015
 
 Blue Stahli - The Devil (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Industrial Rock, Electronic >
@@ -629,122 +745,6 @@ Jimmy Eat World - Integrity Blues (2016) [FLAC|Lossless|tracks] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF19843C015A92D148D1F04EED12A3220FEDD9EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412549   (416038) от 30.09.2020
-
-Delta Spirit - What Is There (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pressure (03:18)
-02. It Ain’t Easy (03:20)
-03. How Bout It (06:07)
-04. Can You Ever Forgive Me? (03:28)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4223FBF32BEEFF8C0AADAE70DC551DB72C9E1421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573028   (414747) от 30.08.2022
-
-Jane's Addiction - Ritual De Lo Habitual (1990) [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop! [00:04:14]
-02. No One's Leaving [00:03:01]
-03. Ain't No Right [00:03:34]
-04. Obvious [00:05:55](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7126935D269C5552AECCD437A657FF89A7CD64F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436499   (414003) от 30.08.2022
-
-Seether - 11 альбомов (2000-2011) [FLAC|Lossless]<Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414003.jpg" />
-</div>
-
-
-###  Подробнее
-
-11CD
-2000 - Saron Gas (Seether) - Fragile (Reissue)
-2002 - Disclaimer
-2004 - Broken (Single)(   Читать дальше...   )Жанр: Post-GrungeПродолжительность: 08:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDB22A0D47F54941F23FF540E5D0328B0346272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251808   (413500) от 03.10.2018
-
-The Joy Formidable - AAARTH (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Y Bluen Eira
-02. The Wrong Side
-03. Go Loving
-04. Cicada (Land On Your Back)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91A8CD37C0A772D34C716742743087E2E0E71D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

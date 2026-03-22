@@ -1,0 +1,726 @@
+###  Публикация: 1819073   (1785) от 20.09.2025
+
+Главная дорога (20.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таксистам грозит до 10 лет тюрьмы: где бомбилы работают по старым понятиям?
+ Алюминиевые диски и медная смазка: что это — защита от прикипания или убийственная гальваническая пара? Многие зрители жалуются на то, что после посещения шиномонтажа или сервиса их дорогие легкосплавные диски разъедает. В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков выяснили, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317A1209EBF9C4E6E0D2B48055C4BE222ED27FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819014   (1784) от 20.09.2025
+
+Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320 Kbps] <Native American, World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulse of Elsewhere [03:46]
+02. Between the Veil [03:22]
+03. Light Without Origin [03:18]
+04. Sliding Through Stillness [03:22](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5995E82533FE0DCFE4560592D42AA003ED501C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819069   (1783) от 20.09.2025
+
+Ravager - From Us With Hate (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freaks Out Of Control
+02. Alone We Won't Survive
+03. Curse The Living, Hail The Dead
+04. Aggressive Music For Aggressive People(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73AB874D21E092E33ACF243ED2886940C678F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819036   (1782) от 20.09.2025
+
+I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Synthetic Soul (4:30)
+02. - NWO (2:41)
+03. - Pray (3:12)
+04. - Annihilate Me (3:22)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733205A48AEFD9854A6299948C3721F9C7016A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819103   (1781) от 20.09.2025
+
+Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.June(1:58)
+02.Major Arcana(6:38)
+03.Ravenous(6:28)
+04.Mercy(5:56)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBBE2F0B92D4EA68E24E4891DE0D738F990E631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819047   (1780) от 20.09.2025
+
+Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Death [00:03:26]
+02. Become The Blade [00:03:13]
+03. The Shield [00:03:08]
+04. Remember The Days [00:04:32](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350A33ECD67171F79F52D490F39569908B5116D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819111   (1779) от 20.09.2025
+
+Isen - Zaklinani posledni zimy (2025) [FLAC|Lossless|WEB-DL|tracks] <Melidic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zaklínání poslední zimy [00:09:00]
+02. Klíč k noci [00:07:09]
+03. Skrze brány věčnosti a zapomnění [00:04:41]
+04. Obrození ve stínech [00:05:48](   Читать дальше...   )Жанр: Melidic Black MetalПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6F2374373D42A038573D5583DAE7FFC9A2D107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819034   (1778) от 20.09.2025
+
+King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Girl Violence (2:16)
+02. - Jaime (2:23)
+03. - Origin (2:14)
+04. - I Feel Pretty (3:02)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578C538C0649B80FE26EC3D4D4C99C9248F8CC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819102   (1777) от 20.09.2025
+
+Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (2025-09-18) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dosem - Digital Futures
+02. Frenckel & Ton TB - Dark Cloud
+03. Woo York featuring Mark Tarmonea - Feeling (Korolova Remix)
+04. Rebūke - Glow(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE41CC7BC0DE58C09F44B261EFDD2272239A566F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819137   (1776) от 20.09.2025
+
+Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't Gonna Tell You (3:11)
+02.  Just for Myself (3:29)
+03.  At Your Mercy (3:01)
+04.  Love Your Recipe (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90260B7D7FDCBD4690C90539ACE9751B9EA03458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819076   (1775) от 20.09.2025
+
+Волгоград: соленый Эльтон, Мамаев курган, стейк из арбуза и подземный трамвай | «Поедем, поедим». Выпуск от 20.09.2025 WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» отправились в Волгоград. В городе-герое ведущий посетил Мамаев курган и увидел самую высокую скульптуру в Европе «Родина-мать зовёт!». А еще итальянец полакомился горчицей, хлебом из горчицы и даже горчичным пряником, ведь где еще, как не на родине русской горчицы это делать! Федерико опробовал на себе лечебную грязь Эльтона, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8034A541CBC319B0D881BEECA5D7DE6482C625A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819049   (1774) от 20.09.2025
+
+Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Men In Bed (3:39)
+02. - The May (2:57)
+03. - Gen (3:44)
+04. - Woodeneye (3:20)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CB19BF61CCA594CF6BC0FA27745FED4D33CFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819141   (1773) от 20.09.2025
+
+Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Going To Find Me A Lover (3:53)
+02.  Selfish Kind Of Gal (3:47)
+03.  You Should't Have Been There (5:20)
+04.  Just Like That (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9DAE3D1F256B4E7E1897C1C40B679CE92ECBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819121   (1772) от 20.09.2025
+
+Отказ тормозов после замены — Минтранс (20.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1772.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸Отказ тормозов после замены в автосервисе. Кого обвинят в аварии и кто будет платить за ремонт?
+🔸Volkswagen Jetta 2008: подержанный «немецкий старичок». Ест ли он масло? И почему в салоне всегда жарко?
+🔸Лишили прав за рубежом! Останется ли возможность сесть за руль дома?
+🔸Лайфхак: как быстро очистить тормозные диски от ржавого налёта (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA0BAEBDBD8830714333F7AB2770A44D6E03945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819146   (1771) от 20.09.2025
+
+Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Go Get Gone (3:13)
+02.  Little Pretty Baby (2:32)
+03.  Wanna Keep You (4:07)
+04.  I Like Your Style (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819118   (1770) от 20.09.2025
+
+Esoterica - Ether Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, progressive hard-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Ether [00:05:18]
+02. I Am Just One [00:04:41]
+03. Alive [00:05:04]
+04. Firefly [00:03:57](   Читать дальше...   )Жанр: Alternative Metal, progressive hard-rockПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72453BB84781DA7CDE9D35FA37A58A28896954E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819136   (1769) от 20.09.2025
+
+Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good Company (3:57)
+02.  Now I'm Lovin' You (4:13)
+03.  Tear It Down (5:15)
+04.  Cowboy Gucci (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FC19E658570FF4F6737C9412BD722FC2AC23CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819177   (1768) от 20.09.2025
+
+Шрифты - MyFonts - OV Cotin Serif [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1768.jpg" />
+</div>
+
+
+###  Подробнее
+
+OV Cotin — вневременной шрифт с засечками, имеющий классическую основу и нотки современности. Украсьте свои проекты с помощью OV Cotin и позвольте его универсальному очарованию проявиться в любой версии. Откройте для себя сочетание традиций и инноваций с этой обновлённой версией!Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC9A3D59728E0DF0D765BFB73DDF575BA70AB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819072   (1767) от 20.09.2025
+
+Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help Yourself
+02. Can’t Be A Prophet
+03. Alive
+04. Soulard Serenade(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD128E59560989EBC81A67832FB690C8E4B5E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531881   (1766) от 21.09.2025
+
+Призраки Гойи / Goya's Ghosts (2006)  Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инесс, музу знаменитого портретиста Франциско Гойи, инквизиция бросает в темницу. В отчаянии живописец просит о помощи своего друга, священника Лоренцо. Их взаимоотношения подвергаются серьезному испытанию, необратимо меняя судьбы всех троихЖанр: Драма, БиографияРежиссер: Милош ФорманАктеры: Натали Портман, Хавьер Бардем, Стеллан Скарсгард, Рэнди Куэйд, Бланка Портильо, Мишель Лонсдаль, Хосе Луис Гомес, Мабель Ривера, Саймон Андре, Скотт Клевердон, Кайетано Мартинес де Ирухо, Крэйг Стивенсон, Фернандо Тьельве, Унакс УгальдеПеревод: Дублированный + Авторский одноголосый закадровый (А. Гаврилов)Субтитры: РусскиеПродолжительность: 01:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6FFD181103E2F61EE79F0DB4F0760A9A83F55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763361   (1765) от 21.09.2025
+
+Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rogue Waters - это тактическая пошаговая игра в духе «рогалика», действие которой происходит в пиратском мире, стонущем под бременем страшного проклятия. Собери шайку из самых отъявленных мерзавцев в округе и преврати их в кровожадных пиратов. Подружись с легендарными тварями из морских баек и призывай их на помощь в бою.Прокладывай себе путь сквозь изменчивый игровой (   Читать дальше...   )Тип издания: RepackРазработчик: Ice Code GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551600A88C994AEF24CCF5F3998E981BDABACA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798176   (1764) от 21.09.2025
+
+S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Repack Decepticon [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернись туда, откуда всё началось. Трилогия S.T.A.L.K.E.R., одна из самых знаковых и революционных серий шутеров от первого лица, возвращается - теперь в обновлённой и улучшенной версии для нового поколения. Удачной охоты, Сталкер!Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5048D5B623FCE2E598BFBAA350739C3D95A0756E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659021   (1763) от 21.09.2025
+
+Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще на заре времен народы Башни перестали понимать друг друга и утратили единство. Согласно преданию, однажды некий Путник найдет в себе мудрость разрушить барьеры и восстановить баланс. Изучайте загадочный мир, давно забывший свое прошлое, и откройте для себя его тайны. Действие игры происходит в красочном поэтичном антураже, навеянном мифом о Вавилонском столпотворении. (   Читать дальше...   )Тип издания: SceneРазработчик: RundiscЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98B4B2CA309367360C1C5993FE4D5A33D1F3ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798169   (1762) от 21.09.2025
+
+S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля (2007) [Ru/Multi] (1.10.1-64) License GOG [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаемся к тому, с чего все началось - трилогия S.T.A.L.K.E.R., один из самых дальновидных и новаторских шутеров от первого лица на выживание всех времен возвращается. Теперь масштабированное, улучшенное приключение, в которое обязательно нужно поиграть для нового поколения. S.T.A.L.K.E.R.: Тень Чернобыля – первая часть Legends of the Zone Trilogy, с которой (   Читать дальше...   )Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48C1874B73F9E3E1F1E448443811AFF2BAFD4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798170   (1761) от 21.09.2025
+
+S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [Ru/Multi] (1.10.1-64) License GOG [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаемся к тому, с чего все началось - трилогия S.T.A.L.K.E.R., один из самых дальновидных и новаторских шутеров от первого лица на выживание всех времен возвращается. Теперь масштабированное, улучшенное приключение, в которое обязательно нужно поиграть для нового поколения.Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578D5D61FEEF0D54AE16F166A4147094B7326DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749887   (1760) от 21.09.2025
+
+Илья Яковлев | Курс по архитектуре игр в Unity (2024) WEBRip [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа курса разбита на 6 занятий, в ходе которых Вы на примерах и живом общении разберетесь с использованием 8 самых ходовых паттернов для разработки игр, внедрением зависимостей на основе Zenject и познакомитесь с тем, как все это помогает соблюдать правила SOLID, а также гибко и расширяемо реализовывать те или иные игровые механики!
+Вводное занятие, в котором (   Читать дальше...   )Жанр: Видеокурс, обучающий курсЯзык озвучки: РусскийПродолжительность: 24:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4826C108E0D6A406A730D3D579DA43CECAF9B309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

@@ -1,3 +1,117 @@
+###  Публикация: 1457129   (1024610) от 25.03.2021
+
+VA - Rock on! Rock it! Rock Out! (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Believer (03:24)
+02. Audioslave - Like A Stone (04:54)
+03. 30 Seconds To Mars - The Kill (Bury Me) (03:51)
+04. Queens Of The Stone Age - No One Knows (04:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B8E5A257E49CA856CBBF5D4E65B0B34E9C950B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457348   (1024609) от 25.03.2021
+
+Suzi Quatro - The Devil In Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil In Me
+02. Hey Queenie
+03. Betty Who
+04. You Can't Dream It(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D080DB05D9158EE05B8FC8A0178D4A151A87709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457832   (1024215) от 27.03.2021
+
+Imagine Dragons - Follow You / Cutthroat (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow You
+02. CutthroatЖанр: Indie Rock, ElectronicПродолжительность: 00:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5248C7A9FA430DD4566B3B155BEA49C5B236060F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458007   (1024203) от 27.03.2021
+
+V.A. - Legendary Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Child In Time
+02. The Doors - Break On Through (To the Other Side)
+03. Rush - The Seeker
+04. Whitesnake - Day Tripper(   Читать дальше...   )Жанр: RockПродолжительность: 02:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C6341D97440E1573EB97B3704F9630007B84D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458277   (1023880) от 29.03.2021
 
 Terronaut - 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Post Rock, Post Metal>
@@ -629,122 +743,6 @@ Marc Reece - Dreamer (2021) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3366F59FC859E521F355B0471AE85F139B82D969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462875   (1020873) от 16.04.2021
-
-Robbie LaBlanc - Double Trouble (2021) [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Human
-02. Start The Motor Running
-03. Good Time
-04. Voodoo Woman(   Читать дальше...   )Жанр: AORПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD5A53F04111C9AF6BAB876C6F139BDCEBED696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462267   (1020857) от 16.04.2021
-
-The Rasmus - The Rasmus (2012) Tour Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger [03:58]
-02. I'm A Mess [04:12]
-03. It's Your Night [03:37]
-04. Save Me Once Again [04:35](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CBD52253D38BFB6B54D2B3BEF71381A0EEA20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463151   (1020692) от 17.04.2021
-
-Unitopia - Тhе Gаrdеn (2008) 3xCD, Reissue, Remastered, 2020,  ProgRock.com's Essentials [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020692.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. One Day
-02. The Garden
-- The Garden Of Unearthly Delights(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 02:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8BBD2B56CCF73D5932CA50B460AB6A56838EAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463119   (1020665) от 17.04.2021
-
-Al Stewart - 2 Albums, 3 Box Set, 14 CD (1967 - 1993) [FLAC|Lossless|image + .cue | tracks + .cue]<Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Like
-02. Angel Of Mercy
-03. Don't Forget Me
-04. Peter On The White Sea(   Читать дальше...   )Жанр: Folk RockПродолжительность: 10:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF604D24B7EBF6FB367FFDC1BD99C04AE00574CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

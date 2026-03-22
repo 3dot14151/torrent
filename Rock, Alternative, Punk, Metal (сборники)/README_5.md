@@ -1,3 +1,32 @@
+###  Публикация: 986272   (930707) от 14.02.2016
+
+VA - Live For Today: Classic Rock 9 (2016) [MP3|320 кб/с] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930707.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giant - Stay 04:49
+002. Suicidal Tendencies - Send Me Your Money 03:25
+003. The Gun - Race With The Devil 03:37
+004. Lita Ford - Kiss Me Deadly 04:04(   Читать дальше...   )Жанр: Classic RockПродолжительность: 06:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D584A4633384A00E1CFBE74D99A2C103E5CA075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093485   (930001) от 17.01.2017
 
 VA - Русский Рок. Лучшее 2016 (2017) [MP3|320 Kbps] <Rock>
@@ -720,35 +749,6 @@ VA - Collection Rock (2016) [MP3|320 кб/с] <Rock, Pop-rock, Folk-rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E87CEEB116F09030CEBD538FBE169417536964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369206   (903553) от 23.03.2020
-
-VA - Rock Drive 10 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H.E.A.T - Rise
-02. Intelligent Music Project - A Kind Of Real Life
-03. Tomas Bergsten's Fantasy & Maria Radsten - Hunted
-04. Robert Hart - Scene Of The Crime(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFF5F65D1BA7BD49D3D25125328E2AA3A79F4CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

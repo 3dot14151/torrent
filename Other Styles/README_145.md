@@ -1,3 +1,176 @@
+###  Публикация: 499853   (256923) от 22.05.2012
+
+Кубанцы - Авторский сборник  (1995) [MP3|160 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. За Кубанью огни горят (1:20)
+02. Атаман (6:27)
+03. Каким ты был (3:01)
+04. Сказал казак через долину (1:42)
+05. Ой, у вышнэвому саду (3:33)
+06. Ой, ты, Галя (2:51)
+07. Любо, братцы, любо (3:22)
+08. Ой, мий мылый варэнычкив хоче (2:06)
+09. Батько Атаман (2:06)
+10. Мисяць на нэби (3:04)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499540   (256407) от 21.05.2012
+
+Novalis Deux (ex-Novalis) - 4 albums (2001-2008) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Put on Your Shoes (03:36)
+02. Homecoming (03:34)
+03. Ghosts of Europe (05:51)
+04. Sleeping Violin (05:00)
+05. The Clown (03:03)
+06. Passing By (03:29)
+07. Rome (04:08)
+08. One Step (05:23)
+09. World in Flames (04:32)
+10. Your Hell (03:31)2001-2008Жанр: Neofolk, Apocalyptic FolkПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE76AAEE505DC273D71E703FC986A7446229A0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499462   (256373) от 21.05.2012
+
+Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neofolk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dante O' Doré (03:50)
+02. Wadi el 'arish (08:31)
+03. Etheros (02:27)
+04. Zjw (05:04)
+05. Capriccio di cenere (05:27)
+06. Les cloches de Clisson (02:25)
+07. Sacrum II (03:25)
+08. Over the Border (03:42)
+09. Physeos (03:31)
+10. Escalder's Spellbinding (02:53)(   Читать дальше...   )2002Жанр: Acoustic, Ethereal, NeofolkФормат: CD, AlbumПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499451   (256363) от 21.05.2012
+
+Этнографические коллективы Краснодарского края - А у нас на Кубани... (2008) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256363.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. За Лабою огонь горит (3:26)
+ 2. В 1791 году (3:09)
+ 3. Зажурились черноморцы (5:21)
+ 4. По над лугом шлях (2:42)
+ 5. Ой мало мало мне ночку спалось (2:38)
+ 6. Вы казачки казачки (2:23)
+ 7. Прощай ты Уманска станица (5:04)
+ 8. Не полынно ты мое полюшко (3:10)
+ 9. И не пьют не едят кони вороные (3:34)
+ 10. То не пыль то курит (4:35)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40821ECB6899EE0062B2AA2B1D669E3BF006AE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499496   (256292) от 21.05.2012
+
+Peter Buffett - 500 Nations. A Musical Journey (1994) [MP3|320 кб/с]<New age, Native american>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256292.jpg" />
+</div>
+
+
+###  Подробнее
+
+(1:20) 01. Foreword
+(4:10) 02. 500 Nations
+(2:51) 03. Maya
+(3:00) 04. Columbus
+(6:55) 05. No Turning Back
+(2:52) 06. Another Enemy
+(2:41) 07. We Became Orphans
+(3:23) 08. De Soto's MarchЖанр: New age, Native americanПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68273179F3FEA4000B3D3ADA6068803730A781F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498602   (255791) от 19.05.2012
 
 Юрий Щербаков - Была весна - (2008) [MP3|320 кб/с]<Folk Казачья песня>
@@ -618,151 +791,6 @@ VA - Enigma-Forest-Transit 10 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A15539F982D9B6996486351CD089DDF242CAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618727   (249908) от 12.03.2023
-
-Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop the Clock (3:10)
-02. Norfolk Blues (3:34)
-03. Wasted Youth (3:23)
-04. Above My Head (4:42)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760BCC75D56CDDABB4974C7AD8B5440E53100CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618620   (249642) от 16.03.2023
-
-VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregorian - Whatcha Gonna Do
-02. Oliver Shanti & Friends - Sangha's Love for Amitabha
-03. Osamu Kitajima - Blue Fire
-04. Ghostland - Guide me God(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F241346423613248E9BC1F9E896486735B30F27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619496   (249639) от 16.03.2023
-
-Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Back To You (feat. Mimi Page)
-02. Rain
-03. Coast To Coast (feat. Phildel)
-04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A3E8C4F8539D801564776801DF27867E8DD832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619138   (249519) от 18.03.2023
-
-VA - Enigma-Forest-Transit 12 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eRa - Wind Love
-02. D-Emotion Project - Protourize Planinata
-03. Shiva feat. Magdalena - We'll be with the Stars Tonight
-04. Muse - Innocent Voices(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D007B7BA6DC55762F7EB72A90CC171888ED6E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834387   (249481) от 03.11.2025
-
-Fausto Papetti - Somethin' Saxy (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So In Love
-02. Sleepy Lagoon
-03. Le Grisbi
-04. Cape Town(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AD2B922D5C734D121982DF8ECC892047BA5B51
 ```
 
 https://mybot314.ru/tekegram_catalog/

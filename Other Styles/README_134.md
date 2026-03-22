@@ -1,3 +1,148 @@
+###  Публикация: 1184437   (301377) от 17.11.2017
+
+VA - Mystical Travel (2007) [MP3|320 Kbps] <Native american, Ethnic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Pretty Things
+02. Cry Dance
+03. A New Morning
+04. Chirapaq(   Читать дальше...   )Жанр: Native american, Ethnic, WorldПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AB3D4CA80C3B2C5F0B006C615F9AD9AA14CA77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184470   (301369) от 17.11.2017
+
+Monica Pereira - Mulher Do Sol (2017) [MP3|320 Kbps] <World, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babaloba (feat. Sidiki Diabate)
+02. Terra Bonito
+03. Nha Badados (feat. Debademba)
+04. Meu Amor(   Читать дальше...   )Жанр: World, FolkПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BC3C5D023F05D43174725180EE2E0C3A98C160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333406   (301350) от 26.10.2019
+
+Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic, New Wave>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Was Our House (From "Breathing") (02:01)
+02. Where Did You Go (04:05)
+03. Breathing (02:50)
+04. It's Them (04:35)(   Читать дальше...   )Жанр: Score, Soundtrack, Electronic, New WaveПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C8EC7D9C140D4483C14E15E96B2695754CC690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333615   (301349) от 26.10.2019
+
+Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackway & Black Caviar - What's Up Danger (03:42)
+02. Post Malone & Swae Lee - Sunflower (02:38)
+03. Jaden Smith - Way Up (02:34)
+04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681BAF529FFA30F50068A78E5B21BCAF815CF482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333617   (301341) от 26.10.2019
+
+Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackway & Black Caviar - What's Up Danger (03:42)
+02. Post Malone & Swae Lee - Sunflower (02:38)
+03. Jaden Smith - Way Up (02:34)
+04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE4643A84B154C62C01743321387A736BC807C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333863   (301256) от 26.10.2019
 
 David Ison - Ison sleep system (2009) [MP3|320 Kbps] <relax, meditative>
@@ -598,151 +743,6 @@ The Irish Rovers (The Rovers) - 18 релизов (1995 – 2016) [MP3|192 kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F8988E6FE1C924724948CF816B9F0BDB0A59B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423905   (297751) от 14.11.2020
-
-Faith Hill - Take Me As I Am (1993) Warner 9 45389-2 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me as I Am (3:18)
- 02. Wild One (2:45)
- 03. Just About Now (2:57)
- 04. Piece of My Heart (4:01)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17BA697B040A0EB222653BDDC66FE6D046CB57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423906   (297736) от 14.11.2020
-
-VA - Kontor Top Of The Clubs: The Biggest Hits Of The Year MMXX (2020) [MP3|320 Kbps] <House, Club-House, Deep-House>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VIZE & Joker Bra feat. Leony - Paradise [2:56]
-02. Dua Lipa - Physical (Alok Remix) [3:09]
-03. SAINt JHN - Roses (Imanbek Remix) [2:56]
-04. Joel Corry feat. MNEK - Head & Heart [2:46](   Читать дальше...   )Жанр: House, Club-House, Deep-House, Electronic, DanceПродолжительность: 06:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015B556F5A7BDB72886642E1CDFE5689D62489FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078786   (297663) от 02.12.2016
-
-Jean-Michel Jarre - Oxygene 3 (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene (Part 14) (5:28)
- 02. Oxygene (Part 15) (6:40)
- 03. Oxygene (Part 16) (6:50)
- 04. Oxygene (Part 17) (4:21)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECCC94C78F8094EAD6724617F95FF899B417B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184838   (297157) от 19.11.2017
-
-Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps] <Country, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee (Remastered) (4:29)
- 02. Sunday Morning Coming Down (Remastered) (5:18)
- 03. For The Good Times (Remastered) (3:57)
-04. The Silver Tongued Devil And I (Remastered) (3:34)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8ED73B9EA8A6781BB8D15B4618B390996489E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961342   (297106) от 03.12.2015
-
-NBA 2K9 Soundtrack (2008) [MP3|240-320 кб/с]<OST/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beastie Boys - Root Down (03:32)
-02. Blackwizard - Dem Nah Ready fe We (03:31)
-03. Blockhead - Duke of Hazzard (04:02)
-04. The Bloody Beetroots - Mac mac (04:00)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD723686050AEDE518013C8853229606ACADE2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

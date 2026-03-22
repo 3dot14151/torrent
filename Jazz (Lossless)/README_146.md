@@ -1,3 +1,183 @@
+###  Публикация: 1043969   (568933) от 18.08.2016
+
+Naomi & Goro - Bossa Nova Songbook 1 & 2 (2008,2009) [FLAC|Lossless|image + .cue] <Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568933.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008 - Bossa Nova Songbook 1:
+01. Aguas De Marco
+02. So Tinha De Ser Com Voce
+03. Samba De Uma Nota So (One Note Samba)Жанр: Bossa Nova, Vocal JazzПродолжительность: 01:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED0EE6095BB9556810839C06BBF3EBF480C8DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527646   (568869) от 30.07.2012
+
+Bohuslan Big Band - Dont Fence Me In (2011) [FLAC|Lossless]<Modern Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From This Moment On
+02. Too Darn Hot
+03. What Is This Thing Called Love
+04. I Love Paris
+05. Begin The Beguine
+06. Love For Sale
+07. Prelude To Miss Otis Regrets
+08. Miss Otis Regrets
+09. Don't Fence Me In
+10. I've Got You Under My Skin(   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922781   (568354) от 29.07.2015
+
+Jimmy Smith - Stay Loose (1968) /2000, Verve/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Move to the Outskirts of Town [04:45]
+02. Stay Loose [03:56]
+03. If You Ain't Got It [03:08]
+04. One for Members [06:48](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E201C2EED5EA537CD63B544047EACEA775EBD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922511   (568188) от 29.07.2015
+
+Jacques Loussier - Bach to the future (Jacques Loussier Trio) (1986) [FLAC|image +.cue]<Jazz, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in C Minor, BWV.1060
+01. Allegro (05:40)
+02. Adagio (05:42)
+03. Allegro (05:38)(   Читать дальше...   )Жанр: Jazz, Third Stream, Piano JazzПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8ECA4EAE67F675B0B8CC02C37A7E5602454CF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044284   (567589) от 19.08.2016
+
+Freddie Redd - In Sweden (1955, 1956) 2007, Lone Hill Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dawn Mist [02:56]
+ 02.Beautiful Adela [03:19]
+ 03.I'll Remember April [04:30]
+ 04.Reminiscing [02:35](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF4D72CA29192502D259D306EEE8F0AAD9D44AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152239   (567587) от 22.07.2017
+
+Buck Clayton - Tenderly (1959) 2009, Inner City Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got My Love To Keep Me Warm [04:26]
+02. Rosetta [02:49]
+03. Lonesome [03:10]
+04. Tenderly [03:24](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F98D5BED548C45F75B0C98E95FD9376293498A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044220   (567566) от 19.08.2016
 
 Rez Abbasi - Bazaar (2006) [FLAC|Lossless|tracks + .cue] <Fusion, Indian Classical, Modal Music>
@@ -579,186 +759,6 @@ Bill Evans - Rise Above (2016) [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC18AA64E57E8013C15C25BA57FDF8BB2C6FCB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044615   (565356) от 20.08.2016
-
-Larry Carlton - Alone/But Never Alone (1986) [FLAC|Lossless|image + .cue] <Jazz, Fusion, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Smiles And Smiles To Go  05:47
-02.  Perfect Peace  04:28
-03.  Carrying You  04:00
-04.  The Lord's Prayer  05:09(   Читать дальше...   )Жанр: Jazz, Fusion, InstrumentalПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877F3FE75416E9B577A91DFAA7FFD287C7D95867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529849   (565083) от 01.08.2012
-
-Julian Curwin & The Tango Saloon - The Tango Saloon (2006) [APE|Lossless]<Jazz, Experimental Music, Tango>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture [01:34]
-02. Tango Saloon 1 [04:07]
-03. Upon A Time [04:50]
-04. Libertango [04:23]
-05. March Of The Big Shoe [03:01]
-06. Carol [05:02]
-07. Intermission [02:09]
-08. Man With The Bongos [08:17]
-09. The Little Plane That Could [04:23]
-10. Scusi [01:04](   Читать дальше...   )Жанр: Jazz, Experimental Music, TangoПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923441   (564633) от 31.07.2015
-
-Ornette Coleman - The Empty Foxhole (1966) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Old Days [06:51]
-02. The Empty Foxhole [03:22]
-03. Sound Gravitation [07:18]
-04. Freeway Express [08:19](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE09DB3B2A950D42C133389D886D8F8B997FF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235124   (564208) от 09.07.2018
-
-Tiny Grimes - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiny's Tempo [2:56]
-02. I'll Always Love You Just the Same [3:00]
-03. Romance Without Finance [3:04]
-04. Red Cross [3:09](   Читать дальше...   )Жанр: Swing, Jump Blues, Guitar JazzПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08C2067824FF09349F889F2BB435B01D306E851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044817   (563838) от 21.08.2016
-
-Matthew Gee All-Stars - Jazz By Gee! (1956) 1996, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Out Of Nowhere [03:25]
- 02.I'll Remember April [04:17]
- 03.Joram [03:05]
- 04.Sweet Georgia Brown [02:58](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7708E4826643CF40A177E2724403D12F306A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235134   (563831) от 09.07.2018
-
-Dexter Gordon - 12 Classic Albums 1947-1962 (2015) 6CD, Enlightenment [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563831.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dexter's Riff [2:47]
-02. Settin' The Pace (Parts 1 & 2) [5:55]
-03. So Easy [3:44](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 07:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77433F2E973652AD63F24DF27D25F1A3FB5D740B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,149 @@
+###  Публикация: 1433644   (156813) от 21.12.2020
+
+Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegy 1 (Angels) (02:27)
+ 02. Elegy 2 (Forever) (05:01)
+ 03. Elegy 3 (Farewell) (04:02)
+ 04. Elegy 4 (Clouds) (02:46)(   Читать дальше...   )Жанр: Progressive Rock, New Age, AmbientПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846F16443236E7CCFB41F8E436A7D6A318722791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085799   (156695) от 22.12.2016
+
+Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chanson d'automne (poeme de Verlaine) [0:53]
+02. Une amitie [1:30]
+03. La promenade [1:23]
+04. La lecon de violon [0:48](   Читать дальше...   )Жанр: Score, Soundtrack, ClassicalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433680   (156392) от 21.12.2020
+
+VA - Christmas Hits 2020 (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Helms - Jingle Bell Rock (Single Version)
+02. Brenda Lee - Rockin' Around The Christmas Tree (Single Version)
+03. Freddy Kalas - Hey Ho
+04. Jonas Brothers - Like It's Christmas(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 04:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192E2CDF60451C5C05911C073C5C4AF5D69C2B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968453   (155713) от 23.12.2015
+
+Rammstein - Klavier (2015) Piano Version [MP3|320 кб/с] <Acoustic, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein выпустили акустический альбом «Klavier». В него вошли 13 композиций из шести ранее вышедших альбомов группы. P.S. Голоса нет (только музыка).01. Fruhling in Paris
+02. Feuer und Wasser
+03. Nebel
+04. Sonne(   Читать дальше...   )Жанр: Acoustic, PianoПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995D7ED4BEA56D9979103373B4C5D626FC51CDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853262   (155701) от 27.12.2014
+
+Clint Mansell Performed By Kronos Quartet And Mogwai ‎– Фонтан / The Fountain (Music From The Motion Picture) (2006) [FLAC|Lossless|tracks+.cue] <OST, Modern classical, Abstract, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шотландская группа Mogwai может похвастаться своей недюжинной известностью в пост-рок кругах. Kronos Quartet, в свою очередь, опытные исполнители камерной классической музыки из США. Коллаборация музыкальных стилей и интересов породила сий труд ради одной цели - передать эмоции фильма "Фонтан", режисера Даррена Аронофски.
+Классические камерные мелодии заполняются (   Читать дальше...   )01. The Last Man (6:09)
+02. Holy Dread! (3:52)
+03. Tree Of Life (3:45)
+04. Stay With Me (3:36)(   Читать дальше...   )Жанр: OST, Modern classical, Abstract, AmbientПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4295BEA937911FD06E147A2232475D40253419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193726   (155477) от 25.12.2017
 
 Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
@@ -600,157 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1B6899F2EA71917DC87E98DC6AB30319897A8CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086332   (152101) от 24.12.2016
-
-Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Starship Avalon (Main Title) (04:15)
-02. Hibernation Pod 1625 (01:19)
-03. Command Ring (00:57)
-04. Rate 2 Mechanic (02:08)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:12:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EB4DDFA9F340A28727F5C148A376CFA0249AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675516   (151762) от 16.11.2023
-
-Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Vedic Chants>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dhanvantri Dhyana
-02. Prarthana, Anna Brahmopasana, Paap Nivarak Mantra
-03. Roga Nivarak Sukta, Mrithika Sukta, Durva Sukta
-04. Shatangayur Sukta(   Читать дальше...   )Жанр: Mantras, Vedic ChantsПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638E4F713C95E72F84B7A8313C29FA0C509B7FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086334   (151589) от 24.12.2016
-
-Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Starship Avalon (Main Title) (04:15)
-02. Hibernation Pod 1625 (01:19)
-03. Command Ring (00:57)
-04. Rate 2 Mechanic (02:08)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:12:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677557   (150463) от 18.11.2023
-
-Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockstar (feat. Richie Sambora)
-02. World On Fire
-03. Every Breath You Take (feat. Sting)
-04. Open Arms (feat. Steve Perry)(   Читать дальше...   )Жанр: Country, RockПродолжительность: 02:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588849   (150433) от 14.12.2012
-
-Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150433.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Far Cry 3 (5:35)
-2. Heat (3:33)
-3. The Rakyat (3:55)
-4. Monsoon (2:53)
-5. Falling Into a Dream (2:20)
-6. Journey Into Madness (2:56)
-7. Rook Island (5:21)
-8. We Are Watching You (3:34)
-9. Treasure of Zhang He (3:35)
-10. Fever Dream (4:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E2C6D9AC5808B42990C1B782BCDA01CF9DD094
 ```
 
 https://mybot314.ru/tekegram_catalog/

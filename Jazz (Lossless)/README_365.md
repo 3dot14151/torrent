@@ -1,3 +1,177 @@
+###  Публикация: 1011245   (23736) от 23.03.2025
+
+Freddie Hubbard - Gleam (1975) 2CD, 2012, Wounded Bird Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_23736.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Put It In The Pocket [10:09]
+02.Ebony Moonbeams [12:38]
+03.Betcha By Golly Wow [09:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C25607A5F3F36B9F1951332219AA8D9234FA91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786832   (23543) от 25.03.2025
+
+Papik & Laura Lanzillo - La Gatta (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Io e Te
+02. Al Piano Bar Di Susy
+03. Rossetto e Caffè
+04. Oh Che Sarà(   Читать дальше...   )Жанр: Pop Jazz, Nu Jazz, FunkПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44DA0E7F4BF6DEE8C90DCCC04F268AFFFE28904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790173   (22156) от 07.04.2025
+
+VA - Vintage Jazz Ballads: Timeless Romantic Standards (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pat Coil - The More I See You (5:15)
+02. Jack Jezzro - All My Tomorrows (5:17)
+03. Leif Shires - When Sunny Gets Blue (4:50)
+04. Mason Embry Trio - I've Grown Accustomed to Her Face (4:32)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB6B7A81112530BBE32094512C0B882C26FF93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791938   (21217) от 16.04.2025
+
+Chris Connor - Chris Connor (1956) 1991, Atlantic [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Get a Kick Out of You [1:55]
+02. Something to Live For [3:17]
+03. Get Out of Town [3:12]
+04. Where Are You [3:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BB6294D8DF6E527C86A932F1E874FB63531449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792852   (20699) от 21.04.2025
+
+Clark Terry And His Orchestra - Featuring Paul Gonsalves (1959) 2001, Storyville [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenade to a Bus Seat [4:02]
+02. Pannonica [5:39]
+03. Pea-Eyes [5:05]
+04. Satin Doll [4:56](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E278A50DC0B34CC29BCAB11B2025A38F2A722822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792974   (20696) от 21.04.2025
+
+Jeff Libman - Feet Off the Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Tears Left to Cry (5:01)
+02. A Sleepin' Bee (5:39)
+03. You're My Thrill (7:11)
+04. Cheese Cake (7:17)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DE1133CB97E0779A1E21233C7A7F1F42F00E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099001   (20364) от 24.04.2025
 
 Steve Blayer - Vermont Wanderer (1996) Ermatell Records[FLAC|Lossless|image + .cue] <Post-Bop, Modern Creative>
@@ -571,180 +745,6 @@ Duke Ellington - Ellington Uptown / The Liberian Suite / Masterpieces By Ellingt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56146571442DF973359DD15FFB7F893CAA947851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800305   (15838) от 02.06.2025
-
-Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing at Life [4:08]
-02. Something to Live For [5:39]
-03. Look for the Silver Lining [4:05]
-04. Nuages [5:03](   Читать дальше...   )Жанр: Vocal Jazz, Bossa NovaПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82BE448D39A967365AEF094FE0E3BE16750652A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800511   (15761) от 03.06.2025
-
-V.A. - Pop International Hits Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Bossa Nova, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Candies - Dance A Little Bit Closer
-02. Melania - Diamonds (Bossa Version)
-03. Solis String Quartet - Love Is A Losing game
-04. Neja - Last Night a DJ Saved My Life(   Читать дальше...   )Жанр: Pop Jazz, Bossa Nova, LoungeПродолжительность: 01:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE290B5633A5C9580069780F074206E5D6CDBF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800469   (15743) от 03.06.2025
-
-Susannah McCorkle - Dream (1987) 2002, The Jazz Alliance [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Long Last Love [3:40]
-02. Just for a Thrill [5:12]
-03. Train in the Distance [4:09]
-04. Bewitched [4:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41701D24F650B2BADA04A1E7D59B6EDDD4541144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800639   (15556) от 05.06.2025
-
-Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Moments [2:40]
-02. Angel Eyes [8:07]
-03. My Foolish Heart [5:14]
-04. So Doggone Lonesome [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5E8EECAC1761B25B134A1DA45E3FEE1050B266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800720   (15537) от 05.06.2025
-
-Mark Murphy - Mark Murphy Sings (1975) 1995, Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Red Clay [4:40]
-02. Naima [4:55]
-03. Body and Soul [5:20]
-04. Young and Foolish [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A9C3D64F569049B1912D4A174B6DE467EC3473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800847   (15452) от 06.06.2025
-
-Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Intimacy of the Blues [5:33]
-02. Sentimental Lady [4:20]
-03. Prelude to a Kiss [6:05]
-04. Paris Blues [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE36367F090EAC139F41D780EDE4B9C28544E06
 ```
 
 https://mybot314.ru/tekegram_catalog/

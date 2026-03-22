@@ -1,3 +1,154 @@
+###  Публикация: 1177607   (358511) от 27.10.2017
+
+El Chido - Ghost Recon Wildlands: Corrido - The Sounds of Santa Blanca (2017) Bandes originales [MP3|320 Kbps] <Original Game Soundtrack>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - ENTRE LA JUSTICIA Y EL CAPO - Steve Ouimette & Mario Tapia - 03:32
+2 - POR AMOR - LA HISTORIA DEL BOQUITA - Steve Ouimette & Mario Tapia - 03:22
+3 - CODIGO DE SANGRE - Steve Ouimette & Mario Tapia - 03:11
+4 - LA MUERTE ESTÁ DE MODA - Steve Ouimette & Mario Tapia - 02:45(   Читать дальше...   )Жанр: Original Game SoundtrackПродолжительность: 31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288D753447228B99BD7AE8D3BE6C8D7F85C23443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577621   (357789) от 19.11.2012
+
+Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pusher Theme (1:23)
+02. Pay Me The Money (0:46)
+03. Driving and Clubbing (1:13)
+04. Turkish Tension (1:30)
+05. Bridge Deal (1:49)
+06. Cutting and Doing (2:17)
+07. Chase (2:16)
+08. Cell (3:10)
+09. Frank Mirror (1:10)
+10. Haken Bar (2:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C630B08FB88D9B630EB7F7F41490005777D50AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071680   (356968) от 11.11.2016
+
+VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que canta (1996) [MP3|128 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Gardel - Callejera
+02. Hector Pacheco - Patotero sentimental
+03. Floreal Ruiz - Vieja amiga
+04. Mariano Mores y su conjunto - La guitarrita(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AD65BC3F58BAC07E62AD2B765ADC44009BB5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329078   (356732) от 03.10.2019
+
+Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
+02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
+03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
+04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC9E776F80B510ECFECEEEFD380A056AF21FF04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329079   (356643) от 03.10.2019
+
+Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
+02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
+03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
+04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329070   (356642) от 03.10.2019
 
 Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
@@ -602,163 +753,6 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0517EC09545EA89654164F9A15C343172FC05818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177834   (355496) от 28.10.2017
-
-Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ragnarok Suite (08:53)
-02. Running Short on Options (02:47)
-03. Thor: Ragnarok (01:10)
-04. Weird Things Happen (01:47)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8661D686F91294C0051308A401E72BC3BF28B6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723663   (355312) от 18.11.2013
-
-Хелависа & Лазерсон и друзья - Новые Ботинки (2013) [MP3|320 кб/с]<Folk-Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355312.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sgt. Early's Dream/Rectory Reel
-2. Nead na Lachan
-3. An Spealadóir/Brògan Ùra
-4. Cowboi-2013
-5. Y Ddau Farch
-6. The Brown and the Yellow Ale
-7. Alasdair Mhic Cholla Ghasda
-8. M'Fhearann Saidhbhi
-9. Hùg Air A' Bhonaid Mhòir
-10. Coisich, A Ruin(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCCCF0BFEB9198311AFC019A35CF9E7E8AA6900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206525   (355050) от 18.11.2013
-
-Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_355050.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:13) 01. Bemirid (Rumi)
-(3:58) 02. Love Stories
-(4:54) 03. Persian New Year
-(2:51) 04. Roots
-(4:38) 05. Exhausted
-(4:04) 06. Barbie
-(4:58) 07. If You Go a Way
-(4:03) 08. Tears & Sensations
-(6:00) 09. Rest On My Shoulders
-(4:19) 10. Trapped in the Darkness(   Читать дальше...   )Жанр: New age, Flamenco, FolkПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329408   (354445) от 04.10.2019
-
-David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of The Desert
-02. Valley Of Peace
-03. Three Sisters
-04. Sunset On The Mesa(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D035D8B1653ECFE080BBBED8487883AA1AB10E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256494   (354271) от 22.10.2018
-
-Greg Maroney - Fall (2018) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swirling Leaves (4:22)
-02. Last Days of Summer (3:48)
-03. I Walk Alone (4:39)
-04. Murmuration (3:45)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88F059A04B1BA69FF92504F5BE9D6057BD9C383
 ```
 
 https://mybot314.ru/tekegram_catalog/

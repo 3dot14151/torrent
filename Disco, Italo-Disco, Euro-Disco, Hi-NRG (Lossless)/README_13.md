@@ -1,3 +1,38 @@
+###  Публикация: 811132   (581544) от 07.08.2014
+
+Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder Than Ice 5:35
+02. Red For Love 5:28
+03. Doctor For My Heart 5:16
+04. I'm Alive Tonight 3:59
+05. Wings Of Love 5:15
+06. California Train 4:54
+07. (Find My) Tracks In The Snow 5:06
+08. Break Away 5:52
+09. Stranger In My Life 4:29
+10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B0F3FDD3294E18241CF0444A6E89DEF7CB861B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810986   (581492) от 07.08.2014
 
 Scotch - The Maxi-Singles Collection (2008) [APE|Lossless]<Italo-Disco>
@@ -812,41 +847,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A94D3B1EAA299536E416192B114B936A46260740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363543   (566990) от 15.07.2011
-
-Savage - Don't Cry (Greatest Hits) 2CD (1994) [FLAC|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Don't Cry Tonight (Continental Mix)
-02.Only You (Tech Mix)
-03.Don't Cry Tonight (F.O.S. Noise Vocal)
-04.Don't Cry Tonight (E.U.R.O. Mix)
-05.Don't Cry Tonight (Space Mix)
-06.Don't Cry Tonight (Original Version)
-07.Don't Cry Tonight (Mr. Marvin Shadow Mix)
-08.Don't Cry Tonight (Voice Mix)
-09.Don't Cry Tonight (Grand Mix)
-10.Don't Cry Tonight (F.O.S. Noise Dub)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

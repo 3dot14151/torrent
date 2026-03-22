@@ -1,3 +1,32 @@
+###  Публикация: 1584239   (225356) от 18.10.2022
+
+Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Amour, l'Amour
+02. Bossa fragile
+03. Le Retour
+04. Voyage, voyage(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B295C1A246C6C965625BEC822A17AF8C9FAEDF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269279   (221553) от 14.12.2018
 
 Experimental Products - Prototype (1982) LP [MP3|320 Kbps] <Electronic, Minimal, Synth-pop>
@@ -716,35 +745,6 @@ Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B66296CC0947E27760868E89205615DC62D3C2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596486   (169169) от 11.12.2022
-
-Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance On The Starlight
-02. Secret Mission
-03. Jabdah
-04. Mission X(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1E0CD1DDF69BAC308E24657D5C20C4D619A3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

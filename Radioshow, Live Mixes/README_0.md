@@ -1,3 +1,61 @@
+###  Публикация: 1846861   (1051839) от 09.01.2026
+
+VA - Armin van Buuren - A State Of Trance 1259 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALOTT – Far From Home
+02. Omnia & UUFO – Hello (Trending Track)
+03. Kyau & Albert & John Grand – Under My Skin (John Grand Remix)
+04. Kudus & Farius – Not Alone Now(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0489EA3A3D59B135CFF116444D7B8D5F29079F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846951   (1051813) от 24.01.2026
+
+Tiesto - Prismatic 001 (2026-01-02) [MP3|320 Kbps] <Dance, Electro Pop, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto & FORS - Bring Me To Life
+02. BLR & Amber Revival - Feeling Good
+03. Xashes & Human Rias - This Is The End
+04. Tiësto - Theme From Norefjell (Ørjan Nilsen Remix)(   Читать дальше...   )Жанр: Dance, Electro Pop, TranceПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD9FC73130037799B33118DE1657F57ABAD7AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846761   (1051648) от 09.01.2026
 
 GOODBOYS - Linked Radio (01-04) (2025) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
@@ -686,64 +744,6 @@ Smith Sessions Radioshow 239 (Vocal Trance 2020 Top 40 - Part I):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C8EDDBC9AD04D3A4A43D4ADF1986391D240A44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436896   (1042813) от 02.01.2021
-
-The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Duguid feat. Julie Thompson - Falling
-02. Michael Cassette - Zeppelin
-03. Cicada - Beautiful (Michael Gray Remix)
-04. Andrew Bayer - Counting The Points(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBA998E0FA597EA1FA67C9079A7BD06A5F1A74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436867   (1042728) от 02.01.2021
-
-David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
-02. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
-03. Jack Back - Performance
-04. David Guetta & MORTEN & Lovespeake vs. Fatboy Slim - Save My Life vs. Sunset (Bird Of Prey) (David Guetta & MORTEN Edit)Жанр: Electro House, Progressive HouseПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

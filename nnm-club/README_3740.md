@@ -1,316 +1,18 @@
-###  Публикация: 988756   (921004) от 20.02.2016
+###  Публикация: 1095494   (922823) от 22.01.2017
 
-Газета | Сезон у дачи №3 (205) (Февраль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFCDED95B0857B5100945FEC68A05BB78750786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988352   (921003) от 20.02.2016
-
-Журнал | Цветок №3 (285) (февраль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический журнал для цветоводов и дачников, рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей.Жанр: Садоводство, цветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C3237A8DF7C8C93C24D8657964CC980A9E00DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988519   (921002) от 20.02.2016
-
-Сергей Марков | Летопись Аляски (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921002.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В течение многих лет я занимался поисками и изучением архивных материалов о русских открытиях в странах Тихого океана. Мне приходилось работать в архивах музеях Великого Устюга, Вологды, Сольвычегодска, Каргополя, рассылать множество писем в Нежин и Кяхту, Кострому и Иркутск, Рыльск и Красноярск, Курск и Владивосток, Пензу и Кунгур и другие города, где родились, (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 09:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B440E026638AD36B3E7F7A158E767BBBCE22682E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988636   (921001) от 20.02.2016
-
-Ринат Валиуллин | В каждом молчании своя истерика (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она сидела перед ним, перелистывая свои бесконечные ноги, а он, еще ни разу не читавший таких интересных книг, не знал, с какой страницы начался этот роман. Роман, в котором дружба, выдержанная годами в сосуде взаимопонимания, медленно оплеталась гибкой лозой любви до тех пор, пока стекло не треснуло, и изнутри не брызнула горячая кровь мести и ненависти.Жанр: Современная прозаПродолжительность: 05:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BCDD2DB254DB98EC615AFDAE77747B845C3FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988396   (921000) от 20.02.2016
-
-В. А. Брюханов | Мировоззрение К. Э. Циолковского и его научно-техническое творчество (1974) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателя книга В. А. Брюханова является попыткой марксистского анализа философских и методологических основ научно-технического творчества К. Э. Циолковского.Жанр: История, философия, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B80403C8EBE6A8EDC92C411DB396212874028E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095859   (920999) от 23.01.2017
-
-С. К. Минин | Религия и коммунизм (1922) [PDF] [Ua]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920999.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издание вошла стенограмма лекции С. К. Минина, посвященная вопросам религии и отношения революции к религиозным организациям и учениям.Жанр: История, политология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A9BABA03231F4F9D0680BB6E75DF9070615B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096102   (920998) от 23.01.2017
-
-The Lachy Doley Group - Lovelight (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 We're Free (04:20)
-02 Love Come Around (04:02)
-03 Lovelight (03:46)
-04 Ain't No Love In The Heart Of The City (04:51)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E865247C4CCBC5831925F9CBB272E7AF88A24202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096367   (920997) от 23.01.2017
-
-Н. Елизаров, И. Булатов | Кулак, «Его Святейшество» Папа Римский и оборона страны (1930) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920997.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре приведены выдержки из документов Папы Римского Пия XI и других зарубежных церковников с объявлением "крестового похода" против СССР, рассказано о протестах трудящихся нашей страны и других стран против подобных акций, укреплении обороноспособности СССР.Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3397966AD2F5CCACADBDD125ADF4F33A28803806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096230   (920996) от 23.01.2017
-
-VA - Empire Records - Dancenudisco 4 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jackie Tech - You Can Have It All (Filatov & Karas Remix)
-02. Emy Care - Fly In The Sky (Dance Mix)
-03. Deep Fresh feat. Alina Petko - So Hight (Original Mix)
-04. Irina Makosh, Wallmers, Lisitsyn - Silent Tears (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481A97EF06190487A21FAD3ED2BD9E93AF10B961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096180   (920995) от 23.01.2017
-
-Plaag - 1 album, 1 EP (2011-2012) [MP3|210-256 Kbps] <Black Metal, Black'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once
-02. Stitched 'n Stapled
-03. Hear 'em Roll
-04. Plague(   Читать дальше...   )Жанр: Black Metal, Black'n'RollПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E5AC1B4E4C73D5EC092F81A74DE747D970B43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095795   (920994) от 23.01.2017
-
-Demetria Taylor - Bad Girl (2011) [MP3|320 Kbps] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm A Woman / Hoochie Coochie Woman (05:51)
-02. All Your Love (07:50)
-03. Voodoo Woman (05:11)
-04. Bad Girl (04:12)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD9FCC05555510FAB99486B98375EA25139AB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095898   (920993) от 23.01.2017
-
-Разработан технологический процесс производства высококачественных сверхдлинных углеродных нанотрубок
+Грузовые автомобили-роботы скоро начнут обслуживать порты Сингапура
 
 >>Поговорим
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920993.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несмотря на обладание множеством привлекательных уникальных механических и электрических свойств, углеродные нанотрубки, за редкими исключениями, пока остаются лишь предметом научных исследований, с которым работают ученые в стенах своих лабораторий. Такая ситуация складывается из-за того, что до последнего времени не существовало технологии производства высококачественных (   Читать дальше...   )
+В последнее время в Сингапуре реализуется масштабная программа по внедрению технологий автоматического вождения. В августе прошлого года на улицы некоторых сингапурских городов вышли первые роботы-такси, чему предшествовала программа испытаний этих транспортных средств и управляющего программного обеспечения на специальных полигонах. И в скором будущем автомобили-роботы, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -322,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095870   (920992) от 23.01.2017
+###  Публикация: 1095762   (922822) от 22.01.2017
 
-Г. Кунов | Как возникла религия и вера в богов? (1922) [PDF] [Ua]
+Liverpool Echo - Liverpool Echo (1973) Reissue, 2005, Rev-Ola [MP3|320 Kbps] <Beat, Pop Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920992.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В монографии указывается тесная связь между религиозными представлениями диких народов, их образом жизни и окружающей их природой. Автор показывает, что не только вера в бога и в бессмертие у всех народов исходит из одинаковых простых основных представлений, но что все развитие религии со строгой закономерностью идет по одинаковым путям.Жанр: История, религиоведение, этнография, социологияФормат: PDF
+01. You Might As Well Surrender
+02. Girl Said To Me
+03. You Knwo It Feels Right
+04. No Not Again(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 00:28:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:047EA93C99017DD9FFB79C140A87F9EF7498EF25
+magnet:?xt=urn:btih:E8B7DEABB41B7C25287B131BEED28A08CD4BA540
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096138   (920991) от 23.01.2017
+###  Публикация: 1095935   (922821) от 22.01.2017
 
-VA - Kind Vibrations (2015) [FLAC|Lossless|tracks] <Downtempo, Ambient, House>
+8 Ball Aitken - 8 Ball Aitken (2016) [MP3|320 Kbps] <Blues Rock, Country>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920991.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sufi's Life - Blessings To All [08:49]
-02. Tor.Ma In Dub - The Secret Message [04:00]
-03. Ishdub - Tatanka (Melodica Version) [06:17]
-04. Gnomes of Kush - Jah Love The Kush [03:57](   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 01:02:02
+01. She's Going To Mexico, I'm Going To Jail (03:18)
+02. Seven Bucks An Hour In A Chicken Suit (04:03)
+03. Shut The Front Door (02:39)
+04. Girl In A Million (03:40)(   Читать дальше...   )Жанр: Blues Rock, CountryПродолжительность: 00:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B568E97F330AFB41E0BC9D7BB28DED519822532B
+magnet:?xt=urn:btih:23CF1F05D7CA68B545675912CBFB38322AEF43C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,28 +82,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096362   (920990) от 23.01.2017
+###  Публикация: 1095603   (922820) от 22.01.2017
 
-Riff Action Family - So Lonely To Play Without You (2017) [MP3|320 Kbps] <Hard Rock>
+VA - Persian Trance Uplifting Anthems (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  N2M - Cyros  5:27
+02.  Freeman - Victory  4:57
+03.  BMA Project - Imperious  5:51
+04.  Marc Lener - Sound of Warsaw  6:40(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447701480FC15A106BFC4816C9B97B10798CFA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096041   (922819) от 22.01.2017
+
+Rajfajh - 2 albums, 3 demos, 3 singles, 5 compilations, 2 EP, 1 Live (1995-2015) [MP3|112-320 Kbps] <Black Metal, Noise, Dark Ambient, Death Metal, Grindcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920990.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ratman (03:07)
-02. Chess Match (04:13)
-03. Nothing Stops Me (03:12)
-04. Interstellar (06:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:38
+1995 - Спонтанность
+1996 - Всё Человеческое Чуждо (Demo)
+1996 - Настика (Demo)
+1998 - Техноген (Single)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 07:55:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B06F1C69C7E3D427DC52E416536C967405FF628B
+magnet:?xt=urn:btih:5E11B6D43F9717E0E008CF8DCA3182C80C5BF9B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,28 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096265   (920989) от 23.01.2017
+###  Публикация: 1095738   (922818) от 22.01.2017
 
-Phantom Blues Band - Inside Out (2011) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+VA - Parquet Goodies 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920989.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. I Can't Stand It (2:49)
-2. Good Time For the Blues (3:16)
-3. Boogah Man (3:27)
-4. So Far From Heaven (6:00)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:51:20
+01. Rauschhaus & Peter Groskreutz - Astronaut
+02. Third Son & Wally Lopez - Geometry (Solee remix)
+03. Sebastien Leger - Poseidon
+04. D-Nox & Beckers - Secret Games(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:05:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F50D4A9ED0F739815C6F0B6CE3D9B281797EA557
+magnet:?xt=urn:btih:6DC6B97BEA54DA206E9D4D4745E20E538AF2EB28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,28 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096327   (920988) от 23.01.2017
+###  Публикация: 988273   (922817) от 19.02.2016
 
-Roberto Fonseca - Abuc (2016) Impulse![FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+Dwaallicht (Wisp) - Welkin EP (2016) [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Acid, Techno>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920988.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Cubano Chant [04:28]
- 02.Afro Mambo [03:46]
- 03.Tumbao de la Unidad [03:53]
- 04.Contradanza del Espiritu [05:41](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:52:56
+01. Humidex (07:03)
+02. 32614 (07:26)
+03. Firmament (04:33)
+04. Debt Loop (05:41)(   Читать дальше...   )Жанр: IDM, Electro, Acid, TechnoПродолжительность: 00:29:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCA98EC467A8C84EFE858B9F9C90A627B1DBADDC
+magnet:?xt=urn:btih:530DEC2856468204B8CF305A5A54BE3917E6AF7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096024   (920987) от 23.01.2017
+###  Публикация: 1095639   (922816) от 22.01.2017
 
-Ф. Энгельс | Развитие социализма от утопии к науке (1917) [PDF] [Ua]
+Master Men - Through The Window (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Art Rock>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920987.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работа "Развитие социализма от утопии к науке" возникла из трех глав труда Ф. Энгельса "Анти-Дюринг", переработанных им в самостоятельную книгу. В ней раскрыты историческая роль утопического социализма и его ограниченность, охарактеризованы предпосылки возникновения научного социализма, даны его главные положения. В книге Ф. Энгельс доказывает, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+01|  Rattlesnake  (06:26) 
+02|  Red  (03:55) 
+03|  Through the window  (04:32) 
+04|  Loser's Day  (04:50) (   Читать дальше...   )Жанр: Hard Rock, Art RockПродолжительность: 00:51:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E37D04F907D295ADA3C70C74FB9EDE9F818CBC5
+magnet:?xt=urn:btih:FE25E7185A23F121E620839CCA4CD9F158387027
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096351   (920986) от 23.01.2017
+###  Публикация: 988039   (922815) от 19.02.2016
 
-VA - Cool Chillout Music: Nice Chill Out Bestsellers (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+VA - Only Chillout Vol. 03 (Compiled & Mixed By Seven24) (2016) [MP3|320 кб/с] <Chillout>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920986.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  DJ Rostej - Minutes of Stories (Chillout Mix)  2:46
-02.  Seven24 - Behind the Sky (Chillout Mix)  5:11
-03.  DJ Rostej - Long Way (Chillout Mix)  4:46
-04.  MAA - Light of Soul (Chillout Mix)  2:24(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:49:51
+01. Alex Frolov - Voice from Inside (Chill-Out Version) (4:32)
+02. Seaman - In Old Forest (6:43)
+03. R.I.B. - Starlit (3:54)
+04. Seven24 - Forever (3:40)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 03:35:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61B0638C9474E1D65A6CF0745E2FD7DBEE093665
+magnet:?xt=urn:btih:79659B276238886DA71475B75470C18E9D36450E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +256,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096232   (920985) от 23.01.2017
+###  Публикация: 1096003   (922814) от 22.01.2017
 
-VA - Empire Records - Chill Out 10 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Mark Cook - Stop The Madness!! (2007) [FLAC|Lossless|image + .cue] <Blues Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  The Loaded Goat  (03:27) 
+02|  Your Bad Reputation  (03:13) 
+03|  Without Cause  (03:15) 
+04|  Nylon Prelude to Not Forgotten  (01:07) (   Читать дальше...   )Жанр: Blues Rock, InstrumentalПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B648E47926C9E3B8B5FAE3DF9005D802A70CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988050   (922813) от 19.02.2016
+
+Future Breeze - Second Life (2005) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:16)
+02. Second Life (7:15)
+03. Smile 2004 (6:30)
+04. Push (7:20)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FABE963F50038A154D2609A910F9ED3D6BCD232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095985   (922812) от 22.01.2017
+
+VA - Empire Records - Chill Out 9 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920985.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. GoodLuck - Back In The Day (Radio Edit)
-02. UnClubbed - Need To Feel Loved (feat. Zoe Durrant)
-03. Toca Lounge - Electric Feeling (Lounge House Mix)
-04. Beth - Don't You Worry Child (Charming Horses Remix Edit)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:23:40
+01. Zero Feedback - Deep In The Rain Forest
+02. Milk And Sugar Feat. Maria Marquez - Canto Del Pilon (Taan Newjam Remix)
+03. Taco Town - Desierto Arabica
+04. Davi - Two Suns In The Sky(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:48:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56A2850364A4F637654630F167EA6C4EDC572E09
+magnet:?xt=urn:btih:3A7B77B824B3E886E631402993715A27F13F970C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,114 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096220   (920984) от 23.01.2017
+###  Публикация: 987735   (922811) от 19.02.2016
 
-VA - Louis Armstrong & Friends: What A Wonderful Christmas (1997) Hip-O Records[FLAC|Lossless|image + .cue] <Vocal Jazz, Christmas Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong With Benny Carter's Orchestra - Christmas In New Orleans [2:54]
-02. Louis Armstrong With Gordon Jenkins & His Orchestra - White Christmas [2:39]
-03. Dinah Washington - Silent Night [2:22]
-04. Mel Torme - The Christmas Song [3:06](   Читать дальше...   )Жанр: Vocal Jazz, Christmas JazzПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538C42350EB81067996B170D8044B9242FE39E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095876   (920983) от 23.01.2017
-
-The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.That Slavic Smile [08:05]
- 02.Echoes [07:10]
- 03.The Watergate Blues [06:09]
- 04.The Hornpipe [08:20](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9D30F308C006BD37B5209B723327992D2D5C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095618   (920982) от 23.01.2017
-
-Кондильяк | Сочинения [3 тома] (1980-1983) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920982.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1 том том входит первый труд выдающегося французского философа Этьенна Бонно Кондильяка, внесшего особенно крупный вклад в теорию познания века Просвещения. Этот труд - "Опыт о происхождении человеческих знаний" (1746) - принес автору европейскую славу. На русском языке публикуется впервые.
-
-Во 2 том входят следующие произведения: "Трактат о системах", (   Читать дальше...   )Жанр: История, философия, искусство, лингвистика, логикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBBEB17368AF3F7CEA752D3F12C7C04A2C428C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096242   (920981) от 23.01.2017
-
-VA - Empire Records - Club Hit 6 (2017) [MP3|320 Kbps] <Club, Dance>
+VA - Music For Everyone - Dubstep & Drumstep Vol.4 (2016) [MP3|320 кб/с] <Dubstep, Drumstep>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920981.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. SRTW feat. Charity Children - Whispering Still (Little Rose Remix)
-02. Groove Insane - Broken Heart (Artful Fox Bootleg Remix)
-03. Mr & Mrs Cactus - Synchronized (Steve Diamond Remix)
-04. Klingande feat. M-22 - Somewhere New (George Kwali Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:28:19
+1. Nitrix – Soaring (Original Mix)
+2. Jacob Stanifer feat. Twilight Meadow — Wings (Original Mix)
+3. Inukshuk - Forever (Original Mix)
+4. Route 94 - My Love (Synchronice Remix)(   Читать дальше...   )Жанр: Dubstep, DrumstepПродолжительность: 01:20:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BEAA8929D93268324D66D171E2C91CFD1B563D9
+magnet:?xt=urn:btih:4506D73B5C2293AAEDB61BFBBD99B0D995C7E86F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +372,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096268   (920980) от 23.01.2017
+###  Публикация: 1095615   (922810) от 22.01.2017
 
-VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House>
+Б. Кандидов | Церковь и Октябрьская революция (1930) [DJVU]
 
->>Electronic
->>House
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920980.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don Gorda Project - Dreamscape  6:11
-02.  Enrico Donner - Where the Sun Rises (Feat. Ali Rouass)  7:07
-03.  DJ Riquo - Deep Winds  5:08
-04.  Cane Garden Quartet - Sea Jam  5:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:22
+В брошюре вкратце рассказывается об отношении Православной церкви к Октябрьской революции, её месте и роли в Гражданской войне.Жанр: История, политология, религиоведениеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
+magnet:?xt=urn:btih:F8F1ABEA6BD3D1EA54787520D1145D6E52037B68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,26 +398,324 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 756884   (920973) от 14.02.2014
+###  Публикация: 988175   (922809) от 19.02.2016
 
-Сборник - День всех влюбленных 3 / Valentine's Day 3 [JPEG,PSD,EPS,AI,PNG]
+Мэйдлин Брент | Тибетское пророчество (2016) [MP3]
 
->>Материалы для мультимедиа и дизайна
->>Сборники
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920973.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изображения ко Дню всех влюбленных
-для тех, кто еще не поздравилФормат: JPEG,PSD,EPS,AI,PNG
+Роман Мэйдлин Брент «Тибетское пророчество», несомненно, не оставит равнодушными любителей сентиментального и приключенческого жанра. Героине романа, выросшей в горах Тибета и воспитанной английским солдатом, предстоит раскрыть тайну своего рождения и сыграть главную роль в борьбе за священную буддийскую реликвию, «слезу просветленного», и, естественно, на этом пути (   Читать дальше...   )Жанр: Сентиментально-приключенченский романПродолжительность: 17:54:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3B640CF63F8DAB65DDECAC11E7356019E50F360
+magnet:?xt=urn:btih:6F895BC988EDECC4538965EED8C33A87198203A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096067   (922808) от 22.01.2017
+
+Первая передача на НТВ. Автомобильная передача (2017.01.22) HDTV [H.264/1080i] (выпуск 276)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922808.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВ HDЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B0C3AA105975FD8E576D935F6FA1E3F2AC8074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988300   (922807) от 19.02.2016
+
+Большинство с Сергеем Минаевым (19.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922807.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом выпуске – обсуждение актуальной темы недели с участием политиков, чиновников, представителей бизнеса и экспертов, а также тех, кто представляет «большинство» – жителей страны, неравнодушных к тому, что происходит, и готовых задавать неудобные и острые вопросы.В этом выпуске: Приведет ли борьба за власть на Украине к очередной трагедии?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C361B834D5E381813EA272796A434FAC14419F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095857   (922806) от 22.01.2017
+
+Г. Гортер | Мировая революция (1922) [PDF] [Ua]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Появление "Мировой революции" среди украинских работников и тех революционеров, которые порвали со своими националистическими предрассудками, поможет многим прийти к ясному пониманию капиталистической сущности, некоторым полнее выкристаллизовать уже понятное мировоззрение, а кому-то просто развеять туман в голове.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CF8658932352942A25111E7C95136FA1DA3728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987871   (922805) от 19.02.2016
+
+VA - Club Of Fans Dance Vol. 6 (2016) [MP3|320 кб/с] <Club, Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cleo - Zabiore Nas (Basto Remix Extended)
+02. Miss Diva - Love Me (Marious Remix Edit)
+03. Giorno - The Floor (Mr. G! Vs Dancefloor Kingz Edit)
+04. S3RL - Pretty Rave Girl (Hands Up Edit)(   Читать дальше...   )Жанр: Club, Dance, Hands UpПродолжительность: 04:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0605F7D46B89B00EF8F89828EDE6B9C37CE3C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095791   (922804) от 22.01.2017
+
+VA - Стопудовые зимние хиты. Сборник № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Milano Feat. Денис Раско - Двигай 2:40
+002. Emeli Sande - Babe 3:16
+003. Franky - Война 4:00
+004. Nytrix Feat. Neon Hitch - When Will I See You Again 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFF3850CD3C1B5C7F8794D121061D69487C6560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988125   (922803) от 19.02.2016
+
+Вечерний Ургант. Сезон №9. Выпуск №15 (2016.02.18) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864CBBD01BA3463E6CEB6B95BEA993C6C8E39B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095161   (922802) от 22.01.2017
+
+Обнаружен вид бактерий, которые, подобно нейронам, общаются друг с другом электрическим способом
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бактерии, в большинстве случаев, являются одноклеточными организмами. Но это еще не означает, что они - одиночки. Некоторые из видов одноклеточных бактерий живут большими колониями, как люди в городах-мегаполисах. И, подобно людям, эти бактерии общаются друг с другом различными способами, что позволяет поддерживать всю колонию в жизнеспособном состоянии. Не так давно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988271   (922801) от 19.02.2016
+
+Право голоса. "Приватизация 2.0" (19.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922801.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Антикризисный план правительства на 2016 год подразумевает приватизацию некоторых государственных активов. Надо ли проводить приватизацию? Не повторим ли мы при этом ошибки 90-х?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F50F8FA472C3EB745CE82D5B1961E9662EE59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095804   (922800) от 22.01.2017
+
+VA - Brazilian Lifestyle (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922800.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rosferra Marsalis, Toni Macles - Bossa de Saudad 4:34
+ 2. Nandy Xavier - Garota de Vitine 4:37
+ 3. Joao Martins - Don't Speak (Bossa Style) 4:05
+ 4. Sergio Augusto - Nao Ha Nada Como Aqui 3:07(   Читать дальше...   )Жанр: Pop, Bossa Nova, LatinПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4141AED490D76DEB7DD1549FAB376790BEC302C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988225   (922799) от 19.02.2016
+
+hr - Task timer as simple as it's name 1.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таймер задач для строки меню такой же простой, как его имя. Ненавязчивый, но легко доступный таймер задач, который изменяется в строке состояния будет полезным особенно если вы фрилансер. hr предлагает вам возможность быстро определить и управлять таймерами, без необходимости иметь дело со сложными настройками.
+
+Работа с hr  интуитивно понятна: просто запустить приложение, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 февраля 2016Разработчик: White DesignsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8BE83FBF3724298ADD11A0FAB32C410619D7A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096131   (922798) от 22.01.2017
+
+Sound Studio 4.8.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sound Studio - универсальная студия звукозаписи
+Sound Studio - простое в использовании приложение для записи и редактирования цифрового аудио на вашем компьютере. Оцифровка кассет и виниловых пластинок, записи живых выступлений, свои собственные миксы с кроссфейдов с цифровыми эффектами - и это малая толика того, что можно сделать с Sound Studio.
+В плане импорта (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 января 2017Разработчик: Felt Tip IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9CDCACBE33946E6D03104D962BF19DEAEB9713
 ```
 
 https://mybot314.ru/tekegram_catalog/

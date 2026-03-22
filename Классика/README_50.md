@@ -1,3 +1,119 @@
+###  Публикация: 1718718   (110856) от 26.04.2024
+
+VA - Classical Piano Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Sergey Bryukhno - Sonnet in C Major (1:25)
+03. Katya Kramer-Lapin - Pavane, Op. 50 (Arr. for Piano by Chris Sennett) (5:35)
+04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4D4C15E33BBE5CF61265C50C2C0B50E8F77B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719163   (110672) от 28.04.2024
+
+VA - Timeless Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Denis Shapovalov - 14 Romances, Op. 34 No. 14, Vocalise (Arr. for Cello and Piano) (5:26)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2A2525B098D07E689729AF09AFB1A35F57640A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720223   (110396) от 02.05.2024
+
+VA - Great Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryukhno) (4:38)
+03. Katya Kramer-Lapin - 24 Préludes, Op. 28 No. 4 in E-Minor (2:53)
+04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7E511031805F8DA7314CC9A2A67AC79CE478C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720615   (109838) от 10.05.2024
+
+Emma Shapplin - 8 Albums (1997-2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Emma Shapplin - 1997 - Carmine Meo
+Emma Shapplin - 2002 - Etterna
+Emma Shapplin - 2009 - Macadam Flower(   Читать дальше...   )Жанр: Modern Classical, NeoclassicalПродолжительность: 8 CD, 06:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C11115D3F116DF4117383CCF78297BBE47CCBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721269   (109822) от 10.05.2024
 
 Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental>
@@ -660,131 +776,6 @@ Carl Heinrich Graun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB52489F329835895E49373E106A10407D26D7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481866   (88077) от 12.04.2012
-
-VA - Super Classic Hits (2006) 2 CD [FLAC|Lossless]<Classic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88077.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006Жанр: Classic
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB22B9B37B68C01D5552CD8EE2AC74720DAA3365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478475   (87474) от 09.04.2012
-
-Roberto Cacciapaglia - 4 albums (2007-2011) [MP3|320 кб/с]<Neoclassical, New age, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87474.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (00:53:15):
-(4:47) 01. Seconda navigazione
-(4:29) 02. Floating
-(4:19) 03. Tema celeste
-(3:04) 04. Sarabanda
-(6:04) 05. Luminous Land - Outdoor
-(2:41) 06. Ancient Evenings
-(4:10) 07. Viaggio di notte
-(4:39) 08. Oceano
-(3:52) 09. Olimpica(   Читать дальше...   )2007-2011Жанр: Neoclassical, New age, InstrumentalПродолжительность: 01:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D1E88F21DCC93608EED43776CEEE008CFD198B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479895   (87381) от 09.04.2012
-
-Wolfgang Amadeus Mozart - Requiem in D minor, K 626 Transposition for a string quartet: VA, Quatuor Debussy (1791) /2009/[APE|Lossless]<Classsical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87381.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Requiem 2:00
-2.Dies Irae 1:48
-3.Tuba Mirum 3:29
-4.Rex Tremendae Majestatis 1:58
-5.Recordare 5:53
-6.Confutatis 2:27
-7.Lacrimosa 3:11
-8.Domine Jesu 3:33
-9.Hostias 4:02
-10.Sanctus 1:35(   Читать дальше...   )2009Жанр: ClassicalПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB17F687EB2C616C9E9D83C558DADDE5D0EA0CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479274   (87163) от 08.04.2012
-
-Antonio Vivaldi - 5 Concerti for Bassoon, Strings & Continuo: Milan Turkovic & I Solisti Italiani (1990) /1994, Mastersonic, CO-78921/ [FLAC|Lossless]<Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in E minor, RV484, F. VIII-6
-1.	I - Allegro poco	4:30
-2.	II - Andante	3:08
-3.	Ill - Allegro		3:031994Жанр: BaroqueПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A86C20ACD93F35DD8E0F79210A2E0925FA504BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

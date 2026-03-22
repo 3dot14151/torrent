@@ -1,3 +1,119 @@
+###  Публикация: 1291433   (668909) от 25.03.2019
+
+Swans - What Is This? (2019) Demo [FLAC|Lossless|tracks + .cue] <Industrial, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving Meaning
+02. Hanging Man
+03. Amnesia
+04. The Nub(   Читать дальше...   )Жанр: Industrial, PunkПродолжительность: 01:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146D66CEE81A5572E73471708E699E31239DD1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290866   (668903) от 25.03.2019
+
+The Brian Jonestown Massacre - The Brian Jonestown Massacre (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668903.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Drained (03:43)
+2. Tombes Oubliées (04:26)
+3. My Mind Is Filled with Stuff (03:35)
+4. Cannot Be Saved (03:58)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE72363A10956DB4371B2EDB0B7FF93AFBE5311E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290852   (668899) от 25.03.2019
+
+Nilufer Yanya - Miss Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie, Soulful>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WWAY HEALTH
+02. In Your Head
+03. Paralysed
+04. Angels(   Читать дальше...   )Жанр: Alternative, Indie, SoulfulПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C14D39C87E02C2175E37B6BF274AE9413964D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290861   (668591) от 25.03.2019
+
+Stephen Malkmus - Groove Denied (2019) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belziger Faceplant
+02. A Bit Wilder
+03. Viktor Borgia
+04. Come Get Me(   Читать дальше...   )Жанр: Rock, Indie Rock, ElectronicПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7710B2487F6002BF24712EA915E596D822B40A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291179   (668586) от 25.03.2019
 
 The Cure - Join The Dots (B-Sides & Rarities 1978>2001: The Fiction Years) (2004) 4CD, RM. [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave>
@@ -629,122 +745,6 @@ Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906014   (647548) от 07.06.2015
-
-Algiers - Algiers (2015) [FLAC|tracks|Web-DL] <Post-Punk, Indie, Experiemental, Rock, Gospel>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Remains (3:05)
-02 - Claudette (3:31)
-03 - And When You Fall (3:42)
-04 - Blood (5:38)(   Читать дальше...   )Производство: Matador – OLE 1067-2Жанр: Post-Punk, Indie, Experiemental, Rock, GospelПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E2B40C44E971504EB762C549400DCFE95E6436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227441   (646704) от 26.05.2018
-
-From Ashes To New - The Future (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/11. Wake Up (3:51)
- 02/11. Crazy (3:06)
- 03/11. My Name (3:43)
- 04/11. Gone Forever (3:54)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B9327457AC4CB469B345D6D06E9162DAD2F3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032254   (645691) от 07.07.2016
-
-Blink-182 - California (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короли поп-панка, группа Blink-182, возвращаются с новым альбомом и новым вокалистом. На пластинке «California» звучат вокал и гитара Мэтта Скибы, сменившего Тома Делонга — одного из основателей группы.01. Cynical
-02. Bored To Death
-03. She's Out Of Her Mind
-04. Los Angeles(   Читать дальше...   )Жанр: Pop Punk, Alternative RockПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A91A2CA69B3AF602BF43819194DF931B57D929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292595   (645182) от 30.03.2019
-
-Zebrahead - Brain Invaders (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Both Sides Suck, We're All Winners (03:03)
-02. I Won't Let You Down (03:37)
-03. All My Friends Are Nobodies (03:03)
-04. We're Not Alright (02:55)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732E590804FC85E3B13BD61EDA541279D2529700
 ```
 
 https://mybot314.ru/tekegram_catalog/

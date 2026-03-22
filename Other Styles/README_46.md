@@ -1,3 +1,61 @@
+###  Публикация: 1511037   (789839) от 19.11.2021
+
+Wellküren - Das Mensch: Traditionals (2003) [APE|Lossless|image + .cue] <Volksmusik>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Joseph-Jodler 0:36
+02 - Der junge schwarz' Schlossergesell 3:15
+03 - Evi-Landler 3:52
+04 - Bim Bam & Mäh-Jodler 3:23(   Читать дальше...   )Жанр: VolksmusikПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DC4611B92DED6350E17B3A623910E153B53586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202437   (789829) от 29.01.2018
+
+Celtic Woman - Homecoming: Live from Ireland (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homecoming Lament (Live 2017) (02:02)
+02. Mo Ghile Mear (My Gallant Star) (Live 2017) (04:09)
+03. My Heart Will Go On (Live 2017) (04:26)
+04. Walk Beside Me (Live 2017) (04:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FE4237F08D3EA8450484665FBB7A6D2199F9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511072   (789763) от 19.11.2021
 
 Митрофановна - Развернула Митрофановна гармонь (2004) [MP3|320 Kbps] <Русская народная музыка>
@@ -686,64 +744,6 @@ Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E63B6D50D3C6D4541AEA35ED75B8AF4B8EF4AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123630   (786077) от 09.04.2017
-
-ДахаБраха - Ягудки (2007) [MP3|320 Kbps] <NeoFolk, Country, Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шо З-под Дуба (03:48)
-02. Русалочки (01:49)
-03. Пані (03:28)
-04. За Дуби (02:20)(   Читать дальше...   )Жанр: NeoFolk, Country, EthnicПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336EB932A445EEF224C5E8661BEB28FB32ED0F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124005   (785931) от 10.04.2017
-
-Clookai - Massage Gold (2008) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternity [00:06:32]
-02. Touch of the Dove [00:06:08]
-03. The Secret Place [00:08:12]
-04. Stolen Moments [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C34666CA5EAA4961F10544F7686F5D35676E65
 ```
 
 https://mybot314.ru/tekegram_catalog/

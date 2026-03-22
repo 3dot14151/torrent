@@ -1,3 +1,32 @@
+###  Публикация: 949016   (371002) от 05.11.2016
+
+SUPER EURO SMASH - 5 альбомов (2012-2013) /Doujin/ [FLAC|tracks] <Eurobeat>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2013.04.27 (ASES-0003) SUPER EURO SMASH Vol.3 (M3-31)
+2013.08.12 (ASES-0004) SUPER EURO SMASH Vol.4 (C82)
+2013.12.30 (ASES-0005) SUPER EURO SMASH Vol.5 (C83)Тип издания: DoujinЖанр: EurobeatПродолжительность: 00:04:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502AA61631CBAB6EE413F32381F674C56BED4ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 173161   (368064) от 04.11.2011
 
 RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal,female vocal>
@@ -756,32 +785,6 @@ VA - Lovely String (1999) [MP3|320 кб/с]<Instrumental, Ethnic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C59E5D1F77E1A753C1C3D93B7B8040DFDB1D2419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581148   (337437) от 27.11.2012
-
-Meisa Kuroki - 4 альбома, 8 синглов (2008-2012) [MP3|320 кб/с]<J-Pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337437.jpg" />
-</div>
-
-
-###  Подробнее
-
-AlbumsЖанр: J-PopПродолжительность: 00:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D944AC779E689ED01D6C554546B24462002702
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1009830   (808240) от 22.04.2016
+
+Elmsfire - Hour Of The Wolf (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye To Eye
+02. Dead Night Misery
+03. Rapophis
+04. The Wheel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20ACD96DEB42CBE9558712CF1AB95AF09845D960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009740   (808239) от 22.04.2016
 
 August Redmoon - Drums Of War (2016) [MP3|320 кб/с] <Heavy Metal>
@@ -714,35 +743,6 @@ Novembers Doom - Hamartia (2017) [MP3|320 Kbps] <Doom-Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2965DC867E1ECB42282D0CA5F5DAEF6AF7408034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122005   (798848) от 05.04.2017
-
-Mammoth Weed Wizard Bastard - Y Proffwyd Dwyll (2016) [MP3|320 Kbps] <Doom, Sludge, Psychedelic,>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valmasque
-02. Y Proffwyd Dwyll
-03. Gallego
-04. Testudo(   Читать дальше...   )Жанр: Doom, Sludge, Psychedelic,Продолжительность: 00.48.16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CD4639D19B43A74D14B32CE78C56F0D7BDC622
 ```
 
 https://mybot314.ru/tekegram_catalog/

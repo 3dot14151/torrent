@@ -1,3 +1,61 @@
+###  Публикация: 1445366   (1033763) от 05.02.2021
+
+The 5th Galaxy Orchestra - Eyeland Airlines (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miami Airport (5:00)
+02. Love Flight (5:35)
+03. The Stars on a Full Sky (5:01)
+04. I Need Your Love (3:44)(   Читать дальше...   )Жанр: Electronic, Balearic, Chillout, LoungeПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CE60FBC8FFFADDF57F2E35E7445D51E00352D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445117   (1033759) от 05.02.2021
+
+The 5th Galaxy Orchestra - The Tropic Lounge Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream House, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceania (5:20)
+02. Sunny Coastline (5:44)
+03. The Lonely Surfer (4:26)
+04. Venus Sundown (3:46)(   Читать дальше...   )Жанр: Dream House, Chillout, LoungeПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D6307EDEC87736246A2B880CBDAFFFC6A73328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445115   (1033751) от 05.02.2021
 
 The 5th Galaxy Orchestra - The Melody of the Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Nu-Disco>
@@ -687,61 +745,6 @@ V.A. - The Best Chillout Ever (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559F690DF4EACD4B62BDD6E43F67CB7942167013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031149   (1029267) от 24.02.2021
-
-Tosca - Discography 33 Releases (1995-2018) Studio !K7, G-Stone [FLAC|Lossless|tracks+.cue, tracks] <Trip Hop, Dub, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supersunday (Megablast Remix) (07:45)Тип издания: CD, WebЖанр: Trip Hop, Dub, Downtempo, Soul-Jazz, Lounge •Продолжительность: 23:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E874544FDAE644ACD8E7B23050BBF28E4134CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450119   (1029190) от 25.02.2021
-
-VA - Space Fly, Vol. 1: A Magic Chill Trip Presented by Frank Borell (2009) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Trip-Hop, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream - Outer Space (Meditation Lounge Mix) (6:34)
-02. Dreamscape - The Seven Sense (Behind the Horizon Mix) (5:12)
-03. Manoa - Jumeira Drive (Highway Mix) (6:27)
-04. Frank Borell - Minded 2 Say (Chillout Mix) (7:14)(   Читать дальше...   )Жанр: Chillout, Trip-Hop, LoungeПродолжительность: 02:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB03845A6919B125330E5E80B86ADC05B627A1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

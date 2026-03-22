@@ -1,3 +1,177 @@
+###  Публикация: 1036820   (619146) от 21.07.2016
+
+VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название диска происходит от известнейшей композиции впервые исполненной Louis Armstrong - When The Saints Go Marching In (Когда святые маршируют). Впоследствии практически каждый джазист почитал своим долгом перепеть (и переиграть) эту, ставшую классикой, композицию. Ну и, конечно, только от одного перечисления имен тех, кто представлен на этом сборнике может у (   Читать дальше...   )01. Louis Armstrong - When The Saints Go Marching In  (3:12)
+02. Duke Ellington - The Mooche  (5:26)
+03. Benny Goodman - King Porter Stomp  (3:08)
+04. Nat King Cole - It's Only A Paper Moon  (1:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517A7391146DB05EBA9E7797CD0829796A611CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230067   (619076) от 10.06.2018
+
+Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight In Vermont [3:27]
+02. Thou Swell [1:43]
+03. I Could Write a Book [2:40]
+04. Gone With the Wind [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE6AD531EB812118A5FDC3846603105E3C9229D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230172   (618973) от 10.06.2018
+
+Club Des Belugas - Ragbag (2018) [FLAC|Lossless|image + .cue] <Swing-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is What You Want  [05:27.64]
+02. Ragbag  [03:55.25]
+03. Tequila [04:23.26]
+04. Beyond The Window   [04:42.64](   Читать дальше...   )Жанр: Swing-JazzПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450C654BBB106C28FD66F80A21EB288F67B64F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295604   (618858) от 13.04.2019
+
+Carlos Martins - Passagem (1996) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofia [3:35]
+02. Mali m'Bule Baaba [5:58]
+03. Duo [5:46]
+04. A Espera [6:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A870DBF34EC8DFC38B9659CEAD819446C254AFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911426   (618495) от 22.06.2015
+
+Charlie Byrd - Bossa Nova Pelos Passaros (1962-1963) /2002, Riverside/[FLAC|tracks+.cue]<Jazz, Latin Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yvone [01:58]
+02. Um Abraco Do Bonfa [02:23]
+03. Meditacao [03:13]
+04. Voce E Eu [02:58](   Читать дальше...   )Жанр: Jazz, Latin Jazz, Bossa NovaПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BDA7C83AB038EDE5200589CB040BA2AFC620FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910983   (618489) от 22.06.2015
+
+Duke Ellington - Live in Zurich, Switzerland 2.5.1950 (2007) [FLAC|tracks]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Suddenly It Jumped
+2. Ring Them Bells
+3. Creole Love Call
+4. Paradise(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9210521FA79A2B4DDDEEC731099D80D8385FBB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145943   (618353) от 27.06.2017
 
 Albert Sanz Trio - O Que Sera (2012) Nuba Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
@@ -576,183 +750,6 @@ Laurindo Almeida - Guitar From Ipanema (1964) Japan Edition, 2011, Capitol / EMI
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0117801AF2CADFE1EE31A442AC35B9DA825A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037063   (615668) от 23.07.2016
-
-Melanie De Biasio - Blackened Cities (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blackened CitiesЖанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03ACB0DA8B60E1ED95A3B9FA88D80AFA4EC1837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523801   (615408) от 17.07.2012
-
-Bob Leaper Big Band - Big Band, Beatle Songs (2005) [FLAC|Lossless]<Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Be Your Man (2:36)
-02. It Won't Be Long (2:52)
-03. This Boy (4:25)
-04. Don't Bother Me (2:26)
-05. She Loves You (2:51)
-06. A Hard Day's Night (2:41)
-07. Love Me Do (3:31)
-08. Please Please Me (3:15)
-09. All My Loving (4:57)
-10. There's A Place (3:11)(   Читать дальше...   )Жанр: Big BandПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296054   (615240) от 15.04.2019
-
-Branford Marsalis Quartet - The Secret Between The Shadow And The Soul (2019) Marsalis Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of the Evil Toys [8:23]
-02. Conversation Among the Ruins [8:46]
-03. Snake Hip Waltz [5:52]
-04. Cianna [7:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1E4A2D6EF43E964DA36D6FB1EC9C6CF0D0AF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296086   (615142) от 15.04.2019
-
-VA - Smooth Jazz Dinner Party (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Levine - Through The Fire
-02. Leif Shires - Human Nature
-03. Mark Douthit - You Can't Hide Love
-04. Pat Coil - One More Night(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4C53A82367C18441979DF7B558AE680D55F0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146591   (614773) от 29.06.2017
-
-Milt Jackson - Mostly Duke (1982) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Little Words [04:52]
-02. Used To Be Jackson [05:09]
-03. The Summer Knows [07:59]
-04. Main Stem [02:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D9647F2A1C53528B339F0C0AFE01EB16307D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146621   (614772) от 29.06.2017
-
-Members Of The Duke Ellington Orchestra - A Tribute To Duke Ellington (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The A Train [03:00]
-02. Cotton Tail [03:07]
-03. Solitude [03:16]
-04. Jeeps Blues [04:37](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D115C0E43245FC09BF2203351F6291D91B463F05
 ```
 
 https://mybot314.ru/tekegram_catalog/

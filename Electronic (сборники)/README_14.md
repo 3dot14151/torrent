@@ -1,3 +1,61 @@
+###  Публикация: 1488954   (1001182) от 14.08.2021
+
+VA - Epic Trance: Progressive Edition (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vyacheslav Sketch - Light
+002. Radioactive Project - Talking To The Moon
+003. Milad E And David Deere - Angelic
+004. Solid Sleep - Heaven(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3666985B0CABF4B00931CB5561A9E72E29D20F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488965   (1001166) от 14.08.2021
+
+VA - Vocal Chillout Music: Relax Session (2021) [MP3|320 Kbps] <Chillout, Relax Electro, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001166.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Costa & Emma Horan - New Dawn Breaking
+002. Fine. - Asking For A Friend
+003. Anna Of The North - Believe
+004. Aurosonic - They Wait For Us(   Читать дальше...   )Жанр: Chillout, Relax Electro, DowntempoПродолжительность: 06:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661D38818C7B51D09D708D16F1152DBE88DEA339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352466   (1001087) от 14.01.2020
 
 VA - Sacred Space: Mushroom Psy Trance Mix (2020) [MP3|320 Kbps] <Psy, Goa Trance>
@@ -776,64 +834,6 @@ VA - Best of Euphoric Emotions Vol.11 (2013) [MP3|320 кб/с]<Trance, Vocal Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B38C38C2B810EEC1B66179272426D93ABCE7B41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353171   (992680) от 17.01.2020
-
-VA - Dub House: Electro Party (2020) [MP3|320 Kbps] <Dub House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nailbiter - Char
-02. Dyi Mob - Massive Dynamic
-03. Torn - Nothing
-04. Lawbrakr - Heist(   Читать дальше...   )Жанр: Dub House, ElectroПродолжительность: 06:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD35D6FC3C6DB7FF42366FF9C8EE8BD6CA604D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353172   (992679) от 17.01.2020
-
-VA - Electronic New Season (2020) [MP3|320 Kbps] <Electronic, EDM, Synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992679.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sonic Moon - Funk Flow
-002. Lento Violento - Lost
-003. Mount Palomar - The King's Gambit
-004. Diefaust - Curiosite Coupable(   Читать дальше...   )Жанр: Electronic, EDM, SyntheticПродолжительность: 12:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7B4FE76015EB0ADAB2EFAD0EBCB4591D4186EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

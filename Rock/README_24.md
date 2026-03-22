@@ -1,3 +1,38 @@
+###  Публикация: 200591   (781151) от 14.05.2010
+
+Shocking Blue - Venus (3 Albums) (1990) [MP3|320 kbps]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1990Жанр: Classic RockПродолжительность: 01:10:52
+
+01 | Out Of SIght, Out of Mind  | 02:43
+02 | Send Me A Postcard  | 02:40
+03 | Long Lonesome Road | 02:51
+04 | Pickin' Tomatoes | 03:20
+05 | Venus | 03:05
+06 | Hot Sand | 02:40
+07 | Mighty Joe | 03:13
+08 | Shocking You | 03:05(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207173   (780891) от 17.02.2018
 
 Steven R. Smith (Стивен Р. Смит) - Log The Man Dead (1995) Autopia, MC-Rip [MP3|320 Kbps] <Noise, Indie Rock, Psychedelic Rock, Folk, Experimental>
@@ -712,35 +747,6 @@ Jimi Hendrix - Both Sides of the Sky (2018) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25ABF7F09981484F24653F5536898BACE1EF3AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014274   (776563) от 07.05.2016
-
-Chain - Toward The Blues (1971) Reissue, 2007, Picar ‎[MP3|320 кб/с] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirty Two - Twenty Blues
-02. Snatch It Back And Hold It
-03. Boogie
-04. Booze Is Bad News Blues(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7383E3F0742CA51DCCC1A29FEC5B5B578FD21008
 ```
 
 https://mybot314.ru/tekegram_catalog/

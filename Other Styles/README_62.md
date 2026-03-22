@@ -1,3 +1,116 @@
+###  Публикация: 1023598   (716127) от 09.06.2016
+
+Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип основан на оригинальном дискеЖанр: ScoreПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FAC99EE515C5EECF9D1CF644B8215BB76EA02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024730   (716126) от 09.06.2016
+
+Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarity [00:08:22]
+ 02. A Promise of Love [00:05:08]
+ 03. Love Is All We Need [00:06:20]
+ 04. Peace [00:06:36](   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45EB9B8D0CECCAC04381966207FF7F7B93FF69F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024740   (716035) от 09.06.2016
+
+Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer & Lang Lang – Oogway's Legacy (02:00)
+02. Hans Zimmer - Hungry for Lunch (01:15)
+03. Hans Zimmer – The Power of Chi (04:12)
+04. Hans Zimmer – The Arrival of Kai (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFC59F0F35E7EFAFBF852B2D7154D4CD3AE11F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024650   (716020) от 09.06.2016
+
+Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) Live [MP3|320 кб/с] <New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Sahana Vavatu Mantra (Live)
+02. Mangalam (Live)
+03. Nam Myoho Renge Kyo Mantra (Live)
+04. Om Kumara Mantra (Live)(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D5E982E40354523EB2ACFBC92613AB2D19A457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130155   (715964) от 01.05.2017
 
 VA, Tyler Bates - Guardians of the Galaxy / Стражи Галактики (Original Motion Picture Soundtrack) (2014) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Soundtrack, Score>
@@ -629,122 +742,6 @@ Ikaiki Taky - Inka Llacta (2009) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0EF7B6D8B27487DBC54C46680ED2094C28BDC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401021   (713039) от 08.08.2020
-
-Native Spirit - Pow Wow Dance (2008) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ethnic, Folk, New AgeПродолжительность: 01:09:12Трэклист: 01. Coyote Dream
-02. The Wolf Dance
-03. Fire
-04. Rainbow Canyon(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83354461561B3DB9DB55BAABAAC4EB53A173A1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130740   (712685) от 03.05.2017
-
-Glenn Morrison - How We Are (Motion Picture Soundtrack) (2017) [MP3|320 Kbps] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How We Are (04:06)
-2. Incessant (04:18)
-3. Dinosaur Vibrato (04:16)
-4. Apocalyptic Veil (07:44)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC905047673007078EB4C748E4B2AE256A878873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130588   (712678) от 03.05.2017
-
-VA - Your Own Personal Buddha: Cafe Ethnic Lounge (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Velvet - Shaking the Spirits - Mykonos Sunset Mix
-02. Milews - Cafe Del Mar Dreams - Tabla Buddha Ibiza Mix
-03. Moonflower - Buddha in the Lounge - Bar Cafe Night Mix
-04. Blue Crisp - African Skies - Sunset Del Mar Lounge Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85175B6874E57853AD25468FA5BD29CBA04400D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130632   (712277) от 03.05.2017
-
-Kitaro - Sacred Journey of Ku-Kai, Volume 5 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul From Ocean (5:57)
-02. Breath Of Light (6:31)
-03. Reflection Of The Heart (5:36)
-04. Wave Rotation (5:03)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED82BC411E27F4DA7446A4BA802AFAD68976260
 ```
 
 https://mybot314.ru/tekegram_catalog/

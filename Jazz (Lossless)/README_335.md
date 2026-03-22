@@ -1,3 +1,175 @@
+###  Публикация: 1753338   (103858) от 04.10.2024
+
+Chick Corea / Miroslav Vitous - Tones for Joan's Bones & Mountain in the Clouds (1999) Collectables [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Litha [13:31]
+02. This Is New [7:37]
+03. Tones for Joan's Bones [6:07]
+04. Straight Up and Down [12:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4A0000B1284BD99309CB8FEA7DFEB038FAFE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753542   (103814) от 05.10.2024
+
+John Scofield - Live (1977) 2020, Solid [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V. [10:36]
+02. Gray and Visceral [14:56]
+03. Leaving [14:38]
+04. Air Pakistan [9:44](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DEDDB0BB80761AC72B58216E6CA4D9E03B97DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753546   (103798) от 05.10.2024
+
+Cannonball Adderley - Burnin' In Bordeaux: Live In France (1969) 2CD, 2024, Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Experience in E [12:52]
+02. Blue 'n' Boogie [8:47]
+03. Come Sunday [6:53]
+04. Walk Tall (Baby, That's What I Need) [4:17](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAF6492DABCFE8A9D59F565A6D25C1C92291495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753679   (103782) от 06.10.2024
+
+The Heavy Hitters - The Heavy Hitters (2023) Cellar Music [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hub [8:20]
+02. New Day [6:39]
+03. Silverdust [7:31]
+04. Un dia es un dia [5:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76D25CF0524B33C371B45FDBB1E5AAF8574CC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753677   (103766) от 06.10.2024
+
+Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Air Music And Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There’s No Business Like Show Business [3:21]
+02. Oh, What A Beautiful Mornin’ [2:34]
+03. Soliloquy [8:09]
+04. Time After Time [1:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB9B977EF3485BB3A35FB609901FA4F119A2CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754097   (103728) от 09.10.2024
+
+Charles Mingus - Something Like A Bird (1978) 2013, Atlantic [FLAC|Lossless|tracks + .cue] <Post Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Like A Bird [31:13]
+02. Farewell, Farwell [6:57]Жанр: Post Bop, Big BandПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDE3AC108E0B838006C8150CEC6A1EDA1E40ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754238   (103726) от 09.10.2024
 
 Ted Heath & His Music - Swing Is King! (1992) Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -571,180 +743,6 @@ Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DAE7D856932D069E8775D24B82C87B1AFB8FB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755812   (103595) от 17.10.2024
-
-VA - Jazz Para Trabajar Y Estudiar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. McCoy Tyner - When Sunny Gets Blue (4:42)
-02. Herbie Hancock - Cantaloupe Island (Remastered 1999/Rudy Van Gelder Edition) (5:24)
-03. John Coltrane - In A Sentimental Mood (4:16)
-04. Harry Baker - Cry Me a River (Arr. for Cello and Piano) (2:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907072F12F14623A61E8BB9925862364825E1419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755561   (103578) от 18.10.2024
-
-Erskine Hawkins - 1941 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrap Your Troubles in Dreams [3:20]
-02. Don't Cry Baby [3:21]
-03. Bicycle Bounce [3:24]
-04. Lucky Seven (Bill's Tune) [2:59](   Читать дальше...   )Жанр: SwingПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4AF070D25D104057F77F2897B5504A50E8874A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756052   (103557) от 19.10.2024
-
-VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Löhr - Everybody (Electro Swing Mix) (3:40)
-02. The Soulmate Project - The Addams Family (Electro Swing Mix) (2:54)
-03. Glenn Gatsby - Somebodys Watching Me (Electro Swing Mix) (2:41)
-04. Ashley Slater - Ghostbusters (Spooky Swing Mix) (3:19)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB036290BC0AFBB7C6E343BE3D5B8EC34C59911E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755675   (103554) от 19.10.2024
-
-Sarah Vaughan - Great Women of Song (2023) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty [3:02]
-02. Lullaby of Birdland [4:03]
-03. They Can't Take That Away from Me [2:44]
-04. Embraceable You [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C6BB4BD4C1F08DB7CD8459039141A0E626648D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755680   (103534) от 19.10.2024
-
-Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Old Feeling (feat. Madeleine Peyroux) [6:38]
-02. Something So Right (feat. Sam Merrick) [5:29]
-03. Here's to Life (feat. Trijntje Oosterhuis) [7:48]
-04. Here Comes the Rain Again (feat. Sam Sparro) [4:49](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream Jazz, Contemporary JazzПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3418DD262FDB6F1644E96A250F0E7649094C6FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755575   (103529) от 19.10.2024
-
-Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Brothers [9:35]
-02. How Long Blues [9:16]
-03. Cosmic Ray [5:25]
-04. Blue Funk [8:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15616A215DD18959A72B6F7EE055B8C94228D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

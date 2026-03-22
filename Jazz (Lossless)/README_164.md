@@ -1,3 +1,177 @@
+###  Публикация: 933359   (506329) от 01.09.2015
+
+Steve Smith & Vital Information - Vitalive! (1991) /Capitol Records/ [FLAC|tracks+.cue]<Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Flight Up [06:07]
+02. Looks Bad, Feels Good [05:39]
+03. Jave And A Nail [05:13]
+04. (What Lies) Beyond [07:10](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268710409E91D8BFAEBC85667CF687D0B18D40F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933353   (506327) от 01.09.2015
+
+Tony Reedus - Incognito (1991) /Enja/ [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Call [07:06]
+02. Incognito [08:25]
+03. Green Chimneys [05:44]
+04. For Heaven's Sake [08:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937ADA7E5D75B685C7CF93C8336B7781C270A2D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933261   (506326) от 01.09.2015
+
+Kyrie Kristmanson & Quatuor Voce - Modern Ruin (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz, Folk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Intro) La Comtessa [04:56]
+02. Modern Ruin [03:50]
+03. Talk [02:14]
+04. Orlando [05:57](   Читать дальше...   )Жанр: Vocal Jazz, FolkПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8912158F363A5504D2525ADB3C81D45CE8CC96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563063   (506319) от 12.07.2022
+
+The Horace Silver Quintet - Finger Poppin' (1959) 2003, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finger Poppin' [4:48]
+02. Juicy Lucy [5:46]
+03. Swingin' The Samba [5:18]
+04. Sweet Stuff [5:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7C5953E718F2DD2A43F8E4667A15CFB2EE0306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933436   (506264) от 01.09.2015
+
+Melissa Tham - Falling In Love Again (2015) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sleeping Bee
+02. Falling In Love Again
+03. Just Squeeze Me
+04. Deep Purple(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888199604BCDDBCFB9CBCA46CCE813F767B63AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933406   (506068) от 01.09.2015
+
+Peter White - Smile (2014) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile
+02. In Rainbows
+03. Floating In Air
+04. Head Over Heels(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42F86C0EA4D0F4DA3503C2349E73B006966F05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316477   (505966) от 26.07.2019
 
 Eddie Higgins Quartet featuring Scott Hamilton - My Funny Valentine (2005) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -592,183 +766,6 @@ Ethel Ennis - If Women Ruled The World (1998) /Savoy Jazz/[FLAC|tracks+.cue]<Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8410A89D2C7DE097FC65F96156A4B48BE0E1C8A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934157   (503758) от 04.09.2015
-
-Anat Cohen - Luminosa (2015) /Anzic Records/[FLAC|tracks+.cue]<Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lilia [06:01]
-02. Putty Boy Strut [04:40]
-03. Ima [04:04]
-04. Bachiao [03:36](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245E80C11961154DBE35F763C23434F7569186A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563649   (503726) от 15.07.2022
-
-Bireli Lagrene - 15 (1982) Antilles [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Douce ambiance [3:07]
-02. Dark Eyes [3:12]
-03. Valse d'Alsace [2:58]
-04. Sweet Georgia Brown [3:37](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7652C1AC4B0CA00B2A918288E2766E56C93150AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563831   (503517) от 15.07.2022
-
-Paul Brown - Promised Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Sauce
-02. Hey Dude
-03. Wolfpack
-04. Elegance(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D71599818E3225C25E5BD4E439619FE0D41854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316980   (503371) от 29.07.2019
-
-Chick Corea - The Spanish Heart Band: Antidote (2019) Concord Jazz [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antidote [9:15]
-02. Duende [10:13]
-03. The Yellow Nimbus - Part 1 [5:48]
-04. The Yellow Nimbus - Part 2 [5:57](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B14F03BFC00AEB167CD01FED2D013B6EA11E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540795   (503317) от 29.08.2012
-
-The Cinematic Orchestra - Presents In Motion #1 (2012) [FLAC (tracks+cue)|Lossless]<Contemporary Jazz, Future Jazz, Downtempo>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necrology
-02. Lapis (ft. Austin Peralta)
-03. Outer Space (ft. Dorian Concept & Tom Chant)
-04. Dream Work (ft. Dorian Concept & Tom Chant)
-05. Entr'acte
-06. Regen (ft. Grey Reverend)
-07. ManhattaЖанр: Contemporary Jazz, Future Jazz, DowntempoПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934574   (502635) от 05.09.2015
-
-Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebration [07:52]
-02. One For All - All For One [07:46]
-03. Angola [07:27]
-04. Blues For Afrika [06:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DCB397A82E5D3A300F63198E2CBD4425BD3ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/

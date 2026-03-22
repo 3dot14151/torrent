@@ -1,3 +1,32 @@
+###  Публикация: 1375716   (863515) от 15.04.2020
+
+Kiss - 100% KISS (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detroit Rock City
+02. Hell Or Hallelujah
+03. I Was Made For Lovin' You
+04. Exciter(   Читать дальше...   )Жанр: RockПродолжительность: 03:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BDD12D83096C6B511EB644DB878528857BE57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375991   (861618) от 16.04.2020
 
 Dire Straits - 100% Dire Straits (2020) [MP3|320 Kbps] <Rock>
@@ -713,35 +742,6 @@ Twisted Sister - 100% Twisted Sister (2020) [MP3|320 Kbps] <Rock, Glam Rock, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E68019FFB49AC6BAC8906F0F8F9D07DD0321D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377516   (851507) от 22.04.2020
-
-John Lennon - 100% John Lennon (2020) 2CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (2010 Mix)
-02. Jealous Guy (Remastered 2010)
-03. (Just Like) Starting Over
-04. Watching The Wheels(   Читать дальше...   )Жанр: RockПродолжительность: 06:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDB631C3F77EA49018F6E9C49B480D17B44277E
 ```
 
 https://mybot314.ru/tekegram_catalog/

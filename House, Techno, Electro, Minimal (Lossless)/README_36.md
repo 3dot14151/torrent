@@ -1,3 +1,148 @@
+###  Публикация: 1300748   (592809) от 07.05.2019
+
+Trudge - 100 (2019) 1Ø Pills Mate [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Acid, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A (04:02)
+ 02. From Sorrow To Darkness (06:13)
+ 03. Burning Inside (05:49)
+ 04. Tool (06:39)(   Читать дальше...   )Жанр: Techno, Ambient, Acid, BreaksПродолжительность: 00:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6A3EFA37BDCFC9108520C730D310371449D1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300770   (592762) от 07.05.2019
+
+VA - Purple Disco Machine - Glitterbox - Discotheque (2019) [FLAC|Lossless|WEB-DL|image, tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine - Glitterbox (Discotheque/Purple Disco Day (Continuous Mix) (1:10:26)
+02. Purple Disco Machine - Glitterbox (Discotheque/Purple Disco Day (Continuous Mix) (1:11:45)
+03. Forrrce with No Commercial Interruptions - Keep On Dubbin' (5:04)
+04. Catz 'n Dogz feat. Egla Sirvydyta - Good Touch (Maurice Fulton Remix) (6:13)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 06:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A72C2A2A3AE394F2B62C8F7ADF42B5B2E27818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915974   (591908) от 06.07.2015
+
+Satoshi Tomiie - New Day (2015) [FLAC|tracks + .cue]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Night (In This Dream I Watched A Film Of A Dream Within This Dream) [03:28]
+02. Landscape [07:06]
+03. Odyssey [06:52]
+04. New Day (feat. John Schmersal) [06:11](   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E048FEAD290CF170C86D9F7CF08A07FDD7031FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550907   (591223) от 13.05.2022
+
+Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of The Night (4:10)
+02. Let's Get Ridiculous (4:23)
+03. R U Ready 4 The Boom (4:38)
+04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916258   (590929) от 08.07.2015
+
+VA - Nassau Beach Club Ibiza 2015 (2015) 2CD [FLAC|tracks + .cue]<Deep House, Chill House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marlena Shaw - Woman Of The Ghetto (Akshin Alizadeh Remix) (2:58)
+02. Mass Digital - Dayspring (6:25)
+03. Parra For Cuva Feat. Anna Naklab - Wicked Games (5:24)
+04. Mash - Style Is The Answer (6:43)(   Читать дальше...   )Жанр: Deep House, Chill House, HouseПродолжительность: 01:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C80C8D4F261B0D9E5B99FA727761707C3BB7DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916877   (589895) от 10.07.2015
 
 VA - Deep Sounds: The Very Best Of Deep House (Spring Edition) 3CD (2015) [FLAC|Lossless]<Deep House>
@@ -603,150 +748,6 @@ VA - Armada visits Las Vegas (2016) [FLAC|Lossless|tracks] <House, Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E296577725332AA421BC2F3E3F27BDA9161A3114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042569   (578444) от 13.08.2016
-
-Somerville & Wilson - Red Wasps EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Wasps
-02. Slippery As Sin
-03.Жанр: Tech House, Deep HouseПродолжительность: 00:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1998E74FDCC0411807D6B359715393BC58F516B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042726   (578400) от 13.08.2016
-
-VA - Toolroom Ibiza 2016 Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kolsch & Michael Mayer - Dogma 1 [09:56]
-02. Paul Woolford - Mother & Child [07:25]
-03. Matador - The Enemy (feat Felix Da Housecat - Hot Since 82 remix)[06:05]
-04. Joris Voorn - Looks Fake Obviously [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 11:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BE33988F00A24BE68CDE851185B4D0A3CF34FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042553   (578388) от 13.08.2016
-
-VA - Schneeweiss VI (Presented By Oliver Koletzki) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cubicolor - Falling (feat Tim Digby-Bell)
-02. Frank Wiedemann - Moorthon II
-03. Stimming - Trains Of Hope
-04. Julian Wassermann & Oliver Deuerling - Schwabing(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 03:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF33CDEF31A9E7AEB1BE75AB6ECD769B9C7C8600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233660   (578179) от 01.07.2018
-
-MRUKS - Deja Vu (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MRUKS - Market
-02. MRUKS - Desert Fire
-03. SKURM - bass_ (MRUKS Remix)
-04. MRUKS & SKURM - Tnevda (Businka mix)(   Читать дальше...   )Жанр: Funky/Club House/RetrowaveПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E66936D1F9B0D7C0B2618C349B60D06125453B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042961   (576547) от 14.08.2016
-
-VA - Pure Salinas Vol.7 ( Mixed by Dj Zappi) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carly Foxx - Let Me Be Yours (feat Mai) (06:56)
-02. Marc O'Tool - This Morning (09:03)
-03. Aki Bergen & Richter - Nights & Days (06:59)
-04. Franco Lemon - Alone In The Dark (07:39)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710B0A35B8771C40400DC025924D71DA059A2D1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

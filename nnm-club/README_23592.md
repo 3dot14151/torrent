@@ -1,22 +1,25 @@
-###  Публикация: 1707695   (113278) от 17.03.2024
+###  Публикация: 1701362   (116183) от 22.02.2024
 
-Юрий Винокуров | Император может быть только один (Книга 3). Я стану Императором (2024) [MP3, Олег Троицкий]
+Chromeo - Adult Contemporary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance-pop, Nu-Disco, Synth-pop>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113278.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение приключений Антона в мрачном будущем Человечества. Главным Даром главного героя всё еще остается «притягивание неприятностей». Однако, есть шанс устроить этим «неприятностям» кровавую баню, ведь теперь он не один.ЛОР вселенной продолжает раскрываться, оказывается, у Империи есть не только внутренний враг, но и внешний. Инквизиция это тщательно скрывает, (   Читать дальше...   )Жанр: Боевая фантастика, Бояръ-аниме, Космическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:43:17
+1. (I Don’t Need A) New Girl
+2. Got It Good
+3. Lost And Found
+4. BTS(   Читать дальше...   )Жанр: Dance-pop, Nu-Disco, Synth-popПродолжительность: 00:54:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C1E69EA1023C9FDF5693D19E5A73857C824B068
+magnet:?xt=urn:btih:1D69933353D97C9B2211D6FB8E771ED970FB27D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707730   (113277) от 17.03.2024
+###  Публикация: 1701585   (116182) от 22.02.2024
 
-Crystal Darkness - A Far Cry Paradise (2022) EP, Remastered, 2022, Red Snow [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal, Gothic Metal>
+My Darkest Time - My Darkest Time (2024) [MP3|320 Kbps] <Gothic, Doom, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113277.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Dresses
-02. Morning Sun
-03. For All My Learning
-04. The Jams(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:33:14
+01 - New Era [00:07:09]
+02 - Keep Us [00:07:38]
+03 - My Sorrows [00:07:43]
+04 - Memento Mori [00:07:14](   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:51:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3634DB2BB1672433E8FA1FFFFE4FF981317F0849
+magnet:?xt=urn:btih:285083CFE744C75C46E085A3EF2617D983CBA333
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,27 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707697   (113275) от 17.03.2024
+###  Публикация: 1701713   (116180) от 22.02.2024
 
-Юрий Коваль | Приключения Васи Куролесова (Книга 02). Куролесов и Матрос подключаются (2013) [MP3, Вячеслав Герасимов]
+Мадам де… / Madame de... (1953) BDRip [H.264] [AVO]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113275.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Приключения Васи Куролесова.
-Юрий Иосифович Коваль (1938-1995) – один из самых любимых детских писателей второй половины XX века у нас в стране, сценарист мультфильмов и детских фильмов, художник, автор и исполнитель собственных песен.
-«Промах гражданина Лошакова» (1989) – повесть известного советского писателя Юрия Коваля. Юмористический детектив, рассказывающий (   Читать дальше...   )Жанр: Русская литература для детей, классика, приключения, повестьИздательство: Нигде не купишьПродолжительность: 02:23:45
+Фильм основан на одноимённом романе 1951 года Луизы Левек де Вильморен... Действие происходит в Париже в 1933 году. Графиня Луиза де… наделала долгов, и ей срочно понадобились наличные деньги. Она решила продать семейному ювелиру серьги - подарок мужа, и они становятся виновниками драматических событий, переходя из рук в руки, меняя хозяев и объединяя их в сюжете. (   Читать дальше...   )Производство: Франция, Италия / Franco London Films, Indusfilms, Rizzoli Film S.p.a.Жанр: драма, мелодрамаРежиссер: Макс ОфюльсАктеры: Шарль Буайе, Даниэль Даррьё, Витторио Де Сика, Жан Дебюкур, Жан Галлан, Мирей Перри, Поль Азаис, Жосслен, Юбер Ноэль, Лия Ди Лео, Мадлен Барбюле, Шарль БайярПеревод: авторскийЯзык озвучки: русский, французскийСубтитры: русские (два варианта), английскиеПродолжительность: 01:40:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BCE410819E7825A8FC72FFD6A8527C0B60E022A
+magnet:?xt=urn:btih:4DBC18915A2ACC3BFCF2487ACD497224021AC805
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,28 +82,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707132   (113274) от 17.03.2024
+###  Публикация: 1701870   (116179) от 22.02.2024
 
-Lord Goblin - Lord Goblin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+Acorn 7 v.7.4.4 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждому нужно редактировать изображения в определенный момент, но не у всех есть на это время. Именно поэтому Вам необходима программа Acorn которая сэкономит Ваше время для качественного редактирования фотографий. С помощью Acorn Вы сможете добавить текст или фигуру к фотографии, объединить изображения вместе с другой фотографией, работать со слоями и т.д.
+Acorn (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © Flying Meat IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CEAEB7D81D17FA0C50BE39595D9AAF85CD901C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701738   (116178) от 22.02.2024
+
+Мадам де… / Madame de... (1953) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённом романе 1951 года Луизы Левек де Вильморен... Действие происходит в Париже в 1933 году. Графиня Луиза де… наделала долгов, и ей срочно понадобились наличные деньги. Она решила продать семейному ювелиру серьги - подарок мужа, и они становятся виновниками драматических событий, переходя из рук в руки, меняя хозяев и объединяя их в сюжете. (   Читать дальше...   )Производство: Франция, Италия / Franco London Films, Indusfilms, Rizzoli Film S.p.a.Жанр: драма, мелодрамаРежиссер: Макс ОфюльсАктеры: Шарль Буайе, Даниэль Даррьё, Витторио Де Сика, Жан Дебюкур, Жан Галлан, Мирей Перри, Поль Азаис, Жосслен, Юбер Ноэль, Лия Ди Лео, Мадлен Барбюле, Шарль БайярПеревод: авторскийЯзык озвучки: русский, французскийСубтитры: русские (два варианта), английскиеПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A70030E38B3D7DD4055F2E5B86679F74C33DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701723   (116177) от 22.02.2024
+
+Secret Rule - 10 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113274.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Northern Skyline [00:06:30]
-02. The Wanderer [00:05:17]
-03. The Oracle [00:08:02]
-04. Freedom Rider [00:04:00](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:38:41
+2015 Transposed Emotions
+2016 Machination
+2017 The Key to the World
+2019 The 7 EndlessЖанр: Symphonic MetalПродолжительность: 07:33:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16312CB7ABA2451CEA82642D02B3758AE8ADD1E2
+magnet:?xt=urn:btih:01BFB2589A0C1FE360727FB28DC835AC08F7A21D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707366   (113273) от 17.03.2024
+###  Публикация: 1701747   (116176) от 22.02.2024
 
-Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+Журнал | ТЕХСОВЕТ премиум №1-2 (223) (январь-февраль 2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113273.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Knight of the Night (7:21)
-02. Wings of Vengeance (6:52)
-03. Blood for the King (6:45)
-04. Smoke at Dawn (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:56
+«ТЕХСОВЕТ премиум»— путеводитель по эффективным техническим решениям. Широкий спектр производственно-технических публикаций по актуальной тематике: нефтегазовый комплекс, энергохозяйство предприятия, энерго- и ресурсосбережение, технологии металлообработки, импортозамещение, логистика и складское оборудование, информационные технологии и связь.Жанр: Информационно-рекламное изданиеИздательство: ИП  Гайдукова  Н.А.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37A2F22A05D76F2CBB2107D783966365C97405E9
+magnet:?xt=urn:btih:43E8EEF5A929A063A4A09ABE68AE40379B095D2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,28 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707280   (113272) от 17.03.2024
+###  Публикация: 1701728   (116175) от 22.02.2024
 
-Gene Austin - Collection (1920s-1950s) (2011-2014) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz, pop, vocal>
+The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113272.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lonesome Road (2:00)
-02. Ramona (3:07)
-03. I Can't Give You Anything but Love (2:27)
-04. Girl of My Dreams (2:54)(   Читать дальше...   )Жанр: Jazz, swing, traditional pop, vocalПродолжительность: 02:18:02
+01. I Hear a Rhapsody [3:56]
+02. Meditation [3:55]
+03. In Your Own Sweet Way [4:08]
+04. A Sleepin' Bee [5:58](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:33:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B21A1D38FE3A7439873A3E68C65B4F5E91AF451E
+magnet:?xt=urn:btih:72CC1E8C7B99FAC125FFB11292C6A37FFAB0A30F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,322 +219,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707659   (113271) от 17.03.2024
+###  Публикация: 1701871   (116174) от 22.02.2024
 
-НашПотребНадзор (17.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая кухонная техника, которая раньше была доступна только шеф-поварам, стала бюджетной и потому доступной и обычным пользователям, действительно ли она упрощает быт и как с помощью таких гаджетов приготовить дома необычные блюда как в ресторанах?
-Кефир от каких брендов совсем не кислый, потому что на фабрике пожалели дорогой закваски, а в каком плавают бактерии? (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97A6F21E845CF26B3A832175DA5426AA0CD6B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707729   (113270) от 17.03.2024
-
-Своя игра (17.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113270.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает своё 30-летие. Турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E81501B7CBCD9D48FFCB1B70A0A554BD92AA63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707708   (113269) от 17.03.2024
-
-Юрий Коваль | Приключения Васи Куролесова (Союзмультфильм) (2002) [MP3, Александр Пожаров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союзмультфильм.
-Юрий Иосифович Коваль (1938-1995) – один из самых любимых детских писателей второй половины XX века у нас в стране, сценарист мультфильмов и детских фильмов, художник, автор и исполнитель собственных песен.
-Настоящая детективная история с выстрелами и погонями! Герою этой истории Васи Куролесову из деревни Сычи на Базаре вместо поросенка (   Читать дальше...   )Жанр: Русская литература для детей, приключения, детективИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898F435E40BD862655A14169457CDBC7767DFD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707636   (113268) от 17.03.2024
-
-Первая передача на НТВ. Автомобильная передача (17.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дальнобойщик спас людей, но в чем же его все-таки обвинили?
- Тьма рассеялась: кто помог девочке, ослепшей после ДТП?
- «Извини по-братски»: как заставить виновника ДТП возместить ущерб?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DA40152C46D6F1514D41447C81DF49F4426451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707537   (113266) от 17.03.2024
-
-Сибирская Благозвонница | Тебе, Мати Бога нашего, хвалим (2013) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизреченна милость Господа к нам, грешным. И все же, несмотря на великую любовь к людям, Иисус Христос – строгий Судия наших мыслей и дел. Иногда даже святые заступники не в силах умолить Его о помиловании согрешившей души. И лишь Пресвятая Богородица матерними молитвами может изменить решение Своего Божественного Сына. Она – наша Заступница, единая наша Надежда (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E04879E89CD645AC27FAC808D416D00EA0305E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707587   (113265) от 17.03.2024
-
-WatsGo for Mac 8.5.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113265.jpg" />
-</div>
-
-
-###  Подробнее
-
-WatsGo перенос данных между Android и iPhone. Перенос WhatsApp/WhatsApp Business между Android и iOS одним щелчком мыши. Широкий спектр типов данных, включая сообщения WhatsApp, изображения, видео, контакты и т. д. Сделайте резервную копию WhatsApp на Android и iOS на компьютере и полностью освободите место на устройстве.
-Предварительный просмотр и восстановление (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33174EEA415E85D21F545219859946F27B9A7804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707540   (113264) от 17.03.2024
-
-Святитель Димитрий Ростовский | Келейный летописец (2023) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историко-хронографическое сочинение святителя Димитрия Ростовского «Келейный летописец», написанное им в последние годы жизни, пользовалось в XVIII и XIX веках большой популярностью. В его содержании жанр хронографа – древнейшего исторического летописания – уникально сочетается с богословскими рассуждениями, что обусловливает особую смысловую емкость текста. Святитель (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C1E3CDBB89BD21E4D7FFC6B3A6123F50E8B819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707634   (113263) от 17.03.2024
-
-Чудо техники с Сергеем Малозёмовым (17.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113263.jpg" />
-</div>
-
-
-###  Подробнее
-
-И на стене, и на полу! Как ковры нас убивают и какие неожиданные открытия сделали ученые об этих напольных покрытиях, как избавиться от заразы, которая в них таится, — выбить, почистить снегом или отдать в химчистку? И ковер какого ворса быстрее приведет к пожару.
- Правда ли, что криотерапия избавляет от храпа, а лед омолаживает лицо и избавляет от отечности, можно (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0185DEF18D7624E7C3E0D33927D9F12E7FF0E224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707637   (113262) от 17.03.2024
-
-VA - Exx Muzik Miami 2024 (2024) [MP3|320 Kbps] <Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayward Brothers & Airsand & Arba Han - The Way I Feel (Original Mix) [8:00]
-02. Airsand & TuraniQa - Rave Is The Future (Original Mix) [5:52]
-03. Steve Levi - Yes! (Original Mix) [6:12]
-04. Che Jose - Graivty (Original Mix) [5:25](   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE2ACD674B987FE575A02391A5BCF05D9207BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707598   (113261) от 17.03.2024
-
-Военная тайна с Игорем Прокопенко (16.03.2024) WEB-DL [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113261.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4562A0D7F85D955FDFBD6984D53A3B228D0F1712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707588   (113259) от 17.03.2024
-
-Product Manager 2 v.2.6.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Product Manager может управлять продуктами компании с разных точек зрения. Его можно использовать для другой типологии продукта, чтобы управлять действиями, связанными с улучшением, распространением и маркетингом ваших продуктов.Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61D2BF21FDBDF1726A1B5EC5FF17370FBBA7DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707723   (113258) от 17.03.2024
-
-CudaText 1.211.0.0 Portable + addons [Ru/En]
+Keep It 2.4.2 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113258.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
-Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8F50F20AE6CD27557F3661DD53523F87C1B1DB7
+magnet:?xt=urn:btih:87939C8032B1FA7779902E2AF1EBC6CEE560A584
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,173 +245,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707671   (113257) от 17.03.2024
+###  Публикация: 1701476   (116173) от 22.02.2024
 
-Early Moods - Early Moods (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Return to Salem's Gate (00:05:08)
-02 - Live to Suffer (00:04:24)
-03 - Early Moods (00:04:37)
-04 - Defy Thy Name (00:04:38)(   Читать дальше...   )Жанр: Heavy, Doom Metal, Hard RockПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411CF1B9E26F27B326F94074AD06F0B655E2987A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707660   (113256) от 17.03.2024
-
-M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113256.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Land Of The Free
-A2 Devolution
-A3 Repent
-A4 The Angry Man(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DB94CAB33BABA1A705F146B9CFEAD888DB5471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707548   (113255) от 17.03.2024
-
-M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Hardcore, Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movie Side
-A1 Goldfish From Hell
-A2 Totally Narley Talking By Katrina & Bill
-A3 Surfin' U.S.A.(   Читать дальше...   )Жанр: Thrash Metal, Hardcore, CrossoverПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AD2ED7C2A630227DB595ACE1D83F5F5EFC9E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707648   (113254) от 17.03.2024
-
-Crystal Darkness - Sombre (1995) Demo, Remastered, 2022, Red Snow [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funeral Emotions
-02. Voyage of Imagination
-03. Aeriform Paradise
-04. A Glimpse of HeavenЖанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830BAE9C19EF785FA6AA9691572D9C6139B9A71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707699   (113253) от 17.03.2024
-
-Crystal Darkness - Ascend Saturnine Nebulae (1999) [FLAC|Lossless|image + .cue] <Death, Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Marble Statue on Thy Holy Soil (07:48)
-02. In Midst Eternal Snow (08:12)
-03. Awaiting Silence Over Midwinter Gardens (01:50)
-04. Thousands of Flies on Her Pale Body (05:42)(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E8542A11699404198D30EED15264F257802EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707600   (113252) от 17.03.2024
-
-Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Marian McPartland - Plays The Music of Mary Lou Williams (1994) Concord Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113252.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King Arthur [8:27]
-02. I'll Always Remember [9:39]
-03. Back Down in Lu Easy Anna [6:49]
-04. Byrd Song [6:02](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:24:00
+01. Scratchin' in the Gravel [4:36]
+02. Lonely Moments [2:52]
+03. What's Your Story, Morning Glory? [4:27]
+04. Easy Blues [3:07](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:856577CE539F3F93348BC051D696BF173213740D
+magnet:?xt=urn:btih:15E41675BFB0DDCF39AFD2DFF307E9485637E629
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,27 +274,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707686   (113251) от 17.03.2024
+###  Публикация: 1701752   (116172) от 22.02.2024
 
-Юрий Коваль | Тигрёнок на подсолнухе и другие сказки (2014) [MP3, Татьяна Телегина, Алла Човжик]
+Donald James Duncan - The Great Mystery (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113251.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Детская аудиокнига.
-Юрий Иосифович Коваль (1938-1995) – один из самых любимых детских писателей второй половины XX века у нас в стране, сценарист мультфильмов и детских фильмов, художник, автор и исполнитель собственных песен.
-Аудиокнига «Тигрёнок на подсолнухе» записана на студии АРДИС по сказкам Юрия Коваля – одного из самых любимых российских детских (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Студия «АРДИС»Продолжительность: 01:28:25
+01. Surfside Run (3:30)
+02. Irie Sunrise (4:17)
+03. A New Dawn (4:23)
+04. Words Don't Convey (3:23)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AA510C256E54F6CC62C593AC816DCEBCA5610A4
+magnet:?xt=urn:btih:B3FFE140E006EF6244038B7241D1BA4B29F3C672
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +303,423 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707720   (113250) от 17.03.2024
+###  Публикация: 1701688   (116171) от 22.02.2024
 
-Crystal Darkness - Ascend Saturnine Nebulae (1999) Remastered, 2022, Red Snow [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal, Gothic Metal>
+Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veil Of Maya (05:22)
+02. Celestial Voyage (03:40)
+03. The Eagle Nature (03:30)
+04. Sentiment (05:30)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D821868A0E39D6D9847307B1BB561FC1A30E2BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701478   (116170) от 22.02.2024
+
+Donald Byrd Sextet - Getting Down To Business (1990) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme for Malcolm [7:42]
+02. That's All There Is to Love [5:45]
+03. Pomponio [10:21]
+04. I Got It Bad and That Ain't Good [8:31](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62787124E03F96FA83D9ED8121247763B89E0003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701600   (116169) от 22.02.2024
+
+Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113250.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Marble Statue on Thy Holy Soil
-02. In Midst Eternal Snow
-03. Awaiting Silence over Midwinter Gardens
-04. Thousands of Flies on Her Pale Body(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic MetalПродолжительность: 00:47:28
+01. Presages (02:07)
+02. The Bell That Constantly Sounds (08:31)
+03. Decline (05:44)
+04. Visions of Absence (05:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBB0623154273C78DB133B52608209F2EA2D3521
+magnet:?xt=urn:btih:A5707D27AB74BEF85C5E737354E80A8C0B611132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701745   (116168) от 22.02.2024
+
+Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me High (3:55)
+02. Stop in the Middle (5:29)
+03. Bad Boy (3:58)
+04. Diamond (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E165C7D004345272E8DEC5A4287AE9BA374486ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701755   (116167) от 22.02.2024
+
+Drew Davidsen - Power Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Spice Music - Power Trip (4:01)
+02. On Repeat (4:13)
+03. Exit Strategy (3:44)
+04. Aquatic Journey (4:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0011C5E859651CAC52F42C82905A051A628AB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701724   (116166) от 22.02.2024
+
+Blue Mitchell - Blue's Moods (1958 - 1960) 2011, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Close My Eyes [5:56]
+02. Avars [4:08]
+03. Scrapple from the Apple [4:00]
+04. Kinda Vague [6:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF2337C78B013E9C7B4C31B6B226689B1766C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701756   (116165) от 22.02.2024
+
+Hipshack - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funkalo (4:30)
+02. Scribbles & Grits (3:55)
+03. Generation Dongle (4:12)
+04. 2024 (1:12)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DCAE55D1B08038A93B9CB7B801B3AE12D35220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701698   (116164) от 22.02.2024
+
+Joe Pass - Resonance (1974) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen to You [5:26]
+02. Corcovado [5:31]
+03. Too Late Now [4:30]
+04. How Deep Is the Ocean? [7:11](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1A94D8F4D3DB623DA69C08A403640CEB9F0BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701702   (116163) от 22.02.2024
+
+Stefan Karlsson - Below Zero (1993) Justice Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ack Varmland du skona [4:30]
+02. All You Were to Us [5:44]
+03. El Ontono [5:58]
+04. In Love in Vain [6:25](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFC31F2D2ED05C1FF40584A372BB8E226F416BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701810   (116162) от 22.02.2024
+
+Вирджинец / The Virginian (1914) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вестерн, он и есть вестерн. Бравый ковбой, любовь ковбоя. Кто бы вы думали? Конечно же учительница. Уже в нескольких фильмах замечал - очень уж ковбои падки на училок. Не знаю почему. А уж если это учительница музыки, это совсем страшной силы любовь. Ну, и конечно же еще шайка злодеев, как же без нее.
+Ну, а вообще, этот фильм считается классикой вестерна в немом (   Читать дальше...   )Производство: США, Jesse L. Lasky Feature Play CompanyЖанр: вестерн, немое киноРежиссер: Сесил Б. ДеМилльАктеры: Дастин Фарнум, Джек В. Джонстон, Сидни Дин, Уильям Элмер, Винифред Кингстон, Джеймс Грисволд, Хорас Б. Карпентер, Текс Дрисколл, Сесилия Де Милле, Анита КингПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E3032EB9F2AF3A613F36987C1F7D429F255665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701774   (116160) от 22.02.2024
+
+Людмила Мартова | Каждому по заслугам (2024) [MP3, Елена Дельвер]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116160.jpg" />
+</div>
+
+
+###  Подробнее
+
+В спокойном и уютном городе происходят необычные события. Ночью в сквере был найден молодой человек, лишенный крови, а утром неподалеку от этого места была обнаружена украденная много лет назад картина известного художника. Однако это только начало. Что же на самом деле произошло? Следователю Михаилу Зимину и фотографу Анне Бесединой предстоит разобраться в этой (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 10:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91987D4EC9162E37BC4AACDDC2492808CCF83DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701769   (116159) от 22.02.2024
+
+Виктория Лисовская | Артефакт & Детектив. Проклятье египетского жреца (2023) [MP3, Анастасия Маликова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116159.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XIX веке в Санкт-Петербурге установили двух египетских сфинксов, ранее украшавших заупокойный храм фараона Аменхотепа III. После этого в городе начались пугающие события – на Васильевском острове появился маньяк, который убивает девушек, прикрываясь маской бога Анубиса. Сыщик Аристарх Венедиктович Свистунов и его верная помощница Глафира присутствуют при вскрытии (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 06:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971DAF4117A22767DA2D4FB4DBF9B65D1F39723D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701839   (116158) от 22.02.2024
+
+Виктор Мари Гюго | Козетта (1981) [MP3, Юрий Яковлев, Евгений Весник и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Виктор Мари Гюго (1802–1885) французский поэт, прозаик, эссеист, драматург и драматург романтического направления.
+Вашему вниманию предлагается радиоспектакль из золотого фонда Гостелерадио по роману Виктора Гюго «Отверженные».
+Трогательная история маленькой Козетты никого не оставит равнодушным. Это новая Золушка, только (   Читать дальше...   )Жанр: Зарубежная литература для детей, классикаИздательство: МФГУП «Фирма Мелодия», ГостелерадиофондПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD703D9898995923F10E33633AEDB4338AC4FBB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701701   (116157) от 22.02.2024
+
+Marian McPartland - In Concert (1951, 1953) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gypsy in My Soul [5:15]
+02. These Foolish Things [6:00]
+03. Get Happy [4:49]
+04. Strike Up the Band [2:11](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9232F39D65DBDB50537E404EFCB8568B6918BC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634304   (116156) от 23.02.2024
+
+A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Decepticon
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то за морем лежит таинственный остров… ты слышишь его зов? Жестокий, искаженный темными силами мир снова ждет своих юных героев. Амиция и Гуго отправляются на юг, чтобы начать новую жизнь вдали от чумы и помочь Гуго обуздать родовое проклятие. Но силы Гуго просыпаются вновь, – и вот они, полчища крыс, несущие на серых спинах смерть и разрушение. Брат и сестра (   Читать дальше...   )Тип издания: RepackРазработчик: Asobo StudioЖанр: Приключение, Экшны, СтелсЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF662D9092A69656AB71DE0EE2888B0FB5E73627
 ```
 
 https://mybot314.ru/tekegram_catalog/

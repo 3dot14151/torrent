@@ -1,3 +1,177 @@
+###  Публикация: 943629   (447114) от 04.10.2015
+
+Al Bano & Romina Power - Good Songs (2015) [MP3|128 кб/с]<Italo pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Al Bano & Romina Power
+001. A Miracle
+002. Abbandonati
+003. Abbi Fede(   Читать дальше...   )Жанр: Italo popПродолжительность: 12:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2275A9EC4DD3E0D8E3237AA2CAAEFBA9060D1A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943564   (447108) от 04.10.2015
+
+VA - Попсовая соточка MTV. Сборник 8 (2015) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Денис Клявер - Герой
+002. David Guetta & Sam Martin - Lovers On The Sun
+003. Дина Гарипова - Сумерки
+004. Felix Jaehn Feat. Jasmine Thompson - Aint Nobody(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323B574E4981B75ADBCF977EEF9D4C59103BB2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569691   (447086) от 15.08.2022
+
+Texas - Compilation (2022) [MP3|320 Kbps] <Pop, Pop - Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night for Day
+02. Fight the Feeling
+03. Breathless
+04. Can't Resist(   Читать дальше...   )Жанр: Pop, Pop - RockПродолжительность: 03:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525F35D94DAEE7BC4BE58D22B9323835B0C5E42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943550   (447021) от 04.10.2015
+
+Ricchi E Poveri - Good Songs (2015) [MP3|320 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acapulco
+02. Alla Faccia Di Belzebu
+03. Amare, Ricominciare, No No No
+04. Amarti Un Po'(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21057101095AB5B1C5CD12B8F05AE284F646C30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943801   (446912) от 04.10.2015
+
+VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 15) (2015) [MP3|320 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Circle - Night Train( Dj Nikolay-D Remix ) (08:23)
+02. Saphir & Dj Nikolay-D - Shot In The Night(Dj Nikolay-D Remix Long Version) (07:40)
+03. Italove & Dj Nikolay-D - Strangers In The Night(Dj Nikolay-D Remix ) (06:38)
+04. Ken Laszlo & Dj Nikolay-D - Mary Ann(Dj Nikolay-D Remix ) (05:52)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D82302A1E8AB2D313E7F91743D73B9F3A81B4EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061855   (446595) от 11.10.2016
+
+VA - Осенний Muz драйв (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Bahh Tee - Никотин (03:36)
+002.Kaleida - Think (04:27)
+003.Avicii - True Believer (04:48)
+004.Dante - Замутим (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 06:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC32A92BBA4B9AB536ABFCBE336FC37BA9D1578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061749   (446426) от 11.10.2016
 
 VA - Осенняя бомба года от Европы Плюс. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
@@ -571,198 +745,6 @@ VA - Зайцев.Нет - Лучшие Новинки Октября (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5506A9B541592B5D519F3B41E1373CAFC6AB18BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944788   (438062) от 08.10.2015
-
-VA - Italo & Space Disco Vol.1 (2015) [MP3|320 кб/с]<Italo Disco , Syhtnpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438062.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estimado Feat.Valerio - I Miss You
-002. Vokois - We Are The Robots
-003. Hypnosis - Oxygene
-004. Johan Baeckstrom - Come With Me(   Читать дальше...   )Жанр: Italo Disco , SyhtnpopПродолжительность: 05:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534F4A53FEBC9FAA66BA9D434BA9675D13F861B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323403   (437886) от 03.09.2019
-
-VA - German Top 50 Official Dance Charts 30.08.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Kalkbrenner - No Goodbye
-02. Purple Disco Machine - Emotion
-03. Rockstroh - Tanzen 2019
-04. Hugel - House Music(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F5B6BEFA850BCCBE9AE16F7B72793E13F9A555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248989   (437507) от 22.09.2018
-
-VA - German Top 100 Single Charts 21.09.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437507.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonez MC & RAF Camora - Kokain (feat. Gzuz)
-002. Dynoro & Gigi D'Agostino - In My Mind
-003. Loredana & Mozzik - BONNIE & CLYDE
-004. Bonez MC & RAF Camora - 500 PS(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C517535E09A33BBF0574B831036E15CE82EECD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553281   (436970) от 01.10.2012
-
-VA - US TOP40 Single Charts (29.09.2012) [MP3|234-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maroon 5 - One More Night
-02. Taylor Swift - We Are Never Ever Getting Back Together
-03. Fun. - Some Nights
-04. Flo Rida - Whistle
-05. P!nk - Blow Me (One Last Kiss)
-06. Justin Bieber - As Long As You Love Me feat Big Sean
-07. Ellie Goulding - Lights
-08. Alex Clare - Too Close
-09. Owl City & Carly Rae Jepsen - Good Time
-10. Neon Trees - Everybody Talks(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4974598F3CDCF83104934F63480F542E780B88F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554446   (436822) от 01.10.2012
-
-VA - Новинки сезона №2 Русский (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436822.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. СтаЯ - Душа
-002. Алина Артц - Со мной по-другому нельзя
-003. Инфинити - А он такой
-004. Макс Лоренс - За твои глаза
-005. Она - Самая счастливая
-006. Николай Басков - Странник
-007. Ирина Кулькова - Храните любовь
-008. Филипп Киркоров - Я отпускаю тебя
-009. Lalo Project - Город Goodbye
-010. Оксана Казакова - Гипнотизирую(   Читать дальше...   )Жанр: PopПродолжительность: 11:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE889EAFF07C1766EFA4250FDA21E282AB51D6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554449   (436810) от 01.10.2012
-
-VA - 100 пудовый хит. Русский выпуск (2012) [MP3|256 кб/с]<Pop. Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вера Брежнева - Бессонница
- 002. Эд Шульжевский - Ты Все
- 003. Ян Марти - Леночка
- 004. Gayana - Ни Слова
- 005. Soundmaniя - Твоя Вселенная
- 006. Rj Рамиль Feat. Юлика - Просто Love
- 007. Алабама - Отпускаю
- 008. Авиатор - Звезда
- 009. Вера Каретникова - Vera
- 010. DJ Sandro Escobar - Бесконечность(   Читать дальше...   )Жанр: Pop. DanceПродолжительность: 06:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E60C56242BE874798E0673A7156651FE73AA03B
 ```
 
 https://mybot314.ru/tekegram_catalog/

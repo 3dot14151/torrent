@@ -1,3 +1,177 @@
+###  Публикация: 1596433   (169890) от 10.12.2022
+
+Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1993, Mosaic Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169890.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Complete Communion [20:41]
+02. Elephantasy [19:39]
+03. Symphony for Improvisers [19:44]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D4E3EC592D265B6D1A5A132DE3CD6F058D23CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344551   (169881) от 11.12.2019
+
+John Clark - I Will (1997) Postcards [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. India [7:25]
+02. 96th Street Sonata: Casilda [4:40]
+03. 96th Street Sonata: Mellow Max [1:53]
+04. 96th Street Sonata: King Bert [3:46](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048BEC0E7927544099E2912D5188057A8114DB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344544   (169877) от 11.12.2019
+
+Mel Torme - Sings For Lovers 1982 - 1996 (2008) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song Is You [3:48]
+02. The Way You Look Tonight [3:39]
+03. Nobody Else But Me [3:59]
+04. You'd Be So Nice to Come Home To [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C192D207DEF3112F0AEDBDDB9E65F66A68983D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344545   (169839) от 11.12.2019
+
+Della Reese - Voice Of An Angel 1959 - 1964 (1996) RCA [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Beginning to See the Light [2:27]
+02. Baby, Won't You Please Come Home [3:11]
+03. Guess I'll Hang My Tears Out to Dry [2:49]
+04. I'm Just a Lucky So and So [2:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974DC5E5BA1A1E023FC926F2743AB963A4CDA0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344546   (169830) от 11.12.2019
+
+Della Reese - Essential Della Reese 1950-e - 1960-e (2004) MasterSong [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't You Know? [2:10]
+02. Stormy Weather [3:37]
+03. What Is There to Say? [2:26]
+04. I Could Have Danced All Night [1:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D439AFECC7A400AB03E7EF42633E24BFDAC322A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515457   (169678) от 07.12.2021
+
+Erroll Garner - 1944, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear A Rhapsody (Part 1 & 2) [8:21]
+02. Erroll's Reverie [7:24]
+03. You Were Born To Be Kissed [5:16]
+04. Perdido [2:46](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB01A927541901A8DE10E152C36F6CE85179504D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672347   (169554) от 28.10.2023
 
 J.J. Johnson - The Eminent Jay Jay Johnson, Vol.2 (1953 - 1955) 1995, Blue Note, Japan [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -571,180 +745,6 @@ Chet Baker - Born to Be Blue: The Music Of His Life (1953 - 1962) 2017, American
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41EA78662831369D8C35D9BB4067C658E236CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672598   (168160) от 29.10.2023
-
-Jeff Lorber Fusion - The Drop (2023) Shanachie [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Drop [3:53]
-02. Altered State [3:56]
-03. New Mexico [4:07]
-04. On the Bus [3:35](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Jazz FusionПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB9F2F1175FB288DA1B7C59B8D1FDCDDD2B592F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672593   (168150) от 29.10.2023
-
-Nicholas Payton - The Couch Sessions (2022) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed the Fire [8:17]
-02. Bust-a-Move [5:06]
-03. Blossom [6:38]
-04. Pinocchio [5:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87D0857DA1B2D1177048355578D73B716BEAED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515958   (168012) от 09.12.2021
-
-Erroll Garner - 1944, Vol.3 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Variations On A Nursery Rhyme [9:49]
-02. Just You, Just Me [2:46]
-03. Yesterdays [2:42]
-04. Easy To Love [9:41](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B3DFE227EF0FFDAF8EEB186629674CBBD85B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431339   (167901) от 13.12.2020
-
-Berk & The Virtual Band - Jazz Chill Vol. 6 (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lean On
-02. Take on Me
-03. Words
-04. Relax(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E61498D8A428AE9A8EA20AE0E2CB0D9F3AFAA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516037   (167809) от 09.12.2021
-
-The Gil Evans Orchestra - Plays The Music Of Jimi Hendrix (1988) [FLAC|Lossless|tracks + .cue]<Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel 4:09
-02. Crosstown Traffic/Little Miss Lover 6:32
-03. Castles Made Of Sand/Foxey Lady 11:26
-04. Up From The Skies ( Take 1-Original Master ) 9:16(   Читать дальше...   )Жанр: Jazz RockПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8785ADB954081A5759E2F8B2AE69121AF6243803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597069   (167675) от 13.12.2022
-
-Ellington Trio - Things Ain't What They Used To Be (2022) JazzSick Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Get Around Much Anymore [3:45]
-02. Just A-Sittin' and A-Rockin' (feat. Frederik Koster) [4:59]
-03. Things Ain't What They Used to Be [4:52]
-04. Azure (feat. Frederik Koster) [6:08](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC93B5B848210A1FFFECCFD517523A93FF452720
 ```
 
 https://mybot314.ru/tekegram_catalog/

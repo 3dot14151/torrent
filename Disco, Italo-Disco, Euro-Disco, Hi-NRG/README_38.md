@@ -1,3 +1,32 @@
+###  Публикация: 1193865   (261799) от 23.12.2017
+
+VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elvin  -  Luggi, Luggi, Ludwig  5:26
+02.  First Cut  -  Tell Me Tell Me  7:14
+03.  Thai Break  -  Flowers In The Rain  5:38
+04.  Kenny Masters  -  Time To Fly (Sing My Song)  6:02(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193690   (261795) от 23.12.2017
 
 VA - Italo Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Italo-Disco>
@@ -714,35 +743,6 @@ VA - ZYX Italo Disco New Generation Vol. 5 (2014) 2 CD [OGG Vorbis|480 Kbps] <It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE504609573E8B54CC3F30F2DCE720BA34958AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490675   (238383) от 21.08.2021
-
-Rod McKuen - Amor, Amor - Slide... Easy In (1977) LP [MP3|320 Kbps] <Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amor (5:49)
-02. The Wind Of Change (Aranjuez) (5:27)
-03. Never Been A Horse (3:13)
-04. Don't Drink The Orange Juice (3:16)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E430E83C93F47029F32332E45BBAB7295DD3C060
 ```
 
 https://mybot314.ru/tekegram_catalog/

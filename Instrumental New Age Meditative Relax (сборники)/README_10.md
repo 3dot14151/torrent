@@ -1,3 +1,67 @@
+###  Публикация: 535781   (515620) от 17.08.2012
+
+VA - Hit Parade XX Century Instrumental Music (2CD) (1994) [MP3|320 кб/с]<Instrumental, Soundtrack>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515620.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Symphonic Rock Orchestra - The Phantom Of The Opera (4:31)
+ 2. S. Taylor - Summertime (2:34)
+ 3. The Shadows - Chi May (3:38)
+ 4. J. Last - The Lonely Sheepheard (4:21)
+ 5. P. Mauriat - Mammy Blue (2:52)
+ 6. Jan Morks Quartet - You Don't Know How Much (3:23)
+ 7. A. Ventura - Love Story (3:45)
+ 8. F. Goya - I Just Call To Say I Love You (3:50)
+ 9. Ocarina - Song Of Ocarina (3:37)
+ 10. H. Manginy - The Pink Pantera (2:36)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 00:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26AE0C88842C73C8CDCBFB81FDF52B96E0CFB6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561852   (513479) от 06.07.2022
+
+Ricky King - Compilation (2022) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolga - Melodie
+02. Hei?e Sonne, Wei?er Strand
+03. Verde
+04. Yesterday(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BFAE3FE876ACBD73E07E19C29B336C9870D50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536892   (512314) от 20.08.2012
 
 VA - Rock instrumental classics (2008) [MP3|160-320 кб/с]<Rock/Instrumental>
@@ -717,58 +781,6 @@ VA - Инструментальная музыка (2012) vol. № 75 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28FBB19A74C390FD713FAF0F985CEB2212E157D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549179   (464694) от 19.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 78 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED996F6D572DE55B5B214831307ADA432BC002B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548760   (464685) от 19.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 76 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9C7ED53ECA0EF17B82728C412D077CC006FE7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

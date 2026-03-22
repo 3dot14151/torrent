@@ -1,3 +1,119 @@
+###  Публикация: 1452669   (1027561) от 07.03.2021
+
+Святослав Вакарчук - Оранжерея (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оберіг [00:03:33]
+02. Лиш для нас [00:03:00]
+03. Без причини [00:03:10]
+04. Знову [00:05:08](   Читать дальше...   )Жанр: RockПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE35F3AA53CF203C91204E1B036C403A12AEF929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452869   (1027416) от 08.03.2021
+
+East Temple Avenue - Both Sides Of Midnight (2020) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain
+02. Don't Make Believe
+03. Fool For Love
+04. My Last Breath(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A84986D085614459960EDF606BC5D23BAF2CBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452890   (1027415) от 08.03.2021
+
+Arc - Maquette (1980) Reissue, Remastered, 2020, Paisley Press [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quand (7:11)
+02. Oraison Funebre (6:06)
+03. Ami (9:54)
+04. Souffle Colore (11:56)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DFF6B6EB050C0C0DA8455902FA7820FBD80A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452820   (1027414) от 08.03.2021
+
+Kim Mitchell - Itch (1994) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonder Where & Why
+02. Acrimony
+03. Lick Yer Finger
+04. The U.S. Of Ache(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0EE585CB1403512044296CB7F656FC05F74855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452857   (1027387) от 08.03.2021
 
 Jive Bunny And The Mastermixers - Rock'n'Roll Great Hits (2021) [FLAC|Lossless|image + .cue] <Rock'n'Roll>
@@ -629,120 +745,6 @@ Nodo Gordiano - Sonnar (2020) [FLAC|Lossless|image + .cue] <RPI, Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165F35C59780F8F8602E3D80982B651B7C553595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457129   (1024610) от 25.03.2021
-
-VA - Rock on! Rock it! Rock Out! (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Believer (03:24)
-02. Audioslave - Like A Stone (04:54)
-03. 30 Seconds To Mars - The Kill (Bury Me) (03:51)
-04. Queens Of The Stone Age - No One Knows (04:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B8E5A257E49CA856CBBF5D4E65B0B34E9C950B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457348   (1024609) от 25.03.2021
-
-Suzi Quatro - The Devil In Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil In Me
-02. Hey Queenie
-03. Betty Who
-04. You Can't Dream It(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D080DB05D9158EE05B8FC8A0178D4A151A87709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457832   (1024215) от 27.03.2021
-
-Imagine Dragons - Follow You / Cutthroat (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow You
-02. CutthroatЖанр: Indie Rock, ElectronicПродолжительность: 00:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5248C7A9FA430DD4566B3B155BEA49C5B236060F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458007   (1024203) от 27.03.2021
-
-V.A. - Legendary Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Child In Time
-02. The Doors - Break On Through (To the Other Side)
-03. Rush - The Seeker
-04. Whitesnake - Day Tripper(   Читать дальше...   )Жанр: RockПродолжительность: 02:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C6341D97440E1573EB97B3704F9630007B84D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 993898   (893968) от 06.03.2016
+
+Lethal Injektion - Sex Is Power (2016) EP [MP3|320 кб/с] <Rap Metal, Rapcore, Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Define (03:59)
+02. Strength Through Struggle (03:25)
+03. Verbal Warfare (feat. Tech N9ne & Twista) (04:20)
+04. Voices (03:12)(   Читать дальше...   )Жанр: Rap Metal, Rapcore, Alt. Metal, DjentПродолжительность: 00:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BEA6B3AFBF4C1FB81435130E953022177BE416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371006   (893689) от 29.03.2020
 
 Aevum - 3 Albums (2014-2020) [MP3|320 Kbps] <Symphonic Metal>
@@ -716,35 +745,6 @@ Van Canto - Voices of Fire (2016) [MP3|320 кб/с] <Power A Cappella>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59C39DDDEE6D8A569249E2247CA5B73A131D777E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870359   (886308) от 18.02.2015
-
-Ocean Of Sin - Lie Goes To Hell (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lie Goes To Hell
-02. Fare You Well!
-03. Remains Of Tears
-04. Deadly Bane(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75BDF5B0CB59C61AC5296AF16F0403B6EC556D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

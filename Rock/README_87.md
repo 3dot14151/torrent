@@ -1,3 +1,148 @@
+###  Публикация: 1427673   (182250) от 29.11.2020
+
+Omega - Testamentum (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_182250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sotetseg Kapuja (Nyitany) (02:18)
+ 02. A Fold Arnyekos Oldalan (04:24)
+ 03. A Langolo Huszadik Szazad (03:32)
+ 04. Varazslatos, Feher Ko (06:19)(   Читать дальше...   )Жанр: Progressive Rock, Hard Rock, Symphonic RockПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE4C0A27D74496D319484E21AF3A0519E6E6C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592959   (181873) от 25.11.2022
+
+Berlin - Count Three & Pray (1986) [OGG Vorbis|480 Kbps] <Electronic, Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will I Ever Understand You
+02. You Don't Know
+03. Like Flames
+04. Heartstrings(   Читать дальше...   )Жанр: Electronic, Rock, Soft RockПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A89E52E127756C910F4F2C572AA7DD8A2E2C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427991   (181523) от 30.11.2020
+
+M-Opus - Origins (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181523.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Overture (03:44)
+ 02. Accidents Will Happen (03:21)
+ 03. Please Don't Let Me Go (03:26)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9E17F0E2A45FADD781026121638B69C42BCB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665704   (181346) от 01.10.2023
+
+Jon Lord - Live (2023) [MP3|320 Kbps] <Symphonic Rock, Rock, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pictures Of Home [08:26]
+02. The Sun Will Shine Again [04:31]
+03. Bouree [05:37]
+04. Pictured Within [10:04](   Читать дальше...   )Жанр: Symphonic Rock, Rock, ClassicalПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F813AEDBE4BE4AED6DD9CA292598E4509734AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665562   (181311) от 01.10.2023
+
+Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Wot You Dun [02:56]
+02. Gudbuy T'Jane [03:31]
+03. My Friend Stan [02:40]
+04. The Bangin' Man [04:10](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89538C0F989B3F2EFD04BE67E0902E0A20C0519B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428404   (180205) от 02.12.2020
 
 Alfio Costa - Frammenti (2020) [MP3|320 Kbps] <Progressive Rock>
@@ -600,151 +745,6 @@ Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8AA3F1B3BADCAB9C54260F11066C5BEFF2F7CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668442   (173455) от 13.10.2023
-
-U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lights Out (Live) [00:05:31]
-02 - Gettin' Ready (Live) [00:04:00]
-03 - Love To Love (Live) [00:07:44]
-04 - On With The Action (Live) [00:04:50](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACF61390F5491D36642D39F9A777731BC707ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827103   (173430) от 20.10.2025
-
-David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5 A.M. (Live from the Luck and Strange Concerts) [03:16]
-02. Black Cat (Live from the Luck and Strange Concerts) [02:02]
-03. Luck and Strange (Live from the Luck and Strange Concerts) [05:56]
-04. Breathe (In the Air) (Live from the Luck and Strange Concerts) [03:34](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668599   (173369) от 13.10.2023
-
-Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Records [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Pigs (Live) [08:28]
-02. Behind The Wall Of Sleep (Live) [04:06]
-03. N.I.B. (Live) [06:47]
-04. Fairies Wear Boots (Live) [06:20](   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 01:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6096FEF227728888FFD543DF719EA9ADAB1F4A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668657   (173362) от 13.10.2023
-
-Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruby Red [02:54]
-02. Run Runaway [03:42]
-03. 7 Year Bitch [04:16]
-04. Myzsterious Mizster Jones [03:36](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0856B179BFE20413DD4286FA2527F594D7C4F256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668660   (173206) от 14.10.2023
-
-U.F.O. - Lights Out In Babenhausen - Live 1993 (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Natural Thing (Live 1993) [00:04:25]
-02 - Mother Mary (Live 1993) [00:03:41]
-03 - Let It Roll (Live 1993) [00:04:35]
-04 - Out In The Streets (Live 1993) [00:04:59](   Читать дальше...   )Жанр: RockПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D52CD2E23D1C5C82BF39E978D67B6D0CF457575
 ```
 
 https://mybot314.ru/tekegram_catalog/

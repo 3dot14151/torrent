@@ -1,3 +1,119 @@
+###  Публикация: 1605999   (1044635) от 20.01.2023
+
+TEN - Something Wicked This Way Comes (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look For The Rose (6:28)
+02. Brave New Lie (4:36)
+03. The Tidal Wave (4:21)
+04. Parabellum (6:38)(   Читать дальше...   )Жанр: AOR, Hard RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1199BC5B1A97DC8DD9E342399FDE85B22A114640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606113   (1044551) от 21.01.2023
+
+Riverside - ID.Entity (2023) 2CD, Deluxe [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age of Anger [00:11:56]
+02. Together Again [00:06:28]
+03. Friend or Foe? (Single Edit) [00:05:59]
+04. Self-Aware (Single Edit) [00:05:29]Жанр: Progressive Rock, MetalПродолжительность: 2 CD, 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4829DC7B4DFE3C6D1884764ED086304F8B1583DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606281   (1044521) от 21.01.2023
+
+Sam Brown - Number 8 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Okay
+02. Doll
+03. Injured
+04. Another Day(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D36AF78A1466BC868D782045759956BC66FEB51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606111   (1044481) от 21.01.2023
+
+Maneskin - Rush! (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Pop-Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Own My Mind (3:12)
+02. Gossip (2:48)
+03. Timezone (3:00)
+04. Bla Bla Bla (3:05)(   Читать дальше...   )Жанр: Glam-Rock, Pop-Rock, Hard-RockПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F414B99803F3832E19EA0678C2546CD22CA2F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606511   (1044444) от 22.01.2023
 
 Van der Graaf Generator - Interference Patterns - The Recordings 2005-2016 (2022) 13xCD, Box Set, Compilation, Reissue, 2022, Esoteric Recordings [FLAC|Lossless|tracks + .cue] <Progressive Rock>
@@ -629,122 +745,6 @@ Boz Scaggs - But Beautiful (2003) [FLAC|Lossless|tracks + .cue] <Vocal Pop, Torc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C951E091EC4D0215B0BAC606395F8E2DC1F78DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609987   (1042888) от 05.02.2023
-
-The Flower Kings - Adam & Eve (2004) Re-issue, 2023 Remaster, InsideOutMusic [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Supreme (19:39)
-02. Cosmic Circus (3:13)
-03. Babylon (2:30)
-04. A Vampire's View (8:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AE2574FB56853B5ABBA4B92EF118BB8E7720D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436749   (1042817) от 02.01.2021
-
-Miklagard (Miklagård) - Miklagard (1979) Remastered, 2020, Paisley Press [FLAC|Lossless|image + .cue] <Symphonic Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kastraten 3:09
-02. Trälen 3:34
-03. Astrologen 3:57
-04. Narren 4:44(   Читать дальше...   )Жанр: Symphonic Prog, Progressive RockПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF58FB8D0A398122F9E3A9755AD8E7EFE45C998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437082   (1042525) от 03.01.2021
-
-Pilot - 9 Albums, 1 Box-set, 13 CD (1974-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Rock, Power Pop, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pilot - шотландская поп/рок-группа, сформированная в 1973 году в Эдинбурге бывшими участниками известной группы Bay City Rollers Дэвидом Пэтоном (David Paton) и Билли Льяллом (Billy Lyall). К группе присоединились также Stuart Tosh и Ian Bairnson. Группа сделала несколько записей в 1973 и 1974 гг. Сингл 1974 г. "Magic" был продан "золотым" тиражом (   Читать дальше...   )--------------------------
-
-01. Damned If I Do (5:00)
-02. The Cask Of Amontillado (4:35)(   Читать дальше...   )Жанр: Pop Rock, Bubblegum, Brit Pop, Power Pop, Soft Rock |Продолжительность: 11:41:30 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446DCBE5B84AEBD7A7A9C2BD79B688E775FAB129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610243   (1042362) от 07.02.2023
-
-Buffalo Killers - Stay Tuff / Lost Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't You Ever Think I Cry (4:32)
-02. Love Is Gold (Alternate Version) (4:15)
-03. Oh My Word (Alternate Version) (2:26)
-04. Stand Back and Take a Good Look (2:43)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9A3D091C4851FAEC3BD156A08AF39C8A20EB2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

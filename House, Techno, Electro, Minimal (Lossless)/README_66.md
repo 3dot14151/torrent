@@ -1,3 +1,148 @@
+###  Публикация: 1780520   (70449) от 18.02.2025
+
+djdtime - Vocal Progressive House & Melodic Techno, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We came alive (6:00)
+02. The night is long (5:59)
+03. Feel the rhythm (4:29)
+04. Move with the sound (4:53)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82249DBFC81FBC5FBA2E62BDC0A9C94CC14FEA3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780414   (70448) от 18.02.2025
+
+djdtime - Relaxing Deep House & Tech House Mix Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Breeze (5:37)
+02. Starlit Nights (5:50)
+03. Velvet Horizon (5:52)
+04. Crystal Flow (5:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296454BF8BE9787A6B994723E01F26EDB4D39F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780611   (70384) от 19.02.2025
+
+djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake up, the world is calling (4:53)
+02. Close your eyes, leave the fear behind (3:54)
+03. I'm chasing you, through the night (3:44)
+04. Every heartbeat, I'm closer still (4:29)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C737B307015A1289D26D8028EF85F0C909FCCFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780927   (70364) от 20.02.2025
+
+Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Mermaid (5:37)
+02. White Sand (4:48)
+03. Summer Is Coming (5:34)
+04. Sunny And Hot (4:57)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0AE7BC6E0197309CD164C2006BC8D8BEB1F521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781338   (70291) от 22.02.2025
+
+VA - Ethnicá 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J Nana, Tibetania - Ciothe feat. Lucinia Karrey (Original Mix) (3:48)
+02. Tibetania, Francesco Capodaglio - Busingye (Original Mix) (6:40)
+03. Martin Hiska, Tibetania - Mahoya (Original Mix) (4:10)
+04. Discojack, Fecky Farris, Tibetania - My Feelings (Original Mix) (6:40)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:541CA8115C16A62533C923BC47BA7DA2B6ECA7D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783223   (69817) от 05.03.2025
 
 LP Giobbi - Dotr (2024) Remixes, 2025, Counter Records [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -600,150 +745,6 @@ Carlita - fabric presents Carlita (2025) [FLAC|Lossless|WEB-DL|tracks] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB4ADF18D64B27D138B1185F8B84AE7778D568DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798018   (66693) от 19.05.2025
-
-VA - Coven (2022-2025) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, Deep house, Progressive house, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Various Artists - Coven (2025) FLAC
-Various Artists - Coven, Vol. 1 (2022) FLAC
-Various Artists - Coven, Vol. 2 (2023) FLAC(   Читать дальше...   )Жанр: Trance, deep-house, progressive-house, DanceПродолжительность: 6 CD, 04:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DDB9948CCC911137823C96E399F37945F82132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798833   (66554) от 24.05.2025
-
-Jennifer Lopez - J to tha L‐O! The (Remixes) (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Lopez feat. Fat Joe / Love Don’t Cost a Thing (RJ Schoolyard mix)    [0:04:18.55]
-02. Jennifer Lopez feat. Ja Rule & Caddillac Tah / Ain’t It Funny (Murder remix)    [0:03:49.60]
-03. I’m Gonna Be Alright (Track Masters remix)    [0:03:20.15]
-04. Jennifer Lopez feat. Ja Rule / I’m Real (Murder remix)    [0:04:18.50](   Читать дальше...   )Жанр: Electronic, Hip Hop, House, DowntempoПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0851EEF9DB9E769C19762ED441995FD4267AC42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798974   (66533) от 25.05.2025
-
-Orbital - Orbital 2 (1993) The Brown Album Expanded, 2025, 5CD, London Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Acid, Breakbeat, Electro, House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Semi Detached [00:09:32]
-02. Lush (Spacewalk Mix) [00:07:06]
-03. Lush (1926 Trancendance Mix) [00:05:38]Жанр: Electronic, Acid, Breakbeat, Electro, House, Techno, TranceПродолжительность: 5 CD, 04:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C40071C077151D23D97BF30E7E882D176EA0755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801430   (66205) от 11.06.2025
-
-Jennifer Lopez - The Reel Me (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Latin, Dance, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby I Love U!    [0:04:29.22]
-02. Jenny From the Block (Seismic Crew's Latin Disco Trip)    [0:06:41.40]
-03. Jennifer Lopez feat. LL Cool J / All I Have (Ignorants mix)    [0:04:03.60]
-04. I’m Glad (Paul Oakenfold Perfecto mix)    [0:05:47.73](   Читать дальше...   )Жанр: Electronic, Latin, Dance, PopПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2C491F3BAC62FF308EB67FBBEA66FB5C5CCD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801138   (66169) от 12.06.2025
-
-Volen Sentir - The Book of Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech house, Breaks, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volen Sentir – Knowledge
-02. Volen Sentir – Moment of Peace
-03. Volen Sentir – You Will Never Know
-04. Volen Sentir & Marsh – Ascension (Album Edit)(   Читать дальше...   )Жанр: Tech house, Breaks, ProgressiveПродолжительность: 01:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AF2D93A1EB31C6A0004310251D09C0783B56EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

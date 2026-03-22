@@ -1,3 +1,177 @@
+###  Публикация: 1600853   (154362) от 29.12.2022
+
+Eddie Condon And His All Stars - Jammin' At Condon's (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There'll Be Some Changes Made [7:20]
+02. How Come You Do Me Like You Do [12:58]
+03. Blues My Naughty Sweetie Gives to Me [5:47]
+04. Tin Roof Blues [7:38](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29FAD8A2A3752B87ECB72C5372AA495A630BCAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600851   (154305) от 29.12.2022
+
+Warren Wolf - Christmas Vibes (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Christmas Tree [3:32]
+02. Do You Hear What I Hear? [4:14]
+03. Skating [3:48]
+04. Dance of the Sugar Plum Fairy [3:56](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48B3D68247672BDC14E3552F62F55A915AC2FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518542   (154287) от 20.12.2021
+
+Erroll Garner - 1951-1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until The Real Thing Comes Along [3:29]
+02. Six P.M. [2:53]
+03. New York Concerto [3:12]
+04. You're Blase [2:42](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D9A9BD378222C841CAC6E215E604A0C6DA365B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347186   (154267) от 22.12.2019
+
+Jeff Goldblum & The Mildred Snitzer Orchestra - The Capitol Studios Sessions (2018) Decca [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantaloupe Island [5:43]
+02. Don’t Mess with Mister T (feat. Till Bronner) [4:34]
+03. My Baby Just Cares for Me (feat. Haley Reinhart & Till Bronner) [5:15]
+04. Straighten Up and Fly Right (feat. Imelda May & Till Bronner) [3:13](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B73DD61A57DC3490F44BCE7FC4FE90AEE5F9B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194684   (154168) от 26.12.2017
+
+Oscar Peterson - Piano Moods: The Very Best Of Oscar Peterson (1998) 2CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Summertime
+02. I Love Paris
+03. Georgia on My Mind(   Читать дальше...   )Жанр: JazzПродолжительность: 02:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A4092F2CE5B4B16B423B5FC1FB4181469DA8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518549   (154132) от 20.12.2021
+
+Andre Previn - Jazz Milestones Of A Legend (1955 - 1962) 10CD, 2016, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154132.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 -  Duet (Doris Day & Andre Previn):
+01. Close Your Eyes [3:12]
+02. Fools Rush In (Where Angels Fear To Tread) [3:55]
+03. Yes [3:27](   Читать дальше...   )Жанр: Mainstream Jazz, Third Stream, Piano JazzПродолжительность: 09:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5813E3E79F7581BB44529C1F4E9B47DA4AACE03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347316   (154014) от 22.12.2019
 
 V.A. - Radiohead In Jazz (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Big Band>
@@ -575,180 +749,6 @@ Art Van Damme - Keep Going & Blue World (1970) 1995, Universal [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35D57B33B1B3BAECD6D6F750CCB7DBB312C9531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601120   (152784) от 30.12.2022
-
-Coleman Hawkins And His All-Stars - Timeless Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Happy [5:36]
-02. If I Had You [4:35]
-03. Lullaby Of Birdland [5:16]
-04. Out Of Nowhere [6:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982AF6AB71E567EBBD70D8BA35F2FAB3C6E08FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271190   (152673) от 22.12.2018
-
-Marion Montgomery & Mart Rodger Manchester Jazz - Makin' Whoopee (1993) Bowstone Records [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Down Yonder in New Orleans [3:30]
-02. You Took Advantage Of Me [4:35]
-03. Mean to Me [4:51]
-04. Shake It & Break It [3:52](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F2EDF122EB5B5B320A2ACEC70E02BF86C1BF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271124   (152658) от 22.12.2018
-
-Joey DeFrancesco & "Papa" John DeFrancesco - All In The Family (1998) HighNote [APE|Lossless|image + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bags' Groove [7:42]
-02. Sunny [3:40]
-03. Slammin' at Slims [6:53]
-04. Those Were the Days [6:57](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDE305A996B00ED1628A22B0782C15312058A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347473   (152491) от 23.12.2019
-
-Larry Clinton & His Orchestra - The Uncollected 1937 - 1938 (1977) Hindsight Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dipsy Doodle [3:04]
-02. Glen Island Hop [3:14]
-03. Whistle While You Work [2:59]
-04. Let'er Go [2:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9E368F0E29A9D9C7A1389B48A623E429341E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194986   (152457) от 27.12.2017
-
-Yusef Lateef - The Complete Yusef Lateef (1967) 2002, Collectables [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosalie [05:29]
-02. In the Evening [06:42]
-03. Kongsberg [06:13]
-04. Stay with Me [05:22](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46AA68D48F47B8AC2884447423C52D1C0147C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194979   (152449) от 27.12.2017
-
-Stephane Grappelli - Live 1994 (1998) Justin Time Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All God's Chillun Got Rhythm [03:00]
-02. I Thought About You [04:00]
-03. It's You Or No One [03:48]
-04. Night And Day [04:21](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA57999E2A0566E3C4A4F917B35FB869DE52722
 ```
 
 https://mybot314.ru/tekegram_catalog/

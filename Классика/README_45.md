@@ -1,3 +1,119 @@
+###  Публикация: 1268068   (229104) от 09.12.2018
+
+The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3|320 Kbps] <Pop, Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rondo Alla Turka Sonata In A Major (Mozart) (4:05)
+02. Gypsy Melody Opus 55 No 4 (Dvorak) (3:11)
+03. The Anger Over Lost Pennies (Beethoven) (2:48)
+04. Piano Concerto No 21 In C Minor (Mozart) (4:00)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 03:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEF6A02C9D26B22FB24673B16166A418E75DE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648081   (227533) от 30.07.2023
+
+Seattle Opera - Der Ring des Nibelungen (2014) [FLAC|24/96|tracks|WEB-DL] <Classical, Opera>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_227533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk 1
+1-1 Prelude
+1-2 Weia! Waga! Woge Du Welle
+1-3 Garstig Glatter Glitschriger Glimmer(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 14:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252E4E80A8F934581EB883F168F2D8FD6F919FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268592   (226164) от 11.12.2018
+
+Andrea Bocelli - Si (2018) Terget Deluxe Edition [FLAC|Lossless|image + .cue] <Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_226164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ali di libertà
+02. Amo soltanto te (duet with Ed Sheeran)
+03. Un'anima
+04. If Only (duet with Dua Lipa)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5553AE61F10C8BD88553416736525D890C5666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341651   (225346) от 01.12.2019
+
+Rick Wakeman - Christmas Portraits (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225346.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The First Noel (03:25)
+2. In The Bleak Midwinter (03:35)
+3. Deck The Halls / Away In A Manger (03:29)
+4. The Holly & The Ivy / Mary's Boy Child (03:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3589665E9A55670893D179D386DF713FF1282B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341994   (225207) от 01.12.2019
 
 Rick Wakeman - Christmas Portraits (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]<Classical, Piano, Instrumental>
@@ -624,122 +740,6 @@ VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A05767C349530BDA2263C0FAD7B9DF709B6F2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649317   (195092) от 27.07.2023
-
-Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 5 in D minor, Op. 47
-1. I. Moderato, Allegro non troppo, Moderato (13:38)
-2. II. Allegretto (5:17)
-3. III. Largo (12:09)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C94E9B0E138D068B7EA9C76C1C27A12AEACC844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655108   (193917) от 24.08.2023
-
-Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Hands (2022) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193917.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Sonata for keyboard 4-hands Op.4 in F
-1. I. Allegro molto
-2. II. Adagio(   Читать дальше...   )Жанр: Classical, FortepianoПродолжительность: 01:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5463252875C3D8EA62F7C0721E7052CC7A9DA15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001555   (193881) от 23.08.2023
-
-Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, Disc Set [APE|Lossless|image + .cue] <Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polovtsian march: 'The army returnes home'
-02. Song of Khan Konchak: 'Our swords gave us victory'
-03. Recitative, chorus and scene: 'Blow your horns!'
-04. Scene: 'It is possible that the Khan seized our city?(   Читать дальше...   )Жанр: OperaПродолжительность: 03:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA090324A8504E5BD6A30E7021A9C5C0C663CBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655323   (193811) от 26.08.2023
-
-André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voilà (5:10)
-02. Con te partirò (4:18)
-03. Memory (Live) (3:50)
-04. The Second Waltz, Op. 99a (3:42)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECBAB9316B1DDC665DCCF53CCE9E3DDBCED46E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

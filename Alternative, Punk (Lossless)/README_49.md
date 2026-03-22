@@ -1,3 +1,120 @@
+###  Публикация: 1340678   (263297) от 25.11.2019
+
+Pere Ubu - The Long Goodbye (2019) 2 CD [FLAC|Lossless|tracks + .cue] <Post-Punk, Avantgarde, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:13)
+02. Heart Of Darkness (04:26)
+03. Flicking Cigarettes At The Sun (03:44)
+04. Marlowe (06:09)(   Читать дальше...   )Жанр: Post-Punk, Avantgarde, ExperimentalПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C53E98693577259BD70F1ABD19AE9B87CB23D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341086   (262633) от 27.11.2019
+
+Brazzaville - Welcome to Brazzaville 2 (2012) [FLAC|Lossless|tracks + .cue] <Chamber pop, Indie rock, Bossa Nova>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clouds In Camarillo
+02. Jesse James
+03. Anabel2
+04. Bosphorus(   Читать дальше...   )Жанр: Chamber pop, Indie rock, Bossa NovaПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22386971346F49897BDDCF1C37016B6E46C7DBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503620   (259974) от 31.05.2012
+
+Regina Spektor - What We Saw From The Cheap Seats (2012) [FLAC (tracks+cue)|Lossless]<Indie, Piano, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Small Town Moon
+02. Oh Marchello
+03. Don't Leave Me (Ne Me Quitte Pas)
+04. Firewood(   Читать дальше...   )Жанр: Indie, Piano, AlternativeПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838215   (259858) от 21.11.2025
+
+Papa Roach - Сollection (1997 - 2022) 17 CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Papa Roach — американская рок-группа из города Вакавилль, штат Калифорния, образованная в 1993 году.
+Обрела мировую известность благодаря своему второму альбому Infest (2000).Альбомы:
+1997 - Old Friends From Young Years
+2000 - Infest
+2002 - Lovehatetragedy(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 13:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCB0EA693B91F02D89CBB24867D635730A2D732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837685   (257712) от 18.11.2025
 
 Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC|Lossless|image + .cue] <Punk>
@@ -636,122 +753,6 @@ Russkaja - No One is Illegal (2019) [FLAC|Lossless|WEB-DL|tracks] <Gypsy Punk, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8920C3EB5E3771BC579D7844CC545C908634059C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610874   (244114) от 09.02.2023
-
-Colorsfade - Built From The Wreckage (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Line In The Sand [00:03:46]
-02. Open Book [00:04:29]
-03. Complaining [00:03:40]
-04. Reclaiming Your Crown [00:03:45](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B52035AF594ADFC0D8B32F24CA0B9F238FEE87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611898   (243715) от 13.02.2023
-
-Narrow Head - Moments of Clarity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Post-Grunge, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Real (3:30)
-02. Moments of Clarity (3:50)
-03. Sunday (3:18)
-04. Trepanation (3:29)(   Читать дальше...   )Жанр: Alt.Rock, Post-Grunge, ShoegazeПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8BA86694DBC3823FF8B7F601065CCD3EEEF4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627228   (243229) от 18.04.2023
-
-Call Me Karizma - Francis (2022) 2023, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Pop-Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Leather (2:50)
-02. Didn't You (3:00)
-03. Blood (2:25)
-04. Vacuum Boy (feat. Bizarre) (2:40)(   Читать дальше...   )Жанр: Pop-Punk, Pop-Rock, Indie Rock, Alternative Hip-HopПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFB501769A7D0A355C20F6BD331CD5CCC03ECEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352624   (243144) от 15.01.2020
-
-Exit North - Book of Romance and Dust (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Art Rock, Atmospheric, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bested Bones (05:20)
-02. Short Of One Dimension (05:54)
-03. Sever Me (04:24)
-04. Passenger's Wake (03:58)(   Читать дальше...   )Жанр: Alternative, Art Rock, Atmospheric, Singer-SongwriterПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E84D24858D95AF764D79892C0EFE8AF90D0425
 ```
 
 https://mybot314.ru/tekegram_catalog/

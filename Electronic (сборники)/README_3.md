@@ -1,3 +1,61 @@
+###  Публикация: 1444157   (1034958) от 31.01.2021
+
+VA - Beatport Deep House: Electro Sound Pack #234 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите послушать чего-нибудь исконно европейского, легкого и достаточно качественного, то новый 234-й релиз посвящённый музыке стиля Deep House от Beatport должен прийтись Вам по вкусу. Каждый трек по-своему уникален и завораживает с первых секунд прослушивания.001. L.A.B - Our Generation
+002. Kathy Cornell - Like You (Original Mix)
+003. Marcelo Wallace - I Don't Care
+004. Tomi H - Inlightening(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA731950A8A2615EB3A3AB35B65E417CA69CA2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443661   (1034951) от 31.01.2021
+
+VA - Beatport Techno Electronic: Sound Pack #232 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034951.jpg" />
+</div>
+
+
+###  Подробнее
+
+232-й релиз электроники от Beatport это смелая заявка на то, чтобы оказаться в плейлистах многочисленных любителей техно-саунда, от чудаковатых фанатов экспериментов до нетребовательных завсегдатаев клубных танцполов. Приятные мелодии и заводные ритмы будут сопровождать Вас на протяжении всего релиза.001. Alejandro Bargueno - More Aggrassive
+002. Kuster Beaton - Kuster Theme
+003. Patrick P. - Time
+004. Flamel - Altair (Extended Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287801BF5D17CF0149F225F271950074A6D438E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444149   (1034948) от 31.01.2021
 
 VA - Gravity Dance (2021) [MP3|320 Kbps] <Synthwave>
@@ -687,64 +745,6 @@ VA - Sounds Of Life: Tech House Club Session (Vol.43) (2021) [MP3|320 Kbps] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1460ED419BA1D495E9328919F61572C0D7D686A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446796   (1032511) от 10.02.2021
-
-VA - Melodic Vocal Trance (2021) [MP3|320 Kbps] <Vocal Trance, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые сливки клубной музыки в подборке "Melodic Vocal Trance" обрадуют ценителей этого музыкального формата, а само название лонгплея как бы намекает, что любители Uplifting направления не останутся без "сладкого". Добрых 90 треков доставит океан драйва и позитивного настроя.01. Standerwick - Bringing Me Up
-02. DJ Gard - You Will Conquer (Extended Mix)
-03. Super8 & Tab - Hurricane Love
-04. Mr90 - Lost In The Desert(   Читать дальше...   )Жанр: Vocal Trance, UpliftingПродолжительность: 08:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8F212A8C3C275F8A148D4488F659A9A718F949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620152   (1032363) от 19.03.2023
-
-VA - Liquid Symphony (2023) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merr0w - Sunshine on Mars
-02. Toxeed - Le Voyage De L'indien
-03. Globox - Shulgin's Laboratory
-04. Proxeeus - Men of Leng(   Читать дальше...   )Жанр: TranceПродолжительность: 04:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0F39F2C372C1558B66433FFA37603231FCC974
 ```
 
 https://mybot314.ru/tekegram_catalog/

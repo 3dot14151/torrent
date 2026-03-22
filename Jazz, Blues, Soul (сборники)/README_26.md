@@ -1,3 +1,32 @@
+###  Публикация: 1814149   (6307) от 23.08.2025
+
+VA - Sweet Jazz (2025) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Motis, Joan Chamorro, Scott Hamilton, Ignasi Terraza, Esteve Pi, Josep Traver - Summer Time (7:42)
+02. Abbey Lincoln - Lucky To Be Me (7:30)
+03. Cécile McLorin Salvant - One Step Ahead (2:09)
+04. Diana Krall - I've Got You Under My Skin (6:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 06:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0874D6561A1320C2793E908B9DBBC30CD986EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815719   (4968) от 31.08.2025
 
 Frezee - Frezee Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal>

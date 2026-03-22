@@ -1,3 +1,61 @@
+###  Публикация: 996859   (877676) от 15.03.2016
+
+VA - Velvet and Night: The Deephouse Selection (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep London Project - Say What Tell Me - Deep Phonic's House Mix
+02. Florence Cono - Deep Song of Gaia - Deep City Mix
+03. Frank Rain - Reserved for the Best People - Modell & Mercier's Night Voyage Mix
+04. Manuel Antinas - Alterego in Fashion - Downtown Elements Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7690BA8DA9099020491129846C6F2AB92AC09B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997101   (877669) от 15.03.2016
+
+VA - House Nation Volume 7 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Romero Vs. Sunnery James & Ryan Marciano - Underground (04:55)
+02. Friend Within - The Renegade (06:59)
+03. Benny Benassi Presents The Biz - Satisfaction (RL Grime Remix) (04:20)
+04. Underworld - Rez (Bassnectar Remix) (05:13)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B5E214DB6A1E6D806495D8E673755470B53E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997013   (877661) от 15.03.2016
 
 VA - Beautiful Now: Minimal Tech House NRJ (2016) [MP3|262-320 кб/с] <Minimal, Tech House>
@@ -693,64 +751,6 @@ VA - Chill House Travel Session (2021) [MP3|320 Kbps] <Chill, Deep House, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C63BB356CC7C41A4593ABCF626B4E13B55FF835F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496447   (873198) от 17.09.2021
-
-VA - The Herbal Chillout (2021) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873198.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lenny Mac Dowell - Deepest Inner
-002. Peter Oehler - African Sunrise
-003. Jusscomplex - Takin' Time
-004. The Science Fiction Club - Return(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 09:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5082D1BFC6A084279C12F4F81BEF7BBD5C70CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496394   (873195) от 17.09.2021
-
-VA - A New Harmony: Experimental Electronic (2021) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873195.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tlabs - Let Loose
-002. Forty Cats - Ledokol
-003. Shay De Castro - Watching Me
-004. Bitler - Rhytmichally(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 11:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E440B3522D971474E1425AF8B4CF135DB7798E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

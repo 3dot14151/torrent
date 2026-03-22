@@ -1,3 +1,177 @@
+###  Публикация: 1592653   (182553) от 24.11.2022
+
+Iron Fist - Mettlehead Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mettlehead Train [00:03:59]
+02. Act Your Age [00:04:39]
+03. 911 [00:03:47]
+04. Rise Above It [00:03:51](   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A3DBA40B6867964800D107B0484D2F3918E1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592666   (182503) от 24.11.2022
+
+Liquify - Beyond The Frozen Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Space>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Subzero Descent
+02 Unthawed
+03 Stellar Cruise
+04 Eclipsing Moon(   Читать дальше...   )Жанр: Heavy Psych, Stoner, SpaceПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BF373AB762CF3BA24C124FBABC161B6CA06B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592745   (181815) от 25.11.2022
+
+Bennie And The Jets - Lipstick and Leather (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lipstick And Leather (03:24)
+02. Say It Again (Tonight) (03:24)
+03. New York – L.a. (03:03)
+04. Do You Know (04:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B36711D215CEB3681DCCEB0C44CF3EE5413756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592790   (181723) от 25.11.2022
+
+XYZ - XYZ (1989) Japanese Edition, Reissue, 1990, Enigma Records [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggy
+02. Inside Out
+03. What Keeps Me Loving You
+04. Take What You Can(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68CCA3FFB50224E802F0B99D10943209CF07C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665538   (181560) от 01.10.2023
+
+B.O.W - Chasing Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Give a Damn (5:04)
+02. A Bad Dream (3:55)
+03. Dangerous Games (3:54)
+04. Adrenaline (4:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9BF2331CE0C5D4DBACB97E87694536C1EC67F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665714   (181517) от 01.10.2023
+
+Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Surrender [00:04:43]
+02. The Spell [00:04:38]
+03. Where the Demons Lie [00:04:41]
+04. The Outsider [00:05:17](   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Female VocalПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7151503C5544665E64C5C291AC1DF4347D071160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427905   (181498) от 30.11.2020
 
 Dust - 2 albums, 3 CD (1971-2013) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -571,180 +745,6 @@ Lee Aaron - Elevate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F272A767F0E5DAC15B921F4525B3C37A00235BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593524   (179883) от 28.11.2022
-
-White Spirit - Right Or Wrong (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Or Wrong (4:48)
-02. Runaway (4:06)
-03. The Dice Rolls On (4:53)
-04. Lady Of The Night (4:32)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAD8FBA50846C1B38393B7B5B3D04822F8374A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253381   (179870) от 03.10.2023
-
-Nikolo Kotzev - 11 Albums, 12CD (1992-2023) [FLAC|Lossless|image + .cue] <Hard Rock, Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родившийся в Болгарии, но эмигрировавший позже в Швецию гитарист, скрипач, композитор и аранжировщик Николо Котцев (Nikolo Kotzev) - один из немногих представителей на рок-сцене, имеющий классическое музыкальное образование, и, уж, наверняка, единственный, кто начал свою карьеру в шоу-бизнесе, когда ему было уже под 30 (хотя Deep Purple с Rainbow увлёкся, как и все (   Читать дальше...   )--------------------------
-
-01. Bound For A Destruction (6:21)
-02. Spell Of Love (5:23)(   Читать дальше...   )Жанр: Hard Rock, Rock Opera |Продолжительность: 11:23:07 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6611F8EA9195E887E3162D8DAE8805B9D0B034A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593766   (179585) от 28.11.2022
-
-Deep Purple - Greatest Hits (2022) 3 x CD, Compilation, Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179585.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Highway Star (Live at Schleyer-Halle)
-02. The Cut Runs Deep
-03. Vavoom: Ted The Mechanic(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F86787D064BB3F2590310A848B65F7C8E8BDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251403   (179551) от 28.11.2022
-
-Joe Lynn Turner Projects - 34 Albums, 38 CD (1980-2022) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокалист Джо Линн Тернер (Joe Lynn Turner), известный в первую очередь по участию в RAINBOW в начале 80-х, а чуть позднее - в группе Ингви Мальмстина (Yngwie Malmsteen), не даром носит неофициальный титул “Человек с золотым голосом”. Почти все, что записывает Тернер, звучит так, как будто запись благословили боги тяжелого рока. Его мощная харизма, широкий диапазон (   Читать дальше...   )--------------------------
-
-01. Rising Force (4:24)
-02. Hold On (5:12)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, AOR, Melodic Rock |Продолжительность: 32:25:26 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723E89F0542AF30F75B943C0B3079C7293A5D0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594249   (178823) от 30.11.2022
-
-In Vinum - Vinum Et Occultismum (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom, Occult>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeterna Reditus [00:03:45]
-02. Redemptor [00:04:58]
-03. Gloria y Loor [00:06:12]
-04. Flagranti Pythonissam [00:03:14](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, Doom, OccultПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAA5D2824E5C87B7302BEDE3E868BEF4867430D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594061   (178760) от 30.11.2022
-
-Autograph - Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Ain't The Place I Wanne Be (4:30)
-02. Your Slave Tonight (3:30)
-03. Everything (4:29)
-04. Gotta Getcha (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E944BA57E79066714681F30867027DCC852BA31
 ```
 
 https://mybot314.ru/tekegram_catalog/

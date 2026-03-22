@@ -1,3 +1,61 @@
+###  Публикация: 972218   (983437) от 05.01.2016
+
+VA - Classical Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claude Debussy - Deux Arabesques : No. 1 Andante con moto [03:59]
+02. Felix Mendelssohn - Songs Without Words, Op. 62: No. 6 in A Major, "Spring Song": Andante grazioso [02:32]
+03. Philip Glass - Glass: The Hours - Arr. Michael Riesman - Morning Passages [06:11]
+04. Frйdйric Chopin - 24 Prйludes, Op. 28 : 15. in D Flat Major "Raindrop" [05:17](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5707FDC97A9773CB5E3769A19798C67123B8BD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972283   (983432) от 05.01.2016
+
+VA - After Workout Chillout Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Chilly Vanilly [05:52]
+02. Psytrotune - Fall in the Darkness - Chillout Mix [05:47]
+03. Eroc - Wolkenreise 2k11 - Part of the Art Remix Edit [04:40]
+04. Blueye - Autumn Leaves - Chillout Mix [05:38](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD90D06B9EA5C977778E7B2C08F77CA9C3BB6A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972391   (982068) от 06.01.2016
 
 VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive Trance>
@@ -706,64 +764,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80E0F600DCC20A7DD026CBF11EC5BB40C8483A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974429   (976969) от 11.01.2016
-
-VA - Sunrise Avenue, Vol. 7 (20 Lounge & Chill-Out Pearls) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glenn Edwads - Pure Water (Ibiza Sunset Mix) (04:30)
-02. Brian Connors - Tropical Sunset (04:08)
-03. Gore Fontaine - Hindu Love (03:25)
-04. Jason Chambers - Black Horse (03:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89430474FCB206AF785D8A771F7CCBA9123A4936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974499   (976946) от 11.01.2016
-
-VA - Coming Home - Pop Lounge Music Deluxe (2015) [MP3|320 кб/с] <Lounge, Easy Listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Risasi - How U Like [04:02]
-02. Jnr Robinson - Wanna Praise [03:47]
-03. Trevor Jackson - Can You Blame Me [04:47]
-04. Rocklike - Holding On (Acoustic Version) [04:25](   Читать дальше...   )Жанр: Lounge, Easy ListeningПродолжительность: 03:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7269B7B59D96CE4EF9E6BA189C54B602F31C65E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

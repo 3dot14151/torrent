@@ -1,3 +1,61 @@
+###  Публикация: 1384315   (804370) от 19.05.2020
+
+VA - Beatport Big Room House: Sound Pack #85 (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804370.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brockman - 1 A.M.
+002. Black Cat - Listen (Original Mix)
+003. Knockwell - Night Howler
+004. Hanger And Lostdrop - Karma(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE5118F3CDD46803F99824B68626663BB39F9A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010208   (804308) от 24.04.2016
+
+VA - Trance Collection vol.42 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804308.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 5Beat feat. Irina Makosh - Legend (Maglev Remix) 05:32
+002. 63S - Surround Me (Original Mix) 05:41
+003. Adip Kiyoi & Cari - Deeper Into You (Original Mix) 05:32
+004. Ahmed Romel - Kenopsia (Extended Mix) 08:14(   Читать дальше...   )Жанр: TranceПродолжительность: 11:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25415E76132B317EA0191DACA4835DD4B73E1002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010253   (804304) от 24.04.2016
 
 VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dance, Hardstyle>
@@ -687,64 +745,6 @@ VA - The Best - In Music We Trust Vol.14 (2017) [MP3|320 Kbps] <House, Electro, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3800BE30AD7DDD0ED1F315760232F55ABCB3BF89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199292   (801775) от 15.01.2018
-
-VA - Chillout - Ocean sounds (2018) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bachot Muna - Do It
-02. Darin Epsilon - Endless Sands Of Time
-03. Projekt Phoenix - Lighthouse
-04. Down Under - Guess(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 05:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62A3025F8E72ACEFC2CF7E2D611FA2BB0636109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199315   (801688) от 15.01.2018
-
-VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House, Techno, Dark Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2nd Phase - Propel The Light (Original Mix)
-02. Above & Beyond, Zoe Johnston - No One On Earth (Gabriel & Dresden Remix)
-03. Acidbro - Yeah, Bosh! (Nopopstar Remix)
-04. Alex ll Martinenko - Eruption (Original Mix)(   Читать дальше...   )Жанр: Tech House, G-House, Bass House, Techno, Dark ProgressiveПродолжительность: 27:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE11A9425C3D5AE84497C5B68C80379DB2B0C32B
 ```
 
 https://mybot314.ru/tekegram_catalog/

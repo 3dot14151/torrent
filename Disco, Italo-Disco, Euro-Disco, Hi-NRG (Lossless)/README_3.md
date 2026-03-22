@@ -1,3 +1,38 @@
+###  Публикация: 598149   (999871) от 04.01.2013
+
+VA - Best Italo Disco Hits Remixed (2007) 3CD Boxset [FLAC|Lossless]<Italo-Disco, Euro House, Italodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Laszlo - Hey Hey Guy [03:39]
+02. Den Harrow - Push Push ( Captain Kook Remix ) [03:27]
+03. Gigi DґAgostino - Wellfare ( Gigi & Pandolfi P.M. ) [03:24]
+04. Di Fumetti feat. D-JMC - Di Fumetti ( Video Edit ) [03:19]
+05. Max Him - Lady Fantasy 2003 [03:58]
+06. Carajillo - Fotonovela [03:55]
+07. 2 Eivissa - Fire In The Sky [03:36]
+08. Mike Mareen Vs. Da-Freaks - Love Spy [03:37]
+09. Kelly G. - Ouragan ( Irresistable ) [03:35]
+10. Fabrizio Faniello - Love On The Radio ( Video Edit ) [03:22](   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354297   (988996) от 21.01.2020
 
 The Crosslines - Cross The Line (2019) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
@@ -718,35 +753,6 @@ Frank Lozano - The Album (2018) [FLAC|Lossless|image + .cue] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751D43C883C1EB9AC65515BF47168BD033EFA183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090339   (947442) от 06.01.2017
-
-JohnnyM5 - Fantasy Of Love (Extended & Remixed) (2009) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night (For You & Me) (Extended Version) (6:40)
-02. Take The Heat (Extended Mix) (6:08)
-03. Fantasy Of Love (Maxi Version) (5:08)
-04. Give Me Your Love (Obsession Remix) (3:52)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Hi-NRGФормат: CD, AlbumПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F506D3B62DD719E9F1EC1FC23DAF18C51DC7D502
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1009658   (808357) от 22.04.2016
+
+VA - Sound Of Tomorrow (Mixed By DJ Flybeat) (2016) [MP3|320 кб/с] <House, Progressive House, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas & Mazza - Why (Original Edit) 02:42
+02. Picco - You Know Why (Original Edit) 03:04
+03. CJ Stone - Lost (Original Edit) (feat. Lyck) 03:26
+04. Ghost - Not Alone (Stefan Rio Remix Edit) 03:25(   Читать дальше...   )Жанр: House, Progressive House, Future HouseПродолжительность: 04:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B57EA20F8A5D44C0794ADDA57FE6B256A6419C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383797   (808268) от 17.05.2020
+
+VA - Record Super Chart 636 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Capon - Shut Up Chicken 2:31
+02. Тайпан feat. Agunda - Луна не знает пути 2:11
+03. Topic & A7S - Breaking Me 2:47
+04. Little Big - UNO 2:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F8CE8FB6149519ABD3FBE4871B3B0E08894C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009842   (808245) от 22.04.2016
 
 VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -687,64 +745,6 @@ VA - Future Trance Energy 001 April TOP (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C316CB817E021F6C2546283D7CCF222C769730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384315   (804370) от 19.05.2020
-
-VA - Beatport Big Room House: Sound Pack #85 (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804370.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brockman - 1 A.M.
-002. Black Cat - Listen (Original Mix)
-003. Knockwell - Night Howler
-004. Hanger And Lostdrop - Karma(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE5118F3CDD46803F99824B68626663BB39F9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010208   (804308) от 24.04.2016
-
-VA - Trance Collection vol.42 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804308.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5Beat feat. Irina Makosh - Legend (Maglev Remix) 05:32
-002. 63S - Surround Me (Original Mix) 05:41
-003. Adip Kiyoi & Cari - Deeper Into You (Original Mix) 05:32
-004. Ahmed Romel - Kenopsia (Extended Mix) 08:14(   Читать дальше...   )Жанр: TranceПродолжительность: 11:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25415E76132B317EA0191DACA4835DD4B73E1002
 ```
 
 https://mybot314.ru/tekegram_catalog/

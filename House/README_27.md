@@ -1,3 +1,146 @@
+###  Публикация: 1127577   (731148) от 22.04.2017
+
+VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tyng & KMRN - Cracks On The Wall (feat. Shadisha)  6:27
+02.  James DX - Maximum Effort (Original Mix)  6:01
+03.  RBYN - Angel (Metrush Remix)  3:15
+04.  Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)  4:14(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A939B9F601617750A4C40F6273D287A53C2BB67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283907   (731050) от 19.02.2019
+
+VA - Ultra Jogging Anthems 2019 Session [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'rockmasters - Light That Fire (Fitness Version 128 Bpm) 3:51
+02. One Nation - Personal Jesus (Fitness Version 128 Bpm) 3:45
+03. Lady Shelly - Live Love Dance (Fitness Version 128 Bpm) 4:00
+04. Magdaleine - Suddenly (Fitness Version 128 Bpm) 3:45(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAC55EF3659D68A6AFE3D8DE4F4F8660CA7F3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021959   (730987) от 31.05.2016
+
+VA - Deep Vibes - Ibiza (2016) [MP3|320 кб/с] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassara - Shadow Show [05:44]
+02. Milk & Sugar - Heat (African Day)Жанр: Deep HouseПродолжительность: 05:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073C2A08273DC0ACA4532E957F37D75EE46F7F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127690   (730600) от 22.04.2017
+
+VA - Nothing But... Pure Progressive House Vol.02 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tom Bryder - Kenobi (Original Mix)  5:15
+02.  DJ Swindali - Clouds (Original Mix)  3:30
+03.  Van de Like - To Your Heart (Original Mix)  4:17
+04.  Max Freegrant feat. Brandon Hills - Sometimes We Need To Forget (Silva Remix)  7:58(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73298A453E73498039AA73388981173D76D7FD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127683   (730443) от 22.04.2017
+
+VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Foxt - Pulsar (Original Mix)  7:05
+02.  Leoo Eco - Flying Away (Original Mix)  6:24
+03.  Platunoff - Global Connection (Phase Difference Remix)  6:28
+04.  Yearzwalker - The Night (Original Mix)  4:59(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8C285D13CA62CBDA5E4E065F7D28F291956BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284159   (730094) от 20.02.2019
 
 VA - The Journey: The Best Remixes Vol.01 (2019) [MP3|320 Kbps] <Progressive House, Trance>
@@ -597,151 +740,6 @@ VA - Vamos A la Playa: Eivissa (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BEC3B37BBA758B8267D0DE6F2DCD6BDC6D62C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026905   (724354) от 27.04.2017
-
-Pogo - 2 альбома (2015,2016) [MP3|320 kbps] <house, chill electronic, idm>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giving (02:46)
-02. Cupboard Shaker (03:23)
-03. There You Are (03:37)
-04. Data & Picard (03:05)(   Читать дальше...   )Жанр: house, chill electronic, hip-hop, idmПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536A82DFDFCFCC9EE44DC3455E1D9A35DD291555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023391   (724255) от 05.06.2016
-
-Phaeleh - All That Remains (2016) EP [MP3|320 кб/с] <Tech House, Ambient, Modern >
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain (5:21)
-02. Acceptance (1:24)
-03. Remember (4:51)
-04. Trails of Light (4:48)(   Читать дальше...   )Жанр: Tech House, Ambient, ModernПродолжительность: 00:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627F600F499A8EEA983FB46D8258C8DC2F7D6ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218398   (723306) от 09.04.2018
-
-VA - The Best Progressive Hits Vol.7 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZANIO & Kaiiila – Ever(Feat. Kaiiila) (Dub Mix)
-02. Illumia – Deeley (Original Mix)
-03. Evave – Falling in My Eyes (Vintage Colors Remix)
-04. Denis Neve – Last Sunrise (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F8356EF20606D1362DB97450CC22508D8A54F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218453   (723289) от 09.04.2018
-
-Space Drum Meditation - Space Drum Meditation (2018) [MP3|320 Kbps] <Ambient, Techno, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arp Meditation (02:15)
-02. D! Bodytalk (05:15)
-03. Tower Of Terror II (06:45)
-04. Walzer Therme (06:30)(   Читать дальше...   )Жанр: Ambient, Techno, Deep HouseПродолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6DE909A025934782264C00530722162039E50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129251   (722617) от 28.04.2017
-
-VA - Coral City Compilation (2016) [MP3|320 Kbps] <Nu Disco, Disco House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereocool - Welcome to Coral City (03:54)
-02. Skibblez - Azure (03:45)
-03. My NamE - So I Dance (03:20)
-04. Tightshirt - Cidre Circles (04:22)(   Читать дальше...   )Жанр: Nu Disco, Disco HouseПродолжительность: 01:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023676E7090512BA9AF5BEF9B61CA91C68A0A801
 ```
 
 https://mybot314.ru/tekegram_catalog/

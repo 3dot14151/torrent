@@ -1,3 +1,119 @@
+###  Публикация: 1747582   (104642) от 07.09.2024
+
+VA - DJ Hits 333 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rytmica Featuring Big Reggie - Swing Da Thing (Extended Mix)
+02. Bafi Boyz & Inferno - I Wanna Take U (Radio)
+03. Black Spaghetti - Yowi, Yowi (The Message Mix)
+04. DJ Dado - Dreaming(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F064BEBB4716933A4E8563C0BC501E36248393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747749   (104641) от 07.09.2024
+
+VA - DJ Hits Vol. 345 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DPD feat. Rose Windross (ex. Soul II Soul) - Sign Your Name  (short club mix)
+02. La Bouche - Forget Me Not (remix '97)
+03. Alexia - Number One (club short mix)
+04. No Mercy - Message Of Love (non album edit)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FAC1D10DBA46F4A57E777FC5DE72EF3F9B65D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747753   (104638) от 07.09.2024
+
+VA - DJ Hits 350 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Spaghetti - Groovin
+02. Priority - Do That Dance
+03. O. Dance - On The Beat
+04. Mr. Partyman - Hey Mr. Partyman(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30236D3C29FC1C8E449B894745DFFB9E715F452B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747872   (104612) от 07.09.2024
+
+VA - DJ Vol 351 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MC Rage - Fuck Macarena (Radio Mix)
+02. Tori Amos - Professional Widow (7'' Mix)
+03. Alexia - Numberone (Euro Mix)
+04. Le Click feat. Kayo & Robet - Tonight Is The Night (Spring '97 Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68662BCBB6324715A35B4C37895FFEE6529BF8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748210   (104548) от 10.09.2024
 
 VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -668,146 +784,6 @@ CD-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14CD2BCC3A2891766B7C5255A68684353626F12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481319   (87791) от 11.04.2012
-
-Chilly - We Are The Popkings ... And Other Hits Of (2011) [MP3|320 кб/с]<Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Energy 2:00
-02. We Are The Popkings 4:06
-03. For Your Love (12" Version) 9:00
-04. Get Up And Move 4:00
-05. Johnny Loves Jenny 3:20
-06. Brainstorming 3:50
-07. Better Stop 3:40
-08. Come To L.A. 3:29
-09. Secret Lies 3:16
-10. Rosi Rice 2:50(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480849   (87723) от 11.04.2012
-
-The Overtones - Gambling Man (2012) [MP3|~245 кб/с (V0)]<Pop, Doo-Wop, Vocal Harmony, British>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Last Chance
-02. Sh-Boom
-03. Gambling Man
-04. Come Back My Love
-05. Say What I Feel
-06. Carolyn
-07. The Longest Time
-08. Good Ol Fashioned
-09. Blue Moon
-10. Have I Told You Lately that I Love You(   Читать дальше...   )Жанр: Pop, Doo-Wop, Vocal Harmony, BritishПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E100DAE951A84554D4AD74CFBF14F6373BB00AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480877   (87529) от 10.04.2012
-
-Annalisa - Mentre Tutto Cambia (2012) [MP3|320 кб/с]<Italian Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza Riserva
-02. Non Cambiare Mai
-03. Lucciole
-04. Per Una Notte O Per Sempre
-05. Tutto Sommato
-06. Bolle
-07. Ottovolante
-08. Ancora Un'altra Volta
-09. Tra Due Minuti E' Primavera
-10. Per Te(   Читать дальше...   )Жанр: Italian PopПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2262CF94FCD7EB282EC0C7013BE8EA7AAC396D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476782   (85879) от 02.04.2012
-
-Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money (Maxi Version) 5:52
-02. Jasmin China Girl (Maxi Version) 6:30
-03. Devil's Rendezvous 7:03
-04. Malice & Vice 5:23
-05. Money (Ian's Radio Remix) 3:36
-06. In China (Instrumental) 6:09
-07. Pay The Highest Price 5:12
-08. Jasmin China Girl (Radio Version) 2:53
-09. Money (Radio Version) 3:40
-10. Megamix 9:26(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7324F465B5D9345752CDDB6CF5052726E12ECB65
 ```
 
 https://mybot314.ru/tekegram_catalog/

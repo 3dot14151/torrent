@@ -1,3 +1,177 @@
+###  Публикация: 1272384   (144790) от 27.12.2018
+
+Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 2007, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144790.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ultra [4:38]
+02. Blues from 'An American in Paris' [4:10]
+03. Mam Bongo [3:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1344711316EA48EB0D81DCECFBC0318566583CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435471   (144737) от 28.12.2020
+
+Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E lucevan le stelle [3:52]
+02. Tosca: Extraits du 1er Acte [5:14]
+03. Tosca: Extraits du 3eme Acte [5:40]
+04. Tosca: Improvisation sur le 3eme Acte [4:48](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00288127ECC5564D8F3D4B0C02F1F7CAB95A11D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435487   (144728) от 28.12.2020
+
+Enrico Pieranunzi & Horns - Evans Remembered (2001) Via Veneto Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song from M.A.S.H. [4:23]
+02. Funkallero [5:30]
+03. Elsa [6:10]
+04. Prelude (For the Left Hand) [1:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13612E2ED709E83A8CCE57409CDBA406DABA0887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435500   (144449) от 28.12.2020
+
+Harry Allen - The Bloody Happy Song (2020) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Bloody Happy Song
+2.Sweet Little Things
+3.I Got Lost In His Arms
+4.Too Close For Comfort(   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFCE830E74A0DD4B5DF06DF8887840BA57A6C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194981   (144424) от 28.12.2017
+
+Stan Kenton - City Of Glass (1947 - 1953) 1995, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thermopylae [02:57]
+02. Everything Happens To Me [03:03]
+03. Incident In Jazz [03:29]
+04. House Of Strings [04:18](   Читать дальше...   )Жанр: Big Band, Third StreamПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E401A198837D2D1EF0DB8FCE9E83700564BD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195253   (144283) от 28.12.2017
+
+Billie Holiday - The Essential Brunswick Recordings (1935 - 1939) 3CD, 2014, Not Now Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144283.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. These Foolish Things [03:21]
+02. Easy To Love [03:13]
+03. I Cried For You [03:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902032F74C35991036CAE368C76E40873785900C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678617   (144230) от 22.11.2023
 
 Stan Getz - Quartets (1950) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Bop>
@@ -569,178 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9903BE6F697E36E7522B30BA547CEEE5D98FEAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520438   (142113) от 28.12.2021
-
-The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exactly Like You [5:49]
-02. Cry Me a River [5:48]
-03. Teach Me Tonight [4:52]
-04. Take the 'A' Train [6:21](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2779EC0531361DC276ECAEA0EE457294BEEDF12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348897   (142080) от 29.12.2019
-
-Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Minor Blues [4:39]
-02. Five, Four and Three [3:34]
-03. Komonia [4:46]
-04. Midnight Mood [3:51](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9638CAC76B60465DD4D7DBC55ADD51B475125B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348858   (142065) от 29.12.2019
-
-Michael Feinstein - The Sinatra Project, Vol. II: The Good Life (2011) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirteen Women [3:03]
-02. Hallelujah I Love Her So [2:47]
-03. C'est Comme Ca [2:53]
-04. Is You Is or Is You Ain't My Baby? [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4235D0AD17B7C39AE40F3336676FC0B0BF6E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435755   (141726) от 29.12.2020
-
-Papik - Cocktail Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Christmas (feat. Dario Daneluz)
-02. Let It Snow (feat. Ely Bruna)
-03. Oh Happy Day (feat. Nadia Straccia & Alan Scaffardi)
-04. This Christmas (feat. Kenneth Bailey)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A0E7A02994C16209A0144318864D0A1683F582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272649   (141550) от 29.12.2018
-
-Claude Hopkins - 1937 - 1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday [3:12]
-02. Swingin' Down The Lane [2:57]
-03. Honey [3:10]
-04. June Night [2:36](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21695DA30C5E778F91E739F17603E1420269AFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272810   (141544) от 29.12.2018
-
-Frank Wright - Unity (1974) 2006, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unity Part I [27:29]
-02. Unity Part II [29:00]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753D9F9159CCC0427577B4FD6E9AAB463B8DE45C
 ```
 
 https://mybot314.ru/tekegram_catalog/

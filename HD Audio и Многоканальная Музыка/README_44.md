@@ -1,3 +1,322 @@
+###  Публикация: 269645   (289373) от 13.12.2010
+
+Pink Floyd - The Dark Side of the Moon (1973) (Vinyl Rip 24/192) [FLAC|Lossless] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Speak To Me (Поговори со мной) 01:00
+2. Breathe (Дыши) 02:50
+3. On The Run (Бегство) 03:53
+4. Time (Время) 06:45(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963156   (288950) от 07.12.2015
+
+Meat Loaf - Blind Before I Stop (1986) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. День казни · Execution Day  6:30
+2. Торговцы рок-н-роллом · Rock'n'Roll Mercenaries  5:00
+3. Убить и сбежать · Getting Away With Murder  3:50(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECDF6AE8E440EE3DAE6772249E5711FD0E8A699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963050   (288850) от 07.12.2015
+
+Paul McCartney - Flowers In The Dirt (1989) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. My Brave Face  3:18
+2. Rough Ride  4:44
+3. You Want Her Too  3:12(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FD3AA19720C2FDDF4DABE0ADFF89CBD138FA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080441   (288143) от 07.12.2016
+
+Давид Ойстрах - И. С. Бах - Сюита №2 си минор, Г.Ф. Гендель - Музыка на воде (1989) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_288143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+И. С. Бах. Сюита №2 си минор
+1. Ouverture  9:14
+2. Rondeau  1:34(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8076FFDAE30B7FA6A3E05687DE6B210D79A4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447629   (287369) от 07.12.2016
+
+Dire Straits - Love Over Gold  (1982) SHM-SACD /2011/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Progressive Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287369.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Telegraph Road - 14:20
+2. Private Investigations - 6:48
+3. Industrial Disease - 5:51
+4. Love Over Gold - 6:17(   Читать дальше...   )Жанр: Progressive Rock, RockПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005B58B1CAB77B63534F5A91DAE2DC521A524B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839120   (287217) от 27.11.2025
+
+The Beverley-Phillips Orchestra - Gold On Silver - 20 Gold Hits From The Silver Screen (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Ri] <Soundtrack, Theme>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_287217.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Big Country (From The Film Of The Same Name)
+A2 Moon River (From The Film ''Breakfast At Tiffany's'')
+A3 Lara's Theme ''Somewhere My Love'' (From The Film ''Dr. Zhivago'')
+A4 A Man & A Woman (From The Film Of The Same Name)(   Читать дальше...   )Жанр: Soundtrack, ThemeПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963735   (285125) от 09.12.2015
+
+Кипелов - Отражение (2013) [WavPack 2.0 32/192 | image+.cue (Vinyl-Rip) | Lossless]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сальери и его отражение [06:51]
+02 - Ария Надира [04:32]
+03 - Мёртвая зона [06:19]
+04 - Я свободен [07:15](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0692437317D1665851153A801944104FE2AB21F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964202   (283640) от 10.12.2015
+
+Peter Gabriel - So (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Rain (5:39)
+02. Sledgehammer (5:16)
+03. Don't Give Up (6:29)
+04. That Voice Again (4:54)(   Читать дальше...   )Производство: VirginЖанр: RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4A3DDACCF14D0DD34F765F28D8A825540FA04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081655   (282679) от 10.12.2016
+
+Гарри Гродберг - И. С. Бах - Токкаты (1975) [WavPack|192/32|tracks|Vinyl-Rip|Lossless] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Toccata In D Minor, B. 565  8:22
+Toccata In C Major, B. 564
+2. (Allegro)  6:14(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD12A25ED340DB6E47FBCCF0FF80D700A77E692E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 848422   (280867) от 13.12.2014
+
+Rod Stewart - It Had To Be You... (2003) [DTS 5.1 44.1 /16 | .wav+.cue (DVD-Audio)] <Pop/Rock Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280867.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You Go To My Head 4:19
+2. They Can't Take That Away From Me 3:25
+3. The Way You Look Tonight 3:49
+4. It Had To Be You 3:24(   Читать дальше...   )Жанр: Pop/Rock VocalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65056777BD045FB60FE3FDCB1F55BA33F85DD0FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082094   (280157) от 11.12.2016
+
+Modern Talking - Ready For Romance (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Italo-Disco, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Брат Луи (Brother Louie)  3:40
+02. Лишь мы вдвоем (Just We Two (Mona Lisa))  3:56
+03. Леди Лэй (Lady Lai)  4:56(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ABC07BE618FA632E5E68B9C35A4B681867409E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082282   (278409) от 12.12.2016
 
 Didier Marouani - Space Opera (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
@@ -422,331 +741,6 @@ A3.a Green Green(   Читать дальше...   )Жанр: PopПродолж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83786203FBC1C93B2EC2AC60ACB8DA97D7B35E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838580   (260648) от 23.11.2025
-
-VA - Original Rocking Hits. From The Soundtrack Of «Side By Side» (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Pop Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260648.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Rubettes - I Can Do It
-A2 Mac & Katie Kissoon - Sugar Candy Kisses
-A3 Hello - Games Up
-A4 Twogether - Side By Side (Together)(   Читать дальше...   )Жанр: Soundtrack, Pop Rock, GlamПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A248C5C86247D34F8A8BBD7B13610ECADBBB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500918   (258384) от 25.05.2012
-
-Eric Clapton - Complete Clapton - Boxset 4 vinyl LP (2007) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258384.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1 - Running on Faith (Unplugged) - [06:15]
-C2 - Motherless Child - [02:58]
-C3 - Change the World - [03:55]
-C4 - My Father's Eyes - [05:22]
-
-D1 - Riding With the King - [04:23]
-D2 - Sweet Home Chicago - [05:16]
-D3 - If I Had Possession Over Judgment Day - [03:26]
-D4 - Ride the River - [04:33]2007 ( October 9)Жанр: RockПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500216   (258112) от 24.05.2012
-
-Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258112.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Metal Heart [5:18]
-2 - Screaming for a Love Bite [4:19]
-3 - Up to the Limit [5:00]
-4 - Head Over Heals [5:55]
-5 - Love Child [4:40]
-6 - Living for Tonite [3:51]Жанр: Heavy MetalПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837847   (257818) от 20.11.2025
-
-Tommy Kinsman And His Orchestra - Holiday For Dancers (1960) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop, Light Music>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quicksteps
-A La Panse; Tua; Banjo Boy; J'attendrai; Swedish Rhapsody; Ciao, Ciao Bambina; Lazarella; Que reste-t-il de nos amours; Ooh la-la
-Waltzes
-A2 Pigalle; Tulips From Amsterdam; One Two Drink Up; At Last, At Last(   Читать дальше...   )Жанр: Pop, Light MusicПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112EFA19BD9CCDE38AEFD1C81AC6090B61C77F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838016   (257817) от 20.11.2025
-
-Al Caiola - Spanish Guitars (1962) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257817.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Besame Mucho
-A2 Mambo Jambo
-A3 My Shawl
-A4 Piel Canela(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1A6A6CBBB93638BCE07F09C627F588EA69E7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838027   (257750) от 20.11.2025
-
-Memoriam - Studio Albums (6 releases) (2017-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memoriam - британская дэт-метал группа из Бирмингема, Англия.2017 - For the Fallen
-2018 - The Silent Vigil
-2019 - Requiem for Mankind
-2021 - To the EndЖанр: Death MetalПродолжительность: 04:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B02044490AFA86614B16BDBD7FC5C60FA03A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837526   (257520) от 17.11.2025
-
-Haddah - Studio Albums (3 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haddah - метал-группа из Италии, образованная в 2001 году.2014 - Through the Gates of Evangelia
-2015 - Path to Nefrath
-2025 - AetereaЖанр: Melodic Death MetalПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64B0287768743605BF6D22EE26E25D8FDAA2CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624356   (255518) от 05.04.2023
-
-Various - Let's Break (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255518.jpg" />
-</div>
-
-
-###  Подробнее
-
-What Fun –	The Right Side Won
-Vanessa –	Obsession
-Pure Energy –	Love Game
-Lafleur –	Dance Till We Drop(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C9E0021C95E737A6D918DC2A50EDEF9B9AAB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624832   (255435) от 07.04.2023
-
-Two Of Us - Inside Out (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255435.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Inner Voices 4:24
-A2 I'll Be Around 4:29
-A3 Building An Empire 4:13
-A4 We Got A Break It Out 3:49(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB79DA06D4ED4937142EDE4FEE9B68A0DF7E927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624897   (255414) от 08.04.2023
-
-Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255414.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mr. Roboto
-A2 Cold War
-A3 Don't Let It End
-A4 High Time(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD76E048CE74CB7EB0D235AFE84112F604B6A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625027   (255339) от 10.04.2023
-
-Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255339.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Manic Monday
-A2 In A Different Light
-A3 Walking Down Your Street
-A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
 ```
 
 https://mybot314.ru/tekegram_catalog/

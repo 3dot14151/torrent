@@ -1,3 +1,176 @@
+###  Публикация: 1717870   (111048) от 22.04.2024
+
+Paul Motian - Monk In Motian (1988) JMT [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crepuscule with Nellie [4:57]
+02. Justice (Evidence) [4:41]
+03. Ruby My Dear [4:52]
+04. Straight No Chaser [4:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57112BA636E98B7AE7F7FE61B91BF47DE10F95D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717865   (111042) от 22.04.2024
+
+Zoot Sims - Swing King! (1947 - 1953) 2CD, 2004, Proper Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystals [3:15]
+02. Zoot & Zoot [3:24]
+03. My Silent Love [2:40]
+04. Jane-O [2:44](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8437B30BDDFEA60AE1D675AF7D3DBA65AF282272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717883   (111034) от 22.04.2024
+
+Ronny Smith - Struttin (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up (4:26)
+02. In My Eyes (4:42)
+03. Rubik's Cube (4:36)
+04. Struttin (4:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE59B6F824E724CFE8DDEDB9DBF2AEBAD437D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717869   (111027) от 22.04.2024
+
+Pat Martino - Live! (1972) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Door [17:47]
+02. The Great Stream [10:32]
+03. Sunny [10:27]Жанр: Post-Bop, Jazz FusionПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740BC83E914662F3ADAFBEC4FA6325E98B4F9CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718142   (111008) от 23.04.2024
+
+Carmen McRae - It Takes A Whole Lot Of Human Feeling (1973) 1997, Charly Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Takes a Whole Lot of Human Feeling [3:48]
+02. I Fall in Love Too Easily [3:48]
+03. Hey John [3:23]
+04. Where Are the Words [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273D1DF716D10713C9198ECC1707DD1BA82B9788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718146   (111007) от 23.04.2024
+
+Gerald Albright - 30 (2018) Bright Music Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sooki Sooki [5:07]
+02. Just Between Us [5:38]
+03. Bermuda Nights [4:45]
+04. Road to Peace [5:27](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90909608565E503EAA507A533A01374801F6F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718148   (111002) от 23.04.2024
 
 Bonnie Bowden - The Great American Songbook (2012) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -571,180 +744,6 @@ Judy Wexler - Dreams & Shadows (2008) Jazzed Media [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA3B7B10C348EEE90FF59A5554ADF7FE025FDD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718742   (110692) от 27.04.2024
-
-Judy Wexler - Easy on the Heart (2005) Jazzopolis [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment to Moment [5:41]
-02. I'm in Love [4:41]
-03. Humdrum Blues [3:22]
-04. Easy on the Heart [5:00](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A462C7B4654987EEBE340A16033D7FB3EAD790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719142   (110631) от 28.04.2024
-
-Judy Wexler - Under A Painted Sky (2011) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Wonderful [4:35]
-02. And How I Hoped for Your Love [4:38]
-03. An Occasional Man [4:20]
-04. Don't Wait Too Long [3:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D228868D53758834FE6CC9F41572A7EEFBAAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719133   (110622) от 28.04.2024
-
-Bobby Watson & Horizon - No Question About It (1988) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Corn Flakes [6:25]
-02. Forty Acres and a Mule [5:43]
-03. What Can I Do for You [7:22]
-04. Blood Count [4:13](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76B378DBA3973D35E21CA3EE949200B6CAF79B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719139   (110612) от 28.04.2024
-
-Rob Stoneback Big Band - Caught In The Web (1996) Sea Breeze [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caught in the Web [3:19]
-02. Canadian Sunset [3:34]
-03. Lullaby of Birdland [4:08]
-04. Road Apple [4:24](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5AA929BE1D119903539CFEC4223BDBEDD5275BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719135   (110608) от 28.04.2024
-
-Barbara Morrison featuring Houston Person - A Sunday Kind Of Love (2010 - 2012) 2013, Savant [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just a Lucky So and So [4:42]
-02. Soft Winds [3:46]
-03. The Green Door [3:54]
-04. Good Morning Heartache [4:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6418F661AABA516C5B9C8FA15720B8DCC32DCFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719624   (110506) от 30.04.2024
-
-Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night Erotic Jazz Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Caresses (3:31)
-02. Silken Serenade (4:01)
-03. Lustrous Embrace (4:21)
-04. Sensual Nocturne (4:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD88DA7B84E1D3491784D3B3981876C887BB636D
 ```
 
 https://mybot314.ru/tekegram_catalog/

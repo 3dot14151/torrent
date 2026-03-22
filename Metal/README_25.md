@@ -1,3 +1,32 @@
+###  Публикация: 1003886   (841864) от 04.04.2016
+
+Papa Serpiente - Rock Evolution (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841864.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Rebirth
+3. Angel Of Mine
+4. Face The Truth(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04AC00FD10A47E43819A00D93AF77066A2D6883B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003884   (841791) от 04.04.2016
 
 Final Chapter - Legions Of The Sun (2016) [MP3|320 кб/с] <Symphonic Power Metal, Speed Metal>
@@ -732,35 +761,6 @@ Booze Control - The Lizard Rider (2016) [MP3|320 кб/с] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07E627F962807901DA8B6B21EBEDDC1B1277893F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007377   (823307) от 14.04.2016
-
-Rage - My Way (2016) Single [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Way    04:20
-02. Black In Mind (2015)    04:10
-03. Sent By The Devil (2015)    04:43
-04. Apuesto A Ganar (Spanish Version Of My Way)    04:21Жанр: Power MetalПродолжительность: 00:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17E6621DE8821AE5B54C5721587EDB34801D9AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

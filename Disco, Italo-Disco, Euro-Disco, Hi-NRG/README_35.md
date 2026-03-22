@@ -1,3 +1,32 @@
+###  Публикация: 837929   (314635) от 11.11.2017
+
+VA - Sunlover Records Compilation Vol. 1-3 (2014-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Dreamwave, Synthwave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VHS Dreams - Space Race (5:34)
+02. RetroSynther - Technocity (6:05)
+03. Les Chic Voltage - Disco Gallo 84 (3:21)
+04. Apollo Zapp feat Reo - Hula Hoop! (3:03)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Dreamwave, SynthwaveПродолжительность: 03:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F226FF653E974D9F1187C74F58C61D656DFFEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959437   (314381) от 25.11.2015
 
 VA - Disco Discharge (2009-2012) [MP3|184-320 кб/с]<Disco, Italo Disco, Hi NRG, Funk>
@@ -711,35 +740,6 @@ VA - The Original Maxi-Singles Collection: Disco Fox 80 Vol.6 (2016) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28954EB70282C492E43ABC1BF61DF337F9AC7123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185519   (291722) от 22.11.2017
-
-VA - Deep Disco Culture (2006, 2007) Underground Disco Rarities & Future Club Classics - 4CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acuna, Marta - Dance Dance Dance (Original 12 Inch Mix) (6:15)
-02. The Anvil Band - I'll Be True (Original Album Version) (3:15)
-03. Moment Of Truth - So Much For Love (Original Tom Moulton 12 Inch Instrumental Remix) (5:42)
-04. Udell - Won't You Try (Original 12 Inch Mix) (5:37)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 05:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DE531AE551D864E336EEF298FD2073347C6611
 ```
 
 https://mybot314.ru/tekegram_catalog/

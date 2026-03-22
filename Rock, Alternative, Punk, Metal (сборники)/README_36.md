@@ -1,3 +1,235 @@
+###  Публикация: 48749   (271779) от 30.11.2018
+
+Moscowallica - A Russian Tribute to MetallicA '2000
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ROSSOMANHAAR - The Call Of Ktulu
+2. E-ZONE - Harvester Of Sorrow
+3. AZEROTH - The Thing That Sould Not Be
+4. SULTAN - Fade To Black and No Leaf Clover(   Читать дальше...   )Жанр: Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DDC2FAB0B9E3E46FFFC99354C5D31017F3BD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847800   (270742) от 01.12.2018
+
+VA - 50 Лучших Баллад Навсегда (2014) [MP3|320 кб/с]<Rock, Metal, Art>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rainbow - Temple of the king
+02 Uriah Heep - Sunrise
+03 UFO - Belladonna
+04 Shoking Blue - Daemon Lover(   Читать дальше...   )Жанр: Rock, Metal, ArtПродолжительность: 04:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6166ACDD1403D5DBE069FBB8DBF7523FE6BD2ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338407   (269556) от 15.11.2019
+
+Within Temptation - Edge of the World (Compilation) (2019) 2CD [MP3|320 Kbps] <Symphonic Rock, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jane Doe
+02. Empty Eyes
+03. Paradise
+04. Iron(   Читать дальше...   )Жанр: Symphonic Rock, Symphonic MetalПродолжительность: 01:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE437DB8802A6F4E8B850399499D41D39F063AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338734   (268129) от 17.11.2019
+
+VA - Welcome Aboard: Advanced Rock Box (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Black Mamba - My Blood Diamond
+002. Hank Erix - Turn To Darkness
+003. Broken Sun - On
+004. Rich Davis - Faceless(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 11:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743EDC05477724DAF856F8AD7BACCC4DF7DEBEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190645   (266907) от 10.12.2017
+
+VA - Heavy Metal Collections Vol. 5 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266907.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. W.A.S.P. - Mean Man (1989) (4:51)
+02. Lunatica feat. John Payne - Farewell My Love (2010) (5:17)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 06:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2440ED4FA7A52E0C5FD3A7C29F6BE7E327ACBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190658   (266834) от 10.12.2017
+
+VA - Heavy Metal Collections Vol. 1 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01.Judas Priest - Turbo Lover (2008) (5:34)
+02.Running Wild - Preacher (1984) (4:22)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 04:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2A6446384CA988C70277DAACACFCBBE115EA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267444   (266654) от 06.12.2018
+
+VA - Time Of Revelation: Hard Rock Box (2018) [MP3|320 Kbps] <Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Thunder - No One Gets Out Alive
+002. Breaklights - Call It Off
+003. Family Meeting - Four Months Of Rain
+004. Freedumb - Stuck In A Dream(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 06:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F464BE55ED4C30DBCEB1623CB975BC5EE3BED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191001   (265923) от 11.12.2017
+
+VA - Heavy Metal Collections Vol. 3 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265923.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Herman Frank - Heal Me (2009) (5:05)
+02. Tipton, Entwistle & Powell - Never Say Die (2006) (4:48)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 04:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB1AE430D8DFBFC82AEF71558EAE2B517B2FC1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190978   (265849) от 11.12.2017
 
 VA - Hard Rock Division Vol.02 (2017) [MP3|320 Kbps] <Hard Rock>
@@ -537,250 +769,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494276   (250653) от 09.05.2012
-
-Ночные снайперы - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250653.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 31-я весна
-2. Рубеж
-3. Блины по-снайперски
-4. Кошка московская
-5. Бонни & Клайд
-6. Стань моей птицей
-7. Морячок
-8. Гонщик
-9. День рождения
-10. Цунами(   Читать дальше...   )2012Жанр: RockПродолжительность: 02:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833996   (250603) от 04.11.2025
-
-VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <Alternative, Screamo>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Austerlitz - Я помню солнечные дни (04:11)
-02. Somnambula - Вой (03:42)
-03. Летние войны - Москва (Ты знала много) (03:56)
-04. The Bride Of Changes - Чтоб ты научилась слышать (06:42)(   Читать дальше...   )Жанр: Alternative, ScreamoПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564548   (249622) от 20.07.2022
-
-Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодичный и очень объёмный хард-рок. Обладатели хороших аудиосистем будут в восторге. Баллады Брайана Адамса - это вообще отдельное направление в искусстве. Одна только Do I Have To Say The Words чего стоит. К сожалению, начиная с 1996 года в творчество музыканта прокралась альтернатива и отравила фирменное звучание, объём умер, а гитарный драйв сильно похудел. (   Читать дальше...   )01. Is Your Mama Gonna Miss Ya
-02. Hey Honey, I'm Packing You In
-03. Can't Stop This Thing We Started
-04. Thought I'd Died And Gone To Heaven(   Читать дальше...   )Жанр: RockПродолжительность: 04:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF6EA0B48CE4674477554C6E2E734AD468B8595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494445   (249280) от 09.05.2012
-
-Мастер - Лучшая Коллекция (2012) [MP3|320 кб/с]<Thrash Metal, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интродукция
-02. Лабиринт
-03. С кем ты?
-04. Берегись
-05. Руки прочь
-06. Кто кого
-07. Тореро
-08. Щит и меч
-09. 2000 лет (Иуда)
-10. Мастер(   Читать дальше...   )2012Жанр: Thrash Metal, Heavy MetalПродолжительность: 02:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494D487599C1A256AC3C77CE622808B842752E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565802   (245764) от 25.07.2022
-
-Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звучание этой группы невозможно перепутать ни с какой другой. А вокал Тома Кейфера сразу залетает в память и остается там навсегда. Всегда считал что все альбомы Cinderella сведены и записаны идеально и японские оригиналы звучат великолепно, пока не услышал данный ремастер. Звук просто улётный, детальный, мощный, чистый и уделает многие современные записи. Целостность (   Читать дальше...   )01. Night Songs
-02. Shake Me
-03. Nobody's Fool
-04. Nothin' For Nothin'(   Читать дальше...   )Жанр: RockПродолжительность: 03:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566549   (244896) от 29.07.2022
-
-Europe - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная Europe. Эту команду я знаю с самого раннего детства, когда о рок-музыке еще понятия не имел и букву «р» невыговаривал, но Final Countdown знал наизусть) В сборник вошли 3 классических и самых лучших альбома группы, их целостность полностью сохранил. Материал взят с удачно ремастированных изданий, в них звучание богаче и насыщенее чем в оригиналах. После (   Читать дальше...   )01. The Final Countdown
-02. Rock The Night
-03. Carrie
-04. Danger On The Track(   Читать дальше...   )Жанр: RockПродолжительность: 04:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658849567290F4A0E609FDBA276B1A8E2BE789B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567594   (243938) от 03.08.2022
-
-Kingdom Come - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243938.jpg" />
-</div>
-
-
-###  Подробнее
-
-За свою историю, группа Kingdom Come и её лидер, вокалист Lenny Wolf, создали 6 крутейших альбомов. Дальнейшее творчество присело отдохнуть. Целостность классических альбомов почти полностью сохранил и дополнил лучшими песнями с остальных изданий. Качество записи так себе. Детализация низкая, звук зернистый и какой то связанный, словно пленник. Но другого уже не (   Читать дальше...   )01. Living Out Of Touch
-02. Pushin' Hard
-03. What Love Can Be
-04. 17(   Читать дальше...   )Жанр: RockПродолжительность: 05:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA9422CA3CD2E39A87BC8174E1EFEBC41CC28E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567612   (243867) от 03.08.2022
-
-VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аракс, Геннадий Трофимов, Феликс Иванов - Эпилог (из мюзикла Звезда и смерть Хоакина Мурьеты (01:48)
-02. Поющие Гитары - Вечерний город (01:35)
-03. Нина Урбано, Тайфуны - Циганерия (04:08)
-04. Оркестр Госкино СССР - Модный танец (из к ф Служебный роман) (02:25)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
 ```
 
 https://mybot314.ru/tekegram_catalog/

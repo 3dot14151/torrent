@@ -1,3 +1,177 @@
+###  Публикация: 1701728   (116175) от 22.02.2024
+
+The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear a Rhapsody [3:56]
+02. Meditation [3:55]
+03. In Your Own Sweet Way [4:08]
+04. A Sleepin' Bee [5:58](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CC1E8C7B99FAC125FFB11292C6A37FFAB0A30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701476   (116173) от 22.02.2024
+
+Marian McPartland - Plays The Music of Mary Lou Williams (1994) Concord Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scratchin' in the Gravel [4:36]
+02. Lonely Moments [2:52]
+03. What's Your Story, Morning Glory? [4:27]
+04. Easy Blues [3:07](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E41675BFB0DDCF39AFD2DFF307E9485637E629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701752   (116172) от 22.02.2024
+
+Donald James Duncan - The Great Mystery (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surfside Run (3:30)
+02. Irie Sunrise (4:17)
+03. A New Dawn (4:23)
+04. Words Don't Convey (3:23)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FFE140E006EF6244038B7241D1BA4B29F3C672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701478   (116170) от 22.02.2024
+
+Donald Byrd Sextet - Getting Down To Business (1990) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme for Malcolm [7:42]
+02. That's All There Is to Love [5:45]
+03. Pomponio [10:21]
+04. I Got It Bad and That Ain't Good [8:31](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62787124E03F96FA83D9ED8121247763B89E0003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701755   (116167) от 22.02.2024
+
+Drew Davidsen - Power Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Spice Music - Power Trip (4:01)
+02. On Repeat (4:13)
+03. Exit Strategy (3:44)
+04. Aquatic Journey (4:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0011C5E859651CAC52F42C82905A051A628AB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701724   (116166) от 22.02.2024
+
+Blue Mitchell - Blue's Moods (1958 - 1960) 2011, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_116166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Close My Eyes [5:56]
+02. Avars [4:08]
+03. Scrapple from the Apple [4:00]
+04. Kinda Vague [6:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF2337C78B013E9C7B4C31B6B226689B1766C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701756   (116165) от 22.02.2024
 
 Hipshack - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -571,180 +745,6 @@ Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69D1B9310219B36B2E9881EEC3053774728D0293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702480   (115674) от 25.02.2024
-
-Rodney Whitaker - All Too Soon: The Music Of Duke Ellington (2017) 2019, Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cotton Tail [4:17]
-02. All Too Soon [3:42]
-03. Take the 'A' Train [5:28]
-04. Just Squeeze Me [7:01](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Vocal JazzПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15760027EE0766319EB194AC89F31C15A413D12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702483   (115673) от 25.02.2024
-
-Sullivan Fortner - Moments Preserved (2018) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changing Keys (Wheel of Fortune Theme) [4:56]
-02. Pep Talk [4:24]
-03. Elegy for Clyde Kerr, Jr. [5:12]
-04. Beans and Cornbread [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7296638043FA07B6FFC5BB338DC6B13149B9074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702506   (115663) от 25.02.2024
-
-Kjell Karlsen Big Band - Edvard Grieg In Jazz Mood (2008) Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norwegian Dance No.2 [4:20]
-02. I Love But Thee [4:39]
-03. Goodnight Song for Dobbin [5:12]
-04. In the Hall of the Mountain King [3:29](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE346636885E3568A224728F44B861CA53BCCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702779   (115482) от 26.02.2024
-
-Blue Mitchell - Graffiti Blues (1973) 1993, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graffiti Blues [7:19]
-02. Yeah Ya Right [5:31]
-03. Express [5:09]
-04. Asso-Kam [7:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADC9EA68B1DAB6BB8FA2786A45C27F2A2B4E1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702991   (115312) от 27.02.2024
-
-Einar Haavik Kvartett - On A Sentimental Journey (1999) Bjarne Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cobra [3:37]
-02. Sentimental Journey [4:19]
-03. How Insensitive [3:53]
-04. Don't Explain [6:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1E39F5D1047ECC961EBBF26A109958E616464E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703250   (115175) от 28.02.2024
-
-The Sahib Shihab Quintet - Seeds (1968) 2008, Rearward [FLAC|Lossless|tracks + .cue] <Hard Bop, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeds [4:11]
-02. Peter's Waltz [5:06]
-03. Set Up [2:59]
-04. Who'll Buy My Dream [3:58](   Читать дальше...   )Жанр: Hard Bop, Afro-Cuban JazzПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA3A68474F4ED3636D46739A7D0ADB9F60B17D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

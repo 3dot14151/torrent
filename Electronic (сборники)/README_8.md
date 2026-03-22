@@ -1,3 +1,61 @@
+###  Публикация: 1462262   (1021326) от 13.04.2021
+
+VA - Beatport Electro Techno: Sound Pack #274 (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для любителей Техно Электроники , а так же музыкальных гурманов новая подборка фантастических треков последнего месяца. Модное звучание и необходимый минимум инструментов – этого достаточно, чтобы народ на танцполе не сбился с ритма и продолжал активно двигаться в такт приятной и лёгкой музыке!001. !Nertia - Iku
+002. Aura Minimum - Deep Construct
+003. Marie Vaunt - Hex
+004. Jala - Not Surrender(   Читать дальше...   )Жанр: Techno, Electro MinimalПродолжительность: 10:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C97C16A984A7D1F8DCFE9BFAC5ECFBC6A5ED5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462229   (1021316) от 13.04.2021
+
+VA - E-Dance: Clubbing Electro House (Vol.01) (2021) [MP3|266-320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для поклонников танцевального направления музыки есть отличный сборник, который подарит вам много ярких эмоций во время прослушивания. Такую музыку не стыдно взять на вечеринку или поставить в каком-нибудь ночной клубе, если вы ди-джей. А выбрать есть из чего, поскольку все мотивы очень разнообразные, да и продолжительность звучания почти девять часов.001. Stbn - Long Gone
+002. Sashman & Withard - Open Your Heart
+003. Natema - Grados
+004. Borja Md - Poky Sonic(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8616916ECD17E52501DC733749C1A86C6DDA71C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462087   (1021309) от 13.04.2021
 
 VA - Vocal Trance Hits (2021) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Deep House: Luxe Mood Electro Sound (2021) [MP3|320 Kbps] <Deep House, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1C90129892EFD740306F2B2898C6E94F74D2885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466941   (1018078) от 02.05.2021
-
-VA - Record Super Chart 01.05.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eneli, Monoir - 3 to 1 (3:39)
-02. Tiesto - The Business (2:44)
-03. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)
-04. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3785AA5CFAAF6961B8250D0A0A59B971BDA0C3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468950   (1016781) от 10.05.2021
-
-VA - Beatport Deep House: Sound Pack #280 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодичность, индивидуальный формат в аранжировке, классические струнные, душевный и виртуозный вокал, кристально возвышенное, отшлифованное до идеала, звучание – всё это охарактеризовывает композиции апрельского 280-го микса Deep House музыки от известного лейбла.001. Librium Project - Ghetto Blessing
-002. Benjamin Bryan - Zonero
-003. Martinoresi - Put Me Out
-004. Controlwerk & Matter - Onyx(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9999EF9FE9FFF955BE13AC41118C9DED6E87C70E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1024936   (714134) от 10.06.2016
+
+Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joy of Quiet Rain Mix
+02. Soft Focus Ocean Mix
+03. Velvet Morning Rain Mix
+04. In Fields of Peace Ocean Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B50D5D512837B0C2FFE67D04A0860F69449DE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024907   (713994) от 10.06.2016
 
 Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
@@ -725,35 +754,6 @@ Jupiter Panic - Distant Tomorrow (2016) [MP3|320 кб/с] <Electronic, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19563F5FF36B82E55A07B5C646BEE6619C3E2906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134081   (691069) от 14.05.2017
-
-Terry Oldfield and Carlos Garo - Sky Dancer (2017) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Dancer
-02. Reach Out
-03. Orbital
-04. The Man with No Face(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237FB0B37098948431ABF6F2644C864FBA5355B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

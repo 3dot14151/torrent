@@ -1,3 +1,32 @@
+###  Публикация: 1028201   (692759) от 21.06.2016
+
+VA - Jazz Lounge: Beautiful Jazz Moments, Cool Piano, Jazz Friday Night, Smooth Jazz (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz 2016 - Jazz Lounge
+02. New York Jazz Lounge - Romantic Jazz
+03. Coffee Shop Jazz - Bossa Scousa
+04. Chilled Jazz Masters - All That Jazz(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF63B5AE0E29F3D63577327F32309E577090C378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133908   (691064) от 14.05.2017
 
 VA - Woman Vocal In Jazz (2017) [MP3|192-320 Kbps] <Jazz, Smoot, Vocal Jazz>
@@ -716,35 +745,6 @@ VA - Blues Rock Drive 4 [4CD] (2018) [MP3|320 Kbps] <Blues Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E67BBCAA789524FE956B80D24A92C821013608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143219   (637078) от 17.06.2017
-
-VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637078.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Instrumental Jazz Music Ambient - Soothing Jazz Music  2:50
-002.  Good Morning Jazz Academy - Lucid Dreaming  3:54
-003.  Wake Up Music Paradise - Night Walk  3:28
-004.  Jazz for Study Music Academy - Sweet Music (Activities For Children)  3:11(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929A54B9FF6A996070A1542CE4D09A9DD11B318
 ```
 
 https://mybot314.ru/tekegram_catalog/

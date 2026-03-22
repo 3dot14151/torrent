@@ -1,3 +1,125 @@
+###  Публикация: 1172229   (393969) от 07.10.2017
+
+VA - Best Of 2017 - Die Hits Des Jahres (2017) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393969.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Luis Fonsi - Despacito (feat. Daddy Yankee)  3:48
+02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
+03.  Axwell & Ingrosso - More Than You Know  3:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC422BF8E449C975AEDBBD290EEA780A8CDFD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171985   (393922) от 07.10.2017
+
+Lara Fabian - Camouflage (2017) [MP3|320 Kbps] <Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Growing Wings (2:58)
+ 02. Chameleon (3:19)
+ 03. If I Let You Love Me (3:36)
+ 04. Choose What You Love Most (Let It Kill You) (3:53)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33709A1AF627E93C33910E9F27A56B3F6C926935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172514   (393048) от 08.10.2017
+
+Gwen Stefani - You Make It Feel Like Christmas (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells
+02. Let It Snow
+03. My Gift Is You
+04. Silent Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A73A10756A194FC820E663D0E0B00FC830437BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568745   (392918) от 02.11.2012
+
+Jeanne Mas - Le Disque D'or (2012) [MP3|320 кб/с]<French Pop, Electropop, Disco, Chanson Francaise>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.En rouge et noir
+02.Toute première fois
+03.Johnny, Johnny
+04.Sauvez moi
+05.L'enfant
+06.Coeur en stéréo
+07.Tous les cris les S.O.S
+08.Femme d'aujourd'hui
+09.Lisa
+10.Lola(   Читать дальше...   )Жанр: French Pop, Electropop, Disco, Chanson FrancaiseПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD73A72CDA7381C547885D0873FF181D18EFDB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172564   (392890) от 08.10.2017
 
 VA - 101 Power Ballads (2017) [MP3|320 Kbps] <Pop, Rock>
@@ -647,123 +769,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEE78C8A253F80D1B9E0865BE5BD0312522177E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431203   (381247) от 10.10.2018
-
-Marie Laforet - L'integrale Festival 1960/1970 (1998) [MP3|320 kbps]<French pop, сhanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_381247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мари́ Лафоре́ (фр. Marie Laforêt, настоящее имя Майте́на Мари́ Брижи́тт Думена́к, фр. Maïtèna Marie Brigitte Doumenach; род. 5 октября 1939, Сулак-сюр-Мер, департамент Жиронда, Франция) — французская певица и актриса.
-В 1959 году, в возрасте 20 лет, подменяя заболевшую сестру, Лафоре победила на конкурсе юных дарований. (   Читать дальше...   )1 Saint-Tropez Blues
-2 Tumbleweed
-3 Tu Fais Semblant
-4 Les Vendanges De L'amour(   Читать дальше...   )Жанр: French pop, сhansonПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068462   (380612) от 01.11.2016
-
-VA - Underground Nu-Disco Sessions Vol.7 (2016) [MP3|320 Kbps] <Soulful, Nu Disco, Indie Dance,>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Aristocrat - Miami
-02. Lo-Koality – Fading
-03. Alan De Laniere - It's The Beat (Docolv Mix)
-04. Turntable Actor Chloroform - Junatik Tracker(   Читать дальше...   )Жанр: Soulful, Nu Disco, Indie Dance,Продолжительность: 02:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3BC55809CBF723946633462F1C0F3F58570C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415350   (378946) от 11.10.2020
-
-Caelestium - Caelestium (1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Stars  (3:13)
-02. Cool Fire  (3:32)
-03. Radical Man  (3:19)
-04. Man  (4:32)(   Читать дальше...   )Жанр: Electronic, Space Rock, DiscoПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AA266DFE881A65E25568F2DFA9D8813939F7C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175604   (378823) от 18.10.2017
-
-Patrick Juvet - 2 Albums (1978, 1979) Reissue CD [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два малоизвестных альбома в стиле диско-поп и на английском языке из всей дискографии  шансонье 70-80х Патрика Жюве из Швейцарии. Второй предлагаемый альбом явно дал толчок для дальнейшего творчества королю хитов 80-90х - Дитеру Болену.01. Got A Feeling (3:46)
-02. Another Lonely Man (4:04)
-03. Where Is My Woman (7:14)
-04. I Love America (14:00)Жанр: Electronic, Pop, DiscoПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70BF6D4B3B027EF478A2D6F87C9C6C660C8FCB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

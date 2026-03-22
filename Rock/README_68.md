@@ -1,3 +1,145 @@
+###  Публикация: 1417747   (319321) от 04.11.2020
+
+Deep Purple - In Rock (1970) Self-made Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Hard Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Speed King (04:23)
+02-Bloodsucker (04:16)
+03-Child In Time (10:22)
+04-Flight Of The Rat (07:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71329E3D8A89D7A6A4370B78A8A4A1677EA81266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959193   (319129) от 23.11.2015
+
+Slade - Alive At Reading (1980) Bootleg [MP3|192 кб/с]<Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Back Home
+02. Wheels Ain`t Coming Down
+03. You`ll Never Walk Alone
+04. Moma Were All Crazy Now(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3955D36F8858B6D769B8E79D64C7D27698058BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182218   (319092) от 09.11.2017
+
+Kid Rock - Sweet Southern Sugar (2017) [MP3|320 Kbps] <Rock, Country Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319092.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Greatest Show On Earth
+2. Po-Dunk
+3. Tennessee Mountain Top
+4. I Wonder(   Читать дальше...   )Жанр: Rock, Country Rock, Southern RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB4BB8D20E4B4E5486B89352DBA59AC16780BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692049   (318846) от 28.11.2013
+
+Paul McCartney - 73 Albums, 31 Singles (1970-2013) Discography [MP3|320 кб/с]<Rock, Electric, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_318846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэр Джеймс Пол Маккартни — один из самых известных музыкантов и композиторов XX века, участник легендарной группы "The Beatles". На протяжении своей сольной карьеры записал десятки пластинок в самых разных направлениях музыки, от рока и поп-музыки до классики, эмбиента и авангарда. Дискография составлена согласно сайту paulmccartney.com (из всех альбомов (   Читать дальше...   )Жанр: Rock, Electric, ClassicalПродолжительность: 00:13:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582864   (318769) от 11.10.2022
+
+Roxette - Look Sharp! (1988) Reissue, 1994, EMI [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look
+02. Dressed For Success
+03. Sleeping Single
+04. Paint(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB23CB6BD480956BA5785D50D7BCB282176A792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332101   (318659) от 18.10.2019
 
 Keith Forsey - Dynamite (1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
@@ -597,151 +739,6 @@ Boneyard Dog - Bluesbound Train (2016) [MP3|320 Kbps] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3327ADF083652123FA2B7E4D58B396416DBAAB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422045   (312851) от 07.11.2020
-
-AC/DC - Johnson City 1988 (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatseeker
-02. Shoot To Thrill
-03. Dirty Deeds Done Dirt Cheap
-04. Back In Black(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4B5115142AD3D9AA7298A09A50893313BB76FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332783   (311696) от 21.10.2019
-
-Mickey Thomas - Alive Alone (серия "Другие восьмидесятые") (1981) CD, Reissue, 2018,  Wounded Bird Records [MP3|320 Kbps] <Soft Rock, Pop Rock, Reggae>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сольный альбом вокалиста Jefferson Starship и Starship.01. She's Got You Running
-02. Alive Alone
-03. Maybe Tomorrow
-04. Following Every Finger(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, ReggaeПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93031559885FC66FB6D20AEB3817C22B1268843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422377   (310713) от 08.11.2020
-
-Juicy Lucy - Juicy Lucy (1995) Reissue, Remastered, 2010, Japanese Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Makes Me Go Down (04:29)
- 02. Please Please (05:04)
- 03. Mom's Apple Pie (03:52)
- 04. Come For Me Lady (05:29)(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1D6874A4C1DC2E21C4B518856E0232F01624EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183387   (310077) от 13.11.2017
-
-Janis Joplin - The Television Broadcast Sessions 1968 -1970 (2017) [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Piece of my Heart (Live TV Pop Show Sweden 7th April 1969) (3:44)
-02.  Summertime (Live TV Pop Show Sweden TV 7th April 1969) (4:56)
-03.  Me (Live TV Pop Show Sweden 7th April 1969) (4:13)
-04.  Work Me Lord to Love Somebody (Live TV Pop Show Sweden 7th April 1969) (7:23)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BCFF72C7670E2B04F6A7EC31FF937038B29321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260723   (309977) от 08.11.2018
-
-Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can The Can
-02. Daytona Demon
-03. All Shook Up
-04. Keep A Knockin'(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
 ```
 
 https://mybot314.ru/tekegram_catalog/

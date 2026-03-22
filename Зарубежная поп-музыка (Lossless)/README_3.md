@@ -1,3 +1,206 @@
+###  Публикация: 1441334   (1037762) от 21.01.2021
+
+Selena Gomez - Rare (Box Set, Limited Edition, Special Edition ) - [Japan] (2020) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rare (03:4)
+02. Dance Again (02:50)
+03. Look At Her Now (02:42)
+04. Lose You To Love Me (03:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDA8956DECB543A510D5181F6703749F89D85C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442026   (1037242) от 23.01.2021
+
+Henk van Daam - Millionen Kusse (2014) [FLAC|Lossless|image + .cue] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037242.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wann
+2. Millionen Küsse
+3. Ich steh dir zur Seite
+4. Wann bist du bei mir(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E6817D8C673AC1D6C381368E07750AA51BF33F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441751   (1037204) от 23.01.2021
+
+The Fortunes - All The Hits and More (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seasons In The Sun (3:47)
+02. You've Got Your Troubles (3:28)
+03. Here It Comes Again (3:14)
+04. Caroline (2:28)(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5049F4C5394D098BCC0026010DD54CDFE3F0E941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441775   (1037189) от 23.01.2021
+
+The Marmalade - Greatest Hits (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ob La Di - Ob La Da
+2.	Wait For Me Marianne
+3.	Reflections Of My Life
+4.	Radancer(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5C9A33DE3159D6CC25646914730BF6D7D53BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442177   (1036934) от 24.01.2021
+
+VA - Happy Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Here Comes the Sun (02:58)
+02. Karizma Duo - (Your Love Keeps Lifting Me) Higher and Higher (03:17)
+03. Logan York - Light My Fire (02:39)
+04. The Shaken Bakers - Don’t Stop Movin’ (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C047732C9E8462DC5B0C2C8F6185F0577FFE7D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442483   (1036582) от 25.01.2021
+
+VA - 2000s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (03:02)
+02. Selena Gomez - Lose You To Love Me (03:26)
+03. Calum Scott - Dancing On My Own (04:20)
+04. Justin Bieber - Love Yourself (03:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1430CC5C17601ACFEE6DE11230328791CEF27318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442468   (1036573) от 25.01.2021
+
+VA - 90s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - (Everything I Do) I Do It For You (06:34)
+02. Extreme - More Than Words (05:35)
+03. Shania Twain - You're Still The One (03:32)
+04. Bon Jovi - Bed Of Roses (06:34)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E13C9D5F3FAE16255470C14435961D4758C7023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442463   (1036552) от 25.01.2021
 
 VA - 80s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -541,209 +744,6 @@ VA - Pop Blockbusters 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61457EC99346057DF3FD4CBD0CA751C3391AD21A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446680   (1032554) от 10.02.2021
-
-Триши - Лунная ночь (2006) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лунная ночь
-02. Я стала звездой
-03. Прощай!
-04. Стоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C4F035DD9A160CF529DED2D353F2DC03B4B2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620240   (1032355) от 19.03.2023
-
-Kylie Minogue - The Abbey Road Sessions (2012) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Lovers
-02. On A Night Like This
-03. Better The Devil You Know
-04. Hand On Your Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6954BE1AB9892818BA3771FBC8B2F84D3B49CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447261   (1032126) от 12.02.2021
-
-La Toya Jackson - La Toya (1988) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Gonna Get Rocked!
-02. You Blew
-03. Such A Wicked Love
-04. Not Giving Up On Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7754D13592BCE51F2712B815DBF4EE874F833BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447168   (1032086) от 12.02.2021
-
-VA - Disney's Exclusive Rock & Pop Collection - Golden Sixties (1998) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - Good Vibrations (3:38)
-02. The Flower Pot Men - Let's Go To San Francisco (3:38)
-03. The Yardbirds - For Your Love (2:30)
-04. The Mamas & The Papas - California Dreamin' (2:39)(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56E71DC29329F61E060C6910929439B1D9DA36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447172   (1032081) от 12.02.2021
-
-The Goombay Dance Band - Mega-Hit-Mix (1998) [FLAC|Lossless|image + .cue] <Europop, Euro-Disco, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley 1 (23:31)
-1.	Sun Of Jamaica
-2.	Island Of Dreams
-3.	My Bonnie(   Читать дальше...   )Жанр: Europop, Euro-Disco, MedleyПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2343479E4F4F32E13E64BF73C8A45383FEE5C191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447199   (1032072) от 12.02.2021
-
-Dalida - Saint Valentin (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032072.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pour te dire je t'aimefer (04:20)
-2. Le temps d'aimer (04:14)
-3. Ti Amo (03:30)
-4. Parle-Moi D'Amour Mon Amour (03:14)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 00:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB38F08C64608DDC3105EC02683F016D00702845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447334   (1031838) от 13.02.2021
-
-Ricchie E Poveri - Le Canzoni La Nostra Storia 3CD (2011) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Prima Cosa Bella
-02. Primo Sole, Primo Fiore
-03. Che Sara
-04. L'Amore E' Una Cosa Meravigliosa(   Читать дальше...   )Жанр: PoрПродолжительность: 01:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87129BD6EB013CC5EE89787AE2CE62C00EF855F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

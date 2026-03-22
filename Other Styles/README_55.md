@@ -1,3 +1,61 @@
+###  Публикация: 1216015   (754590) от 28.03.2018
+
+Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, Lounge, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashem Vohu
+02. Aem Moi Idâ / Ye Vâxshayâns
+03. Jasa Me Avange Mazdao
+04. Humata(   Читать дальше...   )Жанр: Ethno folk, Lounge, JazzПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575824AD045301F2E7D6F3F9AA8D3BB47B062B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281043   (753251) от 07.02.2019
+
+Tom Holkenborg (Junkie XL) - Alita: Battle Angel (2019) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discovery (03:14)
+02. I Don’t Even Know Y Own Name (05:44)
+03. What’s Your Dream? (03:17)
+04. Double Identity (01:54)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C4D15BE6545D09D92BF56B68B68162DEFFC2AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395054   (753170) от 11.07.2020
 
 Александр Жихарев (А.И.Жихарев) - Поющие с бронзой (2012) [FLAC|Lossless|tracks + .cue] <Bells, Folk, Ethnic>
@@ -578,6 +636,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396717   (744083) от 17.07.2020
+
+Thierry David - Hypnosis (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_744083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom's Alluring Call (5:05)
+02. Mesmerizing Spirals (5:33)
+03. Exploring Boundaries (5:50)
+04. Endless Corridors (6:24)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA65296B3F2B173BFBAFF7B00FA9A4FEE17BA31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020559   (743867) от 27.05.2016
 
 Tracy Lawrence - I See It Now (1994) [MP3|320 кб/с] <Country, Folk>
@@ -658,93 +745,6 @@ Allister - Best Of... 20 Years & Counting (2019) [MP3|320 Kbps] <Pop-Punk, Punk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CCC16CED43FFACD37DA0F39451D4506326882BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217433   (743359) от 04.04.2018
-
-Parijat - Serenity (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ease (5:20)
-02. Atme (8:32)
-03. Thank You (6:19)
-04. Sigh (4:50)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA960B7B5D879631E90A0758843115B75C1F1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019549   (742434) от 28.05.2016
-
-Erik Wøllo - Visions - Visions (2016) [MP3|320 кб/с] <Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echotides No. 4 7:22
-02. Revealed In Time 7:00
-03. Gateway 5:27
-04. Visions 6:06(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31F26829CB240041039A97F709ECC2F0436AEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217500   (742139) от 05.04.2018
-
-VA - Яркость / Bright: The Album (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Logic - Broken People (3:32)
-02.Bastille - World Gone Mad (3:17)
-03.Machine Gun Kelly - Home (3:23)
-04.Camila Cabello - Crown (3:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C561AC05EF4E6D5A6F205778C79D04B0BD914544
 ```
 
 https://mybot314.ru/tekegram_catalog/

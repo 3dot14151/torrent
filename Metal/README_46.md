@@ -1,3 +1,123 @@
+###  Публикация: 1141802   (648505) от 11.06.2017
+
+Carach Angren - Dance And Laugh Amongst The Rotten (2017) Deluxe Edition [MP3|320 Kbps] <Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening
+2. Charlie
+3. Blood Queen
+4. Charles Francis Coghlan(   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC35D260A697B51E2ABC5D1DFD7D917547D31099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292273   (648393) от 28.03.2019
+
+Rammstein - Deutschland (2019) Single [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deutschland
+2. Deutschland (Rmx by Richard Z. Kruspe)Жанр: Industrial MetalПродолжительность: 00:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C60E269E8EAAD4D900543E5ABEECA0F5F6978C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517573   (648023) от 01.07.2012
+
+The Prophecy23 - Green Machine Laser Beam (2012) [MP3|320 кб/с]<Melodic Death Metal/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tough Cool and Here to Mosh 00:40
+02. Ice Road Trucker Vs the Sun 03:45
+03. Don't Step Back 03:04
+04. Beyond the Purple Pipes 03:43
+05. Green Machine Laser Beam 03:36
+06. Sergeant P of the 23 00:18
+07. We Are the Pit Police 03:37
+08. Wake Me Up for Lunch 03:57
+09. Honor to Whom, Honor Is Due 04:12
+10. Captain Quick and the Pirates 04:07(   Читать дальше...   )Жанр: Melodic Death Metal/Thrash MetalПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018E2935E30932767B280B07E8DB5F01827C3DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905825   (647957) от 07.06.2015
+
+Secrets Of The Sky - Pathway (2015) [MP3|320 кб/с]<Post-Metal, Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647957.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I
+2. Three Swords
+3. II
+4. Angel In Vines(   Читать дальше...   )Жанр: Post-Metal, Doom Metal, Progressive MetalПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C3D9AA587D886322C00831CF708035C706D52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517153   (647931) от 01.07.2012
 
 The Forsaken - Beyond Redemption (2012) [MP3|320 кб/с]<Melodic Death Metal>
@@ -638,122 +758,6 @@ Rise To Fall - End vs. Beginning (2015) [MP3|320 кб/с]<Melodic Groove Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CF315FF6FD1DEDDBACB08D2E312816B5F136AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906572   (643573) от 09.06.2015
-
-Shape Of Despair - Monotony Fields (2015) [MP3|320 кб/с]<Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643573.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Reaching The Innermost
-2. Monotony Fields
-3. Descending Inner Night
-4. The Distant Dream Of Life(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BF26954E1DFA3F31DE59590C1D3682A71803B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227888   (643139) от 28.05.2018
-
-Monument - Hellhound (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. William Kidd
-02. The Chalice
-03. Death Avenue
-04. Nightrider(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEA96394DCC24F16DBE39C8018F52C05EDE42DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032841   (642006) от 09.07.2016
-
-Death Whistle - Death Whistle (2016) [MP3|320 Kbps] <Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Whistle Call To Arms
-02. Tribal Havoc
-03. Shapes Of Idols
-04. Sungod(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E142A1649DB9765D63515B56BA071DE682D8CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906818   (641704) от 10.06.2015
-
-Tremonti - Cauterize (2015) Deluxe Edition [MP3|320 кб/с]<Alternative Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radical Change
-02. Flying Monkeys
-03. Cauterize
-04. Arm Yourself(   Читать дальше...   )Жанр: Alternative Metal, Post-GrungeПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3446A73FFEAC0A8A1EEC5ED7AD7E90B19A4EB791
 ```
 
 https://mybot314.ru/tekegram_catalog/

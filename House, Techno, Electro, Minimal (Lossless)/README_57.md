@@ -1,3 +1,139 @@
+###  Публикация: 1658747   (190475) от 10.09.2023
+
+VA - House Relax 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase - I Feel (3:25)
+02. Anton Ishutin - Her Name (7:36)
+03. Abee Sash - Ain't nobody (2:38)
+04. Abriviatura IV - Tears Away (4:56)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A1899F9862AEFDD66C3357644D9B74C18A5F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589670   (189758) от 11.11.2022
+
+NOIYSE PROJECT - Path Of The Sun 1 (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive (8:39)
+ 02. In a Cloudland (9:01)
+ 03. Mindscream (8:23)
+ 04. Night Call (8:18)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65758414BD860D1E59F2C3D0A3DF5D68561C3A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662270   (188069) от 17.09.2023
+
+Robert Babicz - Light Of The Universe (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F5EB08C08DE64AF81CD7D72F7C62FF308B4D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662272   (188048) от 17.09.2023
+
+Vince Watson - Another Moment In Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep HouseПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758182EE629613CBED3BF7AD9A1CB90F5629E63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 699066   (187916) от 17.09.2023
+
+Hot Natured - Different Sides Of The Sun (2013) [FLAC|Lossless]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_187916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep HouseПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76084B04A8C9E953D9E6A846A451E31A129C4E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591295   (187501) от 17.11.2022
 
 Hernan Cattaneo & Soundexile - Future Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -585,149 +721,6 @@ VA - Anjunadeep The Remixes 2020 (2020) Compilation [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56962364BA1EA86EF9C9CD80CABB28D65D578C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669753   (172608) от 17.10.2023
-
-VA - 100 Greatest Workout Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172608.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eliza Rose - B.O.T.A. (Baddest of Them All) (Edit) (3:46)
-002. Tiësto - 1035 (2:52)
-003. Fred again.. - Jungle (3:18)
-004. Dua Lipa - Physical (3:13)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 05:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A42F9BD3F6C26FA456EE85FCCB70A1AF63C789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669904   (172440) от 18.10.2023
-
-VA - 100 Greatest Running Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172440.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fred again.. - Jungle (3:18)
-002. Eliza Rose - B.O.T.A. (Baddest of Them All) (Edit) (3:46)
-003. Tiësto - 1035 (2:52)
-004. Bruno Mars - Runaway Baby (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 05:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35ACC5128DBBC9F814940C97C95DC6473514738C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344284   (170660) от 10.12.2019
-
-Exos - Green Beat (2019) X/OZ Music [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Shake (06:17)
- 02. Hood (12:16)
- 03. Green Beat (05:08)
- 04. Galaga (10:48)(   Читать дальше...   )Жанр: Techno, Minimal, Dub TechnoПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B0E777699A9ED7276FA3F6F306E33FD10AF90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596518   (169854) от 10.12.2022
-
-VA - Purified Chronicles 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Crimsen, Mees Salomé, Jordan Arts -  I Still Think of You (Mees Salomé Remix)  (3:32)
-02.  Anriu -  Lost Lands  (4:15)
-03.  Paige, Nihil Young, Beacon Bloom -  Spitfire  (4:30)
-04.  Paradoks -  Sense of Wonder  (4:01)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA57C91B11FA55BC2F54E3905776BA25680B896C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189484   (169711) от 11.12.2019
-
-Terekke - Discography 7 Releases (2011-2019) L.I.E.S. [FLAC|Lossless|tracks] <Ambient, Deep House, House, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side A (29:42)
- 02. Side B (29:39)Тип издания: WebЖанр: AmbientПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CD4C66DB0241DB063F5827F12408795A7C5D30
 ```
 
 https://mybot314.ru/tekegram_catalog/

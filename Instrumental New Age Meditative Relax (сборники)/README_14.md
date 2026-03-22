@@ -1,3 +1,61 @@
+###  Публикация: 1075971   (315982) от 24.11.2016
+
+VA - Acoustic Pop Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thom Cooper - Hey, Soul Sister 3:29
+02. Karizma Duo - Against All Odds 3:08
+03. Alice Lamb - Have a Nice Day 2:57
+04. Landa - Brown Eyed Girl 3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210E06FB5EAFB4700F5B9987049286671921655C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076583   (311732) от 26.11.2016
+
+VA - Christmas Play Chill: Chill and Christmas (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lounge Unlimited Orchestra - Last Christmas 5:34
+02. Faith - It's the Most Wonderful Time of the Year 3:04
+03. Maurice Cannon - Navidad 3:52
+04. Brazilian Love Affair Project - All I Want for Christmas Is You 3:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D429D47D61AB900801906AC44E73D361E30756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260392   (311391) от 07.11.2018
 
 VA - New Age Style - Enigmatic 29 (2018) [MP3|320 Kbps] <New age, Enigmatic>
@@ -690,64 +748,6 @@ VA - The lounge Legends Ballroom Collection (2010) [MP3|320 kbps]<Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A7C2B18982D193025A8F8AE5C18572531D07BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083397   (274706) от 15.12.2016
-
-VA - Relax & Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Sleep Relaxation - Restful Sleep 3:06
-02. Nature Sounds - Relaxation Song 3:14
-03. Relaxing Music Therapy - Calmness 3:14
-04. Calming Music Sanctuary - Dream Story 3:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842BBB7AE1ADE5AE4DB401EB2BBA93E16D61E15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083975   (272316) от 17.12.2016
-
-VA - Best Meditation Music 50 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation Music Zone - Best Meditation Music 3:38
-02. Chakra Healing Music Academy - Zen Garden Ambient 3:54
-03. Mindfulness Meditation Music Spa Maestro - Liberation Of Thoughts 3:22
-04. Meditation Mantras Guru - Calm Sea For Self-Hypnosis 3:52(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 03:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B63B8238873A2DA28B7C1EC252421ABC57D76A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

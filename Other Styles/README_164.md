@@ -1,3 +1,148 @@
+###  Публикация: 1692774   (122196) от 18.01.2024
+
+Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  'Til the End of Time
+02.  Daydreamer
+03.  Walk of Life
+04.  Aisha(   Читать дальше...   )Жанр: New Age/Meditative/RelaxПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECDC6273B67419CEC173F907D737ACFC8CB891A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692580   (122188) от 18.01.2024
+
+VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kindrid Souls - End of Time (6:25)
+02. Marga Sol - Aido (4:38)
+03. Noam Garcia - Main Force (10:56)
+04. Tibetania - Pai Gardens (5:54)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 02:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C02F2196589DA00E9F17225C652A83BF26119F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692718   (122164) от 18.01.2024
+
+Dancing Fantasy - California Grooves (1991) [OGG Vorbis|480 Kbps] <New Age/Meditative/Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good Morning America
+02.  Get Things Straight
+03.  Streethoppin'
+04.  Are You Ready(   Читать дальше...   )Жанр: New Age/Meditative/RelaxПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771541EE4C80CC6BB8D46D58061A131E93C6CFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693600   (121727) от 21.01.2024
+
+Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 2005, Beat Records Company [OGG Vorbis|480 Kbps] <Stage & Screen, Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Il grande silenzio (Restless)
+02.  Passaggi nel tempo
+03.  E l'amore verra
+04.  Barbara e tagliente(   Читать дальше...   )Жанр: Stage & Screen, Soundtrack, ScoreПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9098AE8F3F85C9B93609265AE862FC237C795575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693046   (121723) от 21.01.2024
+
+Dj Eroticamila, Ibiza Sexy Chill Beats - Deep Sexual Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Shades of Love (5:17)
+02. Aromatherapy Essential Oils (Jazz Guitar) (6:18)
+03. Best Sex Music (Chill) (5:42)
+04. Erotic Massage (5:42)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFAF2856CC5815CF8C8F4D259CEFA9D5F3AD07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693700   (121342) от 23.01.2024
 
 Ennio Morricone - 100 Movie Themes Hits/Original Versions - Super Gold (2005) Box Set 6 CD [OGG Vorbis|480 Kbps] <Pop, Classical, Folk, World>
@@ -600,151 +745,6 @@ VA - Atomic Heart, Vol.4 (Original Game Soundtrack) (2024) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:520A8EA59285ED544EC63E4F6D8B0AD39372919E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698383   (117805) от 13.02.2024
-
-Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечности) (2001) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bare Bare
-02. Hashir Prabhat
-03. Bahir Haite
-04. Ogo Mor(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A782736ED7EE4CA8F18EF458C05C3247872F84EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697514   (117799) от 13.02.2024
-
-Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dodet
-02. Andro
-03. Barentanz
-04. Quant je suis mis au Retour & Douce Dame Jolie(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01F3D890BB0602C07B85477A970F7B0B78DC67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699088   (117798) от 13.02.2024
-
-ЗОР - Буу Ай (2022) [MP3|320 Kbps] <Buryat Ethnic Music, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дэрсу
-02. Нарин хухы
-03. Хадын хураса
-04. Зандан ташуур(   Читать дальше...   )Жанр: Buryat Ethnic Music, FolkПродолжительность: 00:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F567C68E1927F5275C3B5E0309CD88D752F0C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700874   (116890) от 18.02.2024
-
-Corbetta, Izhar Elias - La Guitarre Royalle (2018) [FLAC|Lossless|image + .cue] <Classical, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116890.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Autre Chacone in C major
-Suite A minor
-2. Prelude
-3. Allemande(   Читать дальше...   )Жанр: Classical, GuitarПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB88557275DA7A3DD1DC1F4B3AAA74F08120EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700932   (115549) от 26.02.2024
-
-Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, Chorus>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterday [04:03]
-02. Hey Jude [05:29]
-03. Love Me Do [04:17]
-04. Nowhere Man [04:15](   Читать дальше...   )Жанр: Gregorian, A Capella, ChorusПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B540D379F35A081455A5A6DB891BE1859E6F1927
 ```
 
 https://mybot314.ru/tekegram_catalog/

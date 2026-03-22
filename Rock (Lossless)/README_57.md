@@ -1,3 +1,381 @@
+###  Публикация: 1026702   (702511) от 16.06.2016
+
+Juicy Lucy - Blue Thunder (1996) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Blue
+02. Fool to Yourself
+03. Win or Lose
+04. Woman of Mine(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C1385CE865C78E753B612CCC12A538EC24AE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026707   (702505) от 16.06.2016
+
+The Blues Rebels - Voodoo Land (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changed My Ways (3:51)
+02. Voodoo Land (4:30)
+03. Good Enough (3:44)
+04. Well Run Dry (3:34)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3818C419C41C5EB9E4D6CC7994F11251B1010122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026502   (702435) от 16.06.2016
+
+7 Океан - Сын Солнца (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город Солнца (8:43)
+02. Восхождение (5:18)
+03. В пещере (6:28)
+04. Рассказ старухи (17:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB71017E0437619EFB8EAA01323EA6A2BA91DAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026441   (702176) от 16.06.2016
+
+Bonnie Tyler - The Best Of 20 Classic Tracks (1994) Compilation [FLAC|Lossless|tracks] <Pop Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost In France    03:53
+02. Blame Me    04:03
+03. It's A Heartache    03:27
+04. Baby I Remember You    03:16(   Читать дальше...   )Жанр: Pop Rock, PopПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA7219FE0E71E870C23AB4403E809408D9DF125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793699   (702140) от 06.06.2014
+
+Styx - Paradise Theater (1980) Remaster, Hybrid SACD /2014, Audio Fidelity/ [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.D. 1928 (1:08)
+02. Rockin' The Paradise (3:35)
+03. Too Much Time On My Hands (4:33)
+04. Nothing Ever Goes As Planned (4:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7D99212EB39F118BA0A3E460F90F2B7C5CB799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026736   (700506) от 17.06.2016
+
+Jude Cole - A View From 3rd Street (1990) [FLAC|Lossless|tracks] <Soft Rock, Pop Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallowed Ground    05:20
+02. Baby, It's Tonight    03:41
+03. House Full Of Reasons    03:55
+04. Get Me Through The Night    04:15(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, AORПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE44AFE82288EB269BB869BC828CEF4BD142805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027101   (700330) от 17.06.2016
+
+Nemrud - 3 Albums (2010 - 2016)[FLAC|Lossless|image + .cue]<Progressive rock, Psychedelic, Space rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700330.jpg" />
+</div>
+
+
+###  Подробнее
+
+NEMRUD  была основана в Стамбуле во второй половине 2008-го года Мертом Гьокаєм, Харуном Сьонмезом и Айканом Сари. Через два года Nemrud уже выпускает свой дебютный концептуальный альбом "Journey of the Shaman" на французском лэйбле "Musea Records".Само название группы происходит от горы Немрут высотой 2,15, которая находится на юго-востоке Турции.В (   Читать дальше...   )01. Part I 00:15:51
+-a. In the World Of Dreams
+-b. Beginning Of Divine Inspiration
+-c. Revival(   Читать дальше...   )Жанр: Progressive rock, Psychedelic, Space rockПродолжительность: 02:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522597CED72A9E00F977D469117BB1D0C8698150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027066   (700323) от 17.06.2016
+
+Pianoбой (Піанобой) - Take Off (2015) [FLAC|Lossless|image + .cue] <Piano Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Лучшее, что есть  (04:12)
+02.  Родинки  (03:25)
+03.  Freedom to love  (03:21)
+04.  Так добре з тобою   (04:14)(   Читать дальше...   )Жанр: Piano RockПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B06B5DDFB4071BBB20267F20EF51D3B856B4DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026992   (700073) от 17.06.2016
+
+Один в каное - Один в каное (2016) [FLAC|Lossless|image + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Човен  (02:46)
+02.  Вулиця  (03:46)
+03.  Пішы  (02:34)
+04.  Мамма  (02:42)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87A58629953761FF1B4DDB3460D1D51D436CD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402643   (700057) от 15.08.2020
+
+Magic Bus - The Earth Years (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Om (03:01)
+02. Inca Trail (05:01)
+03. Setting Sun (04:20)
+04. The Road To La Mezquita (04:43)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6203B6107EBAC1A900C5DBE32230EA1BB92F3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402448   (699939) от 15.08.2020
+
+Feuerschwanz - Dаs Еlftе Gеbоt (2020) 2xCD [FLAC|Lossless|image + .cue] <Folk Metal, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699939.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Das Elfte Gebo:
+01. Meister Der Minne (03:31)
+02. Metfest (03:41)
+03. Das Elfte Gebot (03:36)(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777962217CF9A533F19BF75DC7D28081FE8E667E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402495   (699702) от 15.08.2020
+
+David Bowie - Something In The Air (Live Paris 99) Remastered, 2020, Rhino Parlophone [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On Mars? (Live at the Elysée Montmartre, Paris on 14th October, 1999) [00:05:27]
+02. Thursday's Child (Live at the Elysée Montmartre, Paris on 14th October, 1999, 2020 Remaster) [00:05:36]
+03. Something In The Air (Live at the Elysée Montmartre, Paris on 14th October, 1999) [00:05:22]
+04. Word On A Wing (Live at the Elysée Montmartre, (   Читать дальше...   )Жанр: RockПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC49CB6765A19ECD26C4F97D7F80634F7C17C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 673424   (698897) от 27.06.2013
+
+Various Artists - New Rock Sound Therapy (1997) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_698897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот диск вышел как приложение к греческому музыкальному журналу (одному из старейших журналов (основан в 1978 году) Греции), посвященных Року - "POP+ROCK Magazine". На диске собраны редкие кавер версии и композиции молодых рок музыкантов, не издававшиеся ранее или издававшиеся ограниченным тиражом.
+"Если под термином "новый рок"  мы имеем (   Читать дальше...   )01. Bloom - I Just Don't Know What To Do With Myself    [4:30]
+02. Momus - Good Morning World (Demo)    [3:36]
+03. Die Krupps Feat. The Crazy World Of Arthur Brown - Fire    [3:14]
+04. Big Sleep - Crying For Barbara    [3:01](   Читать дальше...   )Жанр: RockПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288032   (697871) от 10.03.2019
 
 The Charlie Daniels Band - Tailgate Party (1999) [FLAC|Lossless|tracks + .cue] <Rock, Southern Rock, Country Rock>
@@ -370,383 +748,6 @@ Czeslaw Niemen - Czas jak rzeka - Zlota kolekcj (2000) Compilation [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E8456BCAC0AF7FA4311951013EA5E78E1D18F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027672   (696660) от 19.06.2016
-
-Michael Lee Firkins - Cactus Cruz (1996) [FLAC|Lossless|tracks] <Instrumental Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Freeway Lines    05:06
-02.  Grandma Dynomite    04:20
-03.  Saturday Night    04:56
-04.  Kick Ass Bill    07:25(   Читать дальше...   )Жанр: Instrumental Rock, Blues RockПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806B1859B7C574908DC0614FD047B9D99C7E7791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027634   (696655) от 19.06.2016
-
-Eric Johnson - Europe Live (2014) Live [FLAC|Lossless|tracks] <Rock, Blues, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro    01:58
-02.  Zenland    04:26
-03.  Austin    04:11
-04.  Forty Mile Town    05:02(   Читать дальше...   )Жанр: Rock, Blues, InstrumentalПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE8FAB37FC8792CB93D966ADD63E2A80DA6F026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027279   (696540) от 19.06.2016
-
-Був'є - 12 пісень, якими Був'є сповіщає про своє існування (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  В Небі Дао  (03:20)
-02.  Я Біжу  (03:42)
-03.  Не Свари Мене Мамо  (03:08)
-04.  Викреслений Зі Списку  (03:25)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF80F97A30AD8D7A3D15D883A050FF10591CA182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027120   (696531) от 19.06.2016
-
-Yodelice - Like a million dreams (2014) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Like A Million Dreams - Live In France 2014.
-02 The Answer - Live In Belgium 2014.
-03 Time - Live In Belgium 2014.
-04 Haystack - Live In France 2014.(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACA10B3700923B038F44D31191AB4FCB9D76A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027610   (696422) от 19.06.2016
-
-Electric Light Orchestra - Balance of Power (1986) Remastered, 2007, Epic / Legacy [APE|Lossless|image + .cue] <Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Only Knows (2:57)
-02. So Serious (2:44)
-03. Getting to the Point (4:31)
-04. Secret Lives (3:32)(   Читать дальше...   )Жанр: Rock, Symphonic RockПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73972334FBB479A204AAEA77A966465993A4D909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027221   (696413) от 19.06.2016
-
-VA - Girls Girls Girls! 75 Songs About Girls Girls Girls! (2015) 3CD [FLAC|Lossless|image + .cue] <Retro, Rock 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fats Domino - My Girl Josephine [00:02:04]
-02. The Four Seasons - Sherry [00:02:36]
-03. Little Richard - Miss Ann [00:02:14]
-04. Bobby Vee - Please Don't Ask About Barbara [00:02:03](   Читать дальше...   )Жанр: Retro, Rock 'n' RollПродолжительность: 02:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9349F55606921BD2769219A5DF87A7A9C6EA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027594   (696286) от 19.06.2016
-
-Воплі Відоплясова (Вопли Видоплясова) - Новая Коллекция. Лучшие песни. Часть II (2011) [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вiдпустка  (03:32)
-02.  Глибина  (04:22)
-03.  Краiна мрiй  (04:51)
-04.  Трава  (03:23)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91D78FD8B88CBED67E193BE8FF8CDA7713E5208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402991   (695944) от 17.08.2020
-
-Neil Young - Homegrown (2020) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separate Ways (03:33)
-02. Try (02:49)
-03. Mexico (01:41)
-04. Love Is A Rose (02:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F02FD93486CDD59967AEC1489C7EE655BEBDF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288340   (695926) от 11.03.2019
-
-The Peawees - Moving Target (2018) [FLAC|Lossless|tracks + .cue] <Rock, Blues, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Walking Through My Hell 2:36
-2 A Reason Why 2:50
-3 Stranger 3:09
-4 Christine 2:42(   Читать дальше...   )Жанр: Rock, Blues, Rock & RollПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7509FB90E86FE67F71EECA001BA9395EDABCA709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221274   (695137) от 24.04.2018
-
-Dave Edmunds - The Collection (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695137.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	I Hear You Knockin'
-2	You Can't Catch Me
-3	The Stumble
-4	Sabre Dance(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A1585F15C101B0DB44A1C07A45D3F415916994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133443   (695033) от 12.05.2017
-
-Samsara Blues Experiment - One with the Universe (2017) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic Space Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695033.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vipassana (10:43)
-2. Sad Guru Returns (7:55)
-3. Glorious Daze (6:02)
-4. One with the Universe (15:01)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Space Rock, Stoner RockПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431F6E05801048DD92D62C9E068F382D4E34F699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027704   (694702) от 20.06.2016
-
-The Zombies - Odessey And Oracle (1968) Remaster, 2004, Imperial [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Care of Cell (03:55)
-02. A Rose for Emily (02:19)
-03. Maybe After He's Gone (02:33)
-04. Beachwood Park (02:43)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB86CD10498C6D1FFDB885832196C7A64988E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027804   (694692) от 20.06.2016
-
-Elvis Presley - MTV Music History (2000) 2CD, Compilation by Halahup [APE|Lossless|image + .cue] <Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Stung
-02. Baby I Don't Care
-03. All Shook Up
-04. Return To Sender(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 02:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D91109390B50C2A60909B079B5A9EAD3737606
 ```
 
 https://mybot314.ru/tekegram_catalog/

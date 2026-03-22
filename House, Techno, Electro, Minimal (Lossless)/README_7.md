@@ -1,3 +1,61 @@
+###  Публикация: 1487444   (1003625) от 05.08.2021
+
+Troekurovo Recordings | Toki Fuko, Vadim Basov, Evgeny Vorontsov - Discography 3 Releases (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Field Recording, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctium (Intro) (05:19)
+ 02. Artemisia (12:48)
+ 03. Thymus (11:31)
+ 04. Companula (10:36)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Ambient, Field Recording, Experimental •Продолжительность: 07:19:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B7EE95B2435BFCD93479399384ED83AE8B29B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033029   (1003220) от 06.08.2021
+
+Doyeq - Discography 43 Releases (2009-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Neo-Classical, Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night's Sparkles vs. Get 'Em up! (07:27)
+ 02. Deep Inside vs. Get 'Em up! (07:44)
+ 03. Everything for Me and You (05:19)
+ 04. From Here to There vs. Clap (06:41)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Ambient, Neo-Classical, Deep House, Progressive House •Продолжительность: 18:40:27 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2261EB0DEB2C65ECA9D9986A2D7861D992753B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487832   (1003071) от 07.08.2021
 
 Fidem Community - Discography 20 Singles (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -684,62 +742,6 @@ Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605995   (994931) от 22.01.2013
-
-Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoreline (Original Mix) (7:04)
-02. Tucano (Original Mix) (7:15)Жанр: Progressive HouseПродолжительность: 00:14:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353259   (992681) от 17.01.2020
-
-The Midnight - The Midnight Remixed 02 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House, Synthwave, Dreamwave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcade Dreams (Timecop1983 Remix) (5:34)
- 02. Crystalline (Dan Sieg Remix) (6:26)
- 03. Kids (PROFF Remix) (6:10)
- 04. Nocturnal (Nox Vahn Remix) (8:14)(   Читать дальше...   )Жанр: Deep House, Progressive House, Synthwave, DreamwaveПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE840FFF2C7CEA3848C1AB488B4D1A858F7D2D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

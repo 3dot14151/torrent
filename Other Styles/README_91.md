@@ -1,3 +1,145 @@
+###  Публикация: 1120070   (567127) от 22.07.2017
+
+Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [MP3|320 Kbps] <Disco, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152189   (566849) от 22.07.2017
+
+Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - The Mole (05:36)
+02. Hans Zimmer - We Need Our Army Back (06:28)
+03. Hans Zimmer - Shivering Soldier (02:52)
+04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B6391B532DC859FF29DD1DB3E9A4A741E397DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152190   (566821) от 22.07.2017
+
+Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - The Mole (05:36)
+02. Hans Zimmer - We Need Our Army Back (06:28)
+03. Hans Zimmer - Shivering Soldier (02:52)
+04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B57E9D06CFA17781CAACC15FB888616775B333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235025   (565994) от 08.07.2018
+
+Sammy Kershaw - Labor Of Love (1997) [FLAC|Lossless|image + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honky Tonk America (3:57)
+02. Shootin' The Bull (In An Old Cowtown) (3:02)
+03. One Day Left To Live (2:56)
+04. Cotton County Queen (3:37)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6A0D5C1F648FF385275A78DFE83AE6B1E06A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234957   (565916) от 08.07.2018
+
+Nawang Khechog - The Tibetan Healing Music (2013) [MP3|320 Kbps] <New Age, Yoga>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Harmony in Balance
+02 – Kindness Phrase Endorsed and Blessed by Ten Nobel Peace Laureates
+03 – 1st Movement Sentient Beings
+04 – Dance of Innocents(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 02:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614B3443D20ED2BD8212341D7608CE36D801FE67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044051   (565362) от 20.08.2016
 
 Thomas Lemmer - Pure (2016) [MP3|320 Kbps] <Ambient, Electronic>
@@ -625,148 +767,6 @@ Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8402F01FE2395F0AD6A057557086968B97D1351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337396   (560585) от 02.08.2015
-
-Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_560585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indie Pop
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152996   (560078) от 26.07.2017
-
-Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolving [05:50]
-02. Angels Among Demons [04:40]
-03. Become a Legend [03:41]
-04. Lost Cause [01:44](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88417EF5E80CA0E30A0CC34F00E7428C889274B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152994   (560076) от 26.07.2017
-
-Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Galaxy [04:56]
-02. A First Star [02:24]
-03. Mankind [04:26]
-04. Other Worlds [04:37](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A49A6E7A1BE07F092FE933D3F02D689B958A344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153342   (559844) от 26.07.2017
-
-VA - Latin Hits 2017 The Best (Reggaeton  Bachata  Kizomba) [MP3|320 Kbps] <Latin Music, Reggaeton, Bachata>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SOLYMAR - Despacito (Bachata)
-02. Alegria - Me Emborrachiare (Bachata)
-03. SOLYMAR - Andas en Mi Cabeza (Reggaeton)
-04. Alegria - La Bicicleta (Reggaeton)(   Читать дальше...   )Жанр: Latin Music, Reggaeton, BachataПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6C5D88B2F388F76D75A3AE9EFFF3E479649A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153258   (559836) от 26.07.2017
-
-VA - Latino 2017 - Essential Summer Hits  [MP3|320 Kbps] <Latin Music, Salsa, Merengue>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boricua Boys – Bailar
-02. Grupo Super Bailongo – Chantaje
-03. Boricua Boys – Hasta El Amanecer
-04. Los Reggaetronics – Subeme La Radio(   Читать дальше...   )Жанр: Latin Music, Salsa, MerengueПродолжительность: 01:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D7D74C78C0712C405FDB620D5CAFB38FB38081
 ```
 
 https://mybot314.ru/tekegram_catalog/

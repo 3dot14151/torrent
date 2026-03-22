@@ -1,3 +1,177 @@
+###  Публикация: 1576405   (366623) от 14.09.2022
+
+Clark Terry, Freddie Hubbard, Dizzy Gillespie Plus Oscar Peterson - The Alternate Blues (1980) 1992, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alternate One [5:33]
+02. Alternate Two [8:04]
+03. Alternate Three [9:06]
+04. Alternate Four [9:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DA8D489D9334C4F4DBEC7CB2013B216FA71FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328231   (366370) от 29.09.2019
+
+Chet Baker - The Pacific Jazz Collection (1953 - 1958) 4CD, 2016, Enlightenment [FLAC|Lossless|tracks + .cue] <Cool, Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366370.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Long Ago (And Far Away) [2:16]
+02. Band Aid [2:48]
+03. The Thrill Is Gone [2:47](   Читать дальше...   )Жанр: Cool, Bop, Mainstream JazzПродолжительность: 05:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23C26F9D01B9FAC1731D6F0C3273E1F3031C4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255307   (366233) от 17.10.2018
+
+Wayne Shorter - Emanon (2013 - 2016) 3CD, 2018, Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366233.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pegasus [14:55]
+02. Prometheus Unbound [8:19]
+03. Lotus [15:17](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 02:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745100DD534996DE3E5485DBE95B7E821CCB7740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950803   (366192) от 28.10.2015
+
+Herb Ellis & Jimmy Giuffre - Herb Ellis Meets Jimmy Giuffre (1959) /1999, Verve/[APE|tracks+.cue]<Mainstream Jazz, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Goose Grease [03:06]
+ 02.When Your Lover Has Gone [05:58]
+ 03.Remember [07:44]
+ 04.Patricia [04:07](   Читать дальше...   )Жанр: Mainstream Jazz, West Coast JazzПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4694EC3E72CF57F91C6051886ACF91ABB033F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950567   (366190) от 28.10.2015
+
+Gerry Mulligan Quartet - Swiss Radio Days Jazz Series: Zurich 1962, vol.9  /2009, TCB Records/[FLAC|image+.cue]<Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Utter Chaos & Presentation [02:00]
+02.Open Country [05:38]
+03.Love in New Orleans [06:06]
+04.Seventeen Mile Drive [04:41](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C4D93469F2E1636D6A5C77856DA0B2A59DE8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951046   (366189) от 28.10.2015
+
+Les Double Six - Rencontrent Quincy Jones (1960) /1999, Columbia/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tickle-Toe [02:27]
+ 02.Early Autumn [03:24]
+ 03.Sweets [02:42]
+ 04.Naima [04:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DB5D73438791B31B7FDBE9FDABAB0B3F0BFFB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950770   (366188) от 28.10.2015
 
 Art Blakey & The Jazz Messengers - The Witch Doctor (1961) /1999, Capitol/[FLAC|tracks+.cue]<Hard Bop>
@@ -574,180 +748,6 @@ Tito Puente - Master Timbalero (1994) Concord [FLAC|Lossless|tracks + .cue] <Lat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D08472FE29A5A75955EA01D2F93A6D37E89E3330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177342   (363340) от 25.10.2017
-
-Niels-Henning Orsted Pedersen Quartet - Dancing On The Tables (1979) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing on the Tables [14:49]
-02. Future Child [01:38]
-03. Jeg gik mig ud en sommerdag [03:33]
-04. Evening Song [09:31](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF236A91C8E588EE0961880D7BD60F995B27D6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417006   (363209) от 18.10.2020
-
-Tito Puente & India - Jazzin' (1996) RMM Records [FLAC|Lossless|tracks + .cue] <Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzin' [5:32]
-02. Fever [4:09]
-03. Love for Sale [4:09]
-04. Crazy He Calls Me [4:09](   Читать дальше...   )Жанр: Big Band, Vocal JazzПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2576D0041D32EA62D53BFF3134807B133D334606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071299   (362131) от 09.11.2016
-
-Wynton Kelly - Kelly Blue (1959) 1986,  Riverside, Japan 1st press  [FLAC|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelly Blue - 10:51
-02. Softly, as in a Morning Sunrise - 6:34
-03. Do Nothin' Till You Hear from Me - 4:26
-04. On Green Dolphin Street - 4:44(   Читать дальше...   )Жанр: BopПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D97BEF93962916664C0C36DEFA736DF0F4ACD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071174   (362034) от 09.11.2016
-
-John Hicks - I'll Give You Something To Remember Me By… (1987) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hold It Down [07:19]
- 02.Pas De Trois [08:54]
- 03.Monk's Mood [02:55]
- 04.I Didn't Know What Time It Was [04:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E421082E29CFFC768E84C0E4A9611A507EDE317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071232   (362028) от 09.11.2016
-
-Sonny Rollins - The Cutting Edge (1974) 1990, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Cutting Edge [06:51]
- 02.To A Wild Rose [08:43]
- 03.First Moves [06:59]
- 04.A House Is Not A Home [05:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD234D207A7C7F36CC217EB8DCFB095CE0A3DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071188   (362026) от 09.11.2016
-
-Count Basie - Kansas City Limits (1937-1957) 3CD, 2011, Le Chant du Monde[FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362026.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Topsy:
-01.One O'Clock Jump [03:07]
-02.John's Idea [03:00]
-03.Topsy [03:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE8BF617BA193C819E1F0C5292A464C44672C27
 ```
 
 https://mybot314.ru/tekegram_catalog/

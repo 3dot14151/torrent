@@ -1,3 +1,119 @@
+###  Публикация: 1285058   (718953) от 27.02.2019
+
+VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Capoeira>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capoeira Ultimate - Berimbao Viola
+02. Tafari Roots - Faca De Ponta
+03. Capoeira Experience - Ingá Ingá
+04. Capoeira Muzenza - Vou Ver Mou Mestre(   Читать дальше...   )Жанр: World, Ethnic, CapoeiraПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEB51035559FF56E28FC43BD23135BC21062E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285486   (718929) от 27.02.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 6 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight Of The Bumble Bee / Hungarian Dance No. 5 / Light Cavalry Carmen
+02. Blue Moon
+03. Holy Halls
+04. Here, There and Everywhere/ Hey Jude(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43C24CC7767FC64943BB14D2807763F45A5639F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285106   (718926) от 27.02.2019
+
+Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fields Of Anfield Road
+02. Scouser Tommy
+03. The Banks Of The Merseyside
+04. Liverpool Lou(   Читать дальше...   )Жанр: FolkПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285475   (718916) от 27.02.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here, There and Everywhere + Hey Jude - Symphonic Rock Orchestra
+02. Chopin's Dreams (Etude) - Wave's Computer Orchestra
+03. Hello Mary (BachGounod Ave Maria) - Philharmonics of London
+04. Hummelflug + Ungarischer Tanz No.5 + Leichte Kavallerie + Carmen - Symphonic Rock Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C807FC1A5FD955CBA403183BF156487354C1EDF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285492   (718914) от 27.02.2019
 
 VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 9 (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -628,119 +744,6 @@ Moreza - Fragrance (2019) [MP3|320 Kbps] <New age, Nuevo Flamenco, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797DCAF72F5D0FA2A4E5DBE4E6947405FC56E3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023598   (716127) от 09.06.2016
-
-Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип основан на оригинальном дискеЖанр: ScoreПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FAC99EE515C5EECF9D1CF644B8215BB76EA02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024730   (716126) от 09.06.2016
-
-Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clarity [00:08:22]
- 02. A Promise of Love [00:05:08]
- 03. Love Is All We Need [00:06:20]
- 04. Peace [00:06:36](   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45EB9B8D0CECCAC04381966207FF7F7B93FF69F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024740   (716035) от 09.06.2016
-
-Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer & Lang Lang – Oogway's Legacy (02:00)
-02. Hans Zimmer - Hungry for Lunch (01:15)
-03. Hans Zimmer – The Power of Chi (04:12)
-04. Hans Zimmer – The Arrival of Kai (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFC59F0F35E7EFAFBF852B2D7154D4CD3AE11F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024650   (716020) от 09.06.2016
-
-Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) Live [MP3|320 кб/с] <New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Sahana Vavatu Mantra (Live)
-02. Mangalam (Live)
-03. Nam Myoho Renge Kyo Mantra (Live)
-04. Om Kumara Mantra (Live)(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D5E982E40354523EB2ACFBC92613AB2D19A457
 ```
 
 https://mybot314.ru/tekegram_catalog/

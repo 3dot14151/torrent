@@ -1,3 +1,64 @@
+###  Публикация: 1507287   (798447) от 04.11.2021
+
+David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798447.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Wilson (22.09.1945) - американский скрипач и музыкант, известный своими стилизованными аранжировками, как популярной музыки, так и оригинальных композиций. Кроме скрипки играет еще на фортепиано, гитаре, аккордеоне и флюгельгорне. Работал в оркестре Henry Mancini в последние годы его жизни. Его дискография насчитывает десять альбомов, у меня же в коллекции (   Читать дальше...   )01. Everybody Loves Somebody Sometime (4:06)
+02. Am I Blue (3:41)
+03. Go Away Little Girl (4:02)
+04. Come Rain or Come Shine (4:30)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507320   (798415) от 04.11.2021
+
+Clannad - Studio Albums (1973 - 2013) 13 CD [APE|Lossless|image + .cue] <Celtic, Irish Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clannad (Кла́ннад) — ирландская музыкальная группа.
+Музыку Clannad можно охарактеризовать как синтез кельтского фолка, рока, нью-эйдж и джаза. Поют на гэльском (ирландском) и английском языках.
+
+В состав группы входят Мойя Бреннан (Máire Brennan), её родные братья Кирон Бреннан (Ciarán Brennan) и Пол Бреннан (Pól Brennan), и двоюродные дяди Ноэль (   Читать дальше...   )1973 — Clannad (The Pretty Maid)
+1975 — Clannad 2
+1976 — Dúlamán
+1980 — Crann Úll(   Читать дальше...   )Жанр: Celtic, Irish Folk, New AgeПродолжительность: 09:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED50D7A15E5D5F8E5B641A6843E8AA292A09E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507657   (798086) от 06.11.2021
 
 Александр Зацепин - Оригинальная Музыка К Кинофильмам (2020) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
@@ -687,64 +748,6 @@ Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199918   (793892) от 23.01.2018
-
-Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Король фей
-02. Амстердам
-03. Мексика
-04. Бороды(   Читать дальше...   )Жанр: Pub Folk, Celtic Punk, Folk RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F492547E72796C9456EFF921B06F1F1D6DF02BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012450   (793746) от 01.05.2016
-
-Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contemporary Guitar Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momentum
-02. Let Your Guitar Sing
-03. Celestial Dragon
-04. The Second Coming(   Читать дальше...   )Жанр: New Age, Contemporary Guitar InstrumentalПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00B1729E2B87E1451105AF3AC9436A242F6201B
 ```
 
 https://mybot314.ru/tekegram_catalog/

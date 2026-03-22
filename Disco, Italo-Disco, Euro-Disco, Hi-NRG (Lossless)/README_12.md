@@ -1,3 +1,38 @@
+###  Публикация: 806971   (594165) от 22.07.2014
+
+VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You're My Heart, You're My Soul (3:22)
+02. Modern Talking - You Can Win If You Want (3:46)
+03. Bonnie Tyler - Bitterblue (3:48)
+04. Blue System feat. Dionne Warwick - It's All Over (3:54)
+05. Blue System - Sorry Little Sarah (3:29)
+06. Touche - This Goodbye Is Not Forever (3:36)
+07. Millane Fernandez - Boom Boom (3:29)
+08. Isabel - Will My Heart Survive (3:01)
+09. Deutschland Sucht Den Superstar - We Have A Dream (3:59)
+10. Modern Talking - TV Makes The Superstar (3:44)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4E2B1C06F5CF8327E40335EC6D95BC59823F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 806466   (594158) от 22.07.2014
 
 Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes (1999) [FLAC|Lossless]<Disco>
@@ -778,41 +813,6 @@ Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A10645E60EB64E108BF19DAE0E9E6B4E735A5615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811132   (581544) от 07.08.2014
-
-Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice 5:35
-02. Red For Love 5:28
-03. Doctor For My Heart 5:16
-04. I'm Alive Tonight 3:59
-05. Wings Of Love 5:15
-06. California Train 4:54
-07. (Find My) Tracks In The Snow 5:06
-08. Break Away 5:52
-09. Stranger In My Life 4:29
-10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B0F3FDD3294E18241CF0444A6E89DEF7CB861B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1440905   (1038275) от 19.01.2021
+
+VA - EDM Free Style (2021) [MP3|320 Kbps] <Electro, Dance, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, вошедшая в микс "EDM Free Style" обладает своей атмосферой, превосходной динамикой и немалой долей оригинальности. Если вам нравятся не ординарные и свежие стилистические решения, то треки лонгплея смогут показать вам свои по-настоящему свежие мысли в привычном стиле танцевальной музыки.001. Van Storck - I Bet You Do
+002. Corona - Baby, I Don't Care
+003. Minupren - Regenbogen
+004. Midnight Cvlt - One Shot(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 11:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D868F09080D52CDDD756028B4315D784A6CEACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440888   (1038259) от 19.01.2021
+
+VA - Vocal Chillout: Move With The Beat Vol.02 (2021) [MP3|320 Kbps] <Vocal Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лонгплей "Vocal Chillout: Move With The Beat" с уверенностью можно назвать чрезвычайно "пластичной" работой. Все треки на пластинке крайне медленны и обтекаемы, тем самым на лонгплее главенствует релаксовое настроение, сравнимое с самой настоящей нирваной.001. Dee C'rell - Whodoo
+002. Frozenax3 - Forever
+003. Gareth Emery - Gunshots
+004. Tuneberg - Amazing Grace(   Читать дальше...   )Жанр: Vocal ChilloutПродолжительность: 08:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B666DF3F4B865AA597736B3CD182A00F7B23F988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440914   (1038061) от 20.01.2021
 
 VA - Beatport Tech House: Electro Sound Pack #177-1 (2021) [MP3|320 Kbps] <Tech House, Electro>
@@ -687,64 +745,6 @@ VA - Beatport Trance: Electro Sound Pack #235 (2021) [MP3|320 Kbps] <Trance, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DF903BC3F2DC5E1DE80548C1131CD7563A8DB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444157   (1034958) от 31.01.2021
-
-VA - Beatport Deep House: Electro Sound Pack #234 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите послушать чего-нибудь исконно европейского, легкого и достаточно качественного, то новый 234-й релиз посвящённый музыке стиля Deep House от Beatport должен прийтись Вам по вкусу. Каждый трек по-своему уникален и завораживает с первых секунд прослушивания.001. L.A.B - Our Generation
-002. Kathy Cornell - Like You (Original Mix)
-003. Marcelo Wallace - I Don't Care
-004. Tomi H - Inlightening(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA731950A8A2615EB3A3AB35B65E417CA69CA2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443661   (1034951) от 31.01.2021
-
-VA - Beatport Techno Electronic: Sound Pack #232 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034951.jpg" />
-</div>
-
-
-###  Подробнее
-
-232-й релиз электроники от Beatport это смелая заявка на то, чтобы оказаться в плейлистах многочисленных любителей техно-саунда, от чудаковатых фанатов экспериментов до нетребовательных завсегдатаев клубных танцполов. Приятные мелодии и заводные ритмы будут сопровождать Вас на протяжении всего релиза.001. Alejandro Bargueno - More Aggrassive
-002. Kuster Beaton - Kuster Theme
-003. Patrick P. - Time
-004. Flamel - Altair (Extended Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287801BF5D17CF0149F225F271950074A6D438E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

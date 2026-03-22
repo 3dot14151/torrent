@@ -1,3 +1,119 @@
+###  Публикация: 964369   (282417) от 11.12.2015
+
+Train - Christmas In Tahoe (2015) [OGG|448-506 кб/с]<Pop, Traditional Christmas Songs>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Christmas
+02. Christmas Must Be Tonight
+03. The River
+04. Christmas Island(   Читать дальше...   )Жанр: Pop, Traditional Christmas SongsПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C254E4D4021EF1AC631C64FF742A7FCD01192CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264329   (281158) от 23.11.2018
+
+VA - Time2Dance Best of '90s - '00s, (Vol. 1-2) 2CD (2018) [MP3|320 Kbps] <Europop, House, Techno, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Time2dance: Best of 90s - 00s, Vol.1:
+01. U.s.u.r.a. - Open Your Mind (Radio Mix)
+02. Alex Gaudino, Crystal Waters - Destination Calabria (Radio Edit)
+03. Aladino - Brothers in the Space (Grunge Happy Mix)(   Читать дальше...   )Жанр: Europop, House, Techno, ItalodanceПродолжительность: 04:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FEA094D4B20199E98692A10A68CC5903F78F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264386   (281088) от 23.11.2018
+
+Eros Ramazzotti - Vita Ce N'è (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Per Il Resto Tutto Bene
+2. Vita Ce N'è
+3. Vale Per Sempre
+4. Siamo(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7E13F7958C94E9F0444A9610143FD2CC65B9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187420   (280451) от 28.11.2017
+
+VA - The Pop Years 1980-1983 (2009) 4CD [MP3|320 Kbps] <Pop, Rock, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Light Orchestra - All Over the World (4:04)
+02. Hall & Oates - Kiss on My List (4:23)
+03. Tom Browne - Funkin' for Jamaica (3:28)
+04. Earth, Wind & Fire - Let Me Talk (4:10)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 05:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CD7579F4F7B5B7531E499FAE9DE7C49165DBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264713   (279571) от 24.11.2018
 
 VA - Hands up Party Dance Selection, Vol. 2 (2018) [MP3|320 Kbps] <Dance>
@@ -634,122 +750,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C77887CC017FDB79A3822B6CBA7C7DA08230E9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265482   (273048) от 29.11.2018
-
-VA - Discofox 2019 (2018) 2CD [MP3|320 Kbps] <Schlager Music, Disco, German Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273048.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Anna-Carina Woitschack - Alles oder nichts (FiWer Remix)
-02. G.G. Anderson - Du hast im Schlaf seinen Namen gesagt (Remix)
-03. Angelique - Ich verlieb Dich(   Читать дальше...   )Жанр: Schlager Music, Disco, German PopПродолжительность: 02:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9073882EBD0095139BC762FA652B889A9B3448B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265834   (273026) от 29.11.2018
-
-Jeff and Jane Hudson - The Middle (2016) [MP3|320 Kbps] <Alternative Pop, Synthpop, New Wave, Electronic Rock, Post Punk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Middle
-02. Innocent
-03. Elephants
-04. Make It So(   Читать дальше...   )Жанр: Alternative Pop, Synthpop, New Wave, Electronic Rock, Post PunkПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B40E09D09388B8F0A3A30170CABB3780915F6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337759   (272363) от 12.11.2019
-
-Boney M. & Friends - Top 40 - Boney M. & Friends (2017) 2CD [MP3|320 Kbps] <Disco, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - Ma Baker
-02. Boney M. - Brown Girl In The Ring
-03. Eruption - One Way Ticket
-04. Milli Vanilli - Baby Don't Forget My Number(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 02:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1E93D9B768F2196BDFBE1D139469320C13601A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265811   (271910) от 30.11.2018
-
-VA - 100 Hits – The Best Dance Album (2018) 5CD [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271910.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Eric Prydz - Call On Me
-02. Armand Van Helden Feat. Duane - You Don't Know Me
-03. Roger Sanchez - Another Chance(   Читать дальше...   )Жанр: DanceПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C446A27DFE00C5DAC2EBEC68ED3E746A6780B324
 ```
 
 https://mybot314.ru/tekegram_catalog/

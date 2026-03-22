@@ -1,3 +1,32 @@
+###  Публикация: 1351984   (1001645) от 12.01.2020
+
+Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streets of Cobblestone
+02. Luminosity
+03. Dancing Light
+04. Fancy Free(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB5F9390FC8508EFD4B2FAEB440B063D47734E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 331898   (1001252) от 13.01.2020
 
 Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <New Age>
@@ -816,41 +845,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A842014C6474F6CB6C04AF42BC844DB77B92F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604547   (996063) от 18.01.2013
-
-Chris Spheeris - Greatest Hits (2CD) (2009) [MP3|320 кб/с]<New Age, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996063.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:01. Andalu
- 02. Quiver
- 03. Field Of Tears
- 04. Eros
- 05. Allura
- 06. From Where They Fall
- 07. Aria
- 08. Laguna
- 09. Bellaire
- 10. Lanotte(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
 ```
 
 https://mybot314.ru/tekegram_catalog/

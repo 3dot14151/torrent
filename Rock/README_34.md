@@ -1,3 +1,148 @@
+###  Публикация: 903721   (656991) от 01.06.2015
+
+Breaking Orbit - Transcension (2015) [MP3|320 кб/с]<Alternative / Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transcension Pt II
+02. When Isis Starts to Cry
+03. Become the Light
+04. Song of the Sea(   Читать дальше...   )Жанр: Alternative / Progressive RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C1ABBDD26A49D5884935EB312F7FCAD6965755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226248   (656961) от 19.05.2018
+
+It's a Beautiful Day - It's a Beautiful Day (1969) Reissue [MP3|320 Kbps] <Psych-Prog, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656961.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Bird
+2. Hot Summer Day
+3. Wasted Union Blues
+4. Girl With No Eyes(   Читать дальше...   )Жанр: Psych-Prog, Folk RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1C148A6BDF6830C3BA543020069F83CFA7240A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140173   (656922) от 05.06.2017
+
+Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records [MP3|320 Kbps] <Rock, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656922.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ghost Story
+2. Remember The Good Times
+3. Arabella (Oh Tell Me)
+4. Silas & Jerome(   Читать дальше...   )Жанр: Rock, Rhythm & BluesПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE53B58898FFE5E5840E37E699AEF847687C14F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903731   (656787) от 01.06.2015
+
+The Flies - Complete Collection 1965-1968 (2001) [FLAC|Lossless]<Garage Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (I'm Not Your) Stepping Stone (Boyce, Hart) - 2:40
+02. The Magic Train (Dunton) - 2:22
+03. House Of Love (Jones, Grainger) - 2:17
+04. Turning Back The Page (Dunton) - 3:47(   Читать дальше...   )Жанр: Garage Rock, Psychedelic RockПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89310CDDF6AE3CCBF3036BD4EF63722E9A60EC12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903749   (656671) от 01.06.2015
+
+Sting - Digitally Remastered (1998) Promo CD [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Love Somebody (Set Them Free) (4:16)
+ 02. Englishman In New York (4:29)
+ 03. One World (Not Three) / Love Is The Seventh Wave (11:10)
+ 04. All This Time (4:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C2226B21B635683FEC5D343DEADF20B973C898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140440   (655976) от 06.06.2017
 
 Phoenician - Last Orders (2017) [MP3|320 Kbps] <Stoner Rock>
@@ -610,151 +755,6 @@ Ozric Tentacles - Technicians Of The Sacred (2015) 2CD [MP3|320 кб/с]<Psyched
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8A4EC30E0CBBD99665E442F1C3BC2BD27C4767F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905284   (651195) от 05.06.2015
-
-Wolves at the Gate - Reprise (2015) [MP3|320 кб/с]<Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Man (feat. Michael McGough from Being As An Ocean)
-02. Relief (feat. Toby Morrell from Emery)
-03. The Bird and the Snake (feat. Ryan Leitru from For Today)
-04. The Father's Bargain (feat. Zach Bolen from Citizens & Saints)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B0F2E12C8463C6EED84A03BE85D7A5B5BD637BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905331   (650761) от 05.06.2015
-
-Muse - Drones (2015) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмой студийный альбом британской рок-группы Muse. Музыканты заявили, что "Drones", в отличие от альбома 2012 года "The 2nd Law", стал более тяжелым и мощным.01. Dead Inside
-02. Drill Sergeant
-03. Psycho
-04. Mercy(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A1AF000D54B0CB645BE143BEDCE147A2CD32D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031799   (649829) от 05.07.2016
-
-Kevin Max - Broken Temples (2015) Deluxe Edition [MP3|320 Kbps] <Alternative Rock, Pop Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Kings Highway
-02. Light Me Up
-03. Just as I Am
-04. Clear(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Christian RockПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065C9C275B11EB29B9C571629220174A7C131EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031901   (649826) от 05.07.2016
-
-Orianthi - Fire (2011) EP [MP3|320 Kbps] <Alt. Rock, Pop Rock, Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heaven in this Hell    04:33
-02.  If You Were Here With Me    04:10
-03.  How Does It Feel    03:07
-04.  How Do You Sleep    04:14(   Читать дальше...   )Жанр: Alt. Rock, Pop Rock, GuitarПродолжительность: 00:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E978B0364F891C257C54D4AE360B4A465E8C2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031791   (649825) от 05.07.2016
-
-Kevin Max - Playing Games With the Shadow (2016) [MP3|320 Kbps] <Alternative Rock, Pop Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantoms of Terra
-02. Girl With the Tiger Eyes
-03. Election
-04. William Blake(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Christian RockПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B2CE4B7D2EDF5A807DD92BEC27E689A29FC8C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

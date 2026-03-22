@@ -1,3 +1,145 @@
+###  Публикация: 916107   (591434) от 07.07.2015
+
+Astro Zombies - Frogs Legs (2015) [MP3|320 кб/с]<Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frogs Legs (02:20)
+02. Alligator Man (04:05)
+03. Use My Axe (03:01)
+04. Zombie Now (03:27)(   Читать дальше...   )Жанр: PsychobillyПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28013D370D13A43ACAFDF38972F049586D501DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916367   (590983) от 08.07.2015
+
+Raccoonies - Raccoonies (2015) [MP3|320 кб/с]<Folk Rock, Blues, Country, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World Around You (05:30)
+02. Your Arms (04:54)
+03. Bird Inside the Clock (03:30)
+04. My Way Back (04:07)(   Читать дальше...   )Жанр: Folk Rock, Blues, Country, Female VocalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446006430054A7B4C0493EEA954EE1EDFF2FC796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916597   (590449) от 09.07.2015
+
+Ronnie Montrose - Music From Here (1994)/2014/ [OGG|481-538 кб/с]<Classic Hard Rock, Instrumental Rock, Guitar Virtuoso>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Walker
+02. Primary Function
+03. Largemouth
+04. Road To Reason(   Читать дальше...   )Жанр: Classic Hard Rock, Instrumental Rock, Guitar VirtuosoПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95ADAD4985706EA8A33A1FAD651B38C33BB11F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917355   (589591) от 11.07.2015
+
+The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n'roll, Rockin'blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Rockin’ PartyЖанр: Rockabilly, Rock'n'roll, Rockin'bluesПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98311ED22979C2C1D508E2B3A1405586BB04928C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917630   (589122) от 12.07.2015
+
+The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Rock, Juke Joint Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses
+02. The Big Finnish
+03. Her
+04. Colorblind(   Читать дальше...   )Жанр: 70's Rock, Juke Joint BluesПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B939A41F766877190F20594D5817E1215AE15D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917577   (589102) от 12.07.2015
 
 Jimi Hendrix - It’s Going To Be A Bit Loud (1969) [MP3|320 кб/с]<Psychedelic Rock>
@@ -592,160 +734,6 @@ Iron Butterfly - Light And Heavy (The Best Of) (1993) [MP3|320 Kbps] <Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD8980A43530F0B635209CEB830AD13510B2D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359736   (582035) от 06.07.2011
-
-Panzer Princess - Get Off My Back (2011) [MP3|320 kbps]<Sleaze Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panzer Princess - 5:20
-02. Bumville Judge - 4:04
-03. Get Off My Back - 3:08
-04. I’ll Be In Your Way - 5:12
-05. Asshole, Bastard (Son Of A Bitch) - 2:56
-06. A Mess - 3:18
-07. No Good - 4:16
-08. Sadat Bloody Sadat - 3:39
-09. Gag Me, Cuff Me - 3:52
-10. Please Cum Down - 3:43(   Читать дальше...)Жанр: Sleaze GlamПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25E4AC4B619292A9CF88176B0FBFE711F1B4541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358927   (581155) от 07.07.2011
-
-The Souldiers - These Times (2011) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Run (3:42)
-02. Down On Me (3:53)
-03. These Times (3:55)
-04. Volunteers (4:29)
-05. Let Me Take You Away (3:50)
-06. Sarah (3:42)
-07. I Hold Your Life (3:04)
-08. Lonesome George (3:45)
-09. One Night Betty (3:04)
-10. Smoke The Devil (3:24)(   Читать дальше...)Жанр: RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5A114702E0A7A643753FECE586A27A163F9503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919505   (580057) от 22.07.2015
-
-Disciple - Дискография (1995-2014) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580057.jpg" />
-</div>
-
-
-###  Подробнее
-
-1995 - What Was I Thinking
-1997 - My Daddy Can Whip Your Daddy (EP)
-2001 - By God
-2003 - Back Again(   Читать дальше...   )Жанр: RockПродолжительность: 09:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE322D1CB1AD84D1A0100E50AAC4CFC8D0C5C606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358784   (579651) от 08.07.2011
-
-Katzenjammer Kabarett - 3 альбома (2005-2009) + Katzenjammer 1 альбом (2008) [MP3|320 kbps]<Dark Cabaret>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dark Cabaret/Death Rock/AvantgardeПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042636   (578386) от 13.08.2016
-
-The Pineapple Thief - Your Wilderness (2016) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578386.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Exile (5:10)
- 2. No Man's Land (4:17)
- 3. Tear You Up (4:52)
- 4. That Shore (4:53)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D113A0C9A371E06CEF9B1F1DC6DF3398FB179C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

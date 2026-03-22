@@ -1,22 +1,25 @@
-###  Публикация: 1694603   (120940) от 25.01.2024
+###  Публикация: 1690713   (123813) от 08.01.2024
 
-Keep It 2.3.8 [Multi]
+Dan Balan - Freedom, Pt. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 
->>Архив торрентов
->>Архив 4Apple
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120940.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
+01. Allegro Ventigo (feat. Matteo) (3:42)
+02. Balzam (feat. Lusia Chebotina) (3:38)
+03. Домой (feat. Тина Кароль) (4:25)
+04. Numa Numa 2 (feat. Marley Waters) (3:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:38:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6BE39591B227C4EC7D65FE442B234B4B26A261C
+magnet:?xt=urn:btih:876C2C2D7BEC15B3ABD4733C68DA9EE53C1B9240
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694546   (120939) от 25.01.2024
+###  Публикация: 1690387   (123812) от 08.01.2024
 
-Author 9.1 [Multi]
+Agnes Obel - Riverside (2010) EP [FLAC|Lossless|tracks + .cue] <Pop, Classical, Vocal>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Классика
+>>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120939.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Author это - полный контроль над процессом авторства с помощью расширенной копии цитирования, расширенного глоссария, расширенных представлений, вырезок и многого другого.
-Когда вы будете готовы поделиться своей работой в формате PDF, вы получите автоматически созданный справочный раздел. Вы также можете публиковать сообщения в WordPress.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2007-2024 The Augmented Text Company LTD, UKПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
+1. Riverside 3:49
+2. Close Watch 4:01
+3. Sons and Daughters 3:15Жанр: Pop, Classical, VocalПродолжительность: 00:11:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3CA5FEC686D33C75D1BCF5151F7FC3FF1B2ECBE
+magnet:?xt=urn:btih:E1F883F9FECAAA315F0B67D6C8DEFD3F21B900A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,28 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694314   (120938) от 25.01.2024
+###  Публикация: 1690718   (123811) от 08.01.2024
 
-Edward De Rosa - Zeitgeist (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
+Трэшовые выходные / The Crusades (2023) WEB-DLRip [DVO] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120938.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Tempus Fugit (01:46)
-02 - Legend - The Omega Man (04:47)
-03 - The Sleep of Reason (04:24)
-04 - Replicants (04:11)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:48:29
+Для многих старшая школа должна определяться дикими вечеринками, интрижками на заднем сиденье и наплевательским отношением. Но когда трое друзей из средней школы для мальчиков «Богоматерь крестовых походов» получают ужасные новости о предстоящем слиянии со своими соперниками, они заключают договор, что проведут последние эпические выходные, прежде чем их жизнь перевернется (   Читать дальше...   )Производство: США / Bad Little ThingЖанр: драма, комедияРежиссер: Leo MilanoАктеры: Руди Панкоу, Халил Эвередж, Ryan Ashton, Индиана Массара, Эшли Николь Уильямс, Анна Мейч, Блейн Майе, Грег Дэвис мл., Николас Туртурро, Майк Старр и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:58Реклама: Присутствуют видео вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D70215B9A549A5248EF0BD626DCEEC6A1D7CE3A
+magnet:?xt=urn:btih:56B6BC98B7276AFB88CB66309D767E947039AA57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694408   (120937) от 25.01.2024
+###  Публикация: 1690623   (123810) от 08.01.2024
 
-Everdying - Dimensions of Mortal Frailty (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
+VA - Selador Decade Mix (Mixed by Dave Seaman & Steve Parry) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120937.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Prized Possession (04:09)
-02 - Hand of Avarice (03:02)
-03 - Fatal Strategy (04:19)
-04 - Weight of the Steel (03:34)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:36:46
+Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:41:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D54058DBCCE7403C22B63CB5CE34EB24272078B5
+magnet:?xt=urn:btih:844D08D3813AC8D3FE22F050DA5D4877742E2609
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,110 +107,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694404   (120936) от 25.01.2024
+###  Публикация: 1690694   (123809) от 08.01.2024
 
-Everdying - Within the Recesses (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You Died That Night (04:38)
-02 - Dissolute Habits (03:50)
-03 - Damnatio Memoriae (04:34)
-04 - The Dark Corner (06:14)(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F152112208BAD72E1828ECD35B8B462026BB20C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694568   (120934) от 25.01.2024
-
-OmniFocus Pro 3.15.5 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
-Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2007-2024 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021CD078176199B892CAAFD650F5555B5A3B2E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694591   (120933) от 25.01.2024
-
-Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановите поврежденные видеофайлы во всех ситуациях. Восстановите видеофайлы, которые невозможно воспроизвести по нескольким причинам в любой ситуации. Исправьте поврежденные видео из-за ошибок загрузки, переноса, ошибок редактирования, неправильных кодеков сжатия, испорченных записей и т. д. Независимо от того, каким образом ваше видео было повреждено, Tipard (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Tipard StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858BFD68DF60B04DDC61940055D626D32EBC9F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694442   (120932) от 25.01.2024
-
-Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion, Contemporary Jazz>
+Armik - Spanish Lover / Illuminate (2021/2022) [FLAC 24/96|Lossless|WEB-DL|tracks] <Flamenco>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120932.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Conundrum (1:31)
-02. Victory is Assured (Alla Breve) (2:39)
-03. Technically Acceptable (4:19)
-04. Who Are You, Really? (3:25)(   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:49:13
+Альбомы:
+2021 - Spanish Lover
+2022 - IlluminateЖанр: Flamenco |Продолжительность: 00:43:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE8EF0EF447AF0DE7F02EEE7996442DF17C18533
+magnet:?xt=urn:btih:C4F9FCEB6131436AE75205A700B3D16177A423F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,26 +135,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694575   (120930) от 25.01.2024
+###  Публикация: 1690612   (123808) от 08.01.2024
 
-MacLoggerDX 6.49 [En]
+Оперативная группа в горах и на море / Потерянные миллионы / B.D. la munte si la mare (1971) HDTVRip [H.264]
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120930.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MacLoggerDX - выбор журнала радиостанций Mac Ham Radio в 148 странах....
-Организация и фильтрация роликов из вашего любимого DX-кластера для DX-инга, случайных контестов или жевания тряпок. MacLoggerDX поддерживает более сотни радиостанций, автоматически настраиваясь на интересующие вас места и поворачивая луч. Оповещение о редких контактах или открытиях диапазонов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2023Разработчик: ©1995-2024 Dog Park Software Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+Новая встреча с героем фильма " Оперативная группа действует " – капитаном Панаитом.
+В этот раз бригада капитана должна сразиться с группой контрабандистов, которые занимаются реализацией наркоты и экспортом украденных в Румынии икон. Руководитель бандитов Василеску использует для реализации своих планов ничего не осознающих Стериаде, Трандафира и Патрауля, (   Читать дальше...   )Производство: Румыния / Romania Film, Studioul Cinematografic BucurestiЖанр: боевик, комедия, криминалРежиссер: Мирча ДрэганАктеры: Тома Караджиу, Дем Рэдулеску, Ион Финтештяну, Пуйу Калинеску, Жан Константин, Себастьян Папаяни, Иоана Драган, Думитру Фурдуи, Юрие Дарие, Георге ОнсиПеревод: Дублированный, киностудия «Мосфильм»Язык озвучки: Русский, румынскийСубтитры: ОтсутствуютПродолжительность: 01:39:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B04A24B53515E2514654A7EE0F20FDB64537F803
+magnet:?xt=urn:btih:C3D963A07B408D096ACB17815F0A015FBB567F32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -247,80 +162,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694416   (120929) от 25.01.2024
+###  Публикация: 1690760   (123807) от 08.01.2024
 
-SQLPro for SQLite 2024.10 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120929.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLPro for SQLit‪e - профессиональный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Hankinsoft Development Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8F59C23FFDBFCA53161CD3F68A3940D8551BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694343   (120928) от 25.01.2024
-
-Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shark Skin Suit (3:58)
-02. Samosas & Kingfishers (5:15)
-03. A Day In L.A. (4:20)
-04. Killzoni (4:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E72E28684FCBC364151980F5D0DEFA5E7EB165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694417   (120927) от 25.01.2024
-
-Musify for Mac 3.5.2 [Multi]
+Sante DICOM Editor 10.0.3 [En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120927.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Musify — лучший конвертер YouTube Music, который может загружать музыку с более чем 1000 веб-сайтов обмена музыкой для прослушивания в автономном режиме без потери качества звука. Такие как: YouTube, Spotify, SoundCloud, Facebook, Instragram и другие. Легко конвертируйте музыкальные файлы mp3, в форматы для  iPhone, iPad, iPod, Samsung и другие устройства iOS и Android. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © Copyright 2023 iTubeGoПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Испанский и др.
+Sante DICOM Editor — это профессиональный редактор DICOM, средство просмотра 2D/3D, анонимайзер, конвертер, дикомайзер, клиент PACS, мини-сервер PACS, устройство для записи CD/DVD пациентов (со средством просмотра) и многое другое.
+Sante DICOM Editor — ведущее в отрасли приложение постобработки для редактирования, преобразования и обработки файлов DICOM, оно используется (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6575CA6F89740BC00B88E2B82E96F3858797005
+magnet:?xt=urn:btih:42135828DAAEC8FB44FA081CA0BBF921ABA44F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,28 +189,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694333   (120926) от 25.01.2024
+###  Публикация: 1690580   (123806) от 08.01.2024
 
-Jean Paul Rena - A thief known for stealing hearts (Silver edition remaster 2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Deva Premal - Deva (2018) [FLAC|Lossless|tracks + .cue] <Mantras>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120926.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Thief Known For Stealing Hearts  (3:44)
-02. If Only For A Day  (3:38)
-03. Paper Bag  (4:07)
-04. Spoonful  (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:14
+01. Seven Chakra Gayatri Mantra
+02. Sarva Mangala
+03. Prabhujee
+04. Buddham Sharanam(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:05:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D3BE70D8E8327CCBEBA8EF68B5A94B99EB0CB84
+magnet:?xt=urn:btih:406CB4E6BF5E0073021EFB3C4D6327107EB6E4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,28 +218,303 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694383   (120925) от 25.01.2024
+###  Публикация: 1690759   (123805) от 08.01.2024
 
-Sexual Perverts - 2 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Sante DICOM Viewer Pro 14.0.3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sante DICOM Viewer Pro — это профессиональная программа для просмотра DICOM, анонимайзер, конвертер, клиент PACS, мини-сервер PACS, программа для записи CD/DVD пациента (со средством просмотра) и многое другое.
+Sante DICOM Viewer Pro не является «еще одним средством просмотра DICOM» , созданным с использованием свободно доступных библиотек, таких как dcmtk, itk и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6511ECC19F3DD3214287731A3BFA84FD23C0B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690586   (123804) от 08.01.2024
+
+Bull Angus - Bull Angus (1971) Reissue, 2010, Mandala [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Donґt Stop 4:28
+02. Motherґs Favourite Lover (Margaret) 3:48
+03. Uncle Dugieґs Fun Bus Ride 4:29
+04. A Time Like Ours 6:26(   Читать дальше...   )Жанр: Psychedelic Rock, Hard RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84C9508B3CB94EE7DE7F2E99994AED16872401B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690573   (123803) от 08.01.2024
+
+Muvi - Compilation (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zara
+ 02.  Paradise
+ 03.  Kiss Me
+ 04.  Need Help Me Friend(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E5B9FD9298EE8B6DA0C8B7A8900BDD3C4C036B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690743   (123802) от 08.01.2024
+
+Text Edit Plus 13.8 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Text Edit Plus — это простой, но мощный текстовый редактор с полезными функциями. Это легкий инструмент, который позволяет пользователям легко создавать новые текстовые документы или изменять существующие. Приложение разработано как альтернатива Блокноту, предлагая более широкий набор функций.
+
+Программное обеспечение представляет собой редактор общего назначения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEFF5CADBE34D68FB58EB8BACF51779654F4A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690654   (123801) от 08.01.2024
+
+Королевский бал на Рождество / A Royal Christmas Romance (2023) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белла Спаркс успешно живёт своим любимым делом, работая в собственном бутике. Однажды судьба сводит её со Стефаном, очаровательным иностранцем, которому необходим модельер, чтобы в срок подготовиться к важному мероприятию. Вскоре девушка узнаёт, что её новый клиент никто иной, как герцог Тэнгфордский.Производство: США / Brad Krevoy Television, HP Styled Christmas Productions, Hideaway PicturesЖанр: Мелодрама, комедияРежиссер: Брэдли УолшАктеры: Даника МакКеллар, Дэймон Рунян, Патрис Гудман, Вики Папавс, Найджел Хэмер, СкоттРайан Ямамура, Крис Фаркуар, Дина ДжарвисПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:58Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87125688AD48E6701631C261809E74EF95E81BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689820   (123800) от 08.01.2024
+
+VA - The Evening Blues (2023) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Williams - The Presence [03:59]
+002. Al Kooper Feat. Jimmy Vivino - Somethin' Goin' On [07:35]
+003. The Saxophones - Savanna [03:46]
+004. Apollo Motel - 15 Mile Shovel [02:41](   Читать дальше...   )Жанр: BluesПродолжительность: 08:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6F03382DBCA0BF01BACACFE147694F335EAD18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690695   (123799) от 08.01.2024
+
+Skillshare | Affinity Photo Master Class iPad Edition (2020) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, класс, я собираюсь рассказать вам все об Affinity Photo на iPad. Рекомендуется использовать карандаш Apple, если он у вас есть. В этом классе я научу вас некоторым базовым вещам, а также некоторым более продвинутым методам, таким как импорт файла из облака, базовым инструментам обрезки, затем мы перейдем к чему-то более сложному, например, использованию режимов (   Читать дальше...   )Жанр: ДизайнЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D58126A9FC59B53D28012AEB3B9097AC0140615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690244   (123798) от 08.01.2024
+
+VA - Beautiful Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+03. Dina Bolshakova - Cello Suite No.1 in G major, BWV 1007 I. Prélude (2:37)
+04. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Var. 1 (2:05)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA4787668C5BB2CCE1CDA15EB585CF0CB06A8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690676   (123797) от 08.01.2024
+
+Cake recipes / Рецепты тортов v11.16.426 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение рецептов торта предлагает вам множество легких и легких рецептов. К ним относятся рецепты бисквитного торта, ванильного торта, масляного торта, маффина, классического пирога, генозы, фунтового торта, а также рецепты без муки.Тип издания: PremiumРелиз состоялся: 07.01.2024Разработчик: Riafy TechnologiesПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26318BB6DDA3462762584E1825A4639C36EC64A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690653   (123796) от 08.01.2024
+
+Возьми меня с собой на Рождество / Take Me Back for Christmas (2023) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123796.jpg" />
+</div>
+
+
+###  Подробнее
+
+После тяжелого рабочего дня в местном магазине подарков Рене загадывает на Рождество желание жить по-другому.Производство: Канада / Vortex ProductionsЖанр: Мелодрама, комедияРежиссер: Кори СевьерАктеры: Ванесса Ленгиз, Кори Севьер, Паула Бодро, Кимберли-Энн Труонг, Бринн Тайра, Мигель Ривас, Джерри Мендичино, Мони ОгунсуйиПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:21:44Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBE0CB4A1C509C39BDC542DD04A9ADFE278EDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690584   (123795) от 08.01.2024
+
+Cain's Dinasty - Hollow Earth (2015) Reissued 2017 Japan Edition [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120925.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. El Llamado (Intro) [00:00:21]
-02. Destilator [00:04:17]
-03. Nacidos Para Follar [00:03:32]
-04. Fuck´n´roll [00:01:49](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 2 CD, 01:15:29
+01. The Grey Ones
+02. The Roots of Mankind
+03. Two Fools Against the World
+04. Screaming Lungs(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B180B0FDBB6DF549D09ACF5DB6017A86CD209893
+magnet:?xt=urn:btih:4D8B82CC54467D8C0CAD3AEE0032538C20BAEF7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,28 +522,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694371   (120924) от 25.01.2024
+###  Публикация: 1690701   (123794) от 08.01.2024
 
-Banev! - Синдром разбитого сердца (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
+Distraid - Знак Саламандры (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120924.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Со своей любовью [00:04:34]
-02. Сердце вскрылось [00:03:48]
-03. Паралич [00:04:08]
-04. Выживем [00:03:31](   Читать дальше...   )Жанр: Indie, Alternative RockПродолжительность: 00:50:34
+01. На страже неба [00:05:00]
+02. Власть [00:04:08]
+03. 47 Ронинов [00:05:48]
+04. Гнев морей [00:04:24](   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, Heavy MetalПродолжительность: 00:47:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:405BF10D8C58185638DFAA5DFA5CCEFCF542D7AD
+magnet:?xt=urn:btih:E21978CF0FB9D7425573E25CB980C08FC0202C89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +551,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694627   (120923) от 26.01.2024
+###  Публикация: 1690698   (123793) от 08.01.2024
 
-Катастрофа / Acide (2023) BDRemux [H.264/1080p]
+KATCH Me Please - Дом (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore, Electronic>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120923.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По всему миру наблюдаются аномальные случаи кислотных дождей, уничтожающих все живое. В центре смертоносной стихии оказывается пятнадцатилетняя Сельма и ее родители. Вместе им предстоит объединить все силы, чтобы спастись от вселенской угрозы и пережить апокалипсис.Производство: Франция, Бельгия / Bonne Pioche, Pathé Films, France 3 CinémaЖанр: Фантастика, триллер, боевикРежиссер: Жюст ФилиппоАктеры: Гийом Кане, Летиция Дош, Пейшнс Мюнхенбах, Мари Юнг, Мартен Версе, Сулиан Брахим, Клеман Брессон, Паскаль Парментье, Суфьян Менуни, Микаэль ПересПеревод: Дублированный (CPI Films)Язык озвучки: Русский, ФранцузскийСубтитры: Французские (Forced, Full), Английские (Full)Продолжительность: 01:39:47
+01. К облакам [00:04:50]
+02. Полетать [00:03:55]
+03. Жертвы [00:03:31]
+04. 29 [00:04:48](   Читать дальше...   )Жанр: Alternative Metal, Metalcore, ElectronicПродолжительность: 00:35:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:948D14FD6FEEFBDEE9530FCFED68A23FAFAC686B
+magnet:?xt=urn:btih:F84D8852C52B752447D188341BADCA9829154777
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,26 +580,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221393   (120922) от 26.01.2024
+###  Публикация: 1690624   (123792) от 08.01.2024
 
-Звуковые библиотеки - NNM-Club - General-purpose soundfont bank - 1221393 [SF2]
+Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120922.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Попытка сделать что-то более-менее универсальное из микса различных банков и отдельных инструментов.  Использовались банки Musyng Kite, Colossus, SGM-V2.01, Arachno SoundFont, OmegaGMGS2 и другие источники.
-Главным образом нужен для воспроизведения MIDI-файлов в старых играх.Формат: SF2
+01. Them There Eyes [2:03]
+02. Don't Worry About Me [3:39]
+03. It's Whatcha Do with Whatcha Got [2:07]
+04. All of Me [2:27](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:12:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F34DACA4ED6E0F02080E535255FFF5F7AC887F8
+magnet:?xt=urn:btih:E8213F8C1B00E8EEC4DC6B6586C5906E5D127ABA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,25 +609,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694739   (120921) от 26.01.2024
+###  Публикация: 1690639   (123791) от 08.01.2024
 
-Аквамен и потерянное царство / Aquaman and the Lost Kingdom (2023) WEB-DLRip
+Лев Зилов | Губная гармошка (1928) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120921.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Над Атлантидой нависла новая угроза, способная привести к необратимой катастрофе. Даже Аквамен не сможет справиться в одиночку – ему предстоит заключить неожиданный союз ради спасения своего королевства.Производство: США, Великобритания, Канада, Австралия, Исландия / Warner Bros., DC EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс ВанАктеры: Джейсон Момоа, Патрик Уилсон, Яхья Абдул-Матин II, Дольф Лундгрен, Темуэра Моррисон, Николь Кидман, Яни Жао, Эмбер Хёрд, Винсент Риган, Рэндалл ПакПеревод: Дублированный (SC Produb), профессиональный многоголосый (Jaskier)Язык озвучки: русскийСубтитры: Русские (Forced hardsub) - на надписиПродолжительность: 02:04:07
+Короткий рассказ повествует о том как Мишка с отцом поехали на ярмарку. Ведь отец обещал ему купить губную гармошку.
+Для младшего школьного возраста. Иллюстрации М. Шуцмана.Жанр: РассказИздательство: Типо-лит. Госиздата "Красный пролетарий"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3654239CF881F869B756C002B7360C6A41D8F033
+magnet:?xt=urn:btih:07AC32E9143163021CA0E5F6DFBC834018F499BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +636,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 215250   (120920) от 26.01.2024
+###  Публикация: 1690660   (123790) от 08.01.2024
 
-Приключения в городе, которого нет (1974) DVDRip
+Доктор Баллуз / Dr. Ballouz (2023) WEB-DLRip [H.264/1080p] (сезон 3, серии 1-6 из 6) ViruseProject [AD]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120920.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пионер Слава Курочкин время зря не теряет. Физику изучает, астрономию всякую, химию. А книжки разные литературные ему читать некогда. Космос зовет... Но бывает же такое: случайно попадает он в фантастический мир, в котором живут знаменитые литературные персонажи: Том Сойер, Гек Финн, пират Сильвер, Дон Кихот, Пеппи Длинныйчулок. С каждым из них Слава должен встретиться (   Читать дальше...   )Производство: : СССР, БеларусьфильмЖанр: Музыкальная сказкаРежиссер: Леонид НечаевАктеры: Женя Горячев, Игорь Анисимов, Вячеслав Баранов, Саша Плющев, Саша Покко, Ирина Шилкина, Таня Прусакова, Игорь Амбражевич, Миша Сачук, Игорь Гущин, Игорь Кондратович, Валентинас Скулме, Валерий Носик, Леонид Каневский, Иван Переверзев, Николай Гринько, Вадим Александров, Александр Пятков, Гедиминас Карка, Леонид Крюк, Ростислав ШмыревКачество: DVDRipПродолжительность: 01:20:26
+В небольшой клинике в Уккермарке одаренный и незаурядный врач Амин Баллуз борется за благо пациентов и в то же время против собственного прошлого. Со своей командой он оказывает медицинскую помощь в идиллическом местечке на границе с Польшей.
+В молодости он покинул родину ради своей любимой жены Мары и обрёл в Германии новый дом, питая к стране и людям, которые его (   Читать дальше...   )Производство: Германия / X-Filme Creative PoolЖанр: драма, комедияРежиссер: Andreas Menck, Филипп Остас, Феликс АренсАктеры: Мераб Нинидзе, Юлия Рихтер, Дэниэл Фриц, Надя Бобылева, Винсент Крюгер, Михаэль Кинд, Гизела Аберхольд, Тереза Софи Альберт, Уте Любош, Клелия Сарто и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F8B9BBC902C09CF63BFF8930641D7FD4AB0C247
+magnet:?xt=urn:btih:FA104C9E6D6E28324DB433FC4BE64FC31123E7C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +663,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694682   (120919) от 26.01.2024
+###  Публикация: 1690587   (123789) от 08.01.2024
 
-Modern Tweaker 2.0 Final (25.01.2024) Portable [Ru]
+VA - One Year Anniversary (2024) [MP3|320 Kbps] <Trance>
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120919.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Modern Tweaker - программная оболочка для твиков Windows, позволит даже неискушенному пользователю без знаний и труда увеличить производительность Windows.Язык интерфейса: Русский
+01. Exolyfe - The Blue Moon (Original Mix) [07:03]
+02. Trance X - Space (Extended Mix) [07:38]
+03. Silver7 - So Far Away (Original Mix) [06:16]
+04. Invision - Skyfall (Extended Mix) [06:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF8E555948D527F933A5FFAAB3484D5C68E110C0
+magnet:?xt=urn:btih:52D2165E30F7DA668E7F3BA280378C69F79DB751
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,157 +692,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694672   (120918) от 26.01.2024
+###  Публикация: 1690641   (123788) от 08.01.2024
 
-Patreon, Timur Shemsedinov | Технологический стек Node.js (2022-2023) WEB-DL [RU]
+Александра Невтонова | В порту (1926) [PDF]
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120918.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Объем материала: 20 часов лекций, еженедельно 2 часа семинары в течении года, репозитории с примерами кода. Чем это курс не является: это не чтение документации, не курс по фреймворкам, не курс по Metarhia, не повторение старого курса, не лайвкодинг и не мастеркласс, не стрим. Новый курс - это максимально сконцентрированная информация и практические задачи по разработке (   Читать дальше...   )Производство: PatreonЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 207:11:19
+В рассказе речь пойдёт о коротком промежутке времени из жизни бездомных мальчишек. О том, с какими трудностями приходится им сталкиваться на своём бродяжном веку.
+Для детей среднего школьного возраста. Иллюстрации Д. Мощевитина.Жанр: РассказИздательство: Издание Г.Ф.МиримановаФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBEFEA76812348FFECF940B285B8E61FC619E04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488813   (120917) от 26.01.2024
-
-Лицо со шрамом / Scarface (1983) BDRip [720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем - «Лицо со шрамом»...Производство: США / Universal PicturesЖанр: Драма, КриминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель СаласарПеревод: Многоголосый закадровый, Двухголосый закадровый, Авторский одноголосыйСубтитры: Английские, РусскиеПродолжительность: 02:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51BED5340D0C2BAC26E517AD075093200565EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 649241   (120916) от 26.01.2024
-
-Сказка о Мальчише-Кибальчише (1964) DVBRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В те дальние годы, когда только что отгремела по всей стране война, жил да был Мальчиш, по прозванию Кибальчиш… Но пришла беда, откуда не ждали. Напал из-за Черных Гор проклятый Буржуин. Опять уже свистят пули, опять уже рвутся снаряды.
-Бьются с буржуинами наши отряды, и мчатся гонцы звать на помощь далекую Красную Армию. Да примчался к ним на подмогу Мальчиш-Кибальчиш…Производство: СССР, Киевская киностудия им. А. П. ДовженкоЖанр: семейный, драма, военныйРежиссер: Евгений ШерстобитовАктеры: Сергей Остапенко (...Мальчиш-Кибальчиш), Анатолий Юрченко, Сергей Сибель, Юрий Лавров, Сергей Мартинсон, Лев Перфилов, Сергей Тихонов, Леонид Галлис, Дмитрий Капка, Петр Кирюткин, Александр Толстых, Виктор Полищук, Петр Соболевский.Субтитры: ОтсутствуютПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E68CB9A9C0E73A6607295EB9E546D4DD0CDADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694834   (120915) от 26.01.2024
-
-Udemy, Bogdan Stashchuk | CSS - Полный Курс по CSS (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на полный курс по CSS, где вы выучите все основы CSS и выполните множество практических упражнений. Этот курс создан для того, чтобы вы уверенно владели стилями и могли превратить свои веб приложения в настоящие произведения искусства. Вы начнете с основ CSS, научитесь  применять стили к разным элементам и разберетесь с тем, как создать адаптивный (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 12:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45028430A5505E5E058242FBCD085BB6BC4A8574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694754   (120914) от 26.01.2024
-
-Тролли 3 / Trolls Band Together (2023) BDRip [H.264/1080p] [UKR, EN / EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Розочка узнает, что её возлюбленный Цветан когда-то был частью её любимого бойз-бэнда «Братаны» вместе со своими четырьмя братьями. Группа распалась, когда Цветан был ещё младенцем, и с тех пор он не видел своих братьев, но когда одного из них похищают неизвестные злодеи, Цветан и Розочка отправляются в путешествие, чтобы наконец-то воссоединить семью с помощью волшебной (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Уолт Дорн, Тим ХейцАктеры: Джастин Тимберлейк, Анна Кендрик, Зои Дешанель, Давид Диггс, Кристофер Минц-Плассе, Эндрю Рэннеллс, Трой Сиван, Кунал Найяр, Кевин Майкл Ричардсон, Кид КадиПеревод: Дублированный (укр. Rakuten)Язык озвучки: украинский, английскийСубтитры: английские (OCR, SDH / OCR, Commentary)Продолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3382815D7EA06876CEDFAF8B91336CD980A9D276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694772   (120913) от 26.01.2024
-
-Миграция / Migration (2023) WEB-DL [H.264/1080p] [UKR, EN / EN Sub] [Line]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство крякв находится в затруднительном положении: пока отец Мак Маллард доволен тем, что его родные всегда будут в безопасности, живя в пруду в Новой Англии, мама Пэм стремится встряхнуть их и показать своим детям — сыну-подростку Дэксу и маленькой дочке Гвен — каким большим и многогранным может быть мир.
-После того, как семейство мигрирующих уток приземляется (   Читать дальше...   )Производство: США, Франция, Канада, Universal Pictures, Illumination EntertainmentЖанр: мультфильм, приключения, комедия, фэнтезиРежиссер: Бенжамин Реннер, Гейло ХомсиАктеры: Кумэйл Нанджиани, Треси Газаль, Элизабет Бэнкс, Каспар Дженнингс, Изабела Мерсед, Дэнни ДеВито, Кэрол Кейн, Аквафина, Кигэн-Майкл Ки, Дэвид МитчеллПеревод: Дублированный (укр. Line)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DBFB7388C066D8761C33C5FB9946AC469317A0
+magnet:?xt=urn:btih:51A5F026B70D9C4F57885FB51A211407AC9DAD86
 ```
 
 https://mybot314.ru/tekegram_catalog/

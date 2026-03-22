@@ -1,3 +1,213 @@
+###  Публикация: 500574   (257194) от 23.05.2012
+
+Ethel Waters - Ethel Waters (1921-1923) (1994) [FLAC|Lossless]<Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New York Glide
+02. At the New Jump Steady Ball
+03. Oh Daddy
+04. Down Home Blues
+05. One Man Nan
+06. There'll Be Some Changes Made
+07. Dying With the Blues
+08. Kiss Your Pretty Baby Nice
+09. Frisco Jazz Band Blues
+10. Royal Garden Blues(   Читать дальше...   )1994Жанр: Vocal Jazz, SwingПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500579   (257174) от 23.05.2012
+
+Mary Lou Williams - Mary Lou Williams (1927-1940) (1992) [FLAC|Lossless]<New Orleans Jazz, Bop, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Stomp (Jeanete's Synco Jazzers) (2:45)
+02. The Bumps (Jeanete's Synco Jazzers) (2:31)
+03. Down In Gallion (John Williams' Synco Jazzers) (3:14)
+04. Goose Grease (John Williams' Synco Jazzers) (3:17)
+05. Pee Wee Blues (John Williams' Synco Jazzers) (3:28)
+06. Now Cut Loose (John Williams' Synco Jazzers) (2:48)
+07. Night Life (Mary Lou Williams) (2:59)
+08. Drag 'Em (Mary Lou Williams) (2:55)
+09. Corny Rhythm (Mary Lou Williams) (2:46)
+10. Overhand (New Froggy Bottom) (Mary Lou Williams) (2:50)(   Читать дальше...   )1992Жанр: New Orleans Jazz, Bop, PianoПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500132   (257172) от 23.05.2012
+
+Albert Ammons - Albert Ammons (1936-1946) (1997) [FLAC|Lossless]<Boogie-Woogie>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Louis Blues (3:54)
+02. Mecca Flat Blues (3:56)
+03. Bass Gone Crazy (3:37)
+04. Monday Struggle (3:56)
+05. Boogie Woogie (3:30)
+06. Albert's Special Boogie Woogie (3:02)
+07. The Boogie Rocks (3:03)
+08. Blues On My Mind (3:09)
+09. Bugle Boogie (2:53)
+10. Blues In The Groove (3:05)(   Читать дальше...   )1997Жанр: Boogie-WoogieПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500577   (257167) от 23.05.2012
+
+Sarah Vaughan - Sarah Vaughan (1946-1947) (1998) [FLAC|Lossless]<Vocal Jazz, Ballads>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got A Crush On You
+02. I'm Through With Love
+03. Everything I Have Is Yours
+04. Body And Soul
+05. Penthouse Serenade (When We're Alone)
+06. Don't Worry 'Bout Me
+07. Time After Time
+08. September Song
+09. I Cover The Waterfront
+10. I Don't Stand A Ghost Of A Chance With You(   Читать дальше...   )1998Жанр: Vocal Jazz, BalladsПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498513   (257150) от 23.05.2012
+
+Bethany & Rufus Roots Quartet - Live a FIP (2009) [FLAC|Lossless]<Folk-Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's gonna be your man ? (3:45)
+02. Linin' Track (4:43)
+03. No More (4:58)
+04. If I Had my Way (3:22)
+05. Sail Away Ladies (6:32)
+06. This Train (3:18)
+07. No Mercy in the Land (4:02)
+08. Iraq (4:25)
+09. Oh Death (5:15)
+10. St James Infirmary (7:16)(   Читать дальше...   )2009Жанр: Folk-Jazz, Vocal JazzПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499966   (256947) от 22.05.2012
+
+Fletcher Henderson - Fletcher Henderson and His Orchestra (1937-1938) (1990) [FLAC|Lossless]<Dixieland, New Orleans Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Wearin' Me Down (2:54)
+02. Slumming On Park Avenue (2:30)
+03. Rhythm Of The Tambourine (2:42)
+04. Stampede (3:09)
+05. Back In Your Own Backyard (2:34)
+06. Rose Room (In Sunny Roseland) (3:01)
+07. Great Caesar's Ghost (2:24)
+08. If You Ever Should Leave (3:03)
+09. Posin' (2:48)
+10. All God's Chillun Got Rhythm (2:43)(   Читать дальше...   )1990Жанр: Dixieland, New Orleans Jazz, Big Band, SwingПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499021   (256462) от 21.05.2012
 
 Louis Armstrong - Gold collections [Lossless]<Jazz> 4CD
@@ -606,198 +816,6 @@ Sarah Menescal - Moonlight Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa No
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8F9D7F273826E66A87946372985AE47B7CDC8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495616   (251413) от 12.05.2012
-
-VA - Blue Notes - The Finest Voices In Jazz (2005) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astrud Gilberto with Antonio Carlos Jobim - Agua de Beber
-02. Melissa Walker - A Time For Love
-03. Mel Torme - I've Got You Under My Skin
-04. Tower Of Power - Soothe You
-05. Christopher Cross - Sailing
-06. Everything But The Girl - Tender Blue
-07. Kyle Eastwood - In The Wee Small Hour
-08. Ambrosia - You're The Only Woman
-09. Aretha Franklin - Walk On By
-10. Basia - Astrud(   Читать дальше...   )2005Жанр: JazzПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495238   (251166) от 11.05.2012
-
-Fausto Papetti - Grand Collection (1988) [FLAC|Lossless]<Pop, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Called To Say I Love You
-02. Bossa For My Lady
-03. Mask The Knife
-04. Love Me From "Goodfather"
-05. Adagio Di Albioni
-06. The Windmiles Of You Mind
-07. Love Story
-08. Strangers In The Night
-09. This Is Not America
-10. Reality(   Читать дальше...   )1988Жанр: Pop, JazzПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495307   (251128) от 11.05.2012
-
-Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swing, Classic Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saratoga Shout (3:32)
-02. Song Of The Swanee (3:24)
-03. Give Me Your Telephone Number (3:11)
-04. Higginbotham Blues (3:29)
-05. Louisiana Swing (3:10)
-06. Poor Li'l Me (3:06)
-07. On Revival Day (3:09)
-08. Muggin' Lightly (2:57)
-09. Panama (3:15)
-10. High Tension (2:54)(   Читать дальше...   )Жанр: Swing, Classic Jazz, Big BandПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619107   (249821) от 14.03.2023
-
-Fats Waller - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georgia on My Mind [3:04]
-02. Rockin' Chair [3:09]
-03. Carolina Shout [2:22]
-04. Honeysuckle Rose [3:26](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76C58AC0E9CF12E4F67F0CD5CCCFE6C682A50A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619206   (249767) от 15.03.2023
-
-Michael Feinstein - Michael & George: Feinstein Sings Gershwin (1998) Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embraceable You [4:40]
-02. Nobody But You [3:56]
-03. Love Is Here to Stay [4:14]
-04. Do It Again [4:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EE96B5DEAF311E488EECF16B29CE000294D6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564700   (249632) от 20.07.2022
-
-Clifford Brown & Max Roach All Stars - Best Coast Jazz (1954) 2015, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coronado [19:49]
-02. You Go to My Head [17:15]
-03. Caravan [15:12]
-04. Autumn in New York [21:38](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23AB0E6A57B5FC13BDE16286DFA052060F17301
 ```
 
 https://mybot314.ru/tekegram_catalog/

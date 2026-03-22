@@ -1,3 +1,177 @@
+###  Публикация: 1456114   (243436) от 21.03.2021
+
+Veronica Swift - This Bitter Earth (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Bitter Earth
+02. How Lovely to Be a Woman
+03. You've Got to Be Carefully Taught
+04. Getting to Know You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC784E91AF00513C9F6FA2C406CA3E9B17CBD1D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340291   (243434) от 23.11.2019
+
+VA - The Savory Collection 1935-1940 (2018) 6CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243434.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Coleman Hawkins - Body and Soul [5:54]
+02. Coleman Hawkins - Basin Street Blues [5:54]
+03. Coleman Hawkins - Lazy Butterfly [1:05](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 06:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8969C04D73F6498C82CCC236F325841CF50A158B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077673   (243432) от 01.12.2016
+
+National Youth Jazz Orchestra - Remembrance (1991) [FLAC|Lossless|image + .cue] <Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembrance (for Jim) (8:26)
+02. Remembrance (for Chris/Eamonn) (4:15)
+03. Remembrance (for Kenny/Charlie (8:01)
+04. Remembrance (for Valery) (1:30)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF63184FDB2A18298179FC499D7386BCC707F504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340297   (243419) от 23.11.2019
+
+Joe Williams - Presenting Joe Williams And Thad Jones & Mel Lewis Jazz Orchestra 1966 (1994) Blue Note Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out of My Life Woman [3:22]
+02. Woman's Got Soul [2:23]
+03. Nobody Knows the Way I Feel This Morning [4:31]
+04. Gee Baby, Ain't I Good to You [2:52](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB1AE8F25BD59AFACD3E03FD348B2EB049BAEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078690   (243418) от 01.12.2016
+
+National Youth Jazz Orchestra - 47 Frith Street (1998) [FLAC|Lossless|image + .cue] <Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet London Bridge
+02. The Whole Thing
+03. El Rey Pedro
+04. Roxy Beaujolais(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC701EA3259A69C6EDC21E59FF2928759BAEB727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627067   (243405) от 17.04.2023
+
+Zoot Sims & Bucky Pizzarelli - Send In The Clowns (1990) 1997, MCR [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summerset [4:15]
+02. Honeysuckle Rose [4:01]
+03. A Summer Thing [3:21]
+04. Somebody Loves Me [3:38](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0D6D9C173585C095DF70304A0887813DB24933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077685   (243404) от 01.12.2016
 
 National Youth Jazz Orchestra - Hallmark (1993) [FLAC|Lossless|image + .cue] <Big Band>
@@ -571,180 +745,6 @@ Duke Ellington And His Orchestra - Ellington Indigos (1957) 1989, Columbia [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2BB2EF9F40C6BA5A37E8C034DB8AFE59B646557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627450   (242995) от 19.04.2023
-
-GoGo Penguin - Everything Is Going to Be OK (2023) [FLAC|Lossless|WEB-DL|tracks] <jazz, fusion, contemporary jazz, future jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Stronger Than You Think [00:01:16]
-02. Glimmerings [00:04:01]
-03. Saturnine [00:04:53]
-04. Glow [00:02:40](   Читать дальше...   )Жанр: jazz, fusion, contemporary jazz, future jazzПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A7BC28EFB2121C9FDF7DDB3C4F18DFB79F3615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627432   (242948) от 19.04.2023
-
-James Carter Organ Trio - Live from Newport Jazz (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le manoir de mes reves [11:29]
-02. Melodie au crepuscule [10:47]
-03. Anouman [10:06]
-04. La valse des niglos [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FA46FEBE47870AF057112B58C75BD04B604667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358760   (242945) от 09.02.2020
-
-Ivan Paduart - Enivrance (2015) Mons Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eruptions [4:47]
-02. Boyhood [5:04]
-03. Paresse Infinie [4:09]
-04. Molo Molo [6:00](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCF05276C670D05795B077A241E259EB6364475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457226   (242938) от 25.03.2021
-
-Piano Cats, Tamana Yaguchi - Better Concentration Piano BGM (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The More I Think About It (02:18)
-02. Concentrated Efforts (02:12)
-03. Better Brilliance (02:17)
-04. The Key to Intelligence (02:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98EF19C8A45EEC72F084322478EC19A3ADFE053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614975   (242928) от 24.02.2023
-
-Freddie Hubbard - Bolivia (1991) Limelight [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homegrown [8:45]
-02. Bolivia [6:58]
-03. God Bless the Child [6:34]
-04. Dear John [7:33](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B1F0D9AD5E38BC7CBDDAA3A937F723885A532F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614818   (242911) от 24.02.2023
-
-JB Project - Akira Jimbo & Brian Bromberg - Brombo III!!! (2017) [FLAC|Lossless|image + .cue] <Jazz, Jazz Rock, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Actual Proof (00:04:54.31)
-02. Stratus (00:07:23.12)
-03. Hybrid Life (00:05:48.18)
-04. Teen Town (00:05:37.21)(   Читать дальше...   )Жанр: Jazz, Jazz Rock, Jazz FusionПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C6321A7F6AA607DC14A4DF00CD95FB6D10D7DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

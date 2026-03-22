@@ -1,3 +1,176 @@
+###  Публикация: 1678776   (142572) от 23.11.2023
+
+Midnight Dreams - Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Hard Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oddments [00:05:18]
+02. Last Farewell [00:07:40]
+03. Discharged [00:07:29]
+04. Journey [00:10:50](   Читать дальше...   )Жанр: Psychedelic Hard Rock, Art RockПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738EE9F46F84AF6CB5A1311E575F6B41F3052D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678774   (142260) от 23.11.2023
+
+Joker's IV - Pink World (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:09]
+02. Put Your Trust In Me [00:04:04]
+03. You Got Me Running [00:03:48]
+04. When We Were Kids [00:03:57](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54ECB3544EA525BC8BADEC7813913B016168E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348372   (141849) от 29.12.2019
+
+Rydell & Quick - 2 альбома Discography (2006-2012) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2006 - R.O.C.K.O.H.O.L.I.C
+2012 - R.O.A.D.T.R.I.PЖанр: Melodic Hard RockПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4509E2C93B2F1B4833A26BDA93016BC72022B276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435750   (141196) от 29.12.2020
+
+Sweet - Isolation Boulevard (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141196.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fox on the Run [3:21]
+ 2. Still Got the Rock [3:41]
+ 3. Action [3:19]
+ 4. Love Is Like Oxygen [6:51](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946AED832547A5519DAA0E9847A866E3D8BD7D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520629   (140873) от 29.12.2021
+
+Bad Montana - Crazy Game (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride on Wheels 05:23
+02. Doing Time 04:30
+03. Piano Man 05:31
+04. Broken Promise 04:38(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF66DD95FC24C43B22BB438D1078F1480C0ABDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087500   (140567) от 30.12.2016
+
+Dare - 8 Albums (1988 - 2016) 8CD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home (4:45)
+02. I'll Hear You Pray (4:20)
+03. Strength (4:17)
+04. Every Time We Say Goodbye (4:01)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 06:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7713C7796F193170AA8BB469FE187BDDF79E7071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679121   (140527) от 24.11.2023
 
 Dead Moon - Going South (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Punk-Rock>
@@ -577,186 +750,6 @@ Dokken - 27 альбомов (1983 - 2023) 37 CD[FLAC|WavPack|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9486AD57474D4FCBEC4DDFFC23F9646E89852C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681246   (133160) от 02.12.2023
-
-Brian Durbin - Only Jams (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake This City [00:04:00]
-02. Give Me Your Love Tonight [00:04:45]
-03. Something New [00:04:10]
-04. Make A Scene [00:04:38](   Читать дальше...   )Жанр: Glam, Hard-RockПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F36A46E9DD52AD85FB2AD75EAF7CCD4F12E3614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681512   (132763) от 03.12.2023
-
-PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faded [00:03:19]
-02. Your Prize [00:04:20]
-03. Diverge [00:04:38]
-04. Fire When Ready [00:03:50](   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A453C41BF249DFB0FED213260D509C0C9CFCAE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681421   (132647) от 03.12.2023
-
-Ghost - 13 Commandments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Square Hammer [00:03:59]
-02. Year Zero [00:05:50]
-03. Mary On A Cross [00:04:04]
-04. Call Me Little Sunshine [00:04:44](   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0ED8DC15C99D530F39DF3E95DECE5366D3E119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152509   (132489) от 03.12.2023
-
-Graveyard - 6 albums (2007-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Stoner, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graveyard — шведская хард-рок-группа из Гётеборга, основанная в 2006 году, играющая в жанре стоунер, блюз-рок, с примесями психоделического рока. Дебютный одноименный альбом был выпущен 10 сентября в 2007 году в Шведции, 25 Марта 2011 года на лейбле Nuclear Blast вышел второй альбом группы, Hisingen Blues. Альбом был тепло встречен критиками, а также находился в (   Читать дальше...   )--------------------------
-
-01. Godnatt (3:16)
-02. Twice (2:41)(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner, Blues Rock |Продолжительность: 04:01:57 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEC57AD16444E6F3E907684A61D44C15A546291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630580   (132222) от 04.12.2023
-
-Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelations (2:35)
-02. Diamonds And Rust (5:19)
-03. Morning Star (7:35)
-04. Dust In The Wind (4:34)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89A6BB21601FF9993CA8D1FE23330C24933862A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596366   (131425) от 30.12.2012
-
-Damn Yankees - Damn Yankees / Don't Tread (1990/1992) [WavPack|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Of Age [04:20]
-02. Bad Reputation [04:29]
-03. Runaway [04:03]
-04. High Enough [04:45]
-05. Damn Yankees [04:39]
-06. Come Again [05:39]
-07. Mystified [04:15]
-08. Rock City [04:26]
-09. Tell Me How You Want It [04:33]
-10. Piledriver [04:27]Жанр: Hard RockПродолжительность: 01:38:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

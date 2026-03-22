@@ -1,3 +1,61 @@
+###  Публикация: 1764847   (34697) от 09.12.2024
+
+VA - Lounge Philosophy Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Music Of The Earth - Slow Jam (Original Mix) (02:31)
+ 02 - Charly'n Black - Today (Original Mix) (03:10)
+ 03 - Abraxas - Just a Warm Feeling (Original Mix) (05:43)
+ 04 - Peter Pearson - Cool as a Mountain Stream (Original Mix) (04:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1C073D196C5AC17BD5AD2F9FB85B1E973EF59A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765262   (34553) от 11.12.2024
+
+VA - Love Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Calmabohain - Underwater World (04:13)
+ 02 - Living Room - Like an Old Jazz Record (03:07)
+ 03 - Emergency Kisses - Take Me Back (03:57)
+ 04 - Weber & Weber - Fly on Wings (Original Mix) (04:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332DA6CB506E3D4748D36D249154555022A3ECDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765148   (34497) от 11.12.2024
 
 VA - The Winter Chillout Collection: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ VA - Italian Restaurant Chill Music Vol. 2 (Beats to relax) (2022) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9080382507CA3F31A9DE933329407B9F278283AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793832   (20161) от 26.04.2025
-
-VA - Golden Hour Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Licensed to Chill (4:22)
-02. Fake and True - The Way I Move (5:50)
-03. Sole Spirit - Floating Time (2:46)
-04. Ian Otta - Slowmotion (3:18)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998CFA4924F4F1BA8279C6B18888DE951EB1BAF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794741   (19765) от 30.04.2025
-
-VA - Chill Out Tempel (Ambient Chill Out Tunes), Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Five Seasons - Atlantis (Remastered) (04:34)
- 02.  CA3RD - Dream of Tibet (Mallet Version) (06:20)
- 03.  Shortlab - Blessings In The Night (05:32)
- 04.  L.M.F. - Adho Mukha Svanasana (Relaxing Song) (04:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, AmbientПродолжительность: 02:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E8B2C2718BB9366AE6A798CD672C027F8AECDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1649683   (229168) от 28.07.2023
+
+RAR Extractor - The Unarchiver 8.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_229168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте любой формат файла архива. Поддержка извлечения RAR, ZIP, 7Z, TAR, GZIP, GZ, BZIP2, LZIP, ACE, ISO, PAX, PKG, APK, LBR, MSI, JAR, XZ, LZMA, BZ, LZH, CAB, CPIO, SWF, SPK, MSI, SEA, NRG, MDF, TAZ, ACE, LBR, RPM, CPT и т. д.Тип издания: macOS SoftwareРелиз состоялся: 27.07.2023Разработчик: © 2023. ElimisoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9490035BEB43C923FEA0FE4A3B9ED28459027E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424356   (228946) от 16.11.2020
 
 Aquarium 4K – Live Wallpaper 1.0.4 [En]
@@ -659,32 +685,6 @@ Mirror for Panasonic TV 3.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE42467B87B220B832FAB412CD1D7B3289A323AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652846   (216200) от 13.08.2023
-
-Rectangle Pro 3.0.6 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2023 Ryan HansonПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777716D6B1EB8DFBA7278FADA05852046E272E8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

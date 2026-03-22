@@ -1,3 +1,119 @@
+###  Публикация: 1553552   (581869) от 26.05.2022
+
+Sever - This Should Have Been a Better Place (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581869.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. '91
+2. Red Room
+3. Animal
+4. Cold World(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5682CA81082294BFF16118A7328B1AB3FB4279FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302307   (581315) от 15.05.2019
+
+SASAMI - SASAMI (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was a Window (feat. Dustin Payseur) (03:34)
+02. Not the Time (02:50)
+03. Morning Comes (04:23)
+04. Free (feat. Devendra Banhart) (04:30)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFD80B771DCC418CBDFC5C4E5483A588B22B3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302312   (581313) от 15.05.2019
+
+Mac DeMarco - Here Comes the Cowboy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes The Cowboy (03:00)
+02. Nobody (03:32)
+03. Finally Alone (02:24)
+04. Little Dogs March (02:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF905998E6F2860925A436F3B2B9140AB07FF1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042129   (580470) от 11.08.2016
+
+Evans Blue - Letters From The Dead (2016) [FLAC|Lossless|tracks] <Alternative Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Letter From The Dead
+02. Comfortable With Hate
+03. Still I Remain
+04. Just Once(   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2B5E9F6291A03881E4E8653214BC98DCE8B73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042133   (580386) от 11.08.2016
 
 Skillet - Unleashed (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Christian Rock>
@@ -629,122 +745,6 @@ Antagonist A.D. - Through Fire All Things Are Renewed (2022) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37A319D37FB2BF2A2523CD3009F73F94D3078853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304055   (567448) от 24.05.2019
-
-Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smashed Into Pieces (3:40)
-02. Smile In Your Sleep (3:16)
-03. American Dream (3:10)
-04. Bleeds No More (3:16)(   Читать дальше...   )Жанр: Rock, Post-HardcoreПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8371420F0F3FCD77789D0AEB8AE55E1333842919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234620   (565992) от 08.07.2018
-
-Masfel - Kinai Natha (Chinese Flu) (1994) [FLAC|Lossless|tracks + .cue] <Experimental rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Daráló I. / Grinder I. (5:47)
-2. Folyami Hajózás / River Navigation (5:49)
-3. Szamba / Samba (6:29)
-4. Daráló II. (7:19)(   Читать дальше...   )Жанр: Experimental rockПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A951B0853C63F2677C197089FB71B5AF6C8F32FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304089   (565272) от 25.05.2019
-
-Cate Le Bon - Reward (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miami (05:17)
-02. Daylight Matters (04:18)
-03. Home to You (05:27)
-04. Mother's Mother's Magazines (04:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BB34E34CCFD22C662709FF48D9E08281A48927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152348   (565219) от 23.07.2017
-
-Foster The People - Sacred Hearts Club (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pay the Man (03:54)
- 02. Doing It for the Money (03:46)
- 03. Sit Next to Me (04:03)
- 04. SHC (04:08)(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, AlternativeПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00989DF586CE480EB4D84FE709E6392246FF7A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

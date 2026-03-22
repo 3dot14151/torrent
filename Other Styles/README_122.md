@@ -1,3 +1,154 @@
+###  Публикация: 1070935   (363997) от 08.11.2016
+
+Enigma - Love Sensuality Devotion: The Greatest Hits & Remixes (2016) Remastered [FLAC|Lossless|tracks+.cue] <New Age, Trance>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Landing (1:05)
+02. Turn Around (3:51)
+03. Gravity Of Love (3:58)
+04. T.N.T. For The Brain (5:17)(   Читать дальше...   )Жанр: New Age, TranceПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F784F6AFCD605F418801F66E1E61ABCEDBE2494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255631   (363823) от 18.10.2018
+
+VA - Life is Strange: Before the Storm Original Soundtrack (2018) [FLAC|Lossless|tracks + .cue] <Folk, Acoustic, Indie Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daughter - Flaws (02:53)
+02. Koda - I Don't (02:52)
+03. Daughter - Glass (04:19)
+04. Ben Howard - Black Flies (06:22)(   Читать дальше...   )Жанр: Folk, Acoustic, Indie RockПродолжительность: 00:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B9022CB443951BBBCC337F46A8E0AD31A78603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573539   (363730) от 17.11.2012
+
+Stewart Dudley - 12 albums (2000-2012) [MP3|320 кб/с]<New age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363730.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:21) 01. Allure
+(4:08) 02. Summer In Sicily
+(3:39) 03. Mystery Of You
+(5:05) 04. Everything You Need
+(3:25) 05. Once It Was Home
+(2:45) 06. Souvenir
+(4:40) 07. Moonlit Colonades
+(4:24) 08. Her Face Remembered
+(3:52) 09. Yesterday Knows Why
+(3:47) 10. So Near So Far Away(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F515FAE816A11DAE3BE58DC48EC21CF98D12517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950892   (363658) от 29.10.2015
+
+Yarek & Friends - Spirits Of The Dust (2010) [FLAC|image+.cue]<Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minaret
+02. Ariv El Pos
+03. Caravana
+04. Carima(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B187AD47F17F513E428D2E58A4D3CD86DE29F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951018   (363653) от 29.10.2015
+
+Eloy Fritsch - Cyberspace (2000) [FLAC|image+.cue]<Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyberspace 4:31
+02. Lost Paradise 8:50
+03. Beyond The Ocean Waves 5:53
+04. Inside The Heart Of Universe 4:43(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908EEDA38DB649ECCC7813395CA88B40CCE7DEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951590   (363470) от 29.10.2015
 
 Sad Music Zone - Emotional Sad Music (2015) [MP3|320 кб/с]<Instrumental,Easy Listening,New Age,Piano>
@@ -618,157 +769,6 @@ Two Steps from Hell - Illumina (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6038B23DB783393F15ED5D9EB87C272CD6EEBE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177607   (358511) от 27.10.2017
-
-El Chido - Ghost Recon Wildlands: Corrido - The Sounds of Santa Blanca (2017) Bandes originales [MP3|320 Kbps] <Original Game Soundtrack>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358511.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - ENTRE LA JUSTICIA Y EL CAPO - Steve Ouimette & Mario Tapia - 03:32
-2 - POR AMOR - LA HISTORIA DEL BOQUITA - Steve Ouimette & Mario Tapia - 03:22
-3 - CODIGO DE SANGRE - Steve Ouimette & Mario Tapia - 03:11
-4 - LA MUERTE ESTÁ DE MODA - Steve Ouimette & Mario Tapia - 02:45(   Читать дальше...   )Жанр: Original Game SoundtrackПродолжительность: 31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288D753447228B99BD7AE8D3BE6C8D7F85C23443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577621   (357789) от 19.11.2012
-
-Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pusher Theme (1:23)
-02. Pay Me The Money (0:46)
-03. Driving and Clubbing (1:13)
-04. Turkish Tension (1:30)
-05. Bridge Deal (1:49)
-06. Cutting and Doing (2:17)
-07. Chase (2:16)
-08. Cell (3:10)
-09. Frank Mirror (1:10)
-10. Haken Bar (2:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C630B08FB88D9B630EB7F7F41490005777D50AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071680   (356968) от 11.11.2016
-
-VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que canta (1996) [MP3|128 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Callejera
-02. Hector Pacheco - Patotero sentimental
-03. Floreal Ruiz - Vieja amiga
-04. Mariano Mores y su conjunto - La guitarrita(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AD65BC3F58BAC07E62AD2B765ADC44009BB5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329078   (356732) от 03.10.2019
-
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC9E776F80B510ECFECEEEFD380A056AF21FF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329079   (356643) от 03.10.2019
-
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 484458   (99913) от 18.04.2012
+###  Публикация: 1754748   (103661) от 12.10.2024
 
-[Wallpapers] HQ Wallpapers by KSV (18.04.12)
+VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99913.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Alixia Mistral - Run Away Or Face The Day (2:45)
+02. The Smoke Orchestra - Henrietta Leavitt and the cepheids variables (3:23)
+03. Anna Fondi - Nothing Better Than You (4:49)
+04. Giulio Campagnolo & The Jazz Funkers - Groove Giallo (5:17)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:58:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1D341DD8568B9BEB75A5FE8329009247D3A1D5E
+magnet:?xt=urn:btih:69AABBD1CD7FD34A1933F67BCE0AEF1F4E5D43A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483867   (99911) от 18.04.2012
+###  Публикация: 1754774   (103660) от 12.10.2024
 
-[Wallpapers] Mixed Wallpapers 0.6
+VA - Nu Acid Jazz Party For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99911.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Микс обоев для рабочего стола.
+01. G.Pantelidis - Hey Dude (4:12)
+02. Wendy D. Lewis - Human (3:15)
+03. Pomante - Bua (4:09)
+04. Lehmanns Brothers - I Wanna Be (Micky More & Andy Tee Radio Edit) (3:49)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:27:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90F51231A01E201215D1E2B7C6B5E1C885E84E30
+magnet:?xt=urn:btih:98F6C5BF6FBD4C4B22ED5F2BB11CB555D12FB5C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,175 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484419   (99909) от 18.04.2012
+###  Публикация: 1754752   (103659) от 12.10.2024
 
-VA - Клубная танцевальная 100-ка (2012) [MP3|160-256 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99909.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ажур - Pin-Pin (Remix) (3:11)
-2. Ferry Corsten Feat. Ben Hague - Aint No Stoppin (3:22)
-3. Таня Терешина - Ближе, Чем Рядом (Unorthodoxx Classic Remix) (3:43)
-4. DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix) (5:51)
-5. Carina Ray - Люби (Dj Владимир Соловьев Remix) (5:38)
-6. Влад Дарвин & Alyosha (Алеша) - Больше Чем Любовь (V I F Disco Remix) (3:24)
-7. БэбиSкул & Max DeLmar & Katy Soul - Одинокие (club edit) (6:25)
-8. G - Spot - Luxurolux (Radio dirty version) (3:23)
-9. Dj M.E.G. Feat. Сергей Лазарев & Тимати - Moscow To California (3:23)
-10. Muttonheads - Going Away (Extended Vocal Mix) (4:55)2012Жанр: Pop,Dance, ClubПродолжительность: 06:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B97026394C867087A998905B327E19877DF54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484257   (99907) от 18.04.2012
-
-Nevergreen - Karmageddon (2012) [MP3|320 кб/с]<Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jojj, Messias!
-02. Sotetsegbol feny
-03. Egy loves, egy halal
-04. A vegzet hajnalan
-05. Mig a halal el nem valaszt
-06. Policy Of Truth (Depeche Mode cover)
-07. Dermedt angyal szarnyan
-08. Nepunk arnya visszater
-09. O Fortuna (Carl Orff cover)
-10. A halottlato(   Читать дальше...   )2012Жанр: Doom Metal, Gothic MetalПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53E226B9F7A89BFD49C25D61D9B48227F796603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484441   (99903) от 18.04.2012
-
-VA - Хиты на радио клубнячек и попса vol.8 (2012) [MP3|320 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99903.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 20 Fingers - Short Dick Man (DJ Fisun remix) (3:26)
-2. 23-45 & 5ivesta Family - Друг без Друга (DJ Noiz & DJ Maxtal Extended Remix) (6:03)
-3. Alex Gray Feat Monica Harem - P.A.S.T.A (Protoxic Big Room Remix)2012Жанр: Pop,Dance, ClubПродолжительность: 05:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E84F646B1FAF691CBD35DD26C8B5D0F7A89B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484490   (99900) от 18.04.2012
-
-[Wallpapers] Girls Wallpapers Mix (18.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC93603AC3C4D44BD749E789BD8A960C4D1B3D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484494   (99896) от 18.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (18.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 4000х2662
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDAE7C3F7388A1F1C34A6F237766EB103EB42C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484382   (99890) от 17.04.2012
-
-Каникулы в Мексике - 2. Выпуск №32 (2012.04.17) SATRip
+Пятеро на одного (12.10.2024) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99890.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:49:40
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFBB9A748A46ABEFBB2289E3E84895F66413AD73
+magnet:?xt=urn:btih:C5A8EE1D4C403CBE8440752F460FEDAA6E140FC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,31 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482966   (99888) от 17.04.2012
+###  Публикация: 1754759   (103658) от 12.10.2024
 
-Лейтенант Коломбо - Полька Джэмбори (2012) [MP3|320 кб/с]<Old-school Hip-Hop/Funky/Breakbeat>
+VA - It's A Groovy Thing! Vol.5 (The Amazing Jazz Funk Afro Sound) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99888.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Фанки Флибустьеры (3:24)
- 02. Вапабадубап (Боевик) (2:26)
- 03. Кинг Оф Рок (3:29)
- 04. Дядя Фрэнки Уходит В Отставку (2:54)
- 05. Кэмбоооу (3:58)
- 06. Фантомас Разбушевался (3:53)
- 07. Р-Н-Р Так Р-Н-Р (2:14)2012Жанр: Old-school Hip-Hop/Funky/BreakbeatПродолжительность: 00:22:20
+01. ERIN collective - Alternative Positive (7:44)
+02. Jestofunk - Colour (5:50)
+03. Vito Lalinga (Vi Mode Inc. Project) - Funky Tropicale (Lego Edit Afro Cut) (5:30)
+04. The Smoke Orchestra - Aphrodesia (4:41)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:30:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FAA566A2C441D80C09E18C39018FD2F989E5802
+magnet:?xt=urn:btih:A72B2D5A65F74C09948B2EAA0060EEC01E92183D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484409   (99886) от 17.04.2012
+###  Публикация: 1754747   (103657) от 12.10.2024
 
-Газета | Копилка Огородникова №2 (12) (2012) [PDF]
+Pat Fulgoni - The Pat Fulgoni Blues Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Журналы
->>Домоводство (журналы)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99886.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Копилка Огородникова это журнал советов для любителей сада и огорода.
-В этом номере вы найдете:
-Лунный посевной календарь
-Вредители и болезни цветочных культур(   Читать дальше...   )Формат: PDF
+01. Everybody Wants to Go To Heaven (3:41)
+02. Drifter (5:30)
+03. Keep The Blues Alive (6:13)
+04. Midnight Train (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08A9ABC1C386D552AEE33E4F492EBD0530E360CF
+magnet:?xt=urn:btih:FB6D4FFFFD9F78298E5B1599AABA60E9AA6AFDF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,33 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483701   (99881) от 17.04.2012
+###  Публикация: 1754756   (103656) от 12.10.2024
 
-День Зеро / Day Zero (2007) DVD5
+VA - Funky Afro Jazz Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99881.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Америка снова вернулась к призывной армии. Трое друзей — адвокат, таксист и писатель — в тридцатидневный срок должны явиться на службу. У каждого из них своя жизнь, но детские узы дружбы не ослабели.
-
-Рифкин — женат, работает адвокатом, его карьера идет в гору. Недавно его назначили партнером фирмы, поэтому он ищет любую лазейку для того, чтобы не идти в армию.
-
-Феллер пишет свой второй роман. Первый роман имел оглушительный успех, и повестка о призыве в армию мешает ему, вызывая творческое бессилие. Он решает составить список 10-ти вещей, которые ему нужно сделать до того, как он начнет служить в армии.
-
-Диксон работает таксистом, живет один и охотно готов служить в армии. Но неожиданно в его жизни происходят события, которые меняют его жизнь.
-
-В течение тридцати дней их дружба проходит испытание на прочность, также как их представления о жизни, смерти, отваге и любви.Жанр: ДрамаРежиссер: Брайан Гуннар КоулАктеры: Элайджа Вуд, Крис Клейн, Джон Бернтал, Джиннифер Гудвин, Элизабет Мосс, Элли Шиди, София Васильева, Джон РотменПеревод: Многоголосый закадровыйЯзык субтитров: отсутствуютПродолжительность: 01:29:08
+01. Voo Doo Phunk - The Party (4:36)
+02. ERIN collective - Microcosmo (4:50)
+03. Vito Lalinga (Vi Mode Inc. Project) - Jazz Reserve (4:34)
+04. Jestofunk - Moai Message (6:59)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:44:25
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EA01B9EDAB89122F6251AC73E3ADEC3E7CC0A9C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,27 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484470   (99880) от 17.04.2012
+###  Публикация: 1754757   (103655) от 12.10.2024
 
-7раса - Р.Н.Г. (2012) [FLAC|Lossless]<Alternative Rock, Grunge>
+VA - Funky Jazz Saxophone (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99880.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01) Р.Н.Г. (3:57)
-02) Время осталось (3:17)
-03) Огонь молодых (3:15)2012Жанр: Alternative Rock, GrungeПродолжительность: 00:10:28
+01. Pomante - Don't Let The System Get You Down (Regrooved Mix) (7:33)
+02. Pomante - Bua (4:09)
+03. Soulstance - Wine Shop (5:59)
+04. Devon Miles - Macumba (5:52)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:44:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BA568F09D0FC4B89D4B9FA0E6454A6C909981006
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,34 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483785   (99878) от 17.04.2012
+###  Публикация: 1754772   (103654) от 12.10.2024
 
-VA - DJ Club Spring (2012) [MP3|160-320 кб/с]<Club, Dance, Electro, House>
+VA - Just Jazz (Luxurious Smooth Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99878.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Christopher S feat. Max Urban - Star (Organ Remix).
-002. Remady & Manu-L Feat. J-Son - Single Ladies (Extended Mix).
-003. Chris Garcia Feat. Sherry St Germain - I Rock Alone (Club Extended).
-004. G & G Feat. Jonny Rose & Chris Reeder - All Falls Down (Jean Elan Remix).
-005. BAZEDA, Custom Drops - Love To Party (Original Mix).
-006. Esteban Aracil - Where Is The Love (Soultwister Remix).
-007. suGar, Eva Kade, Evil T - All Around (Andrea Bertolini Remix).
-008. Lana Del Rey - Videogames (Ben DJ & D-Seven Remix).
-009. Sander Kleinenberg - This Is Miami (DJ Morricone remix).
-010. Jimmyburnside - Uppers & Downers (Original Mix).2012Жанр: Club, Dance, Electro, HouseПродолжительность: 28:43:00
+01. IrisG - My Wildest Dreams (4:09)
+02. Hank Hehmsoth - Waltz for Carmen (5:26)
+03. Ingvi Þór Kormáksson - Always (3:04)
+04. Dora Pj - Taking Back My Love (4:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
+magnet:?xt=urn:btih:CBEA2C676A17BE8884B46469A06A27FA6C02A33C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,34 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484226   (99877) от 17.04.2012
+###  Публикация: 1754750   (103653) от 12.10.2024
 
-VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+VA - Dinner Jazz Instrumentals_ The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99877.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Oshean - A Day Will Come (Original Mix).mp3
-02. Andreea Banica - Electrified (Sagi Abitbul Official Remix).mp3
-03. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck With You (Extended Mix).mp3
-04. Cahill feat. Chrome - Can't You See (Club Edit).mp3
-05. Christos Fourkis - Set Free (Radio Mix).mp3
-06. Coffee and Honey feat. Alexandra - Smile (Club Mix).mp3
-07. CUT & RUN - Calm & Queasy.mp3
-08. DJ Adamus - Free The Night (Club Edit).mp3
-09. Faberlique - Sleep Blind (Taras Bazeev Remix).mp3
-10. Funkwhite - Plug & Play (Extended Mix).mp3(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:43:14
+01. Ingvi Þór Kormáksson - The Mirror (3:19)
+02. Hank Hehmsoth - From Day One (5:57)
+03. Ivo Kvesta - Romanza (4:24)
+04. Al Leon Johnson - Meet Me in My Dreams (Extended Mix) (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:24:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DBC52487425A7EBB966F1D671410483B22DA219
+magnet:?xt=urn:btih:82B86316F19380D6E894C2C8C15C4A5AE75B8EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,147 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484342   (99872) от 17.04.2012
+###  Публикация: 1754807   (103652) от 12.10.2024
 
-Журнал | Cosmopolitan Shopping №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan Shopping — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D482AC4D2B45FFC62E046D28212CA8531E28389C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484459   (99870) от 17.04.2012
-
-[Wallpapers] Army and military equipment Wallpapers (18.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484525   (99869) от 17.04.2012
-
-Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery 01:33
- 02. Doubts And Struggles 03:16
- 03. Crossed Paths 03:02
- 04. Echoes 02:17
- 05. Wilfully Blind 03:47
- 06. No Love, No Regret 03:11
- 07. Despair 01:09
- 08. To Conceive/Insight 02:59
- 09. Discontent 03:11
- 10. Time We Lost 02:37(   Читать дальше...   )2012Жанр: Melodic HardcoreПродолжительность: 00:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA87BC6EFC240CF5FF917DB900D61BA1C8D8394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483605   (99867) от 17.04.2012
-
-Various Artists - Hitzone 61 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cd 12012Жанр: Club, DanceПродолжительность: 01:12:30
-01. Lloyd Ft Andrй 3000 - Decidation To My Ex (Miss That)
-02. Carly Rae Jepsen - Call Me Maybe
-03. Train - Drive By
-04. Gavin Degraw - Soldier
-05. Chris Hordijk - Won't You Stay
-06. Katy Perry - Part Of Me
-07. Racoon - Don't Give Up The Fight
-08. Keane - Silenced By The Night
-09. Afrojack & Shermanology - Can't Stop Me(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C07BE4EBAC7CDA6F5C1DEA5F14053B42F902D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484454   (99865) от 17.04.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №32 (2012.04.17) SATRip
+Поедем, поедим! Увлекательный речной круиз «Москва — Санкт-Петербург» (12.10.2024) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99865.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:07
+Добро пожаловать на палубу! Федерико Арнальди и «Поедем, поедим!» отправились в насыщенный речной круиз «Москва — Санкт-Петербург»! Впереди: Углич, Горицы, Кижи, Мандроги, Валаам. По пути к культурной столице Федерико научился надувать карамель, посетил форелевое хозяйство в одном из самых знаменитых монастырей страны, попробовал кундюмы с дикоросами и построил изгородь (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00::
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69CF97F5A9C0C297A9BA5E0CF1BFD3DAE4106E72
+magnet:?xt=urn:btih:060FD41F7CE499040B91F722B044D82FF362EAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,25 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483888   (99864) от 17.04.2012
+###  Публикация: 1754765   (103651) от 12.10.2024
 
-Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
+VA - Just Rock (Cool Badass Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Музыкального Видео
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99864.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Dance, HouseПродолжительность: 00:03:12
+01. SMITT E. SMITTY & THE FEZZTONES - Rebel Rebel (3:29)
+02. The Ulkerrs - Good Times (2:44)
+03. D - BeautifulCrazyLove (3:04)
+04. Bob Donaldson - Nothing to Me (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
+magnet:?xt=urn:btih:264406310B56A3594897EA07DD72448B761A4AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,34 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484431   (99859) от 17.04.2012
+###  Публикация: 1754770   (103650) от 12.10.2024
 
-DotEXE - Donations Accepted (2012) [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
+VA - Just Jazz (Luxurious Smooth Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99859.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nothing You Can Do
-02. Come Back To Me
-03. Footsteps
-04. Horsey (DotEXE Remix)
-05. Alicja
-06. Anything You Want
-07. Elektro Funk
-08. Fast Car
-09. Turn On The Radio
-10. Why Can't I Sleep(   Читать дальше...   )2012Жанр: Drum'n'Bass, DubstepПродолжительность: 01:00:51
+01. Eivør Pálsdóttir - Enduring Love (4:09)
+02. Wild Wisteria - Blue Skies in Paradise (4:28)
+03. Hank Hehmsoth - After the Rain (6:01)
+04. Gavin K Sparks - Give Me a Song (4:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAFD74CE103216D60A8707A6755F217D87129735
+magnet:?xt=urn:btih:D84E32E64EFCFEEA984C6394CEB49BAA26EC709A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,30 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483938   (99855) от 17.04.2012
+###  Публикация: 1754819   (103649) от 12.10.2024
 
-Curandero - Aras (2010) [MP3|320 кб/с]<World>
+Минтранс: Тест-драйв AUDI COUPE 1993 (12.10.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99855.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(09:20) 1. Aras
-(04:53) 2. Segue
-(11:17) 3. River
-(11:25) 4. Man Of The Shadows
-(00:35) 5. Once Upon A Time
-(07:57) 6. Embrujada2010Жанр: WorldПродолжительность: 00:45:27
+🔸 Юридические нюансы. В каких случаях виновника ДТП можно заставить оплатить аренду авто на время ремонта?
+🔸 Тест-драйв AUDI COUPE 1993. Как поведет себя тридцатилетний «немец» на ухабах?
+🔸 Замена жидкости. Что будет, если использовать воду вместо антифриза?
+🔸 Знак аварийной остановки. Где и как его правильно ставить?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:46:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79C9CBCEBD72C831CD7A91BFABB12993BEBB5899
+magnet:?xt=urn:btih:A6CF010C4969AA9BFAA530FCA823D01E97F4688D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,34 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484259   (99853) от 17.04.2012
+###  Публикация: 1754762   (103648) от 12.10.2024
 
-Decontrolled - The Circle (2012) [MP3|320 кб/с]<Modern Metal, Nu-Metal>
+VA - Just Rock (Cool Badass Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99853.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enter the Circle
-02. Hidea
-03. Blacklights
-04. Rapture
-05. Encrypted
-06. The Circle
-07. Omnipotent
-08. Deathwish in the Continuum
-09. Grand Scheme
-10. Alive(   Читать дальше...   )2012Жанр: Modern Metal, Nu-MetalПродолжительность: 00:46:45
+01. The Frankie Paul Band - My Day Will Come (4:05)
+02. Bobby Marino - My Little World (5:44)
+03. The Rockpins - 1980 Something (4:11)
+04. Social Gravy - Anywayz (2:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1B93384B587B9355895E702579E6A139F591534
+magnet:?xt=urn:btih:784EAA8CE460FEEB56D9D721D390CCA892D970E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483967   (99852) от 17.04.2012
+###  Публикация: 1754891   (103647) от 12.10.2024
 
-Astrohenge - II (2011) [MP3|320 кб/с]<Progressive Psychedelic Sludge>
+Ignitor - Horns and Hammers (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99852.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Goodbye (01:39)
- 02. Space Honkly (02:46)
- 03. Tomb Of The Mummy (03:42)
- 04. Lab Chimp Uprising (02:10)Жанр: Progressive Psychedelic SludgeПродолжительность: 00:30:10
+01. Horns And Hammers
+02. Imperial Bloodlines
+03. Dark Horse
+04. Cyber Crush(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33E81C81FC48205B9D5F9BD1DB1DB2E192EE4ABF
+magnet:?xt=urn:btih:AA4C43F825750686C1A65F006DA8D73294630AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,32 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484059   (99851) от 17.04.2012
+###  Публикация: 1754895   (103646) от 12.10.2024
 
-Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
+Enchanted Duo - Werifesteria (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Folk Rock, Ambient Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99851.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Randall - Eight Storeys (2004)
-Год: 2004
-Жанр: Ambient, Istrumental
-Продолжительность: 00:40:50
-Лейбл: Spacious Music
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
+01. I'm Still Wondering (feat. Morgan Agren & Ivan Churkin) (4:55)
+02. Soutanee (4:35)
+03. Snjall Jungfru (feat. Marco Minnemann, Ivan Churkin & Mohini Dey) (3:59)
+04. Gotta Surrender to the Way Things Are (4:55)(   Читать дальше...   )Жанр: Progressive Rock, Folk Rock, Ambient RockПродолжительность: 01:00:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:130338DFB0022C07FCAC091E9305007281470AB1
+magnet:?xt=urn:btih:B8C29244D162783397A86C8C95CF976A4B014389
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -756,25 +456,274 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483168   (99846) от 17.04.2012
+###  Публикация: 1754826   (103645) от 12.10.2024
 
-[Wallpapers] Wallpaper Sexy Girls 0.6
+НХЛ 2024/2025. Регулярный чемпионат. Тамба-Бэй Лайтинг - Каролина Харрикейнз (11.10.2024) WEB-DL [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99846.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+12 октября 2024, суббота. 02:00 МСК
+Стадион: Леново Центр (Роли, США), 18 817 зрителей (99% при вместимости 19 041)
+НХЛ - Регулярный сезон. Каролина Харрикейнз (Роли) — Тампа-Бэй Лайтнинг (Тампа)
+Главный судья: Картер Сандлак (Лондон, Канада)Телекомпания: Setanta Sports 2 / ESPNЖанр: Спорт, хоккейЯзык озвучки: русскийПродолжительность: 01:58:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F64AC5802E58B128BFC056E3712079FB1B675F37
+magnet:?xt=urn:btih:A89562A085BB0B0268D05B6182C067DA4CE5E25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754835   (103644) от 12.10.2024
+
+НХЛ 2024/2025. Регулярный чемпионат. Сент-Луис Блюз - Вегас Голден Найтс (11.10.2024) WEB-DL [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103644.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 октября 2024, суббота. 05:00 МСК
+Стадион: Ти-Мобайл Арена (Парадайс, США), 17 861 зритель (96% при вместимости 18 702)
+НХЛ - Регулярный сезон. Вегас Голден Найтс (Парадайс) — Сент-Луис Блюз (Сент-Луис)
+Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: Scripps SportsЖанр: Спорт, хоккейЯзык озвучки: русскийПродолжительность: 01:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953B1E245AC7C9AB9A28C8592BC5ECE1969D676E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754638   (103643) от 13.10.2024
+
+RDS GP: Шинная борьба (2023) HDTV [H.264/1080p] (сезон 2, серии 1-7 из 7)
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон сериала "RDS GP: Шинная Борьба" расскажет историю 13-го сезона RDS GP.Производство: Россия, 29 ProductionЖанр: документальный, спорт, дрифтРежиссер: Александр КузьмичевЯзык озвучки: РусскийПродолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D373EDC265B4F544D9854B23EB0A73E639D9E14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754957   (103642) от 13.10.2024
+
+Gabrielle De Val and The Dragonlords - Tiger (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think Like A Man (4:21)
+02. Tiger (3:22)
+03. The One And Only (Lead Vocals – Mick Devine) (3:48)
+04. Bowmore (Lead Vocals – Robin McAuley) (4:06)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1657A7FA92813398225FC73322A0073B919DAC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755057   (103641) от 13.10.2024
+
+Оксана Алексеева | Неслучайности (2019) [MP3, Юлия Степанова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яна не встречала никого хуже него – человека, разбившего семью её отца. Вадим не встречал никого назойливее и наглее её. Они слишком разные, чтобы понять друг друга, и слишком упрямые, чтобы проиграть. Так кто победит в противостоянии характеров?Жанр: современные любовные романы, юмористическая прозаИздательство: АРДИСПродолжительность: 08:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2305FC44C4A61205F0F1D3AD822F2D5AC258ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754953   (103640) от 13.10.2024
+
+Keys - The Grand Seduction (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grand Seduction (9:00)
+02. All I Need (6:50)
+03. Shining Sails (Lead Vocals – Mark Mangold) (5:51)
+04. Switchblade (6:02)(   Читать дальше...   )Жанр: Melodic Hard Rock, Progressive RockПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3123869205BF68C3C209244DCF86C4CF19F1F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754661   (103639) от 13.10.2024
+
+RDS GP: Шинная борьба (2024) WEBRip [H.264/1080p] (сезон 3, серии 1-7 из 7)
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон сериала "RDS GP: Шинная Борьба" расскажет о драматичных событиях Российской Дрифт Серии сезона 2023.Производство: Россия, 29 ProductionЖанр: документальный, спорт, дрифтРежиссер: Александр КузьмичевЯзык озвучки: РусскийПродолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E3FF2A5E7102DC5D0759139D53F308488488F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754902   (103638) от 13.10.2024
+
+Nightmare - Waiting For The Power: The Early Years (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallucinations Directes (Demo) [00:03:35]
+02. Vengeance (Demo) [00:04:59]
+03. Maudis Ton Destin (Demo) [00:03:12]
+04. Tu Es Damné (Rehearsal) [00:04:36](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 3 CD, 02:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A38C37A3FDD6D13463E0C0DB68E723FE260B3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754976   (103637) от 13.10.2024
+
+Белый город | Акафистник путешествующим (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103637.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике содержится девять акафистов, которые можно читать во время паломничества и любого путешествия. Первый посвящен Святой Троице, следующие три – Богородице Одигитрии, к помощи и заступничеству Которой мы постоянно прибегаем в своих молитвах, – это акафисты в честь икон Смоленской, Выдропусской и Тихвинской. Два акафиста обращены архангелу Рафаилу и Ангелу (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597ECB215861ADE4D87C29C3BDB93F02D1DD4A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754979   (103636) от 13.10.2024
+
+Белый город | Акафистник. Исцели и помилуй (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103636.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике содержится восемь акафистов, которые помогут читателю в молитвенной заботе о своем здоровье и здоровье близких. Первые два акафиста посвящены Спасителю и Богородице (перед Ее иконой «Всецарица» молятся об исцелении от раковых заболеваний), шесть других – святым – свт. Нектарию (к нему также обращаются с просьбой об избавлении от рака), вмч. Пантелеимону, (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5BE20831B754EE7C7223756C375DC0033EA3D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

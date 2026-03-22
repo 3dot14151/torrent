@@ -1,3 +1,235 @@
+###  Публикация: 948649   (410928) от 20.10.2015
+
+Bon Jovi - 25 Best Songs (2015) [MP3|~245 кб/с (V0)]<Soft Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's My Life 2000 (03:47)
+02. Everyday 2002 (03:03)
+03. Livin' On A Prayer 1986 (04:00)
+04. Have A Nice Day 2005 (03:51)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 01:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18ABDB875DE8BDAC495BEB3FD5A1AF6980FEC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717758   (410817) от 20.10.2015
+
+Smokie - Super Hits (1975-1982) (2013) (3CD) [MP3|320 кб/с]<Glam Rock, Hard Rock, Rock'N'Roll, Soft Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Other Side Of The Road (1979)
+02. Do To Me (1979)
+03. Don't Take Your Love Away This Time (1979)
+04. London Is Burning (1979)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Rock'N'Roll, Soft RockПродолжительность: 03:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CCAD6AE38DE940CB09C59C69AEDB3D7B15F23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719028   (410808) от 20.10.2015
+
+Chris Norman - 100 Best Hits (6CD) (1978-2013) (2013) [MP3|320 кб/с]<Glam Rock, Soft Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Caravan Moves On (2003) (04:15)
+02. Only You (2003) (03:25)
+03. Nothing Stays The Same (2003) (03:56)
+04. Amazing (2004) (04:20)(   Читать дальше...   )Жанр: Glam Rock, Soft RockПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE641AF75981E7F428E44B8BCF2A4C330A54D4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325642   (409954) от 16.09.2019
+
+VA - В Нарушение Правил. Русский Рок-Обзор (2019) 2CD [MP3|320 Kbps] <Рок, Альтернатива>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409954.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Би-2 - Виски
+002. Atava - Жить Сейчас(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 18:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2DC172FEADE0F6CDE261EAB2143476E1D68146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948700   (409256) от 21.10.2015
+
+VA - Рок впрок 3 (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ундервуд - Точка невозврата
+02. Бригадный Подряд - Жесть
+03. КняZz - Джокер - карта судьбы
+04. Гребля - Север(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95350BCE81E9F65B8DDA1F0FF8BFC8AED0A186B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252393   (409089) от 05.10.2018
+
+VA - Black Dog: Metal Compilation (2018) [MP3|320 Kbps] <Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409089.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Napalm Death - What Is Past Is Prologue
+002. Phobia - Death To Freedom
+003. Moretotheshell - Giving Away
+004. Power Crue - Dark Bridges(   Читать дальше...   )Жанр: MetallПродолжительность: 08:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA51E0078BDD37EE9CAF6BECF8EC41E4B98FBC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168535   (408779) от 24.09.2017
+
+VA - Lust And Love Vol.2: Alternative Rock Revue (2017) [MP3|192-320 Kbps] <Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408779.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elephant Plaza - Naked
+002. Kepler Ten - Ultraviolet
+003. Blackwater Conspiracy - Decadent Highway
+004. Yasi Hofer - Tender Storms(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 08:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3199113DEDA38383DC69001F91A060A53EB162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168496   (408713) от 24.09.2017
+
+Doro - I Am What I Am (Compilation) (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take No Prisoner
+02. I'll Make It On My Own
+03. World Gone Wild
+04. Thunderspell(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F911F0BC9B4F9E72E90364B8FC61B198608CF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573719   (407447) от 03.09.2022
 
 Theory Of A Deadman - Compilation (2022) [MP3|320 Kbps] <Rock>
@@ -513,241 +745,6 @@ Disc 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:839C53FADFF66D59F6D547C0519F071C984598D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950104   (372066) от 25.10.2015
-
-Гарик Сукачёв - Избранное (3CD) (1986-2013) (2015) [MP3|320 кб/с]<Rock & Roll, Ska, Folk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я обожаю jazz (03:25)
-02. Бродяга (03:50)
-03. Гады (04:17)
-04. Playboy (04:51)(   Читать дальше...   )Жанр: Rock & Roll, Ska, Folk RockПродолжительность: 03:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457633E68D565352D5AC3C5D4EA4E61A60DACA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069776   (371387) от 05.11.2016
-
-Хроноп - Избранное (2006-2014) [MP3|320 Kbps] <Soft Rock, Indie Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лежу на луне (2006)
-02. Напиваются (2006)
-03. Не певец (2006)
-04. Девушка и кошка (2007)(   Читать дальше...   )Жанр: Soft Rock, Indie RockПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA090CF2F92DF734471697861E91E858C62557F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069608   (371085) от 05.11.2016
-
-Airbourne - The Very Best (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ready To Rock
-02. Runnin' Wild
-03. When The Girl Gets Hot (The Love Don't Stop)
-04. Raise The Flag(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B95BCBB4B466879BB3964F4A77F716D92D78CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069855   (371010) от 05.11.2016
-
-VA - Rock Collection 1990 (2016) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Demolition Hammer - .44 Caliber Brain Surgery
-02. Sodom - An Eye for an Eye(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 27:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C82F07C25BE7470464D3FD9F17700FB781BB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070062   (370875) от 05.11.2016
-
-VA - Hits of My Soul Vol. 17 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Breaking Benjamin - The Diary Of Jane (03:21)
-02. Megadeth - Symphony Of Destruction (04:07)
-03. Staind - Fade (04:06)
-04. Deep Purple - Highway Star (06:09)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45635E511A22BF479B702AE6A3674903D0B13283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912429   (370191) от 26.10.2015
-
-VA - The Ultimate Prog & Power Experience 01-03 (2015) [MP3|320 кб/с]<Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transcend - Moment Of Infinity [00:08:39]
-02. Appearance Of Nothing - Without A Reason [00:10:26]
-03. Flaming Row - Burning Sky [00:06:22]
-04. Echoes - Lullaby [00:04:21](   Читать дальше...   )Жанр: MetalПродолжительность: 07:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502F68701A011F6CD6E1346923C6028EA0847871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070035   (368685) от 06.11.2016
-
-Музыкальная Коллекция - Максим Леонидов (2016) [MP3|320 Kbps] <Поп, Рок, Рок-н-Ролл>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Две гантели (03:57)
-02. Когда я сухой (03:57)
-03. От Питера до Москвы (03:50)
-04. Основы фэн-шуя (04:37)(   Читать дальше...   )Жанр: Поп, Рок, Рок-н-РоллПродолжительность: 04:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1BB889217A9856459E428842C6035ACAFBB81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070188   (368585) от 06.11.2016
-
-Cosmos - In The Dark Of The Night (2016) (Compilation) 2CD  [MP3|320 Kbps] <Progressive rock, Art rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossing The Desert
-02. Far Away
-03. The Final Path
-04. Freakshow(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2B1491D7947EB34783AC9F0F4F65EBA8A57954
 ```
 
 https://mybot314.ru/tekegram_catalog/

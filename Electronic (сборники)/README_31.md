@@ -1,3 +1,61 @@
+###  Публикация: 1368699   (906350) от 21.03.2020
+
+VA - Ремиксы от MGDC FM Vol 4 (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A-Mase & Sharliz - Адреналин (Total Cover) (Radio Mix) (3:46)
+2.AMCHI - Не сходи с ума (Eugene Star & Wayne Radio Edit) (2:40)
+3.ANIVAR - Новый рассвет (ARROY & Sergey Raf Remix) (3:15)
+4.Artik & Asti - Девочка танцуй (SAlANDIR radio remix) (4:01)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5859CD2AFF104A34A51435918BD13D9AA380FF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991476   (906325) от 28.02.2016
+
+VA - Auto Dance Party Vol.2 (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906325.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kapote - Fuck Music.mp3
+002. Daviddance - Time (Feat. J. Cockburn) (Original Mix).mp3
+003. Alfrenk - Big Up (Original Mix).mp3
+004. Dj Le-Roy - She's On Fire (Original Mix).mp3(   Читать дальше...   )Жанр: DanceПродолжительность: 08:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E3DE3A830E851BEF16541DC6F995B53509FE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991451   (906316) от 28.02.2016
 
 VA - LUXEmusic Топ Февраль (2016) [MP3|320 кб/с] <Club House, Dance, Electro House, House Music, Mash Up, Pop>
@@ -691,64 +749,6 @@ VA - Space Psychedelic Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A9C7B6340FDC9603B5B8099EC325BFFE51C0165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492077   (902399) от 30.08.2021
-
-VA - 7 Club: Exclusive Chill House (2021) [MP3|320 Kbps] <Chill House, Chillout, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902399.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Katabtu - Twisted Mind
-002. Lu York - Owe It All
-003. Matthias Vogt - Hyperjazz
-004. Sensoreal - From Tatras To Dublin(   Читать дальше...   )Жанр: Chill House, Chillout, Deep HouseПродолжительность: 09:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A04B9068B97C0F5C4393E57C7A85548A1DA5A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492125   (902398) от 30.08.2021
-
-VA - Peak Time: Techno Party (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902398.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bass Modulators - Teckzoom
-002. Phase Objekt - Wasp-12b
-003. Agustin Giri - Spectare
-004. Eduardo De La Calle - The Dub Math(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 11:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75AE7FFF5F4429E80593D09E299A7B24D62571D
 ```
 
 https://mybot314.ru/tekegram_catalog/

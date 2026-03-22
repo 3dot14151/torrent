@@ -1,3 +1,32 @@
+###  Публикация: 1110720   (852089) от 03.03.2017
+
+Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Nature
+02. Varanasi
+03. Cause and Effect
+04. Inner Strength(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001843   (852053) от 29.03.2016
 
 Немного Нервно - День Габриэля (2016) [MP3|320 кб/с] <Folk>
@@ -713,35 +742,6 @@ Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Sco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:709649576D1AD87A3917614E0E79EA3E9438D221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111994   (844960) от 07.03.2017
-
-VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calming Water Consort - Sleep Better: Relaxing Beach Ocean Waves
-02. Trouble Sleeping Music Universe - Music for Deep Sleep
-03. Sea Tranquility Academy - Relaxing Background Music
-04. Yoga Meditation Music Set - Hypnotic Sounds: Breaking Waves(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 03:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD807B06B231082BA7824FB8DB8D5A408AB2BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

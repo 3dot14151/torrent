@@ -1,3 +1,119 @@
+###  Публикация: 1025311   (712294) от 11.06.2016
+
+Defiatory - Extinct (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Final Conflict
+2. Reaper
+3. Aeons End
+4. Dogs Of War(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B08266F6B18D68038F9988AC5625ED70687A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025326   (712291) от 11.06.2016
+
+Nowen - Peace With Death (2016) [MP3|320 кб/с] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712291.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro III
+2. When Death Arrives
+3. In Death We Shine
+4. The Lost Fire(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CBF65D064A2C2D035CD30466409ED4F5A43FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025037   (712289) от 11.06.2016
+
+Revolt - Torture To Exist (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S:O:S
+02. Torture To Exist
+03. Secrets Of Death
+04. Stalked...Catch...Bondage(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD47BA83966516D5BD54F4DCD171D331D78D799D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025318   (712285) от 11.06.2016
+
+Romuvos - Infront Of Destiny (2016) [MP3|320 кб/с] <Epic Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infront Of Destiny We Shall Face Our Death
+02. We Travel South
+03. Winds Blow Over Seas
+04. Our Spirits Pass Through The Underworld(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171FDA8E7560B8DBBAC4E68135B1CFBEC44C1028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401324   (711609) от 09.08.2020
 
 Black Crown Initiate - Violent Portraits of Doomed Escape (2020) [MP3|320 Kbps] <Progressive Death Metal>
@@ -626,122 +742,6 @@ Stryctnyne - Unfinished Business (2016) [MP3|320 кб/с] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF91BD8F016597D767915BBC81979A25085E639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026743   (702515) от 16.06.2016
-
-Inside War - Autophagic Butchering (2016) [MP3|320 кб/с] <Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avesso
-02. Chaos Within
-03. Bloodmass
-04. Chemical Carnage(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773CB1957EBFB16B90E76034985598F1FD2A69C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220722   (702452) от 20.04.2018
-
-Stryper - God Damn Evil (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It To The Cross (4:56)
- 02. Sorry (3:56)
- 03. Lost (3:44)
- 04. God Damn Evil (4:06)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EB7A42DE40AFCC0FB7658842D7F8EBEE8E269D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026789   (702309) от 16.06.2016
-
-Motorhead - Clean Your Clock (2016) Live [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bomber
-02. Stay Clean
-03. Metropolis
-04. When the Sky Comes Looking for You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16F1F2958C635B748F35EFDDCCD585627B0D253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287626   (701878) от 08.03.2019
-
-Tyr - Hel (2019) [MP3|320 Kbps] <Progressive Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701878.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gates Of Hel
-2. All Heroes Fall
-3. Ragnars Kvæði
-4. Garmr(   Читать дальше...   )Жанр: Progressive Viking MetalПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50E0A85EA34A8B031DF1250F5AA5B90189F65EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

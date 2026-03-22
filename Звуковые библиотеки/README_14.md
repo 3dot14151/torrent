@@ -1,3 +1,29 @@
+###  Публикация: 1324297   (427261) от 08.09.2019
+
+NNM-Club Sound Cleaner Collection - andgelo12 - Album 5 [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция музыкальных треков без голосовых вставок ("watermark").Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD36A1CF2CB3E16431853EBB3E0A7C7AA7A123C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324614   (423012) от 10.09.2019
 
 SoundMorph - MODULAR UI [WAV]
@@ -660,33 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23F7B9C3B93B4369E41997325010926C2E585B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327298   (376377) от 24.09.2019
-
-Boom Box Library - ROBOTIC CREATIONS: HEADS UP DISPLAY SOUND DESIGN TOOLKIT [WAV, KONTAKT]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека звуковых эффектов Heads Up Display - это первый выпуск коллекции Robotic Creations. Каждая библиотека из коллекции Robotic Creations содержит звуковые эффекты, разработанные для соответствия пяти различным персонажам-роботам с их уникальными звуковыми характеристиками.
-Эти наборы инструментов для звукового дизайна включают в себя библиотеку SFX и специальное (   Читать дальше...   )Формат: WAV, KONTAKT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08353FA122205D456A8AA6512D741616BE3BCFEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1466503   (1018424) от 30.04.2021
+
+Modern Boots - Tell Me the Reason (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me the Reason You Said Goodbye (Extended Vocal Fantasy Mix) 6:19
+02. A Lonely Romance 6:22
+03. Boulevard of My Dreams (Extended Vocal Fantasy Mix) 7:42
+04. Tears of a Broken Heart (Extended Vocal Fantasy Mix) 5:37(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27F988110CAA8F55290F511269C34225254BE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466537   (1018421) от 30.04.2021
 
 Nayio Bitz - Selections, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Disco, Italodisco, Synthwave>
@@ -714,41 +743,6 @@ Righeira - Reference 80 (2012) [FLAC|Lossless|image + .cue] <Italo-Disco, Europo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E96363FAB7FADAFB212FE4C4F51C37A641587689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598149   (999871) от 04.01.2013
-
-VA - Best Italo Disco Hits Remixed (2007) 3CD Boxset [FLAC|Lossless]<Italo-Disco, Euro House, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Laszlo - Hey Hey Guy [03:39]
-02. Den Harrow - Push Push ( Captain Kook Remix ) [03:27]
-03. Gigi DґAgostino - Wellfare ( Gigi & Pandolfi P.M. ) [03:24]
-04. Di Fumetti feat. D-JMC - Di Fumetti ( Video Edit ) [03:19]
-05. Max Him - Lady Fantasy 2003 [03:58]
-06. Carajillo - Fotonovela [03:55]
-07. 2 Eivissa - Fire In The Sky [03:36]
-08. Mike Mareen Vs. Da-Freaks - Love Spy [03:37]
-09. Kelly G. - Ouragan ( Irresistable ) [03:35]
-10. Fabrizio Faniello - Love On The Radio ( Video Edit ) [03:22](   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,441 @@
+###  Публикация: 1417556   (352658) от 22.10.2020
+
+Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.508.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A38E182827702EFC04D65F1D0A3A9239F45DCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577971   (352057) от 20.09.2022
+
+Microsoft Windows 11 [10.0.22000.978], Version 21H2 (Updated September 2022) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF277B556EBDEB60A44EFE3BAAD59B6C84C23A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577967   (352054) от 20.09.2022
+
+Microsoft Windows 10.0.19043.2006, Version 21H1 (Updated September 2022) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2006.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFFCFB1297654CB5DC194F60575C691C7BF4FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577813   (351760) от 20.09.2022
+
+Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.4 (esd) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.
+Применен загрузчик от Windows 10 (v21h2) x64(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8FFF8F478E65A148950A1C55527A489DCFDDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578968   (349674) от 22.11.2012
+
+Recovery DVD for Acer Aspire One 522 / Windows 7 Starter (х86) SP1 [русский]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_349674.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится 3 образа дисков восстановления.
+
+Диски записаны на Acer Aspire One AO522-C58gr программой Acer eRecovery Manegment.
+Производят восстановление ноутбука до заводских настроек.
+(Recovery1,2,3)Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255734   (349631) от 24.10.2018
+
+Образ восстановления и дополнительное ПО для интерактивного стола ActivTable 1.4.1.1 [Multi/Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивный стол ActivTable представляет собой компьютерное устройство с большим сенсорным экраном, операционной системой на базе Windows 7 с сопутствующим аппаратно-программным обеспечением. Многопользовательский интерактивный стол ActivTable позволяет шести ученикам одновременно использовать индивидуальные инструменты, веб-обозреватели и ресурсы, причем действия (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A26D9F65A345DA0AD07AC727DC7B7A68B3922FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418297   (348949) от 24.10.2020
+
+Microsoft Windows 10.0.18362.1139 Version 1903 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.1139.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4703A0348D5D5714B4ACC2DDDC86A77C07B2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418293   (348936) от 24.10.2020
+
+Microsoft Windows 10.0.17763.1518 Version 1809 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1518.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C579809C2CDFEFEB28CF5DAA438A6C6442F118CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418299   (348813) от 24.10.2020
+
+Microsoft Windows 10.0.18363.1139 Version 1909 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1139.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7C1067EBFF76BE9E258544700955AC51ACCF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418298   (348796) от 24.10.2020
+
+Microsoft Windows 10.0.18362.1139 Version 1903 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.1139.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B13E23BC3DFD79D37E204BA47B1F6532FEEB637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418294   (348670) от 24.10.2020
+
+Microsoft Windows 10.0.17763.1518 Version 1809 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1518.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2B01B93E524D4C3B343ACBEE08AADBD4CBA92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418301   (348531) от 24.10.2020
+
+Microsoft Windows 10.0.19041.572 Version 2004 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.572.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA369A66D9E912DB8566D705F143E38D85E7076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418300   (348530) от 24.10.2020
+
+Microsoft Windows 10.0.18363.1139 Version 1909 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1139.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81259E77DDDBACD01AF331C31874509CEB27138C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418296   (348387) от 24.10.2020
+
+Windows Server 2019 LTSC Version 1809 Build 17763.1518 (Updated Oct 2020) Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEDFEB531B47601B35AF9D5B819C0EC34E672CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577970   (347208) от 22.09.2022
+
+Microsoft Windows 10.0.19044.2006, Version 21H2 (Updated September 2022)  - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
+
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.2006.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17714D2974F37FBF082F5747D0B2D68CB79DBD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418302   (345973) от 25.10.2020
+
+Microsoft Windows 10.0.19041.572 Version 2004 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.572.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E071558DC1478285D788A9D2A01C7ED61082EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578392   (344933) от 23.09.2022
 
 Windows 10 (v21h2) x64 HSL/PRO by KulHunter v11 (esd) [Ru]
@@ -255,432 +693,6 @@ Microsoft Windows 10 Professional,Enterprise 10586 TH2, Release 1511 - Ориг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D034B970917772FB2B1C541616A9395476EEAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958224   (323517) от 21.11.2015
-
-Recovery Partition for Samsung RV515 / Windows 7 Home Basic (х64) SP1 [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раздача содержит образы системного раздела SYSTEM (в раздаче SYSTEM.tib) и раздела восстановления SAMSUNG_REC (в раздаче RV515.tib, образ разбит на 4 части для удобства переноса на носителе с файловой системой FAT32) жесткого диска ноутбука Samsung NP-RV515-S09RU.
-Образы созданы программой Acronis True Image 2014 Premium.Язык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5005ABA925D13E6DFD4D190B162C45A2A4FB2DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331710   (322373) от 16.10.2019
-
-Windows Server, Version 1909 (10.0.18363.418) - Оригинальные образы от Microsoft MSDN [En/Ru]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A4EE7340388FD5F241D220BF0191CB61A26D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331702   (322363) от 16.10.2019
-
-Microsoft Windows 10.0.18363.418 Version 1909 (November 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.418.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B95E634C0449BA23B2DBBE0CABA70554B34A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331698   (319982) от 17.10.2019
-
-Microsoft Windows 10.0.18363.418 Version 1909 (November 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.418.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9037EC7033309A1E445FEE392071C135456F6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958874   (316209) от 24.11.2015
-
-Microsoft Windows 10 Professional 10586 TH2, Release 1511 - Оригинальные образы от Microsoft VLSC [Ukr]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3753E18CC078DB5FD7AD3723E8AF380177F9E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332788   (311133) от 21.10.2019
-
-Microsoft Windows 10.0.17763.805 Version 1809 (October 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.805.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B26E6DCBD9E16596DFE0C4E536972DDA6A2B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265515   (310449) от 03.12.2010
-
-Microsoft Windows Vista - Оригинальные образы от Microsoft MSDN [Russian]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Vista — операционная система семейства Microsoft Windows NT, линейки операционных систем, используемых на пользовательских персональных компьютерах. В стадии разработки данная операционная система имела кодовое название «Longhorn».Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F641B12F59D04049D27237919F01B57117EA573D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422239   (310239) от 08.11.2020
-
-Windows 10 v20H2 plus v2004 by StartSoft Modernization 08-2020 [Ru/En]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционной системы Windows 10 с разрядностью x64-bit, в ее состав включена версия 20H2 построения 19042.508 и версия 2004 построения 19041.572. Загрузочный образ ISO поддерживает установку операционной системы любой ее редакции обоих версий как с русскоязычным, так и с англоязычным языковыми интерфейсами.Язык интерфейса: Русский,  Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69544147684F771D43C3F792597F60A5F29E16C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332789   (309110) от 22.10.2019
-
-Microsoft Windows 10.0.17763.805 Version 1809 (October 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.805.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C2E9F0AD3768F42570E51AEEC824787356638F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332792   (308803) от 22.10.2019
-
-Microsoft Windows 10.0.18362.418 Version 1903 (October 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.418.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20533C084E758F0F1CBC1B777CFD1244B0C9DF97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332791   (308773) от 22.10.2019
-
-Microsoft Windows 10.0.18362.418 Version 1903 (October 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.418.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A99E8DCDD5E95A3D099AA4E117BEE7C3652374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332979   (306543) от 23.10.2019
-
-Windows Server 2019 LTSC 1809 (build 17763.805) updated_October_2019 - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BD27F20619B853F7957752E8364C2431D9848D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960666   (304791) от 29.11.2015
-
-Recovery USB-flash for Acer Aspire E5-573 / Windows 8.1 (х64) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304791.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Acer_E5_573_W81.tib
-записанной на ноутбуке Acer Aspire E5-573-34QR (NX.MVJER.001) с помощью программы Acer Recovery Management.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления ноутбука к заводским настройкамЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225BA2F297F3A7C2075E243C0869785DBCAA63FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 267464   (297071) от 09.12.2010
-
-Microsoft Windows Vista - Оригинальные образы от Microsoft MSDN [English]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Vista — операционная система семейства Microsoft Windows NT, линейки операционных систем, используемых на пользовательских персональных компьютерах. В стадии разработки данная операционная система имела кодовое название «Longhorn».Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262263   (296513) от 14.11.2018
-
-Microsoft Windows 10.0.17763.107 Version 1809 (October 2018 Updated) - Оригинальные образы от Microsoft [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 October 2018 Update от 13 ноября 2018 года.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8644C3A423773C5EE8FFF6B2B632C3EE85B12744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960952   (296457) от 03.12.2015
-
-Recovery USB-flash for Acer Aspire V3-551G / Windows 8 (х64) [Русский]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296457.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, записанной на ноутбуке Acer ASPIRE V3-551G-10466G75Makk с помощью программы Acer Recovery Management. Образ флешки создан программой Acronis True Image Echo Server 9.5.8018.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47D1615C83E2504EA2E4A0899C01DA3BED5FD54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,238 @@
+###  Публикация: 1318324   (494299) от 06.08.2019
+
+Scorpions - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Hard'n'Heavy, Rock, Hard Rock>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossfire
+02. Sly
+03. Big City Nights
+04. Rhythm Of Love(   Читать дальше...   )Жанр: Hard'n'Heavy, Rock, Hard RockПродолжительность: 02:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938439D40FED3BC8A3ED0511480BED58EC5B1D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243432   (489976) от 28.08.2018
+
+VA - And The Angels Sing (2018) [MP3|320 Kbps] <Rock and Roll, Classic Rock, Rock Jazz>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489976.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Golden Gate Quartet - Joshua Fit The Battle Of Jerich
+002. Natalie Cole -  Almost Like Being In Love
+003. Eartha Kitt - A Woman Wouldn't Be A Woman
+004. John Travolta - Greased Lightning(   Читать дальше...   )Жанр: Rock and Roll, Classic Rock, Rock JazzПродолжительность: 11:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97400FA7DD98D949DA704AB6825477CBA85B3C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243412   (489814) от 28.08.2018
+
+VA - Hits of My Soul Vol. 39 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Linkin Park - Castle Of Glass (03:27)
+02. Imagine Dragons - Battle Cry (04:34)
+03. Battle Beast - Beyond The Burning Skies (04:40)
+04. Filter - What Do You Say (03:48)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA8F74CE930854E06CA8F0DB1520C449C438934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405102   (487284) от 28.08.2020
+
+VA - Silent Mutiny: Alternative Punk Rock (2020) [MP3|320 Kbps] <Punk Rock, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487284.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Codename Colin - Losing Touch
+002. Braincoats - These Hospital Halls
+003. Hawaiian6 - Skull And Bones
+004. Mikey Erg - Mother Nature's Son(   Читать дальше...   )Жанр: Punk Rock, Alternative RockПродолжительность: 07:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDBD10DA0729C6DF23F5EE91ACA1B5E3FF5DD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158785   (485921) от 19.08.2017
+
+Axel Rudi Pell - Ballads Vol.1 (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All The Rest Of My Life  8:05
+02.  Ashes From The Oath  9:39
+03.  Forever Angel (Acoustic)  4:32
+04.  Your Life (Not Close Enough To Paradise)  5:08(   Читать дальше...   )Жанр: RockПродолжительность: 02:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAF499316AA8C82965DA2D68FEE39CDF1C33904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158814   (485808) от 19.08.2017
+
+Axel Rudi Pell - Ballads Vol.2 (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tearin' Out My Heart  6:05
+02.  Come Back To Me  6:54
+03.  Don't Say Goodbye  5:42
+04.  Love Gun  4:04(   Читать дальше...   )Жанр: RockПродолжительность: 02:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D144E502526458C6C5F360D1DFB8120A77580FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159312   (484028) от 20.08.2017
+
+VA - Scandinavian Hard Rock (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484028.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Michael Monroe  - She's No Angel (3:30)
+ 2. Swedish Erotica  - Break the Walls (4:38)
+ 3. Gringos Locos  - Done Doin' You Right (4:17)
+ 4. Alien  - Headstrong (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F2128080A4F8D72FD4DA07798597E44D0ECA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159650   (481971) от 21.08.2017
+
+VA - Beyond The Matrix: Hard Masterpieces (2017) [MP3|320 Kbps] <Rock, Hard Rock, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Deep Purple - Get Me Outta Here  3:59
+002.  Alice Cooper - Under My Wheels  2:56
+003.  Roxxie Dee - Black Wire Cadillac  3:16
+004.  Mike & The Melvins - A Friend In Need Is A Friend You Don't Need  2:25(   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative RockПродолжительность: 11:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D476ECEA71C5E3E4F43AE2BF0E453E03DDF48DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244485   (479821) от 02.09.2018
 
 VA - 101 Hits - Keep On Running (5CD) (2018) [MP3|320 Kbps] <Pop, Rock>
@@ -516,244 +751,6 @@ UFO - The Very Best (2016) [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:098EF56444EBA2C8F579C4DFE2B085B29F014661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941031   (464055) от 26.09.2015
-
-The Beatles - Good Songs (2015) [MP3|128 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464055.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. I Saw Her Standing There (1963)
-002. Misery (1963)
-003. Anna (Go To Him) (1963)
-004. Chains (1963)(   Читать дальше...   )Жанр: RockПродолжительность: 09:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6A21520C2E8420BCFC386989996F80EE119647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239865   (464014) от 29.09.2010
-
-Андрей Макаревич - Коллекция легендарных песен (2010) [MP3|320 kbps]<Русский рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лет 30 тому назад (4:00)
-02. Из-за угла (5:03)
-03. Вдалеке от высоких холмов (3:10)
-04. Было не с нами (4:23)
-05. Новая опера (3:01)
-06. Нам, пожалуй, пора (4:08)
-07. Моя любовь (4:36)
-08. Птички и мошки (2:36)
-09. Ангел # 2 (4:10)
-10. Разговор на фоне бесконечной ночи (4:33)(   Читать дальше...   )Жанр: Русский рокПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059122   (461634) от 04.10.2016
-
-VA - Classic Rock (2016) 3CD Box Set [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461634.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-001. Sweet Home Alabama - Lynyrd Skynyrd (04:43)
-002. The Boys Are Back In Town - Thin Lizzy (04:26)
-003. All Right Now - Free (05:33)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 04:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060D8BFDD4EDD3FFAAC77887E00EC24D74E56AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059473   (461543) от 04.10.2016
-
-VA - ЭТО - РОК Unlimited Hits (2016) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иван Курнаев - В пульсе сердца
-02. Белки на Акации и Доза Радости - В чайном трипе
-03. Монти Механик - Фотоаппарат
-04. Беспризорники feat. Crazy Mama - Ибрагим(   Читать дальше...   )Жанр: RockПродолжительность: 04:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFC397FE814DE17E1992B6B21CCB05CD538636D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246571   (461477) от 11.09.2018
-
-VA - Prelude To Decadence (2018) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461477.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fates Warning - Damnation
-002. The Lurking Fear - Out Of The Voiceless Grave
-003. Hate - Asuric Being
-004. Spoil Engine - Disconnect(   Читать дальше...   )Жанр: MetalПродолжительность: 08:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58F01C65CAFAFCBC39202B690751D2A0DC6EE1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059450   (461473) от 04.10.2016
-
-Trans-Siberian Orchestra - Best Of Classics (2016) [MP3|320 Kbps] <Symphonic Rock, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toccata - Carpimus Noctem
-02. A Last Illusion
-03. Mozart - Figaro
-04. Dreams Of Fireflies (On A Christmas Night)(   Читать дальше...   )Жанр: Symphonic Rock, Progressive RockПродолжительность: 00:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D149075939F65B72EB875924770A9664691C9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246546   (460906) от 11.09.2018
-
-VA - Дети Последних Дней (2018) [MP3|256-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460906.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алиса - Дети Последних Дней
-002. Сплин - Тепло Родного Дома
-003. Мумий Тролль - Ой
-004. Trubetskoy - Когда Идёшь Домой(   Читать дальше...   )Жанр: RockПродолжительность: 09:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C35E358CC4CDD0C28DFA8C2EA98E1BC25623C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321428   (458939) от 24.08.2019
-
-VA - Rock And Flowers (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458939.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matthew Banks - Little Blonde Boy
-002. Aldo Nova - Fantasy
-003. Art Theefe - I Have Named
-004. Mr Twin Sister - Keep On Mixing(   Читать дальше...   )Жанр: RockПродолжительность: 09:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9987E71683AD760FD8CC81E8D2DDF4DACFFDABA
 ```
 
 https://mybot314.ru/tekegram_catalog/

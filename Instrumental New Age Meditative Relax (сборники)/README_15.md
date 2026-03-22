@@ -1,3 +1,61 @@
+###  Публикация: 1083397   (274706) от 15.12.2016
+
+VA - Relax & Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Sleep Relaxation - Restful Sleep 3:06
+02. Nature Sounds - Relaxation Song 3:14
+03. Relaxing Music Therapy - Calmness 3:14
+04. Calming Music Sanctuary - Dream Story 3:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842BBB7AE1ADE5AE4DB401EB2BBA93E16D61E15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083975   (272316) от 17.12.2016
+
+VA - Best Meditation Music 50 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation Music Zone - Best Meditation Music 3:38
+02. Chakra Healing Music Academy - Zen Garden Ambient 3:54
+03. Mindfulness Meditation Music Spa Maestro - Liberation Of Thoughts 3:22
+04. Meditation Mantras Guru - Calm Sea For Self-Hypnosis 3:52(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 03:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B63B8238873A2DA28B7C1EC252421ABC57D76A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083978   (272238) от 17.12.2016
 
 VA - Лучшие хитовые треки в стиле Chillout, New Age & Ambient от LORDEGRAF (2016) [MP3|32-320 Kbps] <Chillout, New Age, Ambient>
@@ -675,58 +733,6 @@ VA - Инструментальная музыка (2012) vol. № 41 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60CC9B16D137A91B8543EE688FC071C5ED79405F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496421   (253425) от 16.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 39 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7E8C8ABDC809CD1714E49AD76FB7B379181BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495865   (252658) от 13.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 37 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D103350E124F2C2B51B7F14663A4C98D4074E83
 ```
 
 https://mybot314.ru/tekegram_catalog/

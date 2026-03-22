@@ -1,3 +1,172 @@
+###  Публикация: 453149   (93650) от 17.02.2012
+
+Bap Kennedy - The Sailor's Revenge (2012) [MP3|320 kbps]<Rock / Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shimnavale - 05:07
+02. Not A Day Goes By - 04:07
+03. Jimmy Sanchez - 04:40
+04. Lonely No More - 03:08
+05. The Right Stuff - 03:48
+06. Maybe I Will - 04:36
+07. Please Return To Jesus - 04:13
+08. The Sailor's Revenge - 04:55
+09. Working Man - 04:33
+10. The Beauty Of You - 03:32(   Читать дальше...   )2012Жанр: Rock / Blues-RockПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC44893FDAE7CCEACF166617D86867ECE2229A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453110   (93646) от 17.02.2012
+
+Dollar Co. - Country Beatles (1981) [MP3|320 kbps]<Сountry, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Jude - Something (05:50)
+02. Ob-La-Di, Ob-La-Da - If I Nee (02:30)
+03. And I Love Her (03:38)
+04. I Want To Hold Your Hand (02:22)
+05. Eight Days A Week (03:03)
+06. Get Back (02:45)
+07. Help ! (02:53)
+08. With A Little Help From My Fr (04:01)
+09. A Hard Dayґs Night (03:08)
+10. Let It Be (03:29)(   Читать дальше...   )1981Жанр: Сountry, RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9514C728DD2E50B33B55BB70BFD4892452F75F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821889   (91189) от 04.10.2025
+
+Buckingham Nicks - Buckingham Nicks (1973) Remastered, 2025, Rhino [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_91189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crying in the Night [00:02:59]
+02 - Stephanie [00:02:13]
+03 - Without a Leg to Stand On [00:02:10]
+04 - Crystal [00:03:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFC9F2B89B46859E37D3870E92F4A509D75D98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488305   (90802) от 26.04.2012
+
+Richie Sambora(Bon Jovi) - Acoustic Set At Spain (1998) [MP3|320 кб/с]<Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (AC) (0:28)
+ 2. Hard Times Come Easy (AC) (3:41)
+ 3. Fallen From Graceland (AC) (4:58)
+ 4. Made In America (AC) (4:34)
+ 5. In It For Love (AC) (3:07)
+ 6. Fallen From Graceland (AC) (3:50)
+ 7. In It For Love (AC) (2:48)
+ 8. Fallen From Graceland (AC) (4:23)
+ 9. Hard Times Come Easy (AC) (3:23)
+ 10. Harlem Rain (AC) (1:18)(   Читать дальше...   )1998Жанр: AcousticПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE97B6B01AABB914BB9F06881F7CDC639BC96B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487387   (90448) от 24.04.2012
+
+VA - 100 Hits: Rock Anthems (2011) [MP3|320 кб/с]<Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90448.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+Продолжительность 01:08:49
+ 1. Jet – Are You Gonna Be My Girl
+ 2. Bloc Party – Helicopter
+ 3. Ash – Burn Baby Burn
+ 4. The Darkness – Growing On Me
+ 5. The Ordinary Boys – Talk Talk Talk
+ 6. Feeder – Buck Rogers
+ 7. Los Campesinos! – Death To Los Campesinos!
+ 8. The Lemonheads – Mrs. Robinson(   Читать дальше...   )2011Жанр: Rock, Classic RockПродолжительность: 06:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC044790F29906F4AFA53B98F72C76D0E7099AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487275   (90399) от 24.04.2012
 
 VA - Greatest Ever! Prog Rock (2012) [MP3|320 кб/с]<Progressive Rock>
@@ -670,170 +839,6 @@ ZZ Top - The Best Blues & Ballads (2001) [MP3|320 кб/с]<Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B72841F63A088F1D4A1E951B7E9655FF34664DD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464928   (80980) от 09.03.2012
-
-Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80980.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Продолжительность: 01:16:00
-01. Pictures Of Matchstick Men
-02. Ice In The Sun
-03. Down The Dustpipe
-04. In My Chair
-05. Paper Plane
-06. Mean Girl
-07. Caroline
-08. Break The Rules(   Читать дальше...   )2005Жанр: RockПродолжительность: 02:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC33053F836F39B4773AFB688509ADC49CC2CE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455788   (77775) от 22.02.2012
-
-Elvis Presley - ELVIS GOLD - The Very Best Of The KING (1995) [MP3|320 kbps]<Rock'n Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77775.jpg" />
-</div>
-
-
-###  Подробнее
-
-ELVIS GOLD - The Very Best Of The KING
-
-DISK 1 - 00:47:11
-
-01. Heartbreak Hotel - 2:11
-02. My Baby Left Me - 2:13
-03. Tutti Frutti - 2:00
-04. Hound Dog - 2:17
-05. Don't Be Cruel - 2:03
-06. Love Me Tender - 2:42(   Читать дальше...   )1995Жанр: Rock'n RollПродолжительность: 1:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6314EC852F4C784DC01F2CD4F4FA472A3B310E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443148   (77055) от 19.02.2012
-
-UFO - Seven Deadly (2012), Too Hot To Handle: The Very Best Of UFO (2012) [MP3|320 kbps]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77055.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Doctor Doctor (Live)
-02. Only You Can Rock Me (7" Version)
-03. Let It Roll
-04. Shoot Shoot (Live)
-05. Too Hot To Handle
-06. Young Blood
-07. Lonley Heart
-08. Let It Rain
-09. When It's Time To Rock(   Читать дальше...   )2012Жанр: Classic RockПродолжительность: 02:37:09 (01:18:19/01:18:50)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B8D185332294957DC173FF4979148687CEC4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453080   (76771) от 17.02.2012
-
-Chris Norman & Suzi Quatro - Stumblin' In (1978-1979) (Singles Maxi 2009) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stumblin' In (with Suzi Quatro) (03:59)
-02. A Stranger With You (with Suzi Quatro) (03:51)
-03. I Need Your Love (with Suzi Quatro) (05:34)
-04. Stumblin' In (Norman & CC Catch) (04:07)
-05. Stumblin' in (2009) (04:00)2009Жанр: RockПродолжительность: 00:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37A1AFBA2BB2F2FF0E9DA7E0AFC96EB9627E2CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770594   (71893) от 06.01.2025
-
-Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine on you crazy diamond [13:24]
-02. Medley time / breath reprise [06:20]
-03. The great gig in the sky [05:35]
-04. Money [08:17](   Читать дальше...   )Жанр: Rock, Alt RockПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396A8FB48DA1B7F7BB03AD8AF3E6A71BC9EC380A
 ```
 
 https://mybot314.ru/tekegram_catalog/

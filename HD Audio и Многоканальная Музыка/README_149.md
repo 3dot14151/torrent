@@ -1,3 +1,322 @@
+###  Публикация: 1743534   (105386) от 16.08.2024
+
+Foster The People - Paradise State of Mind (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See You In The Afterlife [00:03:09]
+02. Lost In Space [00:04:19]
+03. Take Me Back [00:02:33]
+04. Let Go [00:04:34](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F7EB64539BF9459BCD30BE413BED6AE44A7B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743435   (105384) от 16.08.2024
+
+Ansambel ''Vitamiin'' - Ансамбль ''Витамин I'' (1983) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105384.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Turnee • Турне • Tour
+A2 Rabatapp • Рабадап • Rabadap
+A3 Ave Maria • Аве Мария • Ave Maria
+A4 Julius Caesar • Юлий Цезарь • Julius Caesar(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E1C65C1F5E494A5DF63AB8C119E5601604869A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743545   (105367) от 17.08.2024
+
+Frank Turner - Undefeated (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Rock, Americana>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do One (Acoustic) [00:02:22]
+02. Nevermind The Back Problems (Acoustic) [00:01:11]
+03. Ceasefire (Acoustic) [00:04:34]
+04. Girl From The Record Shop (Acoustic) [00:01:40](   Читать дальше...   )Жанр: Folk Rock, AmericanaПродолжительность: 2 CD, 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74DBC6840DC7A93816F4293D77618397AEEE8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743745   (105321) от 18.08.2024
+
+Jontavious Willis - West Georgia Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West Georgia Blues [00:02:02]
+02. Charlie Brown Blues [00:03:50]
+03. Broken Hearted Moan [00:02:51]
+04. Keep Your Worries On the Dance Floor [00:02:49](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FDE06EA62401855725E220A0CDD4E89083F586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743751   (105317) от 18.08.2024
+
+Rosie Lowe - Lover, Other (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sundown [00:00:37]
+02. Mood To Make Love [00:03:51]
+03. In My Head [00:02:04]
+04. Bezerk [00:02:13](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30BCF47BC48484345517E6126D00AF7833CBE1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743893   (105310) от 19.08.2024
+
+Tight - Right Between The Eyes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night City (4:09)
+02. Part Time Lover (3:58)
+03. Kickin' it (5:04)
+04. Lonely Flower (5:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E204D12F182EE20C0413EC1A0CE4C5DD7FE6AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743892   (105309) от 19.08.2024
+
+Strevellna - Revoldom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revoldom EN (1:05)
+02. Dödsfördriv (3:24)
+03. Ensamtid (3:56)
+04. Mänsklig Hand (3:48)(   Читать дальше...   )Жанр: Hard Rock, Power MetalПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7D6C215549CD795F6039F7CD7513F06AB4370D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743858   (105308) от 19.08.2024
+
+Budderside - Good For Nothing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good For Nothing (3:31)
+02. Joker (3:52)
+03. The Truth (3:37)
+04. Never Worth It (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2924A1491C4751EBA171091972171A0A5B230928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743888   (105307) от 19.08.2024
+
+Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Dreamer (4:16)
+02. Your Own Hero (4:02)
+03. Stronger Than You Know (4:10)
+04. All That's Mine To Give (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926C7E10334455ED2590E7DA4B8DA83F5467712D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743841   (105306) от 19.08.2024
+
+A.D.A.M. Music Project - World Takeover (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Takeover (2:58)
+02. All Hail The King (3:01)
+03. Finish You (3:05)
+04. Midas (3:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36E2E9457464DCDF118D7AC39DC98D5B9E98D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743866   (105305) от 19.08.2024
+
+Hazel Gaze - Hazel Gaze II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Little Secrets (3:40)
+02. Who's Sorry Now (3:26)
+03. Until I See You Again (4:03)
+04. What Coulda Been (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8578739007DCC0D54AC412698CEEF736547034D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743852   (105304) от 19.08.2024
 
 Brian Ray - My Town (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
@@ -426,325 +745,6 @@ Fleshgod Apocalypse - Opera (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sympho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC9CE078E3C920E8EB0654F37F36388C0AB71387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744857   (105206) от 23.08.2024
-
-Kingcrow - Hopium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kintsugi (3:54)
-02. Glitch (3:56)
-03. Parallel Lines (6:48)
-04. New Moon Harvest (3:30)(   Читать дальше...   )Жанр: Alternative Rock, Progressive MetalПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FE1190BD01FDDAF076E2AA414929C774F5889B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744700   (105205) от 23.08.2024
-
-Caligula's Horse - Studio Albums (6 releases) (2011-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caligula's Horse - прогрессивная альтернативная рок-группа из Брисбена, Австралия, названная в честь драгоценного имущества печально известного римского деспота.2011 - Moments From Ephemeral City
-2013 - The Tide, The Thief & River's End
-2015 - Bloom
-2017 - In ContactЖанр: Progressive Metal/RockПродолжительность: 05:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BCCB10073372B17E5A051EEBB2A4690C0F469BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744755   (105201) от 23.08.2024
-
-Mono Inc. - Symphonic Live - The Second Chapter (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Instrumental, Gothic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105201.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01 - Louder Than Hell (Symphonic Live - The Second Chapter) [3:51]
-02 - Seligkeit (Symphonic Live - The Second Chapter) [4:09]
-03 - When the Raven Dies Tonight (Symphonic Live - The Second Chapter) [5:09](   Читать дальше...   )Жанр: Rock, Instrumental, Gothic RockПродолжительность: 01:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DCB68B4717B9C9D16004191A9404D73FBC2BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744821   (105192) от 24.08.2024
-
-Sabrina Carpenter - Short n' Sweet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taste [00:02:37]
-02. Please Please Please [00:03:06]
-03. Good Graces [00:03:05]
-04. Sharpest Tool [00:03:38](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32416C1DEBDD015BD73327CBDAA6F65DA5E271FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744814   (105188) от 24.08.2024
-
-101 Strings Orchestra - I Left My Heart in San Francisco (1964) Remaster from the Original Somerset Tapes, 2014-2024, Somerset [FLAC 24/96|Lossless|WEB-DL|tracks] <Easy Listening, Jazz, Blues, P ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Left My Heart in San Francisco (2014 Remaster) [00:02:58]
-02. Limehouse Blues (2020 Remaster) [00:02:35]
-03. Top o' the Mark (2024 Remaster) [00:04:50]
-04. Cable Cars (2024 Remaster) [00:02:35](   Читать дальше...   )Жанр: Easy Listening, Jazz, Blues, PopПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8198893EFF70964DD3B47E3246BED7A46644FC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745113   (105184) от 24.08.2024
-
-Burning Point - Studio Albums (8 releases) (2001-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burning Point — финская пауэр-метал-группа из города Оулу. Burning Point сочетают музыкальность классических Accept, Black Sabbath и Judas Priest со страстью Children Of Bodom.2001 - Salvation By Fire
-2003 - Feeding The Flames
-2006 - Burned Down The Enemy
-2009 - EmpyreЖанр: Heavy Metal, Power MetalПродолжительность: 08:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744822   (105182) от 24.08.2024
-
-The Emperor Machine - Island Boogie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Funk, Soul, Nudisco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island Boogie [00:06:29]
-02. La Cassette [00:08:27]
-03. Dévoilez-Vous [00:08:26]
-04. Walk the Dog [00:08:11](   Читать дальше...   )Жанр: Electronic, Funk, Soul, NudiscoПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFB6A78C5F4A36E1A4DEA6BE391BDE6DDE4FC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745008   (105180) от 24.08.2024
-
-Soen - Studio Albums (7 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soen - прогрессивная рок/метал группа из Стокгольма, Швеция.2012 - Cognitive
-2014 - Tellurian
-2017 - Lykaia
-2019 - LotusЖанр: Progressive Rock, Progressive MetalПродолжительность: 07:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877852EBAD88A61CC6DD85F96CF4471BEEE052B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744819   (105176) от 24.08.2024
-
-Glass Spells - Crystals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without You [00:03:18]
-02. Venom [00:03:44]
-03. Glow [00:03:32]
-04. Before Dawn [00:03:44](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63091467967FF552D9B3CCA17B57BDF69A593B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744999   (105168) от 24.08.2024
-
-Static-X (Wayne Static) - Studio Albums (10 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Static-X — американская метал-группа из Лос-Анджелеса, Калифорния, сформированная в 1994 году после распада Deep Blue Dream, предыдущей группы Уэйна Статика и Кена Джея. Стилистически представляет собой индастриал-метал с элементами ню-метала.1999 - Wisconsin Death Trip
-2001 - Machine
-2003 - Shadow Zone
-2004 - Beneath... Between... Beyond...Жанр: Industrial Metal, Nu MetalПродолжительность: 07:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF90C96A3C362A316F5209825AA81ACAD0830347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744816   (105165) от 24.08.2024
-
-Delta Heavy - Midnight Forever (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delta Heavy - Midnight Forever
-02. Delta Heavy And Hayley May - Get Down Tonight
-03. Delta Heavy - E-N-D
-04. Delta Heavy And You - Babylon(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC037FDB2F702AE561104B7DEEADB75AB3F47F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

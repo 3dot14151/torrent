@@ -1,3 +1,181 @@
+###  Публикация: 1301299   (586339) от 10.05.2019
+
+Rene Urtreger & Agnes Desarthe - Premier rendez-vous (2017) Naive [FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Love [6:52]
+02. Le premier rendez-vous [6:05]
+03. Theme pour un ami [3:36]
+04. La geante [2:29](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D9E3FE3B20201E98C61B3DC2EB5BDD69AE30CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357446   (586276) от 02.07.2011
+
+Ella Fitzgerald - Ella Fitzgerald and Friends For Lovers (2007) [APE|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My One and Only Love - with Nelson Riddle (3:14)
+02. I Didn't Know About You - with Duke Ellington (4:13)
+03. There's a Lull in My Life - with Stan Getz (3:26)
+04. This Time the Dream's on Me - with Billy May & Benny Carter (4:37)
+05. April in Paris - with Louis Armstrong (6:34)
+06. Body and Soul - with Nelson Riddle (3:43)
+07. Dream a Little Dream of Me - with Count Basie (4:06)
+08. These Foolish Things (Remind Me of You) - with Oscar Peterson (7:38)
+09. Midnight Sun - with Stan Getz (3:58)
+10. Prelude to a Kiss - with Ben Webster & Stuff Smith (5:29)(   Читать дальше...)Жанр: Jazz, Vocal JazzПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301351   (586263) от 10.05.2019
+
+Gino Vannelli - Black Cars (1984) [FLAC|Lossless|image + .cue] <jazz, jazz/rock, fuzion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Cars
+2. The Other Man
+3. It's Over
+4. Here She Comes(   Читать дальше...   )Жанр: jazz, jazz/rock, fuzionПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B88B723EEF6CE6B05DF4B3758A306E4B25664F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918852   (586040) от 16.07.2015
+
+Gianni Savelli Media Res - Magellano (2015) [FLAC|tracks|WEB-DL]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Over Gocius De Santu Micheli
+02. Thelxis
+03. Kirschrot
+04. Aria From Bachianas Brasileiras No.5(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5AE5A27E8312F21323E718DB392E6780629F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918743   (586036) от 16.07.2015
+
+Shirley Scott - Girl Talk (1967) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl Talk [03:24]
+02. Come Back To Me [03:12]
+03. We'll Be Together Again [03:45]
+04. Love Nest [03:19](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E617ACD84D04F0F431EFB595438522D5B405F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918747   (586033) от 16.07.2015
+
+Masabumi Kikuchi - East Wind (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East Wind [20:05]
+02. Green Dance [23:59]Жанр: Jazz, Post-Bop, Modern CreativeПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4EA6AAB8C57A809F41A492F48FE13DD6AC37EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918851   (586006) от 16.07.2015
 
 Ida Sand - Young At Heart (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
@@ -576,180 +754,6 @@ Rhoda Scott - Anthology (1972, 1973) 2011, Universal [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205BA1D67BF550A68F271087E48CD4758BB7CAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810422   (583481) от 05.08.2014
-
-Ella Fitzgerald, Count Basie, Joe Williams - One O'clock Jump (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close for Comfort [03:05]
-02. Smack Dab in the Middle [03:38]
-03. Amazing Love [03:31]
-04. Only Forever [03:37](   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, Big BandПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE533845A1D9C2255F8AE602A150B0AA4DE2E0CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041293   (583463) от 08.08.2016
-
-Don Wilkerson - The Texas Twister (1960) 2001, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Twister [06:33]
- 02.Morning Coffee [07:53]
- 03.Idiom [05:22]
- 04.Jelly Roll [07:45](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA409AFD3392752B697D78FEA3F1B0D7CF0F31DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041009   (583458) от 08.08.2016
-
-Steve Hooks - No More Rock and Roll (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Rock and Roll
-02. Same Old Song
-03. It's Just a Wonderful Song
-04. C-Drive(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDB38745E2C9C96DCD84820721C149FBBCE79E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301940   (583384) от 13.05.2019
-
-Phil Dwyer & Don Thompson - Look For The Silver Lining (2013) Triplet Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Were a Bell [6:18]
-02. Guess I'll Hang My Tears Out to Dry [8:05]
-03. Just You Just Me [6:11]
-04. Autumn Nocturne [6:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56784C3C730FC63A848D2C59B301E80AE13F470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342689   (583257) от 08.08.2016
-
-John Coltrane - Blue Train (2007) 10CD Box Set [APE|Lossless|image + cue]<Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_583257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на относительно короткую карьеру (он стал известен широкой публике только в возрасте 33 лет, а умер, не дожив до 41 года), Джон Колтрейн до сих пор является одной из самых известных и противоречивых фигур джазового мира. Он играл в разных, чуть ли не противоположных, стилях и это служило причиной столь же противоположных отзывов критиков о его музыке. Однако (   Читать дальше...   )01. On It (Hope) (9:05)
-02. Polka Dots And Moonbeams (Van Heusen - Blake) (8:40)
-03. Weeja (Hope) (11:10)
-04. Avalon (Jolson - Desylva - Rose) (9:41)(   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 09:57:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553325   (582968) от 25.05.2022
-
-Freddie Hubbard - Red Clay (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Clay [12:12]
-02. Delphina [7:23]
-03. Suite Soux [8:39]
-04. The Intrepid Fox [10:45](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8901479E55CD28EFF970AE9F8B7C11AE551AA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

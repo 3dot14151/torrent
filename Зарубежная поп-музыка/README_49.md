@@ -1,3 +1,130 @@
+###  Публикация: 1058290   (469194) от 01.10.2016
+
+Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Know The Drill   (03:34)
+02. Chaperone   (02:59)
+03. Infinity   (03:25)
+04. Devil Better Run   (03:21)(   Читать дальше...   )Жанр: Funk, Rhythm & Blues, SoulПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E87D873FF68259F667462364CF04138AA7E150F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245362   (467661) от 08.09.2018
+
+VA - NRJ 300% Hits 2018 Vol. 2 (2018) 3CD [MP3|320 Kbps] <Pop, Dance, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467661.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01: 
+01. David Guetta, Anne-Marie - Don't Leave Me Alone (feat. Anne-Marie)
+02. Aya Nakamura - Djadja
+03. Maroon 5, Cardi B - Girls Like You(   Читать дальше...   )Жанр: Pop, Dance, RapПродолжительность: 03:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CADF5CFFB13806DAACA2B8BAC9708C99761F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548607   (467344) от 18.09.2012
+
+Mika - The Origin Of Love (2012) [MP3|320 кб/с]<Pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origin of Love (4:37)
+02. Lola (3:45)
+03. Stardust (3:18)
+04. Make You Happy (3:36)
+Мульти-платиновый британский певец и автор песен01. Karen (3:57)
+02. L'amour dans le mauvais temps (4:07)
+03. Un soleil mal lune (3:06)
+04. Tah Dah (5:47)
+05. Make You Happy (5:55)
+06. Celebrate (5:02)
+07. Elle me dit (3:11)
+08. Make You Happy (2:50)
+
+Продолжительность: 00:33:55]Жанр: Pop, rockПродолжительность: 01:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B484E3B0EC36077B32932229E5D18D8C5F43BAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546550   (467334) от 18.09.2012
+
+Beyonce - I Was Here (2012) Single, Promo CD [MP3|~245 кб/с (V0)]<R&B, pop, soul, hip hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Here (Redtop Club 12" Mix) (7:16)
+02. I Was Here (Wawa Anthem Mix) (6:34)
+03. I Was Here (Strictlove Beach House Club Mix) (6:59)
+04. I Was Here (J-C Main Club Mix) (7:48)
+05. I Was Here (Original Version) (3:59)Жанр: R&B, pop, soul, hip hopПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6846C64294DE1D451CED050900CAA4D52F516246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547659   (467071) от 18.09.2012
 
 Tanita Tikaram - Can't Go Back (2012) [MP3|320 кб/с]<Pop, Folk>
@@ -665,122 +792,6 @@ Kim Wilde - Snapshots / Special Edition (2011) [MP3|230-283 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0679E58714465862CE240ADCAAFA7B38C13B9503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247526   (452727) от 15.09.2018
-
-Bananarama - Live at the London Eventim Hammersmith Apollo (2018) [MP3|320 Kbps] <Europop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Jones (6:14)
- 02. Robert De Niro's Waiting (4:49)
- 03. Rough Justice (4:34)
- 04. Aie A Mwana (4:29)(   Читать дальше...   )Жанр: Europop, DanceПродолжительность: 01:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEA845939B1B86B165701C1EEF67C2B949DDB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247139   (452721) от 15.09.2018
-
-VA - Bravo Hits Vol. 103 (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452721.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Josh. - Cordula Grun 3:34
-02. The Bosshoss - Ayo 3:19
-03. Bosse - Augen Zu Musik An 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085189DC1081D5150DF07050A03F01D14350771E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163018   (452714) от 04.09.2017
-
-VA - The Sweet Sound of Bossanova (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seby Burgio – Corcovado.mp3
-02. Seby Burgio – Shimbalaie.mp3
-03. Bruno Patinho – Pra Machucar Meu Coracao.mp3
-04. Giacomo Bondi – Moonlight Bossa.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC4C1270E15DD3B80BA18DDB5E751D7006B6D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163232   (452500) от 04.09.2017
-
-Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Dolce Vita (3:33)
- 02. Tonight (3:49)
- 03. Soul Survivor (3:49)
- 04. Sweet Dreams (3:51)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C601D6FAE2C99A81C3AFB6F578A85B5CB7B3DC5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

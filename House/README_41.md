@@ -1,3 +1,148 @@
+###  Публикация: 1234533   (571032) от 05.07.2018
+
+VA - The Fitness Series, Vol. 3 (2018) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashley Walters - Soundcheck (Shock-Force Remix) 07:39
+02. Audio Hedz - Just Another (Original Mix) 08:31
+03. Noath - The Cataclyms (Original Mix) 06:41
+04. Systemic Noise - The Devil (Original Mix) 07:20(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 06:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0B7151B6400222EAAF7A250141192475DBF522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151903   (570198) от 20.07.2017
+
+VA - Tomorrowland 2017: Amicorum Spectaculum (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren - Tomorrowland 2017 Continuous Mix  34:55
+02.  Dimitri Vegas & Like Mike - Tomorrowland 2017 Continuous Mix  26:24
+03.  Lost Frequencies - Tomorrowland 2017 Continuous Mix  30:25
+04.  Martin Garrix - Tomorrowland 2017 Continuous Mix  30:34(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 07:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040EFFC4D3AE3532A1ED64B42712C079FE2392CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303762   (570082) от 22.05.2019
+
+VA - Deep House Hits: Ibiza 2019 – Armada Music (2019) [MP3|320 Kbps] <House, DeepHouse, ClubHouse, ProgressiveHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies feat. Flynn - Recognise 03:06
+02. Zack Martino - Mood 02:48
+03. Garibay - Phone Down 03:12
+04. Kokiri feat. Joe Killington - Friends 02:59(   Читать дальше...   )Жанр: House, DeepHouse, ClubHouse, ProgressiveHouseПродолжительность: 02:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A0E8E4BAA95D507DF6D72FE3B94D39C7200BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234540   (569288) от 06.07.2018
+
+VA - Sports Music City Edition (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dayana - Camuto 03:10
+02. Cymbal - Dation 03:10
+03. Corteza - Scent 03:10
+04. Clickbank - Eternal 03:10(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2200930CE7F1FC47445D3CA4350CA81F941ACA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152126   (569017) от 21.07.2017
+
+VA - Ready For Summer 2017 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony La Porte - Out Of Thrill (original mix) (06:04)
+02. Wild Dee - Sunny (original mix) (04:29)
+03. Softmal & Rey Vercosa - Quer Danone (original mix) (06:30)
+04. Nytron & DJ MauMau - Hit The Flow! (original mix) (05:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79615D25588483CE9BB969FF9BB1CC88150C095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152269   (567591) от 22.07.2017
 
 Daviddance & Francesco Frumento & I Biz - Nextix (2017) [MP3|320 Kbps] <Progressive House>
@@ -601,151 +746,6 @@ VA - Workout Music Vol.1 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA96F354B8246FD822FA643CB447CF36E34FB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045039   (561679) от 22.08.2016
-
-VA - Deep House Brazil (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Dupree - Another World - Original Mix
-02. John - Alexis' Night - Original Mix
-03. Parfenov - Mi Vida - Original Mix
-04. Ditto* - I Need You - Vox Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB9BB703294966B27410784966C68A6662D557F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153414   (560201) от 26.07.2017
-
-VA - 1st Ladies in the House (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emiel Roche & K3y5hift3r - Close Encounters
-02. Sydrops & Manz Hoffman - Together
-03. Andre Schluter - Tonight
-04. DJ - T - Run Away(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735E08250E1C5B41D4E68A4BC2134A164FEE9247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153269   (560198) от 26.07.2017
-
-VA - Beach Party Ibiza 2017  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hlasznyik – Let’s Go To The Party Beach (Original Mix) 03:01
-02. D.O.N.S. – You Used To Hold Me (Avicii Remix) (Feat. Terri B.) 06:33
-03. Seal De Green – Summer Love (Dany Cohiba Remix) 06:44
-04. Am2pm – Better With You (Reda Lahlou Extended Mix) 05:52(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BEC49918A491B49D28D815EC4C5FAF86BD4C938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304942   (560066) от 28.05.2019
-
-VA - A 40 Track Compilation: Hong Kong (2019) [MP3|320 Kbps] <House, Progressive House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madloch & Subnode - Shadow People (Charles Webster Remix)
-02. Paula OS - Pearl (Adam Nathan Remix)
-03. Matias Vila - Ahora (Stelios Vassiloudis Remix)
-04. Agustin Basulto - Calma (Roger Martinez Medicine Music Remix)(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 05:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E246E9B124B2F4F6C76C200EC99A3AF85788FD37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045524   (559960) от 23.08.2016
-
-VA - Permanent Vacation 4 (2016) [MP3|320 Kbps] <Deep House, Chillout>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi & Saberhagen - Spreepark [05:31]
-02. Carrot Green - Vodou [07:35]
-03. Young Marco - Dreamless [06:25]
-04. Fantastic Man - Seaside Special [05:56](   Читать дальше...   )Жанр: Deep House, ChilloutПродолжительность: 01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95871ACF376AFC01E81061F91AE3C1766804C1B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

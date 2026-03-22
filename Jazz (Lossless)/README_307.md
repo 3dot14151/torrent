@@ -1,3 +1,177 @@
+###  Публикация: 1697246   (118934) от 06.02.2024
+
+VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundset City - Late Night (3:34)
+02. Nightview - Nightdrive (3:15)
+03. Jean Mare - Only Lounge (3:17)
+04. Audiozoom - 5th Pleasure (3:14)(   Читать дальше...   )Жанр: Chill Out, Nu JazzПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFE973626ABEFE1532E24D829AA73894E56FDA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697423   (118928) от 06.02.2024
+
+Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lo-Fi, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams (feat. Laura Serra)
+02. I've Been Waiting for a Girl Like You (feat. Alessandro Pitoni)
+03. I Can See Clearly Now (feat. Daniele Vit)
+04. Georgy Porgy (feat. Wendy Lewis)(   Читать дальше...   )Жанр: Nu Jazz, Lo-Fi, Easy ListeningПродолжительность: 01:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30309CB7061886FBCCFEEC0E9EB3DD6025EAA52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697315   (118914) от 06.02.2024
+
+Threestyle - No Matter What (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Matter What (4:15)
+02. Love of My Life (4:03)
+03. Special to Me (4:04)
+04. No Looking Back (4:22)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B58C50995A28FF9656A22EE6850C39F6CF4BE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697309   (118910) от 06.02.2024
+
+Lloyd Foulks - They Call Him Joe (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful It Is (3:11)
+02. Black Tide (3:20)
+03. Blazin' (2:17)
+04. Blue Ice (3:00)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31D31F70D8D7A4E4FB7BA28EF408D7FCEF42C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697437   (118900) от 06.02.2024
+
+Kenny Barron Trio - Lemuria-Seascape (1991) 2023, Candid [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemuria [4:36]
+02. Ask Me Now [5:31]
+03. Sweet Lorraine [7:20]
+04. Fungii Mama [5:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3324E7445B0F3B6E7C508B35DB3BA7847082A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697573   (118756) от 07.02.2024
+
+VA - Best Groovy Smooth Jazz for Traveling and Vacation (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - A Summer Walk (3:54)
+02. Chillaxonic - Flight of Fantasy (3:54)
+03. Konstantin Klashtorni - By the Bay (4:23)
+04. Kool&Klean - Islands in Tranquility (5:06)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB3F02305594EAF9BC2AB2899C7FDCEEE7547C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697654   (118749) от 07.02.2024
 
 Chet Baker - Late Night Chet Baker (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -571,180 +745,6 @@ Adam Astrup - Songs From Before (2024) [FLAC|Lossless|WEB-DL|tracks] <Contempora
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B9B20F598B4C70C0528CC6ED8A466DBBB6C5706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699634   (117686) от 14.02.2024
-
-Julie London - Original Paper Sleeve Collection (1955-1969) (2010) 30CD[FLAC|Lossless|tracks + .cue] <Jazz, pop, vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список Альбомов:
-1955 - Julie Is Her Name
-1956 - Lonely Girl
-1956 - Calendar Girl(   Читать дальше...   )Жанр: Jazz, pop, vocalПродолжительность: 16:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0F213F66CC878B82DF4A4090D067195B52BA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699654   (117665) от 14.02.2024
-
-Bossa Nova Lounge Club, Romantic Love Songs Academy - Bossa Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion and Attraction (4:06)
-02. Burning Desires (4:39)
-03. Kissing in the Rain (4:39)
-04. Let Me Love You (4:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED94E8BA10CBC3AD227C06BD75F2CE5E550DACF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699627   (117624) от 14.02.2024
-
-VA - The Atlantic New Orleans Jazz Sessions (1955 - 1962) 4CD, 1998, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punch Miller's Bunch - Hindustan (4:00)
-02. Punch Miller's Bunch - Casey Jones (3:07)
-03. Punch Miller's Bunch - Sugar Blues (4:03)
-04. Punch Miller's Bunch - Corrine Corrina (3:57)(   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 04:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23827259E34B53D75BBD8D3854C463C2E81B643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699819   (117618) от 14.02.2024
-
-Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Rose
-02. Spicy Little Dance
-03. Pure Feelings
-04. True Love Has Your Name(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A35E698359872C77B0E4A1B863EB7AEEEF85A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699782   (117581) от 14.02.2024
-
-Nikos Chatzitsakos - Tiny Big Band 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All or Nothing at All (5:43)
-02. Get Out Of Town (4:48)
-03. Fly Little Bird Fly (5:53)
-04. Where or When (5:26)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3DC63EA320FF7149F0BFA221945A6DD594ABB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699632   (117574) от 14.02.2024
-
-Alf Kjellman - Feather, But No Wings (1999) 2008, Reflect [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waltz [6:30]
-02. January 17 [6:05]
-03. You'll Always Need Friends [5:42]
-04. Feather, But No Wings [5:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DB9EB2B051D327FCF4D7CA3AA9E2865A2D5832
 ```
 
 https://mybot314.ru/tekegram_catalog/

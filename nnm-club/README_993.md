@@ -1,303 +1,25 @@
-###  Публикация: 1444490   (1034687) от 01.02.2021
+###  Публикация: 1443259   (1035777) от 28.01.2021
 
-Роберт Фальк. Автопортрет в красной феске (2006) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034687.jpg" />
-</div>
-
-
-###  Подробнее
-
-О русском художнике первой половины ХХ века Роберте Фальке (1886-1958). В фильме представлены программные произведения Фалька. Зрители познакомятся с эпистолярным наследием художника, в котором в полной мере отражены его взгляды на искусство и предназначение творческого человека.
-Фальк учился в школах Константина Юона и Ильи Машкова, в Училище живописи, ваяния и (   Читать дальше...   )Производство: Россия, ТРК "Культура"Жанр: Документальный, история, искусствоРежиссер: Александр ШувиковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE151B61C1B45C04B95F1F910E65DF37288F94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444293   (1034686) от 01.02.2021
-
-VA - Beatport Dance House: Electro Sound Pack #236 (2021) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный танцевальный сборник в стиле танцевального электро хауса, который полностью наполнен качественными хитами электронной сцены. Представленные треки продуманы до самых мелочей и демонстрируют собой истинную музыкальную эстетическую гармонию.001. Bobby Stewart - Flashback
-002. Julian Jordan - Boss
-003. Duke Jones - Suddenly (Dub Mix)
-004. Glock.Lee - Bring The House Down(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA02BE1F7AC7161DA5D2CE4BAFF2AE5938CE43A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444183   (1034685) от 01.02.2021
-
-Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Индианаполис 1 / AMA Supercross Championship. Indianapolis 1 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034685.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Жанр: СпортПродолжительность: 02:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB2796A36552FDFD251CFFBE2F60656C510256D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444411   (1034684) от 01.02.2021
-
-Dave Dee, Dozy, Beaky, Mick & Tich - Zabadak (1995) [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Legend of Xanadu (3:38)
-02. Bend It (2:33)
-03. Save Me (3:01)
-04. Mr. President (3:16)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335AFDF5A539D186FC217A65596995DAE0995198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444402   (1034682) от 01.02.2021
-
-DxO PhotoLab 4 ELITE Edition 4.1.3.49 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.02.2021Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE8F1200B413D1D1D6C9E2F0ADA7053CC6EA604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444057   (1034681) от 01.02.2021
-
-VA - Valentines Day 2021 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cardigans - Lovefool (03:18)
-02. Keane - Somewhere Only We Know (03:56)
-03. Jackson 5 - I'll Be There (03:57)
-04. Marvin Gaye - Ain't No Mountain High Enough (02:27)(   Читать дальше...   )Жанр: PopПродолжительность: 04:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF24092E5CCE985F70531ED47A245629FA873F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444145   (1034680) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 2 (Selected by Lajos Birizdo) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Slice Me Nice (Split Mirrors Remix) (5:49)
-02. Digitalo - Beautiful Day (Extended Mix) (9:18)
-03. Maxthor - Hunters (Extended Mix) (4:50)
-04. Loreana C. - Dangerous Love (Extended Mix) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A2EC69FE4B7183D508DE78C125CDA782F2E121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443813   (1034679) от 01.02.2021
-
-The Cancel - Coffee Cafe EP (2012) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coffee time (02:02)
-02. Morning cafe (02:33)Жанр: Hip-Hop, InstrumentalПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F023094CC80CDD1B2BE5D393CEB4F8E09634FCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444417   (1034678) от 01.02.2021
-
-VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take - Remastered 2003 (4:14)
-02. Lady A - Need You Now (3:56)
-03. James Morrison - You Give Me Something (3:32)
-04. Shania Twain - You're Still The One (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444409   (1034677) от 01.02.2021
-
-Роско Арбакл. Фатти и Мейбл день стирки / Mabel and Fatty's Wash Day (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фатти и Мейбл - соседи. Они находят общий язык и решают совместно провести время.Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Мэйбл Норманд, Роско Арбакл, Гарри МакКой, Элис Девенпорт, Джо Бордо, Джимми Брайант, Люк ДогПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93286C1E7AC4C3E086852E8F34FB36C0F196588C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444272   (1034676) от 01.02.2021
-
-Storm Seeker - Guns Don't Cry (2021) [FLAC|Lossless|image + .cue] <Folk Metal, Pirate Metal>
+Conception - Stаtе Оf Dесерtiоn (2020) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034676.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. How to be a Pirate (3:23)
-02. Naval Hitchhike (2:55)
-03. Shoot This Ship Down (4:19)
-04. Guns Don't Cry (3:39)(   Читать дальше...   )Жанр: Folk Metal, Pirate MetalПродолжительность: 00:35:35
+CD - 1 - State Of Deception:
+ 01. In: Deception
+02. Of Raven and Pigs
+03. Waywardly Broken(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:06:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40B0A1A76B4D0F1371CE084169611F1F1C649F1F
+magnet:?xt=urn:btih:8556358B3315027E51B64EE8B675CE51749B1980
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,281 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444396   (1034675) от 01.02.2021
+###  Публикация: 1443199   (1035776) от 28.01.2021
 
-Onyx - Lost Treasures (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onyx, Makem Pay - Black Hoodie Rap (03:51)
-02. Sticky Fingaz, Bobby Brown - Boy Still Got It (02:40)
-03. Fredro Starr, Drag-On - Face Off (03:30)
-04. Sticky Fingaz, Mad Lion, Begetz - Gansta Buster (04:19)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB045FDA6194B2BC8ABA5764EDEA6E61838DDE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444164   (1034674) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - This My Lady Like the Night (Extended Version) (8:56)
-02. Birizdo I Am - Dont Go (Extended Version) (6:11)
-03. Diamond Rain - Mystic Night (Extended Version) (6:11)
-04. Nikita Fomin - I Dont Wanna Lose You (Extended Version) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444381   (1034673) от 01.02.2021
-
-Syrinx Call - Mirrorneuron (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bit By Bit 05:29
-02. Deceptive Illusion 04:59
-03. The Arctic Will Die 04:19
-04. Breakdown 06:13(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AEEF3A587FB10A105FC1D48C33ADF4019E04C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444158   (1034672) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - I Bridge New Life (7:07)
-02. Kristian Conde - Don't Give It Up (Maxi Version) (4:45)
-03. The Crosslines - Starlight (Maxi Version) (5:17)
-04. Nation In Blue - I Want U (Extended Version) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443818   (1034671) от 01.02.2021
-
-The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:16)
-02. Pending (01:42)
-03. 5 Year (03:00)
-04. Other Content (02:14)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444416   (1034670) от 01.02.2021
-
-Privacy Eraser Free 5.8.0 Build 3816 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9876DF1430B6BA05BFD7C668A4AA58C5F3DF7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444480   (1034669) от 01.02.2021
-
-Тайна Марики Рекк (2012) DVB
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему одни считали Марику Рёкк русской шпионкой, а другие – любовницей Канариса, работавшей на немецкую разведку? Почему в судьбе Марики Рёкк – единственной немецкой актрисы – Советский Союз принял такое большое участие? Об этом в документальном расследовании "Совершенно секретно" рассказывают дочь Марики Рёкк – Габриэла Якоби, её партнер по танцам Клаус (   Читать дальше...   )Производство: РоссияЖанр: Документальный, биография, история, расследованиеРежиссер: Алексей АленинЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:910A2BDCA73B145ADD66DF73B8B2E911B7C415C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444405   (1034668) от 01.02.2021
-
-Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Tight (2:51)
-02. The Wreck of the Antoinette (3:24)
-03. Save Me (3:19)
-04. Here's a Heart (3:29)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444283   (1034667) от 01.02.2021
-
-Город льва поднимается / Lion City Rising (2020) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сингапур пережил невероятные изменения за последние 8 лет, и я попытался запечатлеть как можно больше из них. В этом фильме не использовались постоянные камеры, требовалось регулярное посещение объекта в течение 988 съёмочных дней и более 3300 снятых кадров.Производство: СингапурЖанр: Документальный, видовойРежиссер: Кейт ЛутитПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262C9A652384858FD6A2BC15242392056C9DD66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444306   (1034666) от 01.02.2021
-
-VA - Silent Shore: Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
+Dawn Wall - Twin Falls (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
 >>Electronic
->>Trance
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034666.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Lyf - Alive (Extended Mix)
-02. Christopher Corrigan - Sleepless Nights (James Kitcher & Adam Taylor Remix)
-03. Andy Kern (DE) - Accelerate (Original Mix)
-04. Drival - Momentum (Triode Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:32
+01. Twin Falls (04:32)
+02. Mantis (04:45)
+03. Holding On (04:34)
+04. Mariner (04:25)Жанр: Drum & BassПродолжительность: 00:18:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94861E05647C8CE52DB7887C28AEB6D85E5F038B
+magnet:?xt=urn:btih:122DD775BC65822248D8BBFD82E4AEE9BAFFD33B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,27 +56,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444313   (1034665) от 01.02.2021
+###  Публикация: 1443253   (1035775) от 28.01.2021
 
-Mountain Duck 4.4.2 [Multi/Ru]
+Mary Lou Williams - Black Christ Of The Andes (1963) 2006, Universal [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz, Gospel>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Christ of the Andes [6:36]
+02. It Ain't Necessarily So [4:45]
+03. The Devil [4:05]
+04. Miss D.D. [2:32](   Читать дальше...   )Жанр: Bop, Piano Jazz, GospelПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D642DB20C6143B927B9CD8BD643011BBF689CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443204   (1035774) от 28.01.2021
+
+Dawn Wall - Problems (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Problems (04:30)
+02. Never Say (04:53)
+03. Shy (04:14)
+04. Nomad (04:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4325CE89FA2493F6D13CD60618B8A26306B0330D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443356   (1035773) от 28.01.2021
+
+VA - Beatport Tech House: Electro Sound Pack #227 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы искали качественный сборник настоящей электронно танцевальной музыки, который просто разорвет сабвуфер в вашей машине, то можете считать, что попали по адресу. Простые и динамичные треки музыки в стиле Tech House сделают своё дело, чтобы поднять Ваше настроение!001. Munkler - Ten Million Hornets
+002. Dyba - My Deep Jungle
+003. Lucasmb - Live For It
+004. Frank Frost - Chorus Spatium(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 08:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403A2F0105614A58D8BE34291BEB01E34C62D97E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443161   (1035772) от 28.01.2021
+
+Dawn Wall - Ember (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I See You (05:58)
+02. Blood Diamond (04:39)
+03. Ember (04:43)
+04. Diplomatic (04:51)Жанр: Drum & BassПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411C3FAC01DF5890BFEBDD30DAA37B3D88C597F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443360   (1035771) от 28.01.2021
+
+VA - Beatport Hardstyle: Electro Sound Pack #228 (2021) [MP3|320 Kbps] <Hard Dance, Hardcore, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практически все треки 228-го релиза от Beatport преисполнены бешенными темпами и скоростными семплами, от чего лонгплей превосходно покажет себя на разных клубных площадках. Большое количество электроники наполняет все свободное пространство, тем самым делая музыку прогрессивной и заводной. Надо отметить, что композиции имеют прогрессивный звук, качественные аранжировки, (   Читать дальше...   )001. Xense - Welcome To My World
+002. Nuk3Dom - Goin' Down
+003. Adam Frantic - Colour Of Sound
+004. Audio Damage - Stand Up(   Читать дальше...   )Жанр: Hard Dance, Hardcore, HardstyleПродолжительность: 08:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0F3FE4B3FEF7B2A1F4D68B93897D0C4EDBCB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443214   (1035770) от 28.01.2021
+
+Dawn Wall - Devil's Night (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devils Night (04:45)
+02. Rain God (04:27)
+03. Emblem of the Sun (04:03)
+04. Blinded (04:09)Жанр: Drum & BassПродолжительность: 00:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBEDC479F34396D73A092FB61882E75121616F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443398   (1035769) от 28.01.2021
+
+VideoProc (former MacX Video Converter Pro) 4.1 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034665.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
-В приложении реализована поддержка всех основных протоколов для подключения к любому серверу.
-Открывайте файлы на удаленном сервере любым приложением и работайте как на локальном томе, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2021Разработчик: David KocherПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский  и др.
+VideoProc - новая усовершенствованная версия прежнего MacX HD Video Converter, теперь более мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Итальянский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CF5010CDC3F70774BE43EBE0DED73443C721E90
+magnet:?xt=urn:btih:E9E6F9525BEC6558A0B0039D15716D0D82660266
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,55 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443821   (1034664) от 01.02.2021
+###  Публикация: 1443406   (1035768) от 28.01.2021
 
-The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro from space (01:46)
-02. Ghost (01:42)
-03. NY in night (02:49)
-04. Lullaby from the moon (03:11)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444438   (1034663) от 01.02.2021
-
-Светлана Колчина | Русский язык. Сочинение на ЕГЭ по новым критериям. Карманный справочник (2019) [PDF]
+Кевин Сэндс | Код Блэкторна. Исчезнувший аптекарь. Книга 1 (2020) [FB2, EPUB, MOBI]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034663.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга содержит пошаговые рекомендации по написанию сочинения на ЕГЭ по русскому языку. Приводится анализ критериев оценивания с пояснениями и комментариями, подробный алгоритм написания, а также образцовые сочинения на основе различных по проблематике текстов. В пособии учтены все изменения в системе оценивания сочинения по русскому языку в 2019 году.
-Издание адресовано (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+«Никому не рассказывай!» До этого загадочного предупреждения Кристофер Роу действительно был доволен своей жизнью ученика аптекаря. У него была крыша над головой, мастер Бенедикт Блэкторн учил его не только тому, как изготавливать средства от разных недугов, но и как разгадывать зашифрованные послания. Но всё изменилось, когда Лондон потрясла серия таинственных покушений… (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Анастасия Львовна КуклейФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7473C8284D811B0B22843D0BEE88108F1AC3939C
+magnet:?xt=urn:btih:50E69FC066EA51934CA125CE82D05E09A37A9551
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +282,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444167   (1034662) от 01.02.2021
+###  Публикация: 1443396   (1035767) от 28.01.2021
 
-VA - New Italo Disco Music Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+Ромили Бернард | Гипотеза о монстрах (2021) [FB2, EPUB, MOBI]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034662.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Crosslines - To The Space (Extended Version) (5:15)
-02. Diamond Rain - Follow The Rainbow (Extended Version) (5:14)
-03. Birizdo I Am - Just Tonight (Maxi Version) (5:45)
-04. Nikita Fomin - When You Said Goodbye (Extended Version) (5:49)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:10:29
+Кик – великий учёный! Ну, по крайней мере, когда-нибудь точно будет. А пока она живёт с бабушкой на болотах города Скукотаун и, пока родители (уже великие учёные) путешествуют по миру, успела проделать в полу дыру и подружиться с аллигатором, который живёт под крыльцом. Бабушка у Кик – экстрасенс (ненастоящий), и хотя девочка в жизни не верила в подобную чушь, в (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: А.Ф. РодинаФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:510820729A69B51402EE176A6E5D170E64221B59
+magnet:?xt=urn:btih:1F9BDF51664C54954B70B5266A911D31C67E0569
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,28 +308,415 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444163   (1034661) от 01.02.2021
+###  Публикация: 1443407   (1035766) от 28.01.2021
 
-VA - New Italo Disco Music Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+Сандра Браун | Переходя все границы (2019) [MP3]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034661.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fancy - A Voice in the Dark (Bringing The Light Mix) (6:49)
-02. TDHDriver - Leave Russia (4:17)
-03. Digitalo - Say Yes (Extended Version) (6:52)
-04. Birizdo I Am - Unbelievable (Extended Version) (7:11)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:40
+Письма Кайлы, посланные мужу, сержанту Ричарду Страуду, находившемуся на военной службе на другом конце света, полны любви, которой не страшен разлучающий молодую пару океан. Но трагедия слишком рано оставила Кайлу вдовой с новорожденным сыном. Друзья Ричарда сохранили его металлический ящик с наполненными признаниями в любви письмами жены. Тревор Рул, возвращаясь (   Читать дальше...   )Жанр: Зарубежная проза, Детектив, Любовный романПродолжительность: 08:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:074BE9222363B9903AA1BFD7A28A99500E067C13
+magnet:?xt=urn:btih:46B673C5DCA4978B7EC96681FEBDA29DEC3274A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443395   (1035765) от 28.01.2021
+
+Yoink 3.5.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yoink представляет собой посредника, который позволяет упростить доступность файлов. После установки приложения в левой части экрана появляется панель Yoink. Теперь если необходимо переместить файл с одного стола в окно открытое на другом, можно просто перетащить его в панель Yoink. Соответственно на перейдя на другой рабочий стол, просто перетягиваем файл из панели. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2021Разработчик: Eternal Storms SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E77828C317BE795435D0CBCBA0BF11F67918B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443389   (1035764) от 28.01.2021
+
+Vidmore Video Converter 2.0.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео конвертер Vidmore. Ваш полный набор инструментов для видео.
+Это наиболее полный и мощный многоформатный конвертер видео, который быстро конвертирует видеофайлы в более чем 200 форматов и устройств без потери качества.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2021Разработчик: VidmoreПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D0EF5968AFDB92FA08D6983C1175E0B199106A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443378   (1035763) от 28.01.2021
+
+VA - Beatport Electro House: Sound Pack #231 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы не из числа людей, которые любят переслушивать одну и туже композицию по сто раз? Вам нужно как можно больше разнообразной музыки? Тогда Вы попали по адресу. Представляем вашему вниманию эксклюзивную подборку длинною в целых девять часов, которая составлена из ста композиций эксклюзивной музыки!001. Anthony King - Sex Tonight Again
+002. Ivan Herb - Follow Me
+003. Vin Carter - Special Fat Boy
+004. Art Object - Panaram(   Читать дальше...   )Жанр: HouseПродолжительность: 09:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B64F3559A86A354EDDC4247649BC58014017E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381934   (1035762) от 28.01.2021
+
+Children Of Bodom - Hate Crew Deathroll (2003) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Needled 24/7 (4:09)
+02. Sixpounder (3:24)
+03. Chokehold (Cocked 'N' Loaded) (4:12)
+04. Bodom Beach Terror (4:35)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC908C9EA0DBF4844D60F33F3861F55D6B2CD6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442938   (1035761) от 28.01.2021
+
+ProtonVPN конфликтует с антивирусным ПО и вызывает BSOD в Windows
+
+>>Компьютеры и комплектующие
+>>Компьютерные новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035761.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце прошлой недели инженеры компании Proton Technologies, стоящей за разработкой ProtonMail и ProtonVPN, сообщили, что работают над устранением проблемы в последней версии клиента, вызывающей “синий экран смерти” у пользователей Windows.Известно, что BSOD проявляется далеко не у всех пользователей, так как в корне проблемы лежит конфликт с неназванным антивирусным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443428   (1035760) от 28.01.2021
+
+Гребля и спокойствие / Paddling Tranquility (2019) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы с моим приятелем Кайлом вылетели на озеро Джордж, недалеко от ледника Кник. Взяли пару надувных досок для серфинга, и поплыли через ледяную слякоть битого льда.Производство: СШАЖанр: Документальный, видовойРежиссер: Тоби ГарриманПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B5A9C749D29A6DA1450695EEEF2876245D105B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443217   (1035759) от 28.01.2021
+
+Dawn Wall - Birdmask (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Should Have Been There (04:30)
+02. Take Control (04:30)
+03. Legends (04:36)
+04. Birdmask (05:08)Жанр: Drum & BassПродолжительность: 00:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9365D9B96E810346862E3FAD8D5EC41028479B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443361   (1035758) от 28.01.2021
+
+VA - Calming Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - The Tracks of My Tears (02:54)
+02. Logan York - Norwegian Wood (This Bird Has Flown) (03:35)
+03. Shannon & Keast - When I Was Your Man (03:42)
+04. Nora & Will - Watermelon Sugar (03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CCC301CC0C56664DABB54899436F2046958D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443352   (1035757) от 28.01.2021
+
+Rhinoceros 7 v7.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
+Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2021Разработчик: Robert McNeel & Associates (McNeel)Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BCF7F7BCC0CF3D0AF13EA2837B8FD3AD32CB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443439   (1035756) от 28.01.2021
+
+Почувствуйте Лансароте / Feel Lanzarote (2020) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лансароте – один из принадлежащих Испании Канарских островов у побережья Западной Африки. Остров славится своим тёплым климатом, пляжами с белым песком и вулканическими пейзажами.Производство: ИспанияЖанр: Документальный, видовойРежиссер: Густаво МединаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4DBF273CD413C1D22A2C1224CF29BA37422071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443225   (1035755) от 28.01.2021
+
+Главные новости суток за 2 минуты. Беспроводной имплантат в мозг. Противотуманные очки. Робот-садовник
+
+>>Поговорим
+>>А знаете ли вы..
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные новости 27 января посвящены гаджетам.
+☑ С помощью имплантированного в мозг крысе чипа удалось передать команду.
+☑ Microsoft запатентовала очки с дополненной реальностью, которые позволяют видеть под снегом и дождем.
+☑ Специальный пластырь позволяет делать анализ на биомаркеры, при этом не требуется анализ крови.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443289   (1035754) от 28.01.2021
+
+April Rain - Mirror of Ether (2021) [MP3|320 Kbps] <Progressive Rock, Post Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince Rupert's Drop (05:57)
+ 02. Tin Woodsman (06:59)
+ 03. Chiral Allergy (06:51)
+ 04. Towards the Native Uvalas (07:49)(   Читать дальше...   )Жанр: Progressive Rock, Post Rock, InstrumentalПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BA874FB49FF45D82B67416BF1130D9EA281BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443369   (1035753) от 28.01.2021
+
+VA - Beatport D&B: Electro Sound Pack #229 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасный сборник лучшей музыки линейки BassLine зимнего сезона от Beatport. В подборку вошли сто десять потрясающих композиций, каждая из которых выполнена в своем уникальном звучании, отличном от общей массы музыкальных треков жанра. Более восьми часов молодежной музыки, которая явно сможет поднять вам настроение, даже в самый унылый день.001. Mikal - Scrapyard Dub
+002. Gevolgen - Tortilla Moon
+003. DJ Jann - Lightworks
+004. Hadiex - Lonely(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844358A00CCFB82609E04600864132F3162096EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443375   (1035752) от 28.01.2021
+
+VA - Beatport Chill House: Electro Sound Pack #230 (2021) [MP3|320 Kbps] <Chill House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая одушевляющая музыка, под которую приятно просто лежать и мечтать. Расслабляющий, вдохновляющий, душевный и искренний - именно так можно охарактеризовать этот потрясающий релиз. Треклист был собран из 130 треков, которые обязательно должны Вам понравится.001. Dark0 - Lilith
+002. Paper Hills - Voices In The Distance
+003. Mossignor - Il Mostro
+004. M - Innocent Love(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 10:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFB0A1BA575EB31F6313E70AC46CFA2D2E74036
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,172 @@
+###  Публикация: 935658   (498347) от 09.09.2015
+
+Edguy - Live Wacken (2012) HDTV [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Edguy была основана в 1992 году Тобиасом Замметом, Дирком Зауэром, Йенсом Людвигом и Домиником Шторыхом, которым в то время было по 15 лет. Названием было выбрано прозвище их учителя по математике Эдгара Циммерера, которого называли «Edguy».1. Nobody's Hero 
+2. Tears of a Mandrake
+3. Lavatory Love Machine
+4. Vain Glory Opera(   Читать дальше...   )Жанр: Power MetalАктеры: EdguyПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F5CC31E7562B0D4ED0E9F38090FF10E4919BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935916   (497270) от 10.09.2015
+
+Steve Hackett - Genesis Revisited – Live at the Royal Albert Hall (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт экс-гитариста группы Genesis Стива Хэккета в знаменитом лондонском концертном зале Royal Albert Hall.01. Dance On A Volcano
+02. Dancing with the Moonlit Knight
+03. Fly on a Windshield
+04. Broadway Melody of 1974(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9589F3B6A259C804305BB6D3386D4C85AE20B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936267   (496053) от 11.09.2015
+
+Dream Theater - Live at Luna Park (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Dream Theater в Луна-парк арена в Буэнос-Айресе, Аргентина.  Концерт был издан на Over The Edge Productions.01. Bridges in the Sky
+02. 6:00
+03. The Dark Eternal Night
+04. This Is the Life(   Читать дальше...   )Жанр: Progressive MetalРежиссер: Майк ЛеонардПродолжительность: 02:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CD133E40FAB62ED1B673CAA1E8B95F2BD02CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543081   (495468) от 05.09.2012
+
+The AIX All Star Band - Pachelbel Canon Acoustica (2012) BDRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495468.jpg" />
+</div>
+
+
+###  Подробнее
+
+The AIX All Star Band: Pachelbel Canon Acoustica, выпущенный наЖанр: Baroque, Free jazz, Jam sessionПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936693   (494179) от 12.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichПродолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45237ACFA950099DED804EEC5A0676A9C67C50B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243263   (493971) от 26.08.2018
+
+Квартирник на НТВ у Маргулиса. Запрещенные барабанщики (08.25.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493971.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Запрещенные барабанщики" - российская рок-группа, созданная в Москве в апреле 1999 года музыкантами из Ростова-на-Дону и исполняющая электрический рок-н-ролл с элементами джаза, латино, фольклорных и эстрадных направлений. Группа, возглавляемая Виктором Пивторыпавло, выпустила шесть студийных альбомов.
+Музыканты исполнили свои лучшие композиции специально (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F346EF976438C3870BA59186592B435530199CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936562   (493857) от 12.09.2015
 
 The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/1080p]
@@ -558,177 +727,6 @@ David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEBAAF3817A8D8BA2CADA1E4F03C28A5584F0263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701115   (478384) от 17.09.2013
-
-Madonna: The MDNA Tour (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virgin Mary (Intro)
-02. Girl Gone Wild
-03. Revolver
-04. Gang Bang(   Читать дальше...   )Производство: США, Live Nation Global TouringЖанр: Pop, DanceРежиссер: Дэнни ТуллПеревод: ОригиналЯзык субтитров: ОтсутствуютПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A36D0773D737057B167CEBF879C419C3A7DDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701187   (478306) от 17.09.2013
-
-Би-2 и Симфонический оркестр МВД России. Реки любви. Концерт в Crocus City Hall (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа "Би-2" объединила современную музыку с классической традицией и представляет концерт с Симфоническим оркестром МВД России. Лирические песни, энергичный рок, и даже диско-панк – все популярные хиты группы "Би-2" прозвучат в величественном и потрясающем воображение симфоническом звучании.
-
-"Би-2" далеко не первыми стали исполнять (   Читать дальше...   )01. Последний герой
-02. Мой рок-н-ролл
-03. Скользкие улицы
-04. Муза(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5B8132028A2F80BEC6A9E69264A9589D4BCAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545892   (478211) от 13.09.2012
-
-Linkin Park - Honda Civic Tour (2012) [1080i] HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linkin Park отыграли еще один свой концерт в рамках концертного тура "Honda Civic Tour" по Северной Америке — концерт в "Home Depot Center" в г. Карсон (округ Лос-Анджелес, штат Калифорния) 8 сентября (у нас с вами это было раннее утро сегодняшнего дня, 9.09). Этот концерт стал осебенным потому, что он полностью транслировался по американскому телеканалу AXS TV......Жанр: Alternative RockФормат: MKVПродолжительность: 01:32:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545872   (478124) от 13.09.2012
-
-The Prodigy / Live World's On Fire (2011) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478124.jpg" />
-</div>
-
-
-###  Подробнее
-
-World’s on Fire ( Мир в огне) — видеоконцерт и первый концертный альбом британской электронной группы The Prodigy, выпущенный на blu-ray 24 мая 2011 года. Фильм-концерт демонстрировался в кинотеатрах. Съёмки проходили на фестивале Warrior’s Dance. Warrior's Dance festival — эпическое супер-ударное зажигательное шоу: полтора часа от забойных классиков танцевальной музыки, наполненные оглушительными басами и зрелищным шоу. Это самое масштабное шоу The Prodigy перед 65-тысячной аудиторией, аншлаг в Milton Keynes National Bowl.Жанр: Музыка(Electronic, Breakbeat)Режиссер: Liam HowlettАктеры: The ProdigyПеревод: ОтсутствуетПродолжительность: 01:10:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939015   (477535) от 20.09.2015
-
-Dream Theater - Breaking the Fourth Wall (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477535.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 марта 2014 года Dream Theater отыграли свой концерт в Бостонском Опера Хаус вместе со специальными гостями из оркестра и хора Музыкального Колледжа Беркли, в стенах которого, как многие из Вас знают, и зародилась группа DT (на тот момент называвшаяся Majesty). Этот концерт был записан и заснят на видео, и выпущен 30 сентября в форматах Blu-Ray, DVD и Blu-Ray + (   Читать дальше...   )Act I
-01. The Enemy Inside
-02. The Shattered Fortress
-03. On The Backs Of Angels(   Читать дальше...   )Жанр: Progressive MetalРежиссер: Pierre & François LamoureuxПродолжительность: 02:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9223EE762165C5F7964A3264796B91780435E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401161   (476660) от 02.09.2020
-
-Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Custom]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476660.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 марта Music Theories Recordings / Mascot Label Group выпускают "Ayreon - Electric Castle Live and Other Tales", 3-х LP-сет прошлогоднего концертного исполнения третьего альбома Ayreon "Into The Electric Castle".
-В течение четырех ночей в зале 013 в Тилбурге (сцена серии живых выступлений Ayreon Universe в 2017 году) Лукассен, его группа и один (   Читать дальше...   )01. Welcome to the New Dimension
-02. Isis and Osiris
-03. Amazing Flight
-04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockЯзык озвучки: EnglishПродолжительность: 02:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9BECE2F38EB0B252DFB06EA739BEFE77754167
 ```
 
 https://mybot314.ru/tekegram_catalog/

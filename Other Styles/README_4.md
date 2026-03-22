@@ -1,3 +1,32 @@
+###  Публикация: 1452789   (1027363) от 08.03.2021
+
+Romantic Piano Music Masters - Спокойное фортепиано: Инструментальные баллады, Женский день (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спокойное фортепиано (2:35)
+02. Как ты (2:41)
+03. Жажда (2:51)
+04. Вальс ветра (2:38)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC142A5A72D415E89DC576727346FE65C417003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453672   (1026734) от 12.03.2021
 
 Marc Canham - I Care A Lot (2021) Original Motion Picture Soundtrack [FLAC|Lossless|tracks] <Score>
@@ -719,35 +748,6 @@ Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Liste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461373   (1021789) от 10.04.2021
-
-Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving-Kindness (Metta) (feat. Chloe Pourmorady)
-02. Compassion (Karuna) (feat. Estrella Morente)
-03. Vicarious Joy (Mudita) (feat. Deva Premal)
-04. Equanimity (Upekkha) (feat. Uyanga Bold)Жанр: World, MeditativeПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11C4317C0BB05C58FE57A331E2D1E59AADBE31E
 ```
 
 https://mybot314.ru/tekegram_catalog/

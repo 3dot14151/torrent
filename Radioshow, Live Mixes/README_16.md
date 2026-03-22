@@ -1,3 +1,90 @@
+###  Публикация: 1191988   (263898) от 15.12.2017
+
+VA - Ori Uplift - Uplifting Only 253 (All Instrumental) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carl Daylim - Stay With Me (Intro Mix)
+02. Manuel Rocca - Amortentia
+03. Ahmed Romel - Vanaheim
+04. Reconceal & Andy Blueman - The World to Come (Andy Blueman Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC67738FCB4E4305B5018A633ED689F402236C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340644   (263614) от 24.11.2019
+
+VA - Live @ Trance Sanctuary pres. Kearnage, Fabric London, United Kingdom 2019-11-16 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paul Pearson @ Trance Sanctuary pres. Kearnage, Fabric London, United Kingdom 2019-11-16:
+01. Weekend Heroes & Dmitry Molosh - Power Plant
+02. Matt Lange feat Deniz Reno - Space Between (Extended Mix)
+03. Sentre - Do It (Main Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 11:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21FB947A8C31E47F0D91580D474A2AEC6B62BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192231   (263239) от 17.12.2017
+
+VA - Aly & Fila - Future Sound of Egypt 526 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matter - Indica (Original Mix)
+02. Jeremy Olander - Crossed (Original Mix)
+03. Above & Beyond feat. Richard Bedford - Northern Soul (Spencer Brown Remix)
+04. Stas Drive - Apocrypha (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83539EC3BAC416294F92DD876A9832F473321D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192272   (263163) от 17.12.2017
 
 VA - Markus Schulz - Global DJ Broadcast - Year in Review (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -657,93 +744,6 @@ Otto Knows - Tomorrowland Friendship Mix (2022-03-10) [MP3|320 Kbps] <Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40D23E59B76CBD4E1A2B2D2B00214F3DEEC7D265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456121   (243369) от 21.03.2021
-
-Kosling - Live @ Fireland Festival,France (2021-03-19) [MP3|320 Kbps] <Big Room, Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keud & Cendre - Way Down
-02. Kosling & Blackcode ft. Alessa - Supernova
-03. Kosling & Still Young ft. OMZ - When We Were Young
-04. Thomas Gold & David Shane - Superhuman (Kosling Edit)(   Читать дальше...   )Жанр: Big Room, Dance, Electro PopПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95ABFEEC826B4C2CCBC4D21E5112E6B032E7B50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627941   (242549) от 21.04.2023
-
-VA - Armin van Buuren - A State Of Trance 1117 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Grand - Fernet
-02. Andy Moor & Somna & Ava Silver - Alchemy
-03. Ahmed Helmy - Talk To You
-04. Artche - Weightless(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98022A155E6E74FB2D8A5794C209304F51B8D551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634194   (242437) от 21.05.2023
-
-VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & HRRTZ feat. Julia Church - Fire With Fire (Future Favorite)
-02. Super8 & Tab and Crowd+Ctrl feat. Jess Ball - Incomplete
-03. Kryder - The Eye Of Ra
-04. DIM3NSION - Stronger Now(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BC2DE68AC298BAEFC8BC4FAF9E8283EE60A317
 ```
 
 https://mybot314.ru/tekegram_catalog/

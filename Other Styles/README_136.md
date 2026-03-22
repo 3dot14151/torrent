@@ -1,3 +1,145 @@
+###  Публикация: 421265   (293728) от 11.12.2011
+
+Ритмы мира - Космический транс (2002) [FLAC|Lossless|tracks] <Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Создание (9:24)
+02. Эдем (8:28)
+03. Танец Огня (5:14)
+04. Синяя Планета, Часть Первая (8:36)(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C2ECF2FBAF88D49A52D6E5C0B0A4A3418A1DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962515   (293513) от 05.12.2015
+
+VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crab Nebula - Indira Bula
+02. Ishtar's Song - Barenan
+03. Aldebaran Eye of the Taurus - Gita Davi
+04. The Pleiads - Sarala Rati(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF590ED2A910EC6E5185EBAD021D5F6C3A33D75F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962523   (293504) от 05.12.2015
+
+VA - Ethereal Dreams Vol. 2 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jekha - Light of Fire
+02. Albena - Alnasi
+03. Sangmo - Chort
+04. Dalai Surama - Mystic Gold(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB3B73E35B110DDC53D48159F35C90A82654D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185483   (293491) от 21.11.2017
+
+Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293491.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Doorway to Bliss
+2. Open The Heart
+3. Alive and at One
+4. Connecting with The Divine(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED62064E7070DDD72DEA03998459292FBD6037E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266070   (293390) от 11.12.2010
+
+Отбросы / Misfits (2009) [MP3|128-320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 03:29:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262618   (293331) от 16.11.2018
 
 Chilly Gonzales - Solo Piano (2004) [FLAC|Lossless|image + .cue] <Instrumental, Piano, Modern Classical>
@@ -602,155 +744,6 @@ Bill Yeats - Relaxing Spanish Guitar (2008) [APE|Lossless|WEB-DL|tracks] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4368A9E0EE6085BFA845E37ED1BEB00AA5837FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080057   (289650) от 06.12.2016
-
-Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music from the HBO Series) (2016) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Theme – Westworld (01:42)
-02. Sweetwater (02:53)
-03. Black Hole Sun (02:29)
-04. Paint it Black (05:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9302430A8375FE582615373228F7C06B43EFE2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335266   (289579) от 01.11.2019
-
-Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1m1 Logos (00:41)
-02. 1m1a The Opening (03:18)
-03. 1m1a The Opening (Alternate) (03:24)
-04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B5DC23CFEC91A2812BED54669F85490475A686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379695   (289510) от 08.12.2014
-
-Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Nature>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2002 - Musica, Natureza & Cia
-2010 - Melodias da Natureza, Vol. 2
-2011 - Relaxing Melodies of Nature
-2012 - Piano Impressions, Vol. 1
-2012 - Spirit Of Nature
-2013 - Piano Impressions, Vol. 2Жанр: New age, Relax, NatureПродолжительность: 05:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A901E234E9D555F8E4FC0C386DC3D0DC3FF46C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335267   (289417) от 01.11.2019
-
-Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2014(2018) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1m1 Logos (00:41)
-02. 1m1a The Opening (03:18)
-03. 1m1a The Opening (Alternate) (03:24)
-04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90DBE56D2D7B5442BE5963DA12CEF635B7BE0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335093   (289409) от 01.11.2019
-
-Tom Holkenborg - Терминатор: Темные судьбы / Terminator: Dark Fate (2019) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminated
-02. My Name Is Dani
-03. REV 9
-04. Iron Spike(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
 ```
 
 https://mybot314.ru/tekegram_catalog/

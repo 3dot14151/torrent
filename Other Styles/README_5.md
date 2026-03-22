@@ -1,3 +1,32 @@
+###  Публикация: 1461373   (1021789) от 10.04.2021
+
+Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving-Kindness (Metta) (feat. Chloe Pourmorady)
+02. Compassion (Karuna) (feat. Estrella Morente)
+03. Vicarious Joy (Mudita) (feat. Deva Premal)
+04. Equanimity (Upekkha) (feat. Uyanga Bold)Жанр: World, MeditativeПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11C4317C0BB05C58FE57A331E2D1E59AADBE31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461023   (1021783) от 10.04.2021
 
 Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanova>
@@ -718,35 +747,6 @@ VA - Pilates and Yoga Music 2021 [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49007E63964ABE8475092A19C62A6B19A1A048C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470592   (1015479) от 18.05.2021
-
-VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Ambiance - Deep Thinking (3:28)
-02. Serenity Calls - Morning of Clouds (3:15)
-03. Serenity Calls - Arabic Nights (3:17)
-04. AlFa RaYn - Deep Concern (1:49)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC050CAB0E9FDF44D01F55705DA54ED92A654351
 ```
 
 https://mybot314.ru/tekegram_catalog/

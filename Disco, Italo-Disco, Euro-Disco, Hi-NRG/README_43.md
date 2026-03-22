@@ -1,3 +1,32 @@
+###  Публикация: 1670434   (171898) от 21.10.2023
+
+VA - Dos Décadas Dance 2 (2002) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Hernandez - Born To Be Alive
+02. Sylvester - You Make Me Feel (Mighty Real)
+03. Amii Stewart - Knock On Wood
+04. Delegation - You And I(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 06:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419FD849BA0455A4A0A401C8FFAE365CFD369151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670627   (171716) от 22.10.2023
 
 Gina T. - Tokyo By Night (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
@@ -711,35 +740,6 @@ VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [MP3|320 Kbps] <Disco, Nu-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D2DDAC22F090F88A5BDD29B2931BD751F3A5FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085603   (156334) от 22.12.2016
-
-VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156334.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZYX Music — студия звукозаписи (лейбл), основанный в Германии в 1971 году Бернхардом Микульски. До 1992 года лейбл носил имя Pop-Import Bernhard Mikulski. Лейбл специализировался в диско и ранней хаус-музыке. Основатель студии Бернард Микульски вкладывал средства в итало-диско в 80-е годы. В 1997 году, после смерти Бернхарда, студия перешла его вдове Кристине Микульски. (   Читать дальше...   )2013 - ZYX Italo Disco New Generation Bootmix 1
-01. Dyva - Joy (2:57)
-02. Dario - All The Night (2:21)
-03. Miko Mission - Let It Be Love (2:04)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158EEECE9E3B5D8AC9E73798C585D92BDA772BCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,154 @@
+###  Публикация: 1575142   (379347) от 08.09.2022
+
+Stratovarius - Episode (1996) Reissue, 2002, Victor [OGG Vorbis|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father Time                         	5:01
+02. Will The Sun Rise?                   	5:07
+03. Eternity                             	6:56
+04. Episode                             	2:01(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04545999DFE5E4C4AA20819B214058C93EB2CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068701   (378450) от 02.11.2016
+
+Handwrist - Green Tourist (2016) [MP3|320 Kbps] <Psychedelic, Post-Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilo Runs The Voodoo Down 05:55
+02. Green Tourist 05:19
+03. Amusements Of The Western Capital 11:08
+04. Habitrot 07:23(   Читать дальше...   )Жанр: Psychedelic, Post-Rock, Progressive RockПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB441D899933E8E9E07FDA6FA7C22FCF403CED18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573821   (378423) от 11.11.2012
+
+Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinski Assassin (2:59)
+02. Is This the Best Spot? (1:47)
+03. Mature Themes (2:47)
+04. Only in My Dreams (3:12)
+05. Driftwood (4:22)
+06. Early Birds of Babylon (5:15)
+07. Schnitzel Boogie (4:35)
+08. Symphony of the Nymph (4:35)
+09. Pink Slime (2:11)
+10. Farewell American Primitive (2:55)(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C570A4DE9E892EB884D12A6A2D822CC073317FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949384   (377416) от 23.10.2015
+
+VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Grant - Two Of Us (Lennon/McCartney)
+02. Dennis Locorriere - Dig A Pony (Lennon/McCartney)
+03. Phosphorescent - Across The Universe (Lennon/McCartney)
+04. Beth Orton - I Me Mine (Harrison)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A7E95683263B973AB7534130578D9765D1D25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949553   (377338) от 23.10.2015
+
+VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]<Psychedelic Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gallops - Speak To Me
+02. Our Broken Garden - Breathe
+03. The Oscillation - On The Run
+04. Wolf People - Time(   Читать дальше...   )Жанр: Psychedelic Rock, Space RockПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F1AFE78412B9D9022E81A75692E7128CCAAD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575169   (377201) от 09.09.2022
 
 Wired Ways - Wired Ways (2022) [MP3|320 Kbps] <Retro Prog, Classic Rock>
@@ -606,157 +757,6 @@ Cold Blood - The Best Of Cold Blood (1995) [MP3|320 кб/с]<Jazz-Rock, Funky Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAFC27B242D1211FDED874110DE485DF2D7EB927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950139   (372334) от 25.10.2015
-
-Trubetskoy - Magister Bibendi (2015) [MP3|~265 кб/с (V0)]<Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок-группа Trubetskoy из Минска создана бывшими участниками «Ляписа Трубецкого», «Крамбамбули» и других коллективов. «Magister Bibendi — это не просто распорядитель попойки, как считают знатоки латыни. Это уличный маг, обаятельный жулик, диджей на пире во время чумы. Он является, когда мир становится слишком серьёзным», — говорят музыканты о своём альбоме.01. Magister Bibendi
-02. Ева и Адам
-03. Лети
-04. Капкан(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8104B3FF971C36AD4F2198AE7AA3E25761F76805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415959   (371590) от 14.10.2020
-
-Rikk Eccent - Black Halo (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher Love (06:06)
- 02. Strange (00:11)
- 03. Stranger (05:39)
- 04. Strangest (00:42)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FFBD5C39C3E5382C8E89A75A28DBD8698D35A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069583   (371311) от 05.11.2016
-
-Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedelic Atmospheric Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Welcome to the Machine   (06:40) 
-  02| Killer (Live)   (05:21) 
-  03| Redemption (Live)   (07:26) 
-.Жанр: Psychedelic Atmospheric Rock |Продолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E026C782EADB2BF2574DF9E3869D3B55D5AF2C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575479   (371256) от 14.11.2012
-
-Outer Limits & Jeff Christie - Outer Limits/Floored Masters-Past Imperfect (2008) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371256.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Turn On Your Lovelight (3:40)
-2.  Both Ends Of The Rainbow (3:50)
-3.  You've Got The Love (3:14)
-4.  Midnight Express (3:53)
-5.  Troubadour (4:53)
-6.  Back On The Boards (3:31)
-7.  Another Point Of View (3:27)
-8.  You And Me (4:25)
-9.  On The Same Side (5:06)
-10.  Saints And Sinners (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FF94CA17F7E9C7DB5742F10D0929178F06FD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069837   (371188) от 05.11.2016
-
-Sir Rod Stewart - And Some Of His Early Faces (2016) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Joe
-02. Engine 4444
-03. Maggie May
-04. Stay with Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF9A9AF4607AA9816425703BD42F3EE0BB9F599
 ```
 
 https://mybot314.ru/tekegram_catalog/

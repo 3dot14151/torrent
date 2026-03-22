@@ -1,3 +1,138 @@
+###  Публикация: 669592   (717388) от 18.06.2013
+
+Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC07B5E6DE267F44DA437BEAB25D3364DDC4C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669593   (717386) от 18.06.2013
+
+DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro, DubstepПродолжительность: 00:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD11E5713D1DDD50C329FBCCF8029F31486CBEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024984   (713563) от 10.06.2016
+
+Сборник клипов - Philizz "Video YearMix" (2015) HDTV [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "YEARMIX-2015": все закручено и заверчено фирменным миксом от голландского ви-джея Philizz.
+"YEARMIX-2015" - это обзор лучших клипов уходящего года по версии Philizz.
+- Мегамикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, (   Читать дальше...   )Wiz Khalifa ft. Charlie Puth - See You Again
+Silento - Watch Me
+Taylor Swift - Wildest Dreams
+Kwabs - Walk(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE922B1B562DABB05DBBE44D0B70D089D21ECD4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531340   (710865) от 21.02.2022
+
+Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот видеоальбом был выпущен после первых успехов проекта Gregorian. Альбом "Masters Of Chant" появился в продаже в конце 1999г и сразу же взлетел на вершины хит-парадов во многих странах. Он разошелся миллионным тиражом по всему миру и стал платиновым или золотым в Германии, Норвегии, Бельгии, Австралии и многих других странах. Для видео было записано (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C37F7F126E76D8465A6D136C2E19855644D1AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531337   (710863) от 21.02.2022
+
+Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлен видеоальбом снятый в Ирландии, коллектив исполняет вещи со своего второго альбома, пользующегося популярностью во многих странах мира. Монахи поют кавер-версии мировых рок-хитов в григорианском стиле. Здесь вы можете услышать композиции Pink Floyd, Deep Purple, Phill Collins и многих других, окунуться в атмосферу средневековья, увидеть потрясающее (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6224CE41A7AE0AE8202CEA636B305CEAAF1740FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531336   (710701) от 21.02.2022
 
 Gregorian - Masters Of Chant Chapter III (2002) DVDRip
@@ -557,143 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B4B350FE17C4CC4FD371681B1BB6C123D6D3EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138176   (661920) от 31.05.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 1) (2017) WEB-DLRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Первая часть посвящена музыке в стиле Rock Ballads, Reggae и R&B. Композиции именно этих стилей составляют данный сборник. Садитесь поудобней, расслабьтесь и наслаждайтесь спокойной и приятной музыкой 90-х!
-- Разбивка по трекам отсутствует.Celine Dion – Because You Loved Me
-Destiny’s Child – No, No, No Part 1
-Sinead O’Connor – Nothing Compares 2 U
-R. Kelly – I Believe I Can Fly(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6374237F159D68D63705EA5820FA8B297E8A6C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513918   (660496) от 22.06.2012
-
-Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF034B147119700524983F5A60E1DFA0BF9E78AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513929   (660453) от 22.06.2012
-
-Ажур. Summer love / Ажур. Summer love (2012) [H.264/720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B2C78171566C88B30B4665868F56EFB287F597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903185   (657478) от 31.05.2015
-
-VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Длительное время публиковал соответветствующие Топы в разделе музыка. Теперь появилась возможность делать сборники официальных видеоклипов. Если найдет поддержку у членов NNM-Club, то постараюсь сделать их регулярными. Итак, поехали...01. Marlon Roudette - When The Beat Drops Out  (3:43)
-02. Jessie J - Flashlight (from Pitch Perfect 2)  (3:52)
-03. Sia - Elastic Heart feat. Shia LaBeouf & Maddie Ziegler (Official Video)  (5:07)
-04. Alesso - Cool ft. Roy English  (3:57)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E8A7762DD51C1C282D6509DDCAD60A907D475E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514948   (656622) от 25.06.2012
-
-DVJ Bazuka - Summer Love (2012) [720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772F12186BDC6DE9660A8EFD3640ED33C77BFB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

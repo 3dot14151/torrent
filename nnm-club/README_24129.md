@@ -1,26 +1,25 @@
-###  Публикация: 468491   (96875) от 17.03.2012
+###  Публикация: 1765508   (101412) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 12
+Helloween - Live At Budokan(Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 12 
-Название:  Desktop Wallpapers Pack 12 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Orbit (Live) (1:59)
+02. Skyfall (Live) (12:52)
+03. Eagle Fly Free (Live) (8:04)
+04. Mass Pollution (Live) (4:58)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 02:00:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
+magnet:?xt=urn:btih:9853C8B851DF5E1052766752A08CA240AC8CF63D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,29 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468497   (96874) от 17.03.2012
+###  Публикация: 1765585   (101411) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 14
+VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Other Styles
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96874.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 14 
-Название:  Desktop Wallpapers Pack 14 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+1. Darles Flow - Atreides (5:20)
+2. Florian Gasperini - No Need to Know More (8:00)
+3. Tibetania - Dau Ayuni (6:06)
+4. The Friend - The Road to Egypt (6:36)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
+magnet:?xt=urn:btih:82C4969557B1D22E1784BAA505C00A5D44D4504F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -58,34 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469455   (96872) от 17.03.2012
+###  Публикация: 1765398   (101410) от 13.12.2024
 
-VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
+Jessica Simpson - Sweet Kisses (1999) CD, Album [FLAC|Lossless|tracks + .cue] <Pop,  Ballad, Vocal>
 
->>Архив торрентов
->>Архив Музыки
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96872.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
-02. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011)
-03. Hannah - Falling Away (Armin van Buuren Remix)
-04. Vegas Baby feat. Angelic - For The Love Of You (Tydi Remix)
-05. Snoww & Dj T.H. feat. Di - On & On (Manida Remix)
-06. Michelle Cecchi - One (Original Mix)
-07. NatLife feat. Inesse - Road To The Far East (Asia 2011 Mix)
-08. Spark7 - Sound Of Tommorow (Solid Stone Remix)
-09. Tom Colontonio feat. CiBon - The Sun (Original Mix)
-10. Laura Jansen - Use Somebody (Armin van Buuren Rework)2012Жанр: Vocal TranceПродолжительность: 01:07:58
+01. I Wanna Love You Forever (4:26)
+02. I Think I’m in Love With You (3:19)
+03. Where You Are (4:33)
+04. Final Heartbreak (3:40)(   Читать дальше...   )Жанр: Pop,  Ballad, VocalПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
+magnet:?xt=urn:btih:3E00CC6FF0AE63BD00D233CA07341481DC6660F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -93,29 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469217   (96871) от 17.03.2012
+###  Публикация: 1765550   (101409) от 13.12.2024
 
-[Wallpapers] Nature Pictures №24
+Nanowar of Steel - XX Years of Steel (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96871.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №24
-Название: Nature Pictures №24
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+01 - Stormwarrior of the Storm [4:23]
+02 - HelloWorld.java [3:59]
+03 - Afraid to shoot into the eyes of a stranger in a strange land [6:39]
+04 - Armpits of Immortals (feat. Ross the Boss) [4:12](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Hard RockПродолжительность: 02:28:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29B2C7314608EE5ABC03E04C0A74FAF056F01500
+magnet:?xt=urn:btih:6AC96EA5731FB6FBA5E72E3A0549EBF55CF1E256
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -123,29 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469225   (96870) от 17.03.2012
+###  Публикация: 1765602   (101408) от 13.12.2024
 
-[Wallpapers] Avto Wallpapers Pack 10
+Snoop Dogg - Missionary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96870.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 10
-Название: Avto Wallpapers Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+01. Fore Play [00:01:15]
+02. Shangri-La [00:01:37]
+03. Outta Da Blue [00:02:39]
+04. Hard Knocks [00:04:13](   Читать дальше...   )Жанр: Hip-Hop/RapПродолжительность: 00:46:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
+magnet:?xt=urn:btih:65A6140ACB689D76F318E6D73AA73302131BDAFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -153,29 +143,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469549   (96869) от 17.03.2012
+###  Публикация: 1765416   (101407) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 89
+Журнал | Homebuilding & Renovating №11 (2024) [PDF][EN]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96869.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 89
-Название: Desktop Wallpapers Pack 89
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
+magnet:?xt=urn:btih:0601AF58AA90DC0BBBCAF7C0694A5F1AA0385394
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,29 +169,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469195   (96867) от 17.03.2012
+###  Публикация: 1765546   (101406) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 72
+Молли Магуайерс / The Molly Maguires (1970) BDRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96867.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 72
-Название: Desktop Wallpapers Pack 72
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Фильм основан на книге Артура Х. Льюиса «Плач по Молли Магуайерс» о реальных событиях... Угольные шахты Пенсильвании. 1876 год. Группа ирландских шахтёров-эмигрантов, известная под именем "Молли Магуайерс" борется против жестокости добывающей компании, устраивая саботаж с убийством. Детектив МакПерлан, также являющийся ирландцем, должен вывести на чистую (   Читать дальше...   )Производство: США / Paramount Pictures, Tamm Productions See moreЖанр: драма, историяРежиссер: Мартин РиттАктеры: Шон Коннери, Ричард Харрис, Саманта Эггар, Фрэнк Финлей, Энтони Зербе, Bethel Leslie, Арт Ланд, Филип Бурнюф, Энтони Костильо, Брендан Диллон, Фрэнсис Хефлин, Джон Алдерсон, Мэлаки МакКорт, Сьюзэн Гудман, Иэн ЭберкромбиПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
+magnet:?xt=urn:btih:C6DA03FDE8B654EF2ECBFBEA91988C81AAD9D82D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,29 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469529   (96866) от 17.03.2012
+###  Публикация: 1765560   (101405) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 85
+Все коды регионов. Штрафы ГИБДД v10.00.05 Mod от Alex.Strannik [Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96866.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 85
-Название: Desktop Wallpapers Pack 85
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2700х1800
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Узнать откуда машина - не проблема! 🚗🚙. По гос.номеру автомобиля вы можете определить из какого региона этот автомобиль, к какому роду войск принадлежит, или за посольством какой страны закреплен. Удобный инструмент для определения региона регистрации автомобиля по индексу в номере. Встроена база по регионам СНГ. Присутствует встроенная игра на запоминание (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.12.2024Разработчик: RunIQ SoftПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
+magnet:?xt=urn:btih:D1C42C28AD7D8F8CBA861699055ACEAC36D2B269
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,28 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469470   (96865) от 17.03.2012
+###  Публикация: 1765417   (101404) от 13.12.2024
 
-[Wallpapers] Nature Pictures №25
+Журнал | Homebuilding & Renovating №12 (2024) [PDF][EN]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96865.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №25Название: Nature Pictures №25
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
+magnet:?xt=urn:btih:E7365A239369C479C3118882313F148532A6408E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,29 +247,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468994   (96864) от 17.03.2012
+###  Публикация: 1765568   (101403) от 13.12.2024
 
-[Wallpapers] Nature Pictures №21
+НХЛ 2024-2025. Вашингтон Кэпиталз - Коламбус Блю Джекетс (12.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96864.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №21
-Название: Nature Pictures №21
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+13 декабря 2024, пятница. 03:00 МСК. Стадион: Нейшнвайд-Арена (Коламбус, США), 15 962 зрителя (84% при вместимости 19 115)
+Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Кори Сиврет (Милгров, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
+magnet:?xt=urn:btih:E827E4D0BD801B83B0F253696DAF02C03AFF60AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,29 +274,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469528   (96863) от 17.03.2012
+###  Публикация: 1765572   (101402) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 84
+НХЛ 2024-2025. Питтсбург Пингвинз - Монреаль Канадиенс (12.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96863.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 84
-Название: Desktop Wallpapers Pack 84
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+13 декабря 2024, пятница. 03:00 МСК. Стадион: Белл-центр (Монреаль, Канада), 21 105 зрителей (100% при вместимости 21 105)
+Главный судья: Гислейн Эбер (Батерст, Канада); Главный судья: Кайл Реман (Стеттлер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
+magnet:?xt=urn:btih:B271AB66E98A5FF295141F5EABD42A020B28A44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,29 +301,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468989   (96861) от 17.03.2012
+###  Публикация: 1765513   (101401) от 13.12.2024
 
-[Wallpapers] Avto Wallpapers Pack 7
+Alberto Rigoni - Nemesis Call (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Prog>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96861.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 7
-Название: Avto Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+01. Rage of Olympus (3:01)
+02. Blade of Despair (3:51)
+03. Paradox (4:03)
+04. Poseidon (3:58)(   Читать дальше...   )Жанр: Heavy ProgПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
+magnet:?xt=urn:btih:D46B011E0DDEF7523293563F714684261E6ADE17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,29 +330,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469492   (96860) от 17.03.2012
+###  Публикация: 1765374   (101400) от 13.12.2024
 
-[Wallpapers] Nature Pictures №26
+Shelly Manne & Bill Russo - Deep People (1951, 1952) 1992, Savoy Jazz [FLAC|Lossless|image + .cue] <Cool, Bop, West Coast Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96860.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №26
-Название: Nature Pictures №26
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. The Princess of Evil [3:19]
+02. Slightly Brightly [2:38]
+03. Deep People [3:04]
+04. The Count on Rush Street [3:10](   Читать дальше...   )Жанр: Cool, Bop, West Coast JazzПродолжительность: 00:40:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:183E96CDFDAA3D13E86C448D88255FBA1816BC75
+magnet:?xt=urn:btih:64D9742DDA1AD7735358B69173DB3377E7EBDE16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,28 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469475   (96859) от 17.03.2012
+###  Публикация: 1765524   (101399) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 76
+Trouble County - Blacken the Sky (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96859.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 76Название: Desktop Wallpapers Pack 76
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+01. Wasted (5:14)
+02. Awake (5:02)
+03. Rapturous Me (3:48)
+04. Gotta Try (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C781771F6B30133F140E649BA04FCAC4E4E03D8B
+magnet:?xt=urn:btih:C8F9DDBE871E8B7A64F6F03ADFD0AEE945BA28E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,29 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469526   (96857) от 17.03.2012
+###  Публикация: 1765618   (101398) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 82
+Reviver - Carnival of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96857.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 82
-Название: Desktop Wallpapers Pack 82
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1707
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Dark Wind of Destiny (0:58)
+02. What's In Thy Command (3:54)
+03. Along the Crusade (3:57)
+04. Carnival of Chaos (4:09)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:48:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C680ECD4C5440A5BB142F3F5BA9686E662D77AD8
+magnet:?xt=urn:btih:7594CF980A2C24C9CF90FFE0DD779EE41DB9D56B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,29 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469483   (96856) от 17.03.2012
+###  Публикация: 1765635   (101397) от 13.12.2024
 
-[Wallpapers] Avto Wallpapers Pack 11
+After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96856.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 11
-Название: Avto Wallpapers Pack 11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+01. The Shadow People (4:54)
+02. Clones (5:46)
+03. Dust to Dust (4:08)
+04. Thanks But No Thanks (5:02)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5CB3F1DD597CB3357F770B0D1F193C8952FFBC2
+magnet:?xt=urn:btih:07A66577F41F8D9A1F7C4495B93C756DC440C88C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,29 +446,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469012   (96855) от 17.03.2012
+###  Публикация: 1765521   (101396) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 71
+Blue Oyster Cult - 50th Anniversary Live - Third Night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96855.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 71
-Название: Desktop Wallpapers Pack 71
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+01. Career Of Evil (Live) (4:18)
+02. Subhuman (Live) (5:02)
+03. Dominance And Submission (Live) (5:17)
+04. M E 262 (Live) (8:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:16:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B86F4FE5E0C855372B5302DF008257F62EAC2A0
+magnet:?xt=urn:btih:6338912EBFA95E64AC68972838C773E13DF584BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,29 +475,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469530   (96854) от 17.03.2012
+###  Публикация: 1765447   (101395) от 13.12.2024
 
-[Wallpapers] Nature Pictures №28
+Nine Days - The Madding Crowd (2000) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96854.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №28
-Название: Nature Pictures №28
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1400х900
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. So Far Away (3:56)
+02. Absolutely (Story of a Girl) (3:09)
+03. If I Am (4:18)
+04. End Up Alone (3:58)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:53:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5878227D9B992BF28458484B40F95AAEC2B4E03
+magnet:?xt=urn:btih:D0DF3F303383AEE6C190C18EEB3574F8CEC6093F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,29 +504,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469579   (96853) от 17.03.2012
+###  Публикация: 1765578   (101394) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 92
+Violet - Mysteria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96853.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 92
-Название: Desktop Wallpapers Pack 92
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Sex in Harmony (4:18)
+02. Angelina (Talk to Me) (4:50)
+03. Bad Dream (4:59)
+04. That Night (4:14)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9120D928D95A8119062F6714F5CB2B4571BF44B
+magnet:?xt=urn:btih:D9FDC813CA675D7A14ED7A9FAFFEECAECE78F9D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,29 +533,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469518   (96852) от 17.03.2012
+###  Публикация: 1765510   (101393) от 13.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 80
+The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96852.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 80
-Название: Desktop Wallpapers Pack 80
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+The Drowning - группа из Уэльса, Великобритания. Основана в 2003 году.2005 - Withered (EP)
+2006 - When the Light Was Taken from Us
+2008 - This Bleak Descent
+2010 - Black Lights And Silent RoadsЖанр: Melodic Doom/Death MetalПродолжительность: 05:50:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8634DF7C87A2E8222F40080DE35E57F78282C191
+magnet:?xt=urn:btih:9DEDA3B6CC9F506BA68A6A11F134267D17A85B82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,29 +562,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469481   (96849) от 17.03.2012
+###  Публикация: 1765705   (101392) от 14.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 77
+A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Бартон" (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96849.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 77
-Название: Desktop Wallpapers Pack 77
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280x700 - 1680x1050
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+Встречайте новую мистическую серию игр. Добро пожаловать в отель «Бартон»! Этот просторный особняк, превращенный в отель, достался последнему члену семьи после смерти патриарха. Новый владелец готов к тому, чтобы его отполировали, вычистили и выставили на продажу. Только есть проблема. Прошлое отеля, тесно переплетённое с историей вашей семьи, возвращается странным (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F4A8308D6C8D9F701FAA4EABC56484832FBF6D7
+magnet:?xt=urn:btih:09416A84E426878B1671BDCF8FD008DF25505EFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,29 +588,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469190   (96848) от 17.03.2012
+###  Публикация: 1765765   (101391) от 14.12.2024
 
-[Wallpapers] Avto Wallpapers Pack 9
+Н.В. Иноземцева, С.И. Прач. | Подшипники скольжения и их расчет (2023) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Научная и техническая литература
+>>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96848.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 9
-Название: Avto Wallpapers Pack 9
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+В разработанном учебно-методическом пособии приведены сведения, относящиеся к подшипникам скольжения.
+Содержит методики и примеры расчета и выбора посадки с зазором для подшипника скольжения по дисциплине «Нормирование точности и технические измерения».
+Основной целью данного пособия являлось оказание помощи студентам при выполнении курсовой работы по дисциплине (   Читать дальше...   )Жанр: учебное пособие, детали машинИздательство: Гомельский государственный технический университетФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:664BC108EBA57CD20D074DDD928E879C354F5A61
+magnet:?xt=urn:btih:56B4508D3792D2D3F38C18D5CC15AB62A3A33A94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,29 +616,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469491   (96847) от 17.03.2012
+###  Публикация: 1765803   (101390) от 14.12.2024
 
-[Wallpapers] Avto Wallpapers Pack 12
+Игорь Евдокимов | Архив Корсакова (Сборник). Зимнее дело Корсакова (2024) [MP3, Игорь Князев]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96847.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 12
-Название: Avto Wallpapers Pack 12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+Новые дела расскажут жуткие истории о самом страшном стихийном бедствии, налетевшем на Петербург в ноябре 1824 года, принесшем к дверям вдовы гроб с покойным мужем. Об особняке в петербургской Коломне, где статуя балерины в саду скрывает мрачную тайну. О занесенном снегом поместье в окрестностях Стрельны, где загадочным образом исчезают люди… Преступник – человек, (   Читать дальше...   )Жанр: альтернативная история, детектив, мистикаИздательство: ЭксмоПродолжительность: 04:09:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A4C1513EC6ED65777AC33EAA22A7E60B1754E2E
+magnet:?xt=urn:btih:478D610230BF04035F862BBF7F31AD42FCBCAEE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,29 +642,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469006   (96845) от 17.03.2012
+###  Публикация: 1765697   (101389) от 14.12.2024
 
-[Wallpapers] Avto Wallpapers Pack 8
+Роботы / Robots (2005) BDRemux [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96845.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 8
-Название: Avto Wallpapers Pack 8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Действие фильма разворачивается в мире, населенном исключительно роботами. Как и в мире людей, у них есть своя социальная лестница, свои герои и изгои. Молодой гений Родни мечтает сделать мир роботов лучше. А еще ему очень нравится роботша Каппи. Но на его пути стоит ведущий дизайнер роботов Биг Велд, принадлежащий к тому же сословию, что и Каппи.Производство: США / Twentieth Century Fox Animation, Blue Sky StudiosЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Крис Уэдж, Карлос СалданаПеревод: дублированный, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:29:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C541DA671F526570F1821A4C73513BDB17D59905
+magnet:?xt=urn:btih:267DE270540EDBCDE06541800F086E51EEBC6DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,64 +668,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469221   (96844) от 17.03.2012
+###  Публикация: 1759347   (101388) от 14.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 74
+Присяжный номер два / Juror 2 (2024) TS [H.264] [MVO]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96844.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 74
-Название: Desktop Wallpapers Pack 74
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686F2BF189AB6E1A59139192D3A8777387A49BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466334   (96843) от 16.03.2012
-
-Slava Черный & Roma Белый - Фольксваген (1995) [FLAC|Lossless]<Pop-Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.Ч. & R.Б. [4:02]
-02. Фольксваген [4:17]
-03. Просто сон [4:20]
-04. Где-то там [4:22]
-05. Город Палермо [4:22]
-06. Панама [4:05]
-07. Море волнуется раз, 2, 3 [4:09]
-08. П.Р. Автобус [4:27]
-09. Нет пути назад [4:50]
-10. Остров [4:38](   Читать дальше...   )1995Жанр: Pop-DanceПродолжительность: 00:59:13
+Присяжный, участвующий в судебном процессе по делу об убийстве, осознает свою вину в смерти жертвы.Производство: США /  Dichotomy Films, Gotham Group, Lightnin' Production RentalsЖанр: триллерРежиссер: Клинт ИствудАктеры: Зои Дойч, Николас Холт, Дж.К. Симмонс, Тони Коллетт, Кифер Сазерленд, Лесли Бибб, Гэбриел Бассо, Франческа Иствуд, Крис Мессина, Эми АкиноПеревод: Профессиональный многоголосый (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:52
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765693   (101387) от 14.12.2024
+
+Адаптация Пчёл. Комбикорм. Сказка о солидаризме на одной звероферме (2024) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101387.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире зверей обостряются серьёзные межвидовые противоречия.  Напряжение нарастает. Разрозненные группы недовольных собираются в клубы по интересам и критикуют правление волков, обличая царящие вокруг обман и несправедливость. Молодой ищущий истину поросёнок прибивается к одной из таких групп.  Недовольные объявляются вне закона и подвергаются преследованию.  Однако (   Читать дальше...   )Производство: Россия, Авторский блог Думай Сам /Думай СейчасЖанр: политика, клипЯзык озвучки: РусскийПродолжительность: 00:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE83DD17BFE62A78EC4BAADF80E338D521F77899
 ```
 
 https://mybot314.ru/tekegram_catalog/

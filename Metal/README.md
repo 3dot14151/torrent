@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1858901   (1060665) от 13.03.2026
+
+Unheilig - Liebe Glaube Monster (2026) [MP3|320 Kbps] <Industrial Gothic Metal, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060665.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Revolution (Intro)
+2. Liebe Glaube Monster
+3. Wunderschön
+4. Monster(   Читать дальше...   )Жанр: Industrial Gothic Metal, DarkwaveПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16ACC04733DAD3145F86688370A7705CE1A5ECAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856492   (1058815) от 28.02.2026
 
 Zed Yago - At The Edge Of The World (2026) [MP3|320 Kbps] <Heavy Metal>
@@ -717,35 +746,6 @@ Tesseract - Radar (2025) Live [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F31496382D27A236B2B29C7F41F394A6FC653FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839872   (1046724) от 01.12.2025
-
-Inner Shrine - The Last Emperor (2025) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:21)
-02. Breath of you (5:26)
-03. No time to die (3:25)
-04. Storm of revenge (5:05)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:05:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4B8366B43806B9E7A971AAA86F9DF459596DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

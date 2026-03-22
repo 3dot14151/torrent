@@ -1,3 +1,177 @@
+###  Публикация: 1556256   (561677) от 08.06.2022
+
+Lee Konitz - The Verve Albums Collection (1955 - 1961) 4CD, 2019, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561677.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Lee Konitz With Warne Marsh & Inside Hi-Fi:
+01. Topsy [5:30]
+02. There Will Never Be Another You [4:49]
+03. I Can’t Get Started [3:59](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 04:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BEA28134E376F2BF96B4612C03012447A08772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045231   (561676) от 22.08.2016
+
+Pat Metheny - Secret Story (1992) [FLAC|Lossless|image + .cue] <Post Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above The Treetops
+02. Facing West
+03. Cathedral In A Suitcase
+04. Finding And Believing(   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5673DC987854A3E2CE504C482EDDC9A000919487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044983   (561527) от 22.08.2016
+
+Susie Webb - Bossa Loves Abba (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova, Latin>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (4:01)
+02. Knowing Me, Knowing You (4:00)
+03. Chiquitita (4:39)
+04. Take A Chance (3:37)(   Читать дальше...   )Производство: Rockchicks LtdЖанр: Jazz, Bossa Nova, LatinПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A1F7DC321F6A0F7A290248704675C7B26BBD1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153167   (561315) от 25.07.2017
+
+Earth, Wind & Fire - The Real... Earth, Wind & Fire (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Open Our Eyes
+02. Evil
+03. Keep Your Head To The Sky(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 03:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05ECE9E8F4CE3A8F336FCF5978C0B6225EFF786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923772   (561045) от 02.08.2015
+
+OU - Scrambled! (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Non C'e Niente Da Lavare
+02. S'Ou Abbattadu
+03. Nochdenada
+04. Destiny Sneezed(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180B107583BC26D069E9B6133E90107A01A5D7D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924052   (561044) от 02.08.2015
+
+Sam Most - The Amazing Mr. Sam Most (1957) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Might As Well Be Spring [05:47]
+02. You Stepped Out Of A Dream [06:10]
+03. Softly As In A Morning Sunrise [03:11]
+04. Lover Man [04:20](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, CoolПродолжительность: 00:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC284870256F1A523E1098C7546A7996715CDC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923899   (561043) от 02.08.2015
 
 Cedar Walton - Eastern Rebellion (1975) /2015, Solid Records/[FLAC|tracks+.cue]<Jazz, Post-Bop>
@@ -571,180 +745,6 @@ Hadley Caliman - Iapetus (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:812B777E0FCB39214EEA0F553A440173BBB2D0BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235566   (558752) от 12.07.2018
-
-Teddy Charles - Seven Classic Albums (1956 - 1959) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558752.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Variations On A Motive By Bud [4:19]
-02. Wailing Dervish [4:29]
-03. Further Out [5:42](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 04:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8625D809940D528AFEEB4988929B4D744863A40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305202   (558386) от 29.05.2019
-
-John Kirby - 1941-1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coquette [3:02]
-02. Royal Garden Blues [1:45]
-03. Close Shave [2:32]
-04. Bugler's Dilemma [2:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FCF662F4E36B29C9BAC73A624F39768FA5F460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153591   (558266) от 27.07.2017
-
-Wes Montgomery - Down Here on the Ground (1989) [FLAC|Lossless|image + .cue] <Hard Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Song (2:19)
-02. Georgia On My Mind (2:44)
-03. The Other Man's Grass Is Always Greener (2:34)
-04. Down Here On The Ground (3:38)(   Читать дальше...   )Жанр: Hard Bop, Contemporary JazzПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64DB72CEFCE8B2F18C7E82D9D3B63305D43D69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153584   (558255) от 27.07.2017
-
-Miles Davis - Tutu (1986) [FLAC|Lossless|image + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tutu (5:15)
-02. Tomaas (5:32)
-03. Portia (6:18)
-04. Splatch (4:45)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0820F2497800A71BA23A3AE8B1F54A9D606960CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153582   (558204) от 27.07.2017
-
-Miles Davis - Seven Steps to Heaven (1992) [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basin Street Blues (10:28)
-02. Seven Steps To Heaven (6:22)
-03. I Fall In Love Too Easily (6:45)
-04. So Near, So Far (6:58)(   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4129406AEF491231B7E4A78AF1D2A11959761F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153590   (558190) от 27.07.2017
-
-Kenny G - Breathless (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Joy Of Life (4:19)
-02. Forever In Love (4:58)
-03. In The Rain (4:59)
-04. Sentimental (6:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F47A2AC0BFF59A9558428257F935AD3BE9177F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

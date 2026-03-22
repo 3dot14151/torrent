@@ -1,3 +1,32 @@
+###  Публикация: 1371221   (891848) от 30.03.2020
+
+Jimi Hendrix - 100% Jimi Hendrix (2020) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Haze
+02. Little Wing
+03. Bold as Love
+04. Mannish Boy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B8910AF7BC18E39E687852FAAA0B388A336B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371211   (891744) от 30.03.2020
 
 The Rolling Stones - 100% The Rolling Stones (2020) [MP3|320 Kbps] <Rock>
@@ -719,35 +748,6 @@ VA - Perception: Indie Pop-Rock Compilation (2020) [MP3|320 Kbps] <Indie, Pop-Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDF686C978ECADC576736BB637837E27F95399D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374341   (874307) от 09.04.2020
-
-VA - Acoustic Rock vol.1 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Cornell - You Never Knew My Mind (Johnny Cash: Forever Words) (04:56)
-02. Nirvana - About A Girl (03:37)
-03. Oasis - Wonderwall (04:18)
-04. The Verve - The Drugs Don't Work (05:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291E6E5540B3997130829D391DEF216BB747F269
 ```
 
 https://mybot314.ru/tekegram_catalog/

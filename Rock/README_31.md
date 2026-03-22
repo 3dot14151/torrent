@@ -1,3 +1,148 @@
+###  Публикация: 1221687   (693082) от 25.04.2018
+
+Aaron Fink (ex. Breaking Benjamin) - Heavy Feathers (2016) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damned If I Do
+02. Surrender
+03. Reckless
+04. Strange Days(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEFF881A5A84D1B95C0006EC75466C318BCFEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221564   (692978) от 25.04.2018
+
+BrainStorm - Par to zenu, kas sit skarda bungas (2018) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692978.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Par to zēnu, kas sit skārda bungas
+2. Ogles
+3. Pašu dārgāko
+4. Tevis dēļ(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824235F292F87638953AACC216DCD4E670B0B416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027960   (692971) от 21.06.2016
+
+Cate Rox - Mind vs. Heart (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames (02:34)
+02. Wake Up (03:38)
+03. Magical Girl (03:11)
+04. Lone Warrior (02:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55CF4DA77C3B51F4CE02607B3739A8C302C8109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221690   (692894) от 25.04.2018
+
+BrainStorm - Wonderful Day (2018) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Контакты
+2. Мой друг океан
+3. Для тебя
+4. For a Friend(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1111BDED259961B7D16FEA545E87E7AFC53EB070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403349   (691935) от 19.08.2020
+
+VA - Women In Rock (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pretenders - Middle of the Road
+02. Alannah Myles - Make Me Happy
+03. Tori Amos - Heart of Gold
+04. The Joy Formidable - Little Blimp(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD90648D6AA5D5D06B830470062633C40D4901C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134156   (691651) от 14.05.2017
 
 Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [MP3|320 Kbps] <Rock, Blues Rock>
@@ -600,157 +745,6 @@ Sweet - Reincarnation 1 (2022) Remastered [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D5B11B7E21140257B50FCDBA670F2F3E36322CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535447   (684219) от 07.03.2022
-
-Sweet - Reincarnation 2 (2022) Remastered [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mick Tucker Interview (Remastered) (00:38)
- 02. Teenage Rampage (Remastered) (04:13)
- 03. Hellraiser (Remastered) (04:03)
- 04. Love Is Like Oxygen (Remastered) (05:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F257904D06B57AA165BA89414DA58D9DA7BEA4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507655   (683954) от 08.06.2012
-
-Russ Diapper - No Cure For Curiosity (2011) [MP3|320 кб/с]<Rock, Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bachelors Blues
-2. Ego Star
-3. Keepin me Alive
-4. Red Cadillac
-5. Cluckin Mad
-6. Heartbreaker
-7. Need My lady
-8. Redhead Topdown
-9. Bad Boy
-10. Girl is a tease(   Читать дальше...   )2011Жанр: Rock, Classic Rock, Blues RockПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D94027E84B394C03B4BFF135E8C76EA4D4173CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029347   (682633) от 26.06.2016
-
-Elephant Plaza - Momentum (2016) [MP3|320 кб/с] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naked
-02. Southwest
-03. Paralyzed
-04. All The Way(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDA487766BEABC662FFC0A6DF13EA4B9F2817E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135382   (681185) от 19.05.2017
-
-Titanic - Sea Wolf (1971) Remastered, 2000, Repertoire Records [MP3|320 Kbps] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sea Wolf
-2. Underbird
-3. Confusion
-4. Sultana(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956A3B4E276FEDFE5C5F4573917F7E306B4D2B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135370   (680803) от 19.05.2017
-
-Foreigner - 40 (2017) 2CD [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680803.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Feels Like The First Time (Remastered)
-02. Starrider (Remastered)
-03. Cold As Ice (Remastered)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9E3C8198FCE45DAF7A69EE1F076BD9467ADF96
 ```
 
 https://mybot314.ru/tekegram_catalog/

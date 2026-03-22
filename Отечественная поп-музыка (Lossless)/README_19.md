@@ -1,3 +1,32 @@
+###  Публикация: 1667464   (175776) от 09.10.2023
+
+Дискотека Авария - The Best, Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_175776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Х.Х.Х.И.Р.Н.Р [00:03:21]
+02 - Малинки-Mалинки [00:04:05]
+03 - Небо [00:03:50]
+04 - Яркий я [00:03:42](   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA768B205D0D4BC4F66CA368263ED811218EFEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509070   (174880) от 10.10.2023
 
 ВИА Гра (Nu Virgos) - 5 альбомов, 2 сборника (2002-2008) [FLAC|Lossless]<Pop, Europop>
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B7684B437D1FA409034EE78F607DC58C83BCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 116959   (128990) от 14.10.2025
-
-Богдан Титомир - Высокая Энергия (1992) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Делай Как Я
-02 Instrumental 1
-03 Секс-Машина
-04 Кайф(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45FAC31FEC7D7B87ABD71DA1312463A2C93F345C
 ```
 
 https://mybot314.ru/tekegram_catalog/

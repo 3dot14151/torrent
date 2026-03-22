@@ -1,3 +1,148 @@
+###  Публикация: 1240103   (531395) от 09.08.2018
+
+VA - Sunrise Shore: Volume 02 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Furkan Senol - Sunshine (Original Mix)
+02. Mark Digital - Vintage (Original Mix)
+03. Michael Rehulka - I'm A Liar (Original Mix)
+04. Hamza Messaoudi - This Is Not Goodbye (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2F2254AB404CF3374B3F08A8A7CB4E0CE12030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155839   (529892) от 05.08.2017
+
+VA - Clubbing On Sunshine (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsedriver, Chris Deelay - Geiles Gefuhl (Short mix) 03:06
+02. Sal De Sol - Happy Ending (Vocal Club Mix) 03:45
+03. Franky Tunes - Free (Summer Breeze Remix) 03:26
+04. Topmodelz - Summer of 69 03:46(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C68AF987EA3B8DB0C9DCE5513DFD6866A9A1317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155768   (529790) от 05.08.2017
+
+VA - Freudentanz - Ibiza Party (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melbourne Freaks - Deep Deep Down (Extended Mix) 05:42
+02. Prince Ringo - Don Trumpet (Clubmix) 06:43
+03. Dj Absinth - Revolution (Club Edit) 04:36
+04. The Fakies - Real Love 04:55(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0969D49203511500565EFB932AD668F40D3A0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155854   (529787) от 05.08.2017
+
+VA - Deep House Seduction, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fernando Olaya - Saint germain 07:56
+02. Hanney Mackoll - Digital Energy 05:32
+03. Caprivian - Shades 08:08
+04. Kemp&Thompson - WTMH 08:30(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FBA99EA7316A447F6A70CC508815DE31F28DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240243   (529769) от 10.08.2018
+
+VA - Top 50 Drops Summer '18 (2018) [MP3|320 Kbps] <House, Future House, Groove, Jackin, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Momentums - Love By You (Original Mix) 3:45
+02. Kid Williams - Shimmy Yam, Shimmy Yay (Dub Mix) 4:13
+03. Patrick Richmond - I'm Losing Control (Original Mix) 4:32
+04. Justin Berger - Ohh My (Original Mix) 3:44(   Читать дальше...   )Жанр: House, Future House, Groove, Jackin, Tech HouseПродолжительность: 03:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303DDC3C85CA1D4A385B22C12305B77F48B6002B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240238   (529765) от 10.08.2018
 
 VA - Ibiza Summer 2018: Deep & Tropical House (2018) [MP3|320 Kbps] <Deep House, Tropical House>
@@ -603,148 +748,6 @@ VA - Deep House Summer '18 (2018) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018DA378ED6DE310B381D210A31317D73C87FA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314488   (519443) от 14.07.2019
-
-VA - Pop Bangers, Vol. 2 (2019) [MP3|320 Kbps] <Deep House, Tech House, Progressive House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad – Back to LifeЖанр: Deep House, Tech House, Progressive House, Big RoomПродолжительность: 02:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFACC620FA51C3C8016C244EE6CCE715A23D2F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241705   (518428) от 19.08.2018
-
-Novaspace - Cubes (2004) [MP3|320 Kbps] <Euro-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run To You (3:37)
-02. Come Out Of Your Darkness (4:24)
-03. It's Too Late (4:04)
-04. Beds Are Burning (3:19)(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5447A4D0BB5579802750C034105D459B3F8BC5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241757   (518422) от 19.08.2018
-
-VA - Elrow Vol. 3 (Mixed By Claptone, Tini Gessler & Eddy M) (2018) [MP3|320 Kbps] <Tech House, Minimal, Funky, Deep, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy M - Everybody Freak
-02. Max Chapman - Body Jack (Get My Swerve On) (Franky Rizardo Remix)
-03. Andrew Meller - Plural Dusks
-04. Claptone - Under The Moon (Catz N Dogz Remix)(   Читать дальше...   )Жанр: Tech House, Minimal, Funky, Deep, TechnoПродолжительность: 07:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF900A699FC98711ED8055D37269A01DF3822B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241821   (518419) от 19.08.2018
-
-VA - Deep House Summer (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax, Andre Sobota - Aura Lusia (André Sobota Remix) 3:31
-02. Raven & Kreyn, Maxim Schunk, Mahalo, Bishop - My Name (Mahalo Remix) 3:17
-03. Corderoy - Empty Chair (Original Mix) 3:18
-04. Oliver Harper - Marazion (Original Mix) 4:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B36F29F5EA70F0A250E1A66720F41B0DD44B453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242013   (517187) от 20.08.2018
-
-Marfen - Velvet Summer (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iris (Ambient Mix)
-02. Pulp (Original Mix)
-03. Summer (Original Mix)
-04. Ya Salam (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F356EEA259D53A6A809809182B7294852DDB783A
 ```
 
 https://mybot314.ru/tekegram_catalog/

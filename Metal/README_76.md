@@ -1,3 +1,118 @@
+###  Публикация: 1072636   (352600) от 13.11.2016
+
+Raven's Gate - Blackstar Machinery (2016) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Blackstar
+02. The New Wave
+03. Kill The Enders
+04. Powerlife(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548D70B8ADAC4C79EAB510AB1D85F49A8651804F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072402   (352018) от 13.11.2016
+
+Tarja & Alissa White-Gluz - Demons In You (2016) Single [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demons In You (with Alissa White-Gluz)
+02. Demons In You (Tarja Solo Version)
+03. Demons In You (Alissa Lead Vocals Version)Жанр: Symphonic MetalПродолжительность: 00:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08ED30B33D5735AE1F2D1CF49F5A11BAF374DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953127   (351790) от 03.11.2015
+
+Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Our Souls
+02. Staring Organic Stars
+03. Summoning Ocean's Son
+04. Suicide: Open Solution(   Читать дальше...   )Жанр: MDMПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F754F33A7E2E6F4512F718595C61EBBBDADBBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179119   (351525) от 30.10.2017
+
+Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zionism (The Reaping) (0:44)
+02. Twisted Logic (3:24)
+03. The Underground (3:39)
+04. General Guidance (4:36)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0735A82B24D54DA207B744E4E8FAD8FA4CFE18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179213   (351274) от 30.10.2017
 
 Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
@@ -626,122 +741,6 @@ Trees Of Eternity - Hour Of The Nightingale (2016) [MP3|320 Kbps] <Doom Metal, G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B36C44AC4D1B21F5D04B7F5B09745649B4F4B5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953807   (346832) от 05.11.2015
-
-Devil You Know - They Bleed Red (2015) [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consume The Damned (3:37)
-02. The Way We Die (3:31)
-03. Your Last Breath (4:30)
-04. Stay Of Execution (3:39)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B961E9B0D3B2908693B21CD01F97CF6C0FDF279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953806   (346486) от 05.11.2015
-
-Lacrimosa - Hoffnung (2015) [MP3|320 кб/с]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mondfeuer
-02. Kaleidoskop
-03. Unterwelt
-04. Die Unbekannte Farbe(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB074439520AEAFC3FA5E1CBA4586ACD099DFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578424   (345853) от 23.09.2022
-
-Saber - Without Warning (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm of Steel [00:03:59]
-02. Without Warning [00:04:16]
-03. Midnight Rider [00:04:35]
-04. Strike of the Witch [00:03:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8AE27A1753947296E16C1DB729E69ED391346E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330084   (345608) от 08.10.2019
-
-Helloween - United Alive In Madrid (2019) Live [MP3|320 kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halloween (Live) (13:37)
-02. Dr. Stein (Live) (05:36)
-03. I'm Alive (Live) (03:47)
-04. If I Could Fly (Live) (04:00)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BB5A68CE0F6DBD0EA9569C3401AF39F0FC959C
 ```
 
 https://mybot314.ru/tekegram_catalog/

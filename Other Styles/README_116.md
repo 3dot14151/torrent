@@ -1,3 +1,149 @@
+###  Публикация: 1066586   (409747) от 27.10.2016
+
+Louis Landon - Healing Hearts 3 - Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing in the Light [00:04:47]
+02. Heart Song [00:04:47]
+03. Life Is Beautiful [00:04:52]
+04. Triumph of the Soul [00:04:44](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3FDD1AC017E485D8810F4F280B81AE84B514BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066560   (409527) от 27.10.2016
+
+Mike Higham & Matthew Margeson - Miss Peregrine’s Home For Peculiar Children / Дом странных детей Мисс Перегрин (2016) [MP3|320 Kbps] <Soundtracks, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Peregrine's Home For Peculiar Children
+02. Bedtime Stories
+03. Arrival At The Island
+04. A Place Like This(   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56737134A736E7D36C3DE9BE8738D13F4466C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252330   (409313) от 05.10.2018
+
+Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Current
+02 Memories
+03 The Revolutions
+04 Optimistic Waves(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1EA071513857301A07846CE4E47F0645E91B6CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168343   (408794) от 24.09.2017
+
+Бахубали - Заключение / Baahubali - The Conclusion (2017) Язык песен - Хинди [MP3|320 Kbps] <OST, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jiyo Re Bahubali | Jiyo Re Bahubali
+02 - Veeron Ke Veer Aa
+03 - Soja Zara
+04 - Jay-Jaykara(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0EA1D9AC58DCB102C4E2BE05B06BDF89FF6B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413524   (408202) от 04.10.2020
+
+Motoi Sakuraba, Yuka Kitamura - Dark Souls II SotFS (Original Soundtrack) (2015) [MP3|320 Kbps] <Soundtrack, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Souls II (рус. Тёмные души II) — видеоигра в жанре action/RPG, разработанная компанией From Software. Она является непрямым продолжением игры Dark Souls.
+В центре новой истории находится проклятый персонаж, который отправляется в далёкие земли королевства Дранглик, чтобы найти исцеление от поразившего его Проклятия нежити. Но оказавшись в этом мире, герой понимает, (   Читать дальше...   )CD1:
+01. Departure [4:11]
+02. Fire Keepers [2:44]
+03. Majula [3:17](   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 02:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F68FFF4E55E3CBDBF1B086EA2CCB815E218365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067156   (408025) от 28.10.2016
 
 Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -635,151 +781,6 @@ Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3DCD735EA65BD086F5C246400152F1B9EDE0E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170205   (400578) от 30.09.2017
-
-Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Anthem
-02. Crystal Light
-03. Free
-04. That June Feeling(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C9FB4D9394A7BF477964735423B32D783CB122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170058   (400521) от 30.09.2017
-
-Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowland
-02. Mindscapes
-03. Old Glow
-04. Panoramas(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6368FD23C843FA5F5F38170818BFC9447C52F489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169978   (400505) от 30.09.2017
-
-Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sovereign
-02. Dreamweaver
-03. Unbroken
-04. Daybreak(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51EDDB4FCF4153C873707FB5EDA37F804A1FDDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169976   (400314) от 30.09.2017
-
-Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps] <Ambient, New-Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Magnetic Fields, Pt. 1  17:59
-02.  Magnetic Fields, Pt. 2  3:59
-03.  Magnetic Fields, Pt. 3  4:11
-04.  Magnetic Fields, Pt. 4  6:25(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 03:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78663E68EB41F7DC3F6FBBAB0CD53E83D819281E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170506   (399533) от 01.10.2017
-
-Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song For Sienna (4:09)
- 02. Lavender Hills (3:09)
- 03. Crimson Sky (4:59)
- 04. The Secret Letter (3:07)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC7A0C2AB82F8EE713A236C386EB1BF916FF0F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

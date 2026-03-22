@@ -1,3 +1,32 @@
+###  Публикация: 1616678   (1036112) от 03.03.2023
+
+VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Era - Era
+02 - Enigma - The Roundabout
+03 - Deep Forest - Bohemian Ballet
+04 - Sacred Spirit - Legends(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743D78AF4985456382B4F16BEC15DDCF8DADA702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616672   (1036101) от 03.03.2023
 
 David Arkenstone - Celtic Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -717,35 +746,6 @@ Blackmore's Night - Shadow Of The Moon (2023) 25th Anniversary Edition [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C979B485CF82F614EFC6E90A1FD22D9B6B9DBD52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447543   (1031654) от 14.02.2021
-
-VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Brunetti - Clear Nights (01:56)
-02. Adriano Pupillo - Arpeggio in B Major (02:12)
-03. Alessandro Martire - L'ultimo desiderio (03:05)
-04. Adriano Pupillo - Sostenuto in C Major (01:55)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FC095A18B9D74CDB8ABEA5203A10421FE7D0FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

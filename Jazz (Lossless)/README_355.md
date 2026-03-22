@@ -1,3 +1,177 @@
+###  Публикация: 1799374   (66455) от 27.05.2025
+
+Sal Salvador - A Tribute To The Greats (1957) 1999, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artistry in Rhythm [3:11]
+02. Taps Miller [4:10]
+03. Prelude to a Kiss [3:59]
+04. Walking Shoes [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACBEECF9D616F27B62F96D2F185966A177AF3F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798954   (66454) от 27.05.2025
+
+Sal Salvador - Sal Salvador (1954) 1991, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down Home [2:51]
+02. Salutations [2:31]
+03. Violets for Your Furs [3:26]
+04. Now See Here, Man [2:52](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDF50B5EB1CD5483C717D4FEE303C33971E8708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799368   (66453) от 27.05.2025
+
+Al Hirt - Cherry Pink And Apple Blossom Wine (2001) High Definition Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Get Started [3:47]
+02. Stardust/The Man with the Horn (Medley) [4:41]
+03. Ciribiribin [2:49]
+04. Tuxedo Junction [2:47](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79F01B7BC457AAEAB3F64A309B830BDDCB6DB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798715   (66452) от 27.05.2025
+
+Woody Herman - The Fourth Herd & The New World of Woody Herman (1959, 1962) 1995, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panatela [3:01]
+02. Lament for Linda [2:51]
+03. Misery, Stay 'Way from My Door [2:39]
+04. In a Misty Mood [3:25](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED68DBBE9DB8D027C82A3745B12B88EDCE43901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798956   (66451) от 27.05.2025
+
+Richard Wyands - The Arrival (1992) DIW Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Most Beautiful Girl [6:38]
+02. The Arrival [5:23]
+03. Sleeping Bee [6:46]
+04. Sweetest Sounds [4:48](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA87DB64AEC0BF499BD816DC9EA68376DE5DFF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799634   (66413) от 29.05.2025
+
+Lavay Smith & Her Red Hot Skillet Lickers - Miss Smith To You (2009) Fat Note Records [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Brown To You [2:58]
+02. It Don't Mean A Thing (If It Ain't Got That Swing) [3:38]
+03. Daddy [4:39]
+04. With My Man [6:37](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE23BEABC8B681A757A4B79ADEA4C280FC0F595B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799762   (66412) от 29.05.2025
 
 VA - In Noir We Trust (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Doom Jazz>
@@ -571,180 +745,6 @@ The Great Jazz Trio - At The Village Vanguard (1977) 2000, Universal [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DCB5DAEC177A4CB64CB6E7C29D36C1E09607E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802603   (66015) от 18.06.2025
-
-Seth MacFarlane - Blue Skies (2022) Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's You or No One [2:50]
-02. No Moon at All [2:23]
-03. You'll Get Yours [2:46]
-04. A Hundred Years from Today [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00221FFCD21171E19E4EF76459612EFF89608147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802686   (66014) от 18.06.2025
-
-Pieces Of A Dream - We Got This (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heading Out (4:02)
-02.  We Got This (4:37)
-03.  I'm On My Way (3:56)
-04.  Take A Stroll (4:03)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943C896EDA0C6F3733D272963C8349159E65891D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802777   (65971) от 19.06.2025
-
-Eliane Elias - Dance Of Time (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O Pato [4:19]
-02. You're Getting to Be a Habit with Me [3:52]
-03. Copacabana [5:22]
-04. Coisa Feita [5:02](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F7BF5AB6F0104AD914DECB6006C0E7264EBDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802838   (65969) от 19.06.2025
-
-VA - Sunny Day Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Peter De Girolamo - Sunny (3:48)
-02.  Lo Greco Bros Quartet - Naima (4:40)
-03.  Domenico Sanna - Fly Me to the Moon (4:18)
-04.  P. A. Jeron - Hiems (4:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE19089B5D67E76A8BC6FF25F0FE212156B1ED8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802924   (65966) от 20.06.2025
-
-Eliane Elias - So Far So Close (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At First Sight [4:53]
-02. Bluestone [5:33]
-03. Barefoot [4:40]
-04. Nightimer [6:10](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C81368F6742641EACC855C992868EBC0C2C38B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802905   (65963) от 20.06.2025
-
-Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago    [0:02:50.00]
-02. The Lady Is a Tramp    [0:02:56.00]
-03. Day In Day Out    [0:02:39.00]
-04. I Didn't Know What Time It Was    [0:02:14.00](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D064E95EDE322F3393512637E0DBA131EB675273
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1232456   (599792) от 24.06.2018
+
+Eruption - The Best Of Eruption (2017) Reissue, Remastered [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I can't stand the rain (feat. Precious Wilson) (3:09)
+02. Go Johnnie go (keep on walking, John B.) (3:31)
+03. Leave a light (4:22)
+04. Movin' (4:27)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB2F1D6A001937B86C119D9BFBC8645093343C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038845   (599525) от 30.07.2016
+
+Bee Gees - Living Eyes (1981) 1983, RSO [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Eyes [04:22]
+02. He's a Liar [04:05]
+03. Paradise [04:21]
+04. Don't Fall in Love With Me [04:57](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A70D1E26095DD2B572906F5FB0B3AD3F6E972E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548576   (597903) от 03.05.2022
+
+Demis Roussos & We Five - Demis Roussos & We Five (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demis Roussos - When a Man Loves a Woman [00:02:41]
+02. We Five - Wild Thing [00:03:53]
+03. Demis Roussos - Black Is Black [00:04:01]
+04. Demis Roussos - Paint in Black [00:02:33](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD247BD75D163AF7CD6F69FEA47C4F1619B73AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914918   (596285) от 03.07.2015
+
+VA - Golden Romantic Hits (2006) [FLAC|image + .cue]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demis Roussos - Forever and Ever [3:37]
+02. The Mamas & The Papas - Step out [3:04]
+03. Astrud Gilberto - Fly Me to the Moon [2:21]
+04. Stevie Wonder - My Cherie Amour [2:53](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAAE99A804A30FFAEA5CA3B3F22929F3C1A5177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299753   (596175) от 03.05.2019
+
+Stéphanie Bédard (Stephanie Bedard) - Ricochet (2019) EP [FLAC|Lossless|tracks + .cue] <Pop, Francophone>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596175.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tu m'emmènes (3:38)
+2. Tous ces gens (4:11)
+3. La dérive (4:35)
+4. Ensemble (3:09)Жанр: Pop, FrancophoneПродолжительность: 00:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C58CE7FC44413840B91ABC6549F5B93C5B42F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914273   (596112) от 03.07.2015
+
+A-ha - Greatest Hits (1999) [FLAC|tracks + .cue]<Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me [03:47]
+02. Cry Wolf [04:08]
+03. Touchy [04:37]
+04. You Are The One (Remix) [03:47](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E22C53AA99AA107EF7B7A31E655A49711512F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299662   (596070) от 03.05.2019
+
+VA - The Acoustic Album (2006) 2CD [FLAC|Lossless|image + .cue] <Acoustic Pop-Rock, Folk, Singer-Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596070.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Jack Johnson – Breakdown (03:34)
+2. Corinne Bailey Rae – Put Your Records On (03:34)
+3. KT Tunstall – The Other Side of the World (03:32)(   Читать дальше...   )Жанр: Acoustic Pop-Rock, Folk, Singer-SongwriterПродолжительность: 02:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1903D8423F703AEA8A6E6EBA15AC69E003BB8918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150298   (595285) от 14.07.2017
+
+Peter Cornelius - Liederbuch (1998) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Du entschuldige i kenn Di (04:23)
+02. Reif für die Insel (04:41)
+03. Ganz Wien hat den Blues (04:21)
+04. Der Kaffee ist fertig (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163D36185473C2322FFA2B125DC386C97230F76D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039770   (594688) от 02.08.2016
 
 VA - Lazy Sunday (2004) [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Rock, Soft Rock, Vocal>
@@ -513,239 +745,6 @@ Bleu Jeans Bleu - Perfecto (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Cha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4465FE36F082A01DFBD8B7AAA0BD6BDFAB13732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919632   (581862) от 20.07.2015
-
-VA - Top 40 (Movies) (2014) 2CD[FLAC|tracks + .cue]<Pop, Soul, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bay City Rollers - Bye Bye Baby [2:51]
-02.Dolly Parton - 9 To 5 [2:47]
-03.Edison Lighthouse - Love Grows (Where My Rosemary Goes) [2:51]
-04.Leo Sayer - You Make Me Feel Like Dancing [3:39](   Читать дальше...   )Жанр: Pop, Soul, RockПродолжительность: 02:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914E506DC87F1A2FB8FBE2D378C03FA9BDF06FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919667   (581859) от 20.07.2015
-
-Duran Duran - Thank You (1995) [FLAC|image + .cue]<New Wave, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Lines [05:31]
-02. I Wanna Take You Higher (Version 1) [05:05]
-03. Perfect Day [03:50]
-04. Watching The Detectives [04:47](   Читать дальше...   )Жанр: New Wave, Pop-RockПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CADFDB977B89E1DA44B98FA0F34184A79CFD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920265   (580964) от 21.07.2015
-
-VA - Pure... Voices (2012) Box Set, 4CD [FLAC|Track+.cue]<Pop, Jazz, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как известно, голоса сирен (этих полурыб-полуженщин, унаследовавших от отца - морского бога Форкия - дикую стихийность, а от матери-музы — божественный голос) завораживают. Звуками своих песен они усыпляют путников, а затем раздирают их на части и пожирают. Аргонавты лишь благодаря тому миновали гибели от сирен, что сопутствовавший им Орфей заглушил пение сирен своим (   Читать дальше...   )CD1:
-01. Kelly Clarkson - Because of you  (3:42)
-02. Alicia Keys - A woman's worth  (5:05)
-03. Natasha Bedingfield - These words  (3:37)(   Читать дальше...   )Жанр: Pop, Jazz, RockПродолжительность: 04:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170007584FD28E72DE54F6D69074A265CC479EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920146   (580919) от 21.07.2015
-
-Laid Back - Uptimistic Music Vol. 1 - Vol. 2 (2013) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580919.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 00:40:47
-CD2 - 00:40:10Треклист CD1:
-01. Clear Your Mind
-02. Make Your Day
-03. Oochi Gucci(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67EE4ECC94E9F516B6589854DB59DE0D32312DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302637   (580371) от 16.05.2019
-
-Chromeo - She's In Control (2004) [FLAC|Lossless|tracks + .cue] <Electro, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me & My Man 04:19
-02. Needy Girl 04:17
-03. You're So Gangsta 04:01
-04. Woman Friend 03:46(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65322763DE5908AEC8BE5A669CA67D24416B88AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920280   (580184) от 22.07.2015
-
-Maarja - First In Line (1997) [FLAC|tracks+.cue]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580184.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rainbow Colours [03:33]
-2. Hold Onto Love [03:04]
-3. First In Line [03:23]
-4. What In This World [03:35](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 38:49:73
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F021985370D0D7D3E309F71BEF5DC66EE89EFE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920386   (580116) от 22.07.2015
-
-Sindy - Selfie (2015) [FLAC|tracks+.cue]<Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dis-Moi
- 02. Sans Rancune Feat La Fouine
- 03. Aie Aie Aie
- 04. S'envoler(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D5B9551B9485AB438D88165624828DFC8EDC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302728   (579330) от 17.05.2019
-
-Rhye - Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Sophisti-Pop, Indie-Pop, RnB, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dark (01:27)
-2. Needed (05:18)
-3. Malibu Nights (01:55)
-4. Patience (feat. Ólafur Arnalds) (04:14)(   Читать дальше...   )Жанр: Sophisti-Pop, Indie-Pop, RnB, DowntempoПродолжительность: 00:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8CB446A815156884A2DEAB54986BAFF16BAE44
 ```
 
 https://mybot314.ru/tekegram_catalog/

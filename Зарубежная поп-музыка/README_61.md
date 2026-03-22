@@ -1,3 +1,128 @@
+###  Публикация: 583255   (312674) от 02.12.2012
+
+Supermax - Hello, Kurt! (2011) [MP3|320 кб/с]<Funk,Disco,Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Funk,Disco,ReggaeПродолжительность: 02:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C3971DB0B674B081C2EE4727879E08CA4B4876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582887   (312579) от 02.12.2012
+
+Bad Boys Blue - 25 Best Hits (2012) [MP3|320 кб/с]<Pop,Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Back And Stay
+ 02. I'm Never Gonna Fall In Love Again
+ 03. Queen Of Hearts
+ 04. Love Is No Crime
+ 05. Kisses And Tears
+ 06. Kiss You All Over, Baby
+ 07. A Love Like This (Radio Edit)
+ 08. You're A Woman
+ 09. How I Need You
+ 10. I Wanna Hear You HeartbeatЖанр: Pop,DiscoПродолжительность: 01:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BB834A1B43957605955D2555AC71310E2F007D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582549   (312570) от 02.12.2012
+
+Demis Roussos - 14 Best Hits (2008) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Someday Somewhere
+ 02.  Island Of Love
+ 03.  Goodbye My Love Goodbye
+ 04.  Summerwine
+ 05.  Mamy Blue
+ 06.  I miss you
+ 07.  My Only Fascination
+ 08.  From Souvenirs To Souvenirs
+ 09.  We Shall Dance
+ 10.  Velvet Mornings(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE452D3477C7B5E3E5CE084C4D17CD0E55D2AF9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260299   (312185) от 07.11.2018
+
+Rasmus Seebach - Ingen Kan Love Dig I Morgen (2013) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandstorm
+02. Øde Ø
+03. I Min T-Shirt
+04. Olivia(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583746   (311955) от 02.12.2012
 
 Mylène Farmer - Monkey Me (2012) [MP3|320 kbps] <Pop>
@@ -652,122 +777,6 @@ Boney M. - Worldmusic for Christmas (2017) 2CD [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E5D830192EAE49C924E3F0CB42F6792B38CDBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261582   (303137) от 11.11.2018
-
-Mireille Mathieu - Mes classiques (2018) [MP3|320 Kbps] <Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lе рrеmiеr rеgаrd d'аmоur (vеrsiоn frаnсаisе)
-02. Gоld fаllt аuf diе Zеit
-03. Арrеs un rеvе
-04. Аvе Маriа(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78CA44A1E2D18A1AFE7E7AFDF57C00044A51A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078153   (302423) от 30.11.2016
-
-VA - Nostalgie Disco Fever: Les 50 Plus Grands Titres Disco-Funk ! (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ottawan - Disco 03:15
-02. Amii Stewart - Knock On Wood 04:10
-03. Barry White - You're The First, The Last, My Everything 04:31
-04. Donna Summer - Hot Stuff 05:18(   Читать дальше...   )Жанр: PopПродолжительность: 03:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954AE1BC9FEAAEF68BC30DCF83544B114414C040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333746   (301583) от 26.10.2019
-
-VA - Ballermann Frühlingsalarm 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tobee - Cordula Grün
-02. Almklausi,Specktakel - Mama Laudaaa (Harris & Ford Remix)
-03. Honk! - Joana
-04. Peter Wackel - I Love Malle(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C8EDC1697C7E18FB0A440E54454D7CBABB435F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261703   (301261) от 12.11.2018
-
-VA - Dance Party 2018 (2018) [MP3|320 Kbps] <Dance, Club, Tropical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrochuck - Give It to Me
-02. Nothing But The Beat - Never Coming Back
-03. Melbourne Freaks - Mainstage (Festival Mix)
-04. Garagestylerz - My Touch (Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, TropicalПродолжительность: 03:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D466547CBA4D8E45F92D10AD364189F5B4F9F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

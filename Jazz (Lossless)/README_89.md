@@ -1,3 +1,36 @@
+###  Публикация: 203667   (757951) от 28.05.2010
+
+Jimmy Scott - The Source (1970) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus
+02. On Broadway
+03. Our Day Will Come
+04.I Wish I Knew
+05. Unchained Melody
+06. Day by Day
+07. Sometimes I Feel Like a Motherless Child
+08. This Love of MineЖанр: Vocal JazzПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018264   (757743) от 19.05.2016
 
 Bobby Hutcherson - In The Vanguard (1987) Landmark[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -713,35 +746,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82A232026C6BFFB22494E6094F20DF5CC92F3EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215894   (753066) от 29.03.2018
-
-Edmond Hall, James P. Johnson, Vic Dickenson, Sidney De Paris - The Complete Blue Note Sessions (1943 - 1952) 4CD, 1985, Mosaic Records [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Stride, S ...
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753066.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jammin' In Four [04:23]
-02. Edmond Hall Blues [04:20]
-03. Profoundly Blue [04:11](   Читать дальше...   )Жанр: New Orleans Jazz, Stride, SwingПродолжительность: 04:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF48B293E81B4FEC9540C8D0E1F27E8593D40FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

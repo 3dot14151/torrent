@@ -1,28 +1,25 @@
-###  Публикация: 478086   (98653) от 04.04.2012
+###  Публикация: 1761368   (103059) от 19.11.2024
 
-Глеб Черниговцев | 100 cпособов найти работу [2004] [PDF]
+J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Разное (категория книг)
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98653.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книгу «100 способов найти работу» можно уверенно назвать учебным пособием, которое поможет вам не растеряться в современном деловом мире.
-
-Многие из нас мечтают найти работу, которая соответствовала бы нескольким требованиям. Каковы же эти требования? Прежде всего, разумеется, достойная оплата труда. Еще хотелось бы, чтобы работа была интересной и давала возможность для полной самореализации.
-
-«Мечта», – скажете вы. Может быть, но не такая уж несбыточная. А вот чтобы воплотить данную мечту в реальность, вам просто необходимо прочитать эту книгу.
-
-В ней вы найдете не только способы поисков работы, причем довольно оригинальные, но и научитесь вести себя на собеседовании, что просто необходимо для получения долгожданной работы.Формат: PDF
+01. Baby What You Want Me To Do (4:13)
+02. Steady Rollin' Man (5:21)
+03. It Takes a Lot Of Love, It Takes A Train To Cry (6:33)
+04. I Can't Hold Out (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A536E1EF41E9334194D922F6890B8F76CBB445CF
+magnet:?xt=urn:btih:D869AA9AEF240DF4ADE6AE84D15517756302E4D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -30,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478129   (98651) от 04.04.2012
+###  Публикация: 1761323   (103058) от 19.11.2024
 
-Подшивка журналов | The Finer Edge [2006-2007] [PDF] [EN]
+Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Reggaeton, R&B, Trap>
 
->>Журналы
->>Хобби (журналы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98651.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал о ножах и другом холодном оружии. Коллекционирование, описание.2006-2007Формат: PDF
+01. Cosa Nuestra [00:04:20]
+02. Déjame Entrar [00:04:14]
+03. Qué Pasaría... [00:03:11]
+04. Tú Con Él [00:04:49](   Читать дальше...   )Жанр: Pop, Reggaeton, R&B, TrapПродолжительность: 01:07:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:169E7BE15C7C412235C91E4059DED06349C4DBBC
+magnet:?xt=urn:btih:7FF9C0128E9398DFB2892441FFE4F7FC6259B98E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477752   (98648) от 04.04.2012
+###  Публикация: 1761360   (103057) от 19.11.2024
 
-Arnett Cobb With The Red Garland Trio - Blue And Sentimental (1960) [FLAC|Lossless]<Jazz, Soul>
+Wes Jeans - One Day at a Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98648.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Sweet Georgia Brown (5:06)
-2.Black Velvet (5:22)
-3.Blue Sermon (7:43)
-4.Georgia On My Mind (6:55)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 01:12:30
+01. Wes Jeans feat. Tommy Katona - No Tears Left to Cry (4:14)
+02. Wes Jeans feat. Tommy Katona - Graceland (4:51)
+03. Me & My Woman (3:52)
+04. Wes Jeans feat. Tommy Katona - Dimples (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:15
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:227D86D46925AD706760C1761E786D008A689D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478057   (98647) от 04.04.2012
+###  Публикация: 1761278   (103056) от 19.11.2024
 
-9-мм самозарядный пистолет для бесшумной и беспламенной стрельбы. Краткое руководство службы. [1984] [PDF]
+Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Разное (категория книг)
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98647.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящее Краткое руководство службы является руководством при изучении и эксплуатации 9-мм автоматического пистолета для бесшумной и беспламенной стрельбы.1984Формат: PDF
+01. Made Of Metal 04:12Жанр: Heavy Metal, Hard RockПродолжительность: 00:04:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91946F98FBE48EAAAB71E1252C8BACD850FA853C
+magnet:?xt=urn:btih:E8DEA9E063467D0F6597B31871BC2C6FFA3A85C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,26 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477515   (98646) от 04.04.2012
+###  Публикация: 1761289   (103055) от 19.11.2024
 
-Микки Спиллейн | Змея [1992] [MP3]
+Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal, Technical Death Metal>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98646.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия: Майк Хаммер
-Оригинальное название:1992Жанр: Детектив
+01. Stelae of Vultures
+02. Chapter for Not Being Hung Upside Down on a Stake in the Underworld and Made to
+Eat Feces by the Four Apes
+03. To Strike with Secret Fang(   Читать дальше...   )Жанр: Brutal, Technical Death MetalПродолжительность: 00:53:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F5E3B0CFBD79BDDBA397B968D1B48B0F7993900
+magnet:?xt=urn:btih:5F4BFCBD401D9D3DC51BA5CFBCE4FC8CC7F383AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,29 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477867   (98644) от 04.04.2012
+###  Публикация: 1761359   (103054) от 19.11.2024
 
-[Wallpapers] Desktop Wallpapers Pack 38
+Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98644.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 38 
-Название:  Desktop Wallpapers Pack 38 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 4486х3163
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Attention Whore
+02. No Fucking Way
+03. Do Not Think / Do Not Act
+04. Shitstorm(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:29:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB1084DFC8BA8E065E2EB7FF3D51BF9F08D9CE36
+magnet:?xt=urn:btih:2B4226FAB63F63ECA714772D024148D8509EC455
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,25 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478052   (98642) от 04.04.2012
+###  Публикация: 1761590   (103053) от 21.11.2024
 
-К жизни вечной (2008) DVDRip
+About Us - Take A Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98642.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Праведный Симеон Верхотурский родился в начале XVII века в европейской части России в семье благочестивых дворян. Повинуясь Божественному водительству, он оставил почести и земное богатство и удалился за Урал. В Сибири праведный Симеон жил как простой странник, скрывая свое происхождение. Чаще всего он посещал село Меркушинское, находившееся недалеко от города Верхотурья, где молился в деревянной церкви.Жанр: ДокументальныйРежиссер: студия "Мост"Продолжительность: 00:20:05
+01. Come To You (3:53)
+02. Endure (3:45)
+03. Legion (3:29)
+04. Fire With Fire (4:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87CA956ED5C49574A4BFDF1706508C44ACF5F8F7
+magnet:?xt=urn:btih:939CB4B52D2F7A9FE4AEAB78695C5FECF3B54A86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,29 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477876   (98641) от 04.04.2012
+###  Публикация: 1761582   (103052) от 21.11.2024
 
-[Wallpapers] Full HD Wallpapers Pack 5
+Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98641.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Full HD Wallpapers Pack 5 
-Название:  Full HD Wallpapers Pack 5 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Without You Here (2:23)
+02. Think Twice (3:44)
+03. At Least We’re Dreaming (4:09)
+04. Still Here Waiting (2:16)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:44:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:199907B1F2C6DC610997F8E26891E5BD6CB59C8A
+magnet:?xt=urn:btih:57EFC4E0A418213D232CFB1159E2B9B3BF7A31EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,29 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477730   (98639) от 04.04.2012
+###  Публикация: 1761598   (103051) от 21.11.2024
 
-Пойманный в раю / Trapped in Paradise (1994) DVD5
+Suat Ernur Bilge - Troubled Sadness (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98639.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Маленький провинциальный городок под названием «Рай», канун Рождества. Бил Фирпо, человек честный, приезжает сюда по делу с двумя только что вышедшими из тюрьмы братьями — хитрецом Дэйвом и клептоманом Элвином.
-
-Когда братья решают ограбить местный банк, Билу не удается их отговорить. К тому же дело на редкость простое и «верное«: в здании отсутствует охрана и сигнализация. И, как ни странно, затея удается.
-
-Но сразу же возникает проблема посерьезней: как выбраться из маленького городка с большой добычей, если полиция уже поднята на ноги?Жанр: Комедия, Криминал, ПриключенияРежиссер: Джордж ГаллоАктеры: Николас Кейдж, Джон Ловиц, Дэна Карви, Ричард Б. Шалл, Медкен Эмик, Джек Хеллер, Флоренс Стэнли, Дональд Моффет, Майк СтейнерПеревод: Многоголосый закадровыйЯзык субтитров: английский, польский, румынский, русский, украинскийПродолжительность: 01:46:46
+01. Resist (3:16)
+02. Break these chains now (3:13)
+03. There is no tomorrow (3:11)
+04. Fake world (2:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:50FE561EF3FDE75054E7FF69330D3E4DCCBB1EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,29 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478276   (98637) от 04.04.2012
+###  Публикация: 1761479   (103050) от 21.11.2024
 
-[Wallpapers] Magnificent Airplanes HD Wallpapers №1
+Sylvaine - Silent Chamber, Noisy Heart (2014) Remasteredб 2024, Eisenwald [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doomgaze, Shoegaze, Atmospheric Black Metal>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98637.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Magnificent Airplanes HD Wallpapers №1
-Название: Magnificent Airplanes HD Wallpapers №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Sylvan (Remastered) [00:02:47]
+02. It Rains in My Heart (Remastered) [00:06:02]
+03. Silent Chamber, Noisy Heart (Remastered) [00:06:32]
+04. Тоска (Remastered) [00:04:18](   Читать дальше...   )Жанр: Doomgaze, Shoegaze, Atmospheric Black MetalПродолжительность: 00:59:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9E4CB1A398561BEA947286644492456265812AF
+magnet:?xt=urn:btih:75D94064AD9272009297A550BDB51F77DCDA9D20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +285,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475793   (98632) от 04.04.2012
+###  Публикация: 1761512   (103049) от 21.11.2024
 
-[EN] Вернись, малышка Шеба / Come Back, Little Sheba (1952) DVDRip
+Живая лестница / De levende ladder (1913) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98632.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сентиментальные, с некоторым оттенком сожаления, мечты и воспоминания женщины-домохозяйки Лолы Делани (Ширли Бут) о том далеком, и, к сожалению, уже невозратном прошлом, где она - молодая, красивая девушка, а её вечно пьяный супруг - красавец-мужчина (Берт Ланкастер).Жанр: ДрамаРежиссер: Дэниэл МаннАктеры: Берт Ланкастер, Ширли Бут, Терри Мур, Ричард Джэкел, Филип Обер, Эдвин Макс, Лиза Голм, Уолтер Келли, Нед Глэсс, Уильям Хааде, Вирджиния Холл, Энтони Джоким, Питер Лидз, Китти МакХью, Пол МакВей, Вирджиния МалленПеревод: ОтсутствуетЯзык субтитров: РусскиеПродолжительность: 01:32:00
+Романтическая драма с голландской дивой раннего кинематографа: Энни Бос. Энни влюбляется в циркового клоуна, но родители запрещают ей быть с ним. Жених - клоун! Разве такого мужа они желали дочери? Завидной партией клоуна не назовешь. Но у цирковых есть и неоспоримые достоинства - они традиционно очень сплоченные, сильные, ловкие и решительные люди. И они докажут (   Читать дальше...   )Производство: Нидерланды / N.V. Maatschappij voor Artistieke CinematografieЖанр: короткометражный, мелодрама, драма, немое киноРежиссер: Мауриц Бингер, Louis H. ChrispijnАктеры: Энни Бос, Алекс Бенно, Koba Kinsbergen, Barend Barendse, Луис БоувмеестерПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:24:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D903726D14975E06D9DC916D87A9A09CFBA1534B
+magnet:?xt=urn:btih:3719F260D10127E65FC18A664AF44EF9A858196C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,26 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477857   (98631) от 04.04.2012
+###  Публикация: 1761595   (103048) от 21.11.2024
 
-Собака кусает собаку / Gau ngao gau (2006) DVDRip
+Juan Raul Rosero - Everything is Possible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98631.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Гонконг приезжает тайский киллер — молодой парень, выросший среди убийц в мире, где за кусок хлеба перегрызают горло. Его цель — пожилая женщина, которую «заказал» ее собственный муж. Задание выполнено, и по следам убийцы бросаются гонконгские полицейские, однако первое столкновение копов с ним приводит к нескольким трупам.
-  Чем ближе детективы подбираются к «гостю», тем отчаяннее тот сопротивляется, безжалостно уничтожая все преграды на своем пути. Но и у него есть слабое место — несчастная девушка, которую парень подобрал на свалке.Жанр: Боевик, триллер, драма, криминалРежиссер: Поу-Сои ЧингАктеры: Эдисон Чен (Pang), Сэм Ли (Insp. Ti Wai), Weiying Pei (Yu), Siu-Fai Cheung (Chief Insp. Sum), Yiu-Cheung Lai (Insp. Tang Wing Cheung), Сует Лам (Insp. 'Fat' Lam), Ка Ва Лам (Insp. Ti - Wai's Father), Хо Ям (Mr. Lee), Kam-wah Koo, Аск Ли (Ben), Чи Вэй Лао (Internal Affairs Officer), Ка Уинг Ли (Taxi Driver)Перевод: Одноголосый закадровыйПродолжительность: 01:48:33
+01. This is Sparta (2:16)
+02. The Triathlon Anthem (3:15)
+03. Now or Never (3:06)
+04. Resilience Warrior (2:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51E362DBF18566C102C8C14922124EF3745CD99F
+magnet:?xt=urn:btih:E9DDC0DD71B609B6221C27DB8B91B54F9C85113A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476237   (98630) от 04.04.2012
+###  Публикация: 1761600   (103047) от 21.11.2024
 
-Джонни Белинда / Johnny Belinda (1948) DVDRip
+Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98630.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Островок у северного побережья новой Шотландии — это всего лишь клочок земли, торчащий из вод Атлантики, куда попасть можно только морем, и только с опытным лоцманом, способным провести судно через мели, особенно в летний шторм. Поселок там совсем небольшой: есть маяк и церковь, которой гордятся все жители, построенной на их сбережения. Их фермы не приносят большого дохода, но в рыбный сезон все приходит в движение, а гавань заполняется лодками и оживает. Именно сюда «на край земли» прибывает молодой доктор Роберт Ричардсон.Жанр: ДрамаРежиссер: Жан НегулескоАктеры: Джейн Уаймэн, Лью Эйрз, Чарльз Бикфорд, Агнес Мурхед, Стефен МакНалли, Джен Стерлинг, Розалинд Иван, Дэн Сеймур, Мэйбл Пейдж, Ида Мур, Алан Напье, Барбара Бейтс, Монте Блу, Джеймс Крэвен, Франклин Фэрнум, Крейтон Хейл, Джонатан Хейл, Холмс Херберт, Чарльз Хорват, Дуглас Кеннеди, Рэй Монтгомери, Снуб Поллард, Джефф Ричардс, Йен Вульф, Джоан Винфилд, Фредерик УорлокПродолжительность: 01:42:17
+1. Violent Vanity
+2. Ghost Of Disease
+3. Rebirthless
+4. Painted Cruelty(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F11CAB4E9A1AD38BD94D4B65E21A86302C6E90FD
+magnet:?xt=urn:btih:458A97D6EA5FC17FFF5E6B84BCB71151FA053052
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476944   (98628) от 04.04.2012
+###  Публикация: 1761714   (103046) от 21.11.2024
 
-[Wallpapers] Обои для рабочего стола
+Marco Grompi & Michele Fortis - WINTERFLOWERS (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98628.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола,  в темных тонах
+01. AIMLESS BLUES (4:30)
+02. MICHELE FORTIS & Marco Grompi - LITTLE FLOWER (7:08)
+03. TO FILL MY SOUL (4:52)
+04. LEVEL CROSSING (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F606D5A64ED6957F6F464140E39C90E980E74BDF
+magnet:?xt=urn:btih:E6F2C98EA45BCC79A231A550C753BF1AD6CB8DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476218   (98625) от 04.04.2012
+###  Публикация: 1761871   (103045) от 22.11.2024
 
-[Wallpapers] Обои для рабочего стола
+Wako - Evig liv, perfekt orden (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98625.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка обоев различной тематики(природа,животные,креатив),хорошего качества.
+01. Folk (1:41)
+02. Drifting (5:36)
+03. Homemade (4:40)
+04. Amerika (4:11)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:38:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFB793A0AC39AFEA0A462D305A7AD6D720A42E06
+magnet:?xt=urn:btih:5B9C0C6DBC747C586D22F25C9A1133620353F7E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,31 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477900   (98623) от 04.04.2012
+###  Публикация: 1761867   (103044) от 22.11.2024
 
-Журнал | Золотая коллекция рецептов № 22. Сытные блюда без вреда для фигуры [март 2012] [PDF]
+The San Pedro Allstars feat. Reed Turchi, Austin White, Marlon Patton & Eric Burns - Stress 'N' Grits (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98623.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Золотая коллекция рецептов» - это журнал, созданный по лучшим рецептам читателей.
-В этом номере вы найдете вкуснейшие блюда:
-• Селедочный салат с хреном
-• Грибы тушеные с помидорами
-• Закуска «Посейдон»
-• Рассольник грибной
-И множество других вкуснейших рецептов.март 2012Формат: PDF
+01. Ayahuasca Old Fashioned (3:55)
+02. Stress 'N' Grits (3:30)
+03. Going Down South (5:07)
+04. Ima Bore (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBEEF150A9C5A3A98661B7ABA9A10A639E4BD5BF
+magnet:?xt=urn:btih:0416F38D80B70AD10194CB11C1DC3EA974C3D6E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,29 +456,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478269   (98622) от 04.04.2012
+###  Публикация: 1761858   (103043) от 22.11.2024
 
-[Wallpapers] Girls Desktop Wallpapers №2
+Staples Jr. Singers - Searching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Soul>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98622.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers №2
-Название: Girls Desktop Wallpapers №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 3000х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Staples Jr. Singers feat. Annie Brown Caldwell - Living In This World Alone (3:01)
+02. Lost In A World Of Sin (4:02)
+03. You Got To Believe (3:09)
+04. Walk Around Heaven (3:35)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:30:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BC8B59928483340258BE13B43B83BE255EB007F
+magnet:?xt=urn:btih:9A085D25F39B907203629C6428CC6B1062DA6F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,25 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477997   (98620) от 04.04.2012
+###  Публикация: 1761660   (103042) от 22.11.2024
 
-[Wallpapers] Обои для рабочего стола
+Silent Winter - Utopia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
 
->>
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98620.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивые девушки на рабочий стол.
+01. We Burn The Future (4:43)
+02. Hellstorm (4:33)
+03. Hands Held High (6:45)
+04. Reign Of The Tyrants (4:53)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:47:34
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E3C8C3F56B28E5ED17EC40596D9E3D82C7CCB799
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,34 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477692   (98618) от 04.04.2012
+###  Публикация: 1761646   (103041) от 22.11.2024
 
-VA - Coca-Cola Music Чарт 1 (2012) [MP3|256 kbps]<Pop | Dance>
+Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Progressive Rock>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98618.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Бурановские бабушки - Party For Everybody (Eurovision 2012)
-002 Akki Feat. Jodie - Russian Love (Radio Edit)
-003 Глюкоза - Кошка
-004 Mishelle feat. Randi - Feels So Good (Radio Edit)
-005 Дима Билан и Юлия Волкова - Back To Her Future
-006 Morra - One Love (Radio Edit)
-007 Елка - Знаки вопроса
-008 Dappy feat. Brian May - Rockstar
-009 Наталья Подольская Интуиция
-010 Chris Garcia feat. Sherry St Germain - I Rock Alone(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:52:00
+01. Exordium (0:52)
+02. Departed (6:15)
+03. Calypso - Queen of the Sea (4:17)
+04. Hidden (6:20)(   Читать дальше...   )Жанр: Heavy Psychedelic, Progressive RockПродолжительность: 00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11E4D48B15074D9357CE2C0E439352E11A1891EF
+magnet:?xt=urn:btih:F407291BE0BD009E04AF1B1E98BEF0D1427F6C03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,33 +543,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477765   (98616) от 04.04.2012
+###  Публикация: 1761833   (103040) от 22.11.2024
 
-Paul Van Dyk - Evolution (2012) [MP3|192 кб/с]<Trance>
+Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98616.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Paul Van Dyk - Evolution (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:19:04
-Кодек: MP3
-Битрейт: 192 кб/с
-Тип битрейта: CBRТрек лист:
- 1. Symmetries (5:42)
- 2. The Ocean (6:09)(   Читать дальше...   )
+• 01. Ecclesia (1:07)
+• 02. Satana (4:39)
+• 03. Abaddon (3:54)
+• 04. Darklight (3:54)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:33:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:863CB93236779E63A3FB6C40D083921BD3663561
+magnet:?xt=urn:btih:2E958F5A24DD56C5875A09DAD155E4A4D6A9C508
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,25 +572,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478159   (98614) от 04.04.2012
+###  Публикация: 1761782   (103039) от 22.11.2024
 
-В. Курносов | Царское золото [2011] [PDF]
+Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock, Pop Rock>
 
->>Научная и техническая литература
->>Военная литература
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98614.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге содержится информация о 17815,147 кг золота. Эти тонны исчезли из хранилища Казанского отделения Народного банка России в августе 1918 года. Ценности до сих пор не обнаружены. В МВД существует оперативно-розыскное дело «Золотое руно»; часть информации на эту тему хранится под грифом «совершенно секретно». В настоящее время к поиску царского золота подключились и кладоискатели. Автор впервые приводит данные двух рассекреченных фондов Национального архива Татарстана. Исторический контекст событий, развернувшихся одновременно с работами по эвакуации золотого запаса, воспроизводится на основе мемуаров и трудов историков.2011Формат: PDF
+01. Lucky Street (4:14)
+02. Any Other Heart (3:52)
+03. Singing with the King (3:18)
+04. Strength to Stay (3:23)(   Читать дальше...   )Жанр: Аlternative Rock, Pop RockПродолжительность: 00:53:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48B8E2E7831F312603D95EB7001356DD39D10FE8
+magnet:?xt=urn:btih:32D6AA53BCF1DE1A2EFB4189B90444BBFFDC725C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,26 +601,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477754   (98613) от 04.04.2012
+###  Публикация: 1761864   (103038) от 22.11.2024
 
-С.Биддалф | Воспитание малышей. Нужны ли детям ясли? [2008] [Pdf]
+Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98613.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не стоит расстраиваться, если экономические соображения заставляют вас отправлять детей в ясли. Не расстраивайтесь, даже если автор говорит, что отказывая себе в близком общении с ребенком, мы воспитываем более холодное поколение, мало знакомое с чувством родственной близости. Ведь, в конце концов, не воспитатели и педагоги, а мы с вами отвечаем за будущее наших детей, и именно от нас зависит это самое будущее.
- Без обмана и преувеличений.Жанр: ВоспитаниеФормат: Pdf
+01. Link of Chain (3:56)
+02. No Love Today (4:56)
+03. Love You Like a Man (3:08)
+04. Mail Order Mystics (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7905F9043F1B46F021E0D06F843E8751338821D
+magnet:?xt=urn:btih:D1E515D01FB854F5B9C4B2EF00A365BD140F20AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,29 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477879   (98612) от 04.04.2012
+###  Публикация: 1761828   (103037) от 22.11.2024
 
-[Wallpapers] Full HD Wallpapers Pack 6
+Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop, Blues, Singer-Songwriter>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98612.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Full HD Wallpapers Pack 6 
-Название:  Full HD Wallpapers Pack 6 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+• 01. 25 Kisses (3:05)
+• 02. Someone Else (3:15)
+• 03. Irresistible (3:18)
+• 04. I'm Not Moving (3:37)(   Читать дальше...   )Жанр: Rock, Pop, Blues, Singer-SongwriterПродолжительность: 00:39:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B6B9AB43FC82340A30AC98BB7A54B9C9451BEB5
+magnet:?xt=urn:btih:9C65F129D7F36BD526E115F6CEF5A9587FFAEBD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,27 +659,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477510   (98611) от 04.04.2012
+###  Публикация: 1761770   (103036) от 22.11.2024
 
-Генри Слезар | Глория Мейсон больна [2008] [MP3]
+VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98611.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Захватывающий детектив с лихо закрученным сюжетом вышел в эфир передачи “Острый сюжет” на радио Культура 31 марта 2008 года.
-
-Почему я краду? Выросла в семье с достатком, в хорошем доме. Училась хорошо…2008Жанр: Детектив
+01. Chris Rebirth - Darkness (Original Mix) [7:44]
+02. Pete.M - Hydrogen (Original Mix) [7:18]
+03. GutterGizmo - Laune (Extended Mix) [7:02]
+04. Kvaii - Iridescent (POINoir Intro Remix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8951FFD738374506C71FCA41D120CBC84F8BF68
+magnet:?xt=urn:btih:1E623F5D8FB2553C4044CCD96D7E4358F5E083DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,25 +688,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477950   (98609) от 04.04.2012
+###  Публикация: 1761834   (103035) от 22.11.2024
 
-Шторм / Storm (2009) HDRip
+Kingcrown - Nova Atlantis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98609.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У Фредди отзывчивое сердце и однажды, когда он замечает собаку, с которой жестоко обращается владелец, он решается помочь псу. В тайне от отца Фредди приводит собаку домой, а вскоре обнаруживает уникальные способности у Шторма, именно так мальчик назвал своего любимца, тот может очень быстро бегать. Фредди приводит любимца на гоночный трек для собак, где на пса обращает внимание дрессировщик Софи, предлагающая мальчику помощь в подготовке к состязаниям. Но прежде Фредди придется решить проблемы с папой, который не хочет видеть собаку в доме, и с бывшим хозяином потенциального чемпиона.Жанр: Драма, СемейныйРежиссер: Джакомо КампеттоАктеры: Маркус Реннов, Кензо, Троелс Лайб, Кирстен Лехфилд, Серен Маллинг, Майл Динесен, Гордон Кеннеди, Ян ГинтбергПеревод: Любительский одноголосыйОзвучка: Хуан РохасПродолжительность: 01:26:59
+01. The Magic Stone (3:29)
+02. Nova Atlantis (5:21)
+03. Real Or Fantasy (4:17)
+04. Guardian Angels (4:06)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0596D6B99F01021D9C87C53FF0B1B3CEE4013C4
+magnet:?xt=urn:btih:66CF2A616A5C460DDA90C6F65374C2F55B9A1B14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -709,34 +717,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477703   (98608) от 04.04.2012
+###  Публикация: 1761869   (103034) от 22.11.2024
 
-VA - Весенний Кураж Европы Плюс (2012) [MP3|256 кб/с]<Pop>
+Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98608.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Арина И Размер Project - Россия Рулит!
-02. Gilles Luka Feat Niusha - Plus Pres
-03. Дима Билан И Юля Крылова - Слепая Любовь
-04. Sasha Lopez - All My People (Radio Version)
-05. Маша Пирожкова - Новый Год Будет Классным!
-06. Radio Killer - Lonely Heart
-07. Потап И Настя Каменских - Если Вдруг (Aleksey Kraft Radio Mix)
-08. Camille Jones - The Truth (7Th Heaven Radio Edit)
-09. 5Ivesta Family - Тук-Тук (Alex Menco Remix)
-10. Pulsedriver - Vagabonds2012Жанр: PopПродолжительность: 06:10:58
+Power Trip — американская трэш-метал-группа из Далласа, основанная в 2008 году.2013 - Manifest Decimation
+2017 - Nightmare Logic
+2018 - Opening Fire - 2008-2014Жанр: Thrash Metal/CrossoverПродолжительность: 01:47:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31C294B1EC11B59BEFE9556AA9E42A30F8E9E080
+magnet:?xt=urn:btih:7D3FD0D0A40BF95866EAA684491E2190A4677C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

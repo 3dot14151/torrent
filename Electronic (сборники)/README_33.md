@@ -1,3 +1,61 @@
+###  Публикация: 1100793   (897910) от 05.02.2017
+
+VA - Deep House Collection Vol.107 (2017) [MP3|272-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897910.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2owl - Girl (Original Mix) 4:49
+002. 5prite & Umid - Check (Original Mix) 6:20
+003. 98U - Exceed (Solemn Eye Remix) 8:40
+004. Abriviatura IV, TeckSound - Real In My Dreams (Original Mix) 6:00(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F3D890363C4B3C1E2695EE457A074C8E0AB07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101095   (897847) от 05.02.2017
+
+VA - Record Super Chart #473 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ofenbach & Amice - Be Mine (Amice Remix)  3:23
+02.  Consoul Trainin & Amice - Take Me To Infinity (Amice Remix)  4:44
+03.  Грибы - Копы (Vincent & Diaz Remix)  4:10
+04.  Clean Bandit & Sean Paul ft. Anne-Marie - Rockabye (Denis First Remix)  4:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD85253C77CA33CA7845E9D1583F9EDE290B75E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993156   (897769) от 04.03.2016
 
 VA - Tropical Beach: Ibiza Progressive Trance (2016) [MP3|320 кб/с] <Progressive Trance, Club, Electro>
@@ -705,64 +763,6 @@ VA - Chillout: Herbal Relaxer Session (2021) [MP3|320 Kbps] <Chillout, Lounge, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E74C5AA06D6A04E135942EEC829480628E221A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493747   (893822) от 04.09.2021
-
-VA - Peak Time: Techno Party (Vol.02) (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893822.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drewtech - Fight
-002. Skirra - Never Again
-003. Q-Green - Novel
-004. Canosa - The Rider(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC033968278B66F9F3A187A331B42AFD4B19CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493759   (893770) от 04.09.2021
-
-VA - Vocal Chillout Music: Romantic Collection (2021) [MP3|320 Kbps] <Vocal, Chillout, Lyric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boyz Ii Men - Why Christmas
-002. Seawayz & Sollito - Serenade
-003. Brijean - Wifi Beach
-004. Kina feat. Yaeow - Wish I Was Better(   Читать дальше...   )Жанр: Vocal, Chillout, LyricПродолжительность: 06:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DE5D2BDFA22CFB2808E6E15EE7BFD1B000C9AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

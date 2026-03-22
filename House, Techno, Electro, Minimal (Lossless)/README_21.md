@@ -1,3 +1,61 @@
+###  Публикация: 1275941   (789043) от 14.01.2019
+
+Ross From Friends - Family Portrait (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Lo-Fi, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Birthday Nick
+02. Thank God I'm A Lizard
+03. Wear Me Down
+04. The Knife(   Читать дальше...   )Жанр: House, Deep House, Lo-Fi, Tech HouseПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32C711E3DF7379C410554488CC96E27A9601D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276178   (789039) от 14.01.2019
+
+VA - Mama Thresl, Vol.1: Urban Soul meets the Alps (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Mountain - Deep Intro (feat Malou) [01:13]
+02. Satori - Days Without You (feat Miou Amadee - Crussen remix)[11:25]
+03. Escenda - Out Of Moves [05:08]
+04. Terranova - Prayer (feat Nicolette Krebitz & Udo Kier - Gui Boratto mix)[06:48](   Читать дальше...   )Жанр: Deep House, Tech House, DownbeatПродолжительность: 02:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D44BC8ED1B71DBC4B6BE3E334EF0C76B1471DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203081   (788668) от 01.02.2018
 
 VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -686,64 +744,6 @@ VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205242   (783787) от 09.02.2018
-
-VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax – Landside (Original Mix) (6:07)
-02. Arty – Twilight Tonight (Steve Brian Remix) (2:57)
-03. Johan Vilborg – Bside Me (Original Mix) (3:21)
-04. Clameres – Mocsa (Original Mix) (3:38)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE641DDDAD3F0EE9776F968EFB9D60ACD0A60085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204921   (783781) от 09.02.2018
-
-VA - Defected Presents Classics In The House (2009) [FLAC|Lossless|tracks] <House, Disco, Hip-House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blaze; Ultra Nate  - Free (Mood II Swing Extended Vocal Mix) (4:43)
-02.Barbara Tucker - Most Precious Love (DF Future 3000 Mix) (5:50)
-03.Palmer Brown; Patrice Rushen - Haven't You Heard (4:04)
-04.Jon Cutler - It's Yours (Original Distant Music Mix) (3:25)(   Читать дальше...   )Жанр: House, Disco, Hip-HouseПродолжительность: 03:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1167E73609D457E9F5AF14DD965484636050A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

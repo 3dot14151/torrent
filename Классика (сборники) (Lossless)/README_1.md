@@ -315,6 +315,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529003   (733524) от 04.02.2022
+
+VA - 30 Most Beautiful Pieces of Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orquesta Reino de Aragón Ricardo Casero - Adagio for Strings
+02. Metamorphose String Orchestra Pavel Lyubomudrov Denis Linnik - Piano Concerto No. 1, Op. 15: II. Adagio
+03. Metamorphose String Orchestra Pavel Lyubomudrov - Pictures at an Exhibition: No. 2, Il vecchio castello (Arr. for Orchestra)
+04. Metamorphose String Orchestra Pavel Lyubomudrov Mikael (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116DC61C5D18F24B775E26E7FFAF9FABDF8EB209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 74433   (693618) от 18.08.2020
 
 Telarc: Sampler Five Plus, Sound Effects Library [1996] [flac] <Classical>
@@ -745,35 +774,6 @@ Orchestra – Budapest Philharmonic Orchestra Written-By – Massenet(   Чит�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BF198D54050AAE1F29390D91B3412EEB76E5C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244137   (481795) от 01.09.2018
-
-VA - Russian Legends (Legendary Russian Soloists Of The 20-th Century) (100 CD  Box Set) (2007) [WavPack|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481795.jpg" />
-</div>
-
-
-###  Подробнее
-
-LUDWIG VAN BEETHOVEN (1770-1827)
-PIANO SONATA in E minor Op. 90
-1. Mit Lebhaftigkeit und durchaus mit Empfindung und Ausdruck 5:47
-2. Nicht zu geschwind und sehr singbar vorzutragen 6:41(   Читать дальше...   )Жанр: ClassicalПродолжительность: 108:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADDA14C042B35AA2D3A53F7A4E7D946686F13E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

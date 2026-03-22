@@ -1,3 +1,137 @@
+###  Публикация: 500310   (257187) от 23.05.2012
+
+Regina Spektor - What We Saw From The Cheap Seats (2012) [MP3|320 кб/с]<Indie, Piano, Pop, Folk, Singer-Songwriter, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257187.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Small Town Moon
+2. Oh Marchello
+3. Don't Leave Me (Ne Me Quitte Pas)
+4. Firewood
+5. Patron Saint
+6. How
+7. All The Rowboats
+8. Ballad Of A Politician
+9. Open
+10. The Party(   Читать дальше...   )Жанр: Indie, Piano, Pop, Folk, Singer-Songwriter, Female VocalПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE5979D6D5A9820496F2F036005EFAAEA2F32EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499452   (257002) от 22.05.2012
+
+Скрябін (Скрябин) - Радіо любов (2012) [MP3|320 кб/с]<Alternative Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Говорили і курили (03:33)
+02. Не думай про завтра (04:36)
+03. Місця щасливих людей (05:31)
+04. Сліди (02:52)
+05. Мам (04:50)
+06. Ніби в раю (03:53)
+07. Радіо Любов (04:34)
+08. Тримай її за руку (04:53)
+09. А під Новий Рік (03:46)
+10. Історії двох (03:26)2012Жанр: Alternative PopПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E5AA0D4E07B62E8E47B7FC3469305CB3FCB8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837218   (256588) от 15.11.2025
+
+VA - The 80’s Greatest Hits (2008) 3 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bangles - Walk Like An Egyptian     03:25
+ 02. Big Audio Dynamite - E=Mc2     04:30
+ 03. Nena - 99 Red Balloons     03:51
+ 04. Bomb The Bass - Beat Dis     03:22(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 03:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB73509E5999B35A5D2BD024ED73FDB9B922EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499437   (256451) от 21.05.2012
+
+VA - Ils Chantent Dalida (2012) [MP3|320 кб/с]<French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pour ne pas vivre seul (Christophe Willem)
+02. Paroles, paroles (Zap Mama-Vincent Cassel)
+03. Fini la comedie (Helene Segara)
+04. Parle plus bas (Patrick Fiori)
+05. Il venait d'avoir 18 ans (Lara Fabian)
+06. Dernier baiser (besame mucho) (Christophe)
+07. A ma maniere (Amel Bent)
+08. Histoire d'un amour (Dany Brillant)
+09. Que sont devenues les fleurs (Max Guazzini)
+10. Bambino (Amanda Lear)(   Читать дальше...   )Жанр: French PopПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1EB39EC8537BDD61BDD0CDFF32DCE43B9E2F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499444   (256425) от 21.05.2012
 
 Tom Jones - Spirit in the Room (2012) [MP3|320 кб/с]<Pop-Rock>
@@ -638,122 +772,6 @@ VA - Now Yearbook Extra '79 (67 More Essential Hits From 1979) (2022) 3 CD [OGG 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C873EB9CBB79A04C1F27769E882215ABEF94085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620821   (245826) от 22.03.2023
-
-VA - Italo Dance Classics Volume 4 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Righeira - Vamos A La Playa
-02. P. Lion - Happy Children
-03. Valerie Dore - The Night
-04. Tullio De Piscopo - Stop Bajon(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BC84AC414282C5E93C233F94DA0356AC5D60F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608743   (245534) от 31.01.2023
-
-Gerard Joling - No More Boleros (1989) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. The Tears Inside
-02. Lovin' You Is Easy
-03. Let This Night Last Forever(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30675E517B00B6C04A5B2F09C87C42D1B7F1CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631026   (245162) от 04.05.2023
-
-VA - Mellow Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Dreams (2018 Remaster)
-02. Simply Red - Holding Back the Years
-03. Gerry Rafferty - Right Down the Line
-04. Carly Simon - You're So Vain(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275AF1AD4B24E59384BB8EFA03298F63A37BD2A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266150   (245056) от 01.12.2018
-
-VA - Megahits 2019 - Die Erste (2018) 2CD [MP3|320 Kbps] <Pop, Indie, Alternative>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245056.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Robin Schulz Feat. Erika Sirola - Speechless
-02. Calvin Harris And Sam Smith - Promises
-03. Alle Farben - Fading(   Читать дальше...   )Жанр: Pop, Indie, AlternativeПродолжительность: 02:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E08CAA7FBF6B32429887F0F8193E1A1E087ADF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 578868   (350210) от 22.11.2012
+
+VA - The Official UK Top 150 Best-selling Singles Of The 21st Century (2000-2012) [MP3|320 кб/с]<Pop, Rock, Dance, RnB, TOP>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блуждая по просторам Википедии наткнулся на страничку "List of best-selling singles of the 21st century (UK)". Оказывается, компанией "Official Charts Company" ведется перечень самых продаваемых синглов недели Великобритании. С 2005 года топ был основан на продажах синглов как на физических, так и на цифровых носителях, при условии, что сингл (   Читать дальше...   )Жанр: Pop, Rock, Dance, RnB, TOPПродолжительность: 09:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C8D3CE6E954A883857EBFF5CF49962D3D04E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329387   (350027) от 06.10.2019
+
+VA - Dj Nejtrino: Remixes (2019) bootleg [320 kbps|Mp3|CBR]<Pop, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Artik & Asti -  Номер 1 (Nejtrino & Baur Radio Mix)  (3:10)
+2.  A-Sen & Samoel -  Сладкие ночи (Nejtrino & Baur Radio Mix)  (3:19)
+3.  A-Sen feat DJ Nejtrino & DJ Baur -  Я Рисую (Radio Edit)  (3:47)
+4.  Burito -  По волнам (Nejtrino & Baur Radio Mix)  (3:04)(   Читать дальше...   )Жанр: Pop, Club, HouseПродолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB8807D44494E0741C3BF8E4D5BA90F7C301156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329337   (349997) от 06.10.2019
+
+VA - DJ Ramirez: Remixes (2018 - 2019) bootleg [320 kbps|Mp3|CBR]<Pop, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  #2Маши -  Инея (Ramirez & D. Anuchin Radio Edit)  (3:45)
+2.  #2Маши -  Красное Белое (Rakurs & Ramirez Radio Edit)  (3:26)
+3.  Doni feat. Артур Пирожков -  Моя богиня (Rakurs & Ramirez Radio Edit)  (3:59)
+4.  GAZIROVKA -  Black 2.0 (Rakurs & Ramirez Radio Edit)  (3:33)(   Читать дальше...   )Жанр: Pop, Club, HouseПродолжительность: 01:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC05F000621DC5CD450DB443F2CA46519B34CAAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072732   (349995) от 14.11.2016
+
+VA - Осенняя Хит Атака Выпуск 50х50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349995.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Ellen Weller - Чувствуешь 3:56
+002.Jadakiss & Styles P & Pusha T - Everyday 4:36
+003.Нашеvremя - Химия 2:55
+004.Потап & Настя - Золотые Киты 2:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0889F1F32003726DE38B81B9E4005CA7D7E53C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072949   (349852) от 14.11.2016
+
+VA - Музыкальные новинки mp3. Версия 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349852.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Витольд Петровский - Память Из Прошлого 3:26
+002.Alunageorge - Hold Your Head High 4:00
+003.Shami Feat. Арни Saveolla - Танцуем 5:13
+004.Deorro - Goin Up 4:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07EF648759E953AE7112F864CED7EA4EE658D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072736   (349850) от 14.11.2016
+
+VA - А у нас все пучком с Русским радио (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Потап и Настя - Я…Я и другие
+002. Dj Jedy Feat. Олеся Май - Сказка
+003. Mirra - Всерьез
+004. Olisha - Дай Мне(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3DB4B7B75123EBD233BB420188DDB04DDC158E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256948   (349547) от 24.10.2018
 
 VA - Русское Радио. Лучшее (10.2018) от DON Music (2018) [MP3|320 Kbps] <Поп>
@@ -577,180 +748,6 @@ VA - Горячие осенние новинки. Русская версия (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0512F1E0B5901D35B80732C6B31C13D875835F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073935   (340740) от 18.11.2016
-
-VA - Горячие Осенние Новинки 50х50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340740.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.The Chainsmokers Feat. Xylo - Setting Fires 4:08
-002.David Archuleta - Numb 3:41
-003.Татьяна Маргай - Обними 4:09
-004.Liz Elias Feat. Flo Rida - At Night 3:41(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C57D7035B6DB3648724A220E5F4FE252049F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073926   (340739) от 18.11.2016
-
-VA - Мега хитовая осень на Europa Plus - 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340739.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Tut Tut Child Feat. Holly Drummond - Fell Down 4:42
-002.Таня Герман - Эмоции Мысли 3:20
-003.Пропаганда - Наша Песня 3:20
-004.Илья Подстрелов (Faktor-2) - Ути Моя Маленькая 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9B4000CDFE26387B863F404BEB7026BCE339E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257846   (340497) от 28.10.2018
-
-VA - Громкие новинки месяца Vol.15 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Луна - Ангел 3:50
-002. Элджей - Vrum Vrum 4:00
-003. L'One - Весь мир для нас 4:12
-004. Ёлка - Где ты 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4680BB130E4589EA56FA88FFB37B3D92EFECA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074028   (340366) от 18.11.2016
-
-VA - Осторожно!!! Лавина хитов (2016) [MP3|256~320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340366.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sia - Never Give Up 3:42
-002. Татьяна Решетняк - Осень 3:29
-003. Hann - Я Тебя Приму Любой 2:58
-004. Brandon Stone & Вахтанг - Она 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA412DD8F14F1235DF78E3A3DF034D63A132B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954543   (340107) от 08.11.2015
-
-VA - Feuerwerk der Schlagerhits (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foxpiraten - Sommer in der Stadt (04:15)
-02. Ben Luca - Weil man dich lieben muss (03:39)
-03. Rene Christian - Manchmal weint auch ein Mann (03:23)
-04. Lea Marie Kaiser - Du hast mein Herz (Heuf Nacht beruhrt) - Radio Mix (03:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAECD8EAED6489E036DEA192E5A4ED45D5214E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180494   (340028) от 04.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 004 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Приступко Алексей - Слышишь, Маша ( 1991 )
-02. DJ Вовочка - Бамбарбия ( 1998 )
-03. Жуков Рома - Девчонки, Мои Девчонки ( Remix 2000 )
-04. Флаерс - Карие Глаза ( 1992 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA8FFBE8177908EFABCFB139DF5208855012D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

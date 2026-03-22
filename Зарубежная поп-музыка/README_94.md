@@ -1,3 +1,119 @@
+###  Публикация: 1764356   (35010) от 06.12.2024
+
+Roxette - Crash! Boom! Bang! (1994) 30th Anniversary Edition, Reissue, 2024, Warner Music Sweden [MP3|320 Kbps] <Pop, Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harleys & Indians (T&A Demo Aug 10, 1993) [00:03:26]
+02. Crash! Boom! Bang! (T&A Demo May 6, 1993) [00:04:14]
+03. Fireworks (T&A Demo Jan 30, 1993) [00:03:30]
+04. Run To You (T&A Demo Dec 12, 1992) [00:03:44](   Читать дальше...   )Жанр: Pop, Rock, Pop RockПродолжительность: 2 CD, 02:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E1E3F78581621C6D7FD0B0951841989B1EDA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765318   (34403) от 12.12.2024
+
+VA - BRAVO - The Hits 2024 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - Birds Of A Feather (3:30)
+02. Chappell Roan - Good Luck, Babe! (3:36)
+03. Djo - End Of Beginning (2:39)
+04. Hozier - Too Sweet (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862BC665E5B83EE92793FDA8D0D086A9C7AF4CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766230   (33871) от 17.12.2024
+
+VA - 10's Nostalgia Best from the Tens (2024) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Thinking Out Loud - (04:42)
+ 02. Dua Lipa - Don’t Start Now - (03:03)
+ 03. Jason DeRulo - Want to Want Me - (03:26)
+ 04. Coldplay - A Sky Full of Stars - (04:28)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D657B4EF033C2C575704833A549E6D1E7848614B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766303   (33865) от 17.12.2024
+
+VA - 10s Hits - Best 10s Music (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Locked Out of Heaven - (03:54)
+ 02. Ed Sheeran - Shape of You - (03:54)
+ 03. Coldplay - A Sky Full of Stars - (04:28)
+ 04. Lil Wayne - Sucker for Pain (feat. Logic, Ty Dolla sign & X Ambassadors) - (04:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AB2DCDA4FF638C225D0450B04BA8BE24C3A6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766333   (33807) от 18.12.2024
 
 VA - 10s - 100 Best (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -629,122 +745,6 @@ VA - Black '80 (2004) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Soul, Funk, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D1168FEC925C323C28236021599E9C194B4783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782619   (26038) от 01.03.2025
-
-VA - One Shot '80 (1998) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop, Synth-pop, Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Buggles - Video Killed The Radio Star
-02. Kajagoogoo - Too Shy
-03. Haven 17 - Let Me Go
-04. Industry - State Of The Nation(   Читать дальше...   )Жанр: Funk / Soul, Pop, Synth-pop, Ballad, DiscoПродолжительность: 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD766F152E0C85C39889B26B00ECCE6287068F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782633   (26036) от 01.03.2025
-
-VA - One Shot '80 Volume 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Propaganda - Duel
-02. Talk Talk - It's My Life
-03. Kissing The Pink - One Step
-04. The Twins - Face To Face, Heart To Heart(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004B8D97476D2B7C2F280E067A98FDFC884CC368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783109   (25719) от 04.03.2025
-
-VA - One Shot '80 Volume 8 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys Town Gang - Can't Take My Eyes Off You
-02. Modern Talking - Cheri Cheri Lady
-03. Imagination - Just An Illusion
-04. Gilbert Montagne' - Just For Tonight(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072BA1A8DA940D70D4C87131C8E58754691DA4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783064   (25718) от 04.03.2025
-
-VA - 101 Dance Hits (2003) [MP3|320 Kbps] <Progressive House, Trance, House, Big Beat, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Nevins Presents U.K.N.Y. - I'm In Heaven - 03:29
-02. X-Press 2 - Lazy - 03:53
-03. Shakedown - At Night - 03:03
-04. Roger Sanchez - Another Chance - 02:52(   Читать дальше...   )Жанр: Progressive House, Trance, House, Big Beat, DiscoПродолжительность: 05:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E89B83FF43B7BFB33A251CE8E35EB4545ED65D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

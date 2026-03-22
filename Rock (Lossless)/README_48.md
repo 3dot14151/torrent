@@ -1,3 +1,148 @@
+###  Публикация: 1213181   (773353) от 15.03.2018
+
+Blueneck - Discography 12 Releases (2006-2018) Don't Touch, Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Beyond (Rapture Mix) (06:15)
+ 02. Ghosts (Jovian Mix) (03:41)
+ 03. Hypnos (Dark Waters Mix) (05:58)
+ 04. Rats In The Wall (Liberation Mix) (05:15)(   Читать дальше...   )Тип издания: CD, Web |Жанр: Post Rock •Продолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53525A141AC133482610CA6CDB34AC4408E3E74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277746   (773169) от 24.01.2019
+
+Missy Higgins - 18 Releases (2003-2018) Коллекция [FLAC|Lossless|tracks + .cue, tracks] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All For Believing (03:29)
+02. Don't Ever (02:54)
+03. Scar (03:36)
+04. Ten Days (03:48)(   Читать дальше...   )Тип издания: CD, Web •Жанр: Soft Rock, Pop Rock •Продолжительность: 09:37:58 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F8C6FC5B7B2F70DF2D42404311FB0B6AFE2A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015750   (772823) от 12.05.2016
+
+John Carpenter - Lost Themes II (2016) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Electronic Rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Dream
+02. White Pulse
+03. Persia Rising
+04. Angel's Asylum(   Читать дальше...   )Жанр: Cinematic Post Rock, Electronic Rock, AmbientПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB130A681AA21956DE6B27212B216036AB3B15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278527   (771992) от 25.01.2019
+
+Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Fantasy (6:45)
+ 02. Little Kingdom (6:40)
+ 03. A Riot of Color (5:27)
+ 04. On the Wings (7:49)(   Читать дальше...   )Жанр: Acoustic, Psychedelic Rock, Prog RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C7C88037F9B02838C06DA5D607B59CF91E35C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016698   (769686) от 15.05.2016
+
+Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Civilized Man
+02. There Goes My Baby
+03. Come On In
+04. Tempted(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1992253158365C41564DD10923C669F84682A315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016816   (769634) от 15.05.2016
 
 Joe Cocker - Unchain My Heart (1987) [APE|Lossless|image + .cue] <Rock, Blues>
@@ -598,151 +743,6 @@ Soft Machine - Hidden Details (2018) Japanese Edition [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE4C7D3FDCE8C83760475220E393AF96E1337CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279688   (764531) от 31.01.2019
-
-Simple Minds - Walk Between Worlds (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (4:35)
- 02. Summer (4:57)
- 03. Utopia (4:15)
- 04. The Signal And The Noise (5:19)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7429C366AE1C7006F20F13C98E627576F992B088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394581   (763710) от 05.07.2020
-
-VA - Rock Milestones (2020) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Classic Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот двойной альбом - повторение очень успешно продававшегося в 2009 году двойного альбома. Он вполне соответствует своему названию - Вехи рока. Наряду с известными группами Nazareth, Chicago, Santana и др., есть несколько коллективов блиставших в своё время на рок-сцене и не заслуженно забытых. Отдельно хочу обратить ваше внимание на Outlaws. Видимо, составителям (   Читать дальше...   )CD1
-01. Foghat - Slow Ride (Live)  (9:08)
-02. Outlaws - Green Grass & High Tides  (11:55)
-03. Starship - Laying It On The Line  (4:31)(   Читать дальше...   )Релиз состоялся: 20 мая 2020 годаЖанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 02:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023EB9C1F0F3766489CE6C0F9B9736D5E359A912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016907   (763258) от 16.05.2016
-
-Bear Hands - You'll Pay For This (2016) [FLAC|Lossless|tracks] <Experimental Rock, Indie Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won't Pay
-02. 2AM
-03. Boss
-04. Déjà Vu(   Читать дальше...   )Жанр: Experimental Rock, Indie Rock, Post-PunkПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AACB4E48CC8D17F804B2E2E7511AE0E8C493E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016941   (763035) от 16.05.2016
-
-Hotei - Strangers (2015) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medusa    05:57
-02. How The Cookie Crumbles    02:45
-03. Kill Or Kiss    04:21
-04. Move It    02:53(   Читать дальше...   )Жанр: Rock, Alternative Rock, Hard RockПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1635F300385450C92594AFA6288987C34F788AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016963   (762952) от 16.05.2016
-
-Joe Cocker - Heart & Soul (2004) US Version [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One
-02. I (Who Have Nothing)
-03. What's Goin On
-04. Chain Of Fools(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61907322AEDFC884CF7433A868D3B1CDF959CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

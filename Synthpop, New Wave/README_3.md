@@ -27,6 +27,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523660   (749900) от 12.01.2022
+
+New Arcades - Proximity (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_749900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterlight (4:11)
+02. Inhale (feat. Lula) (3:50)
+03. Wait for Tonight (4:37)
+04. We Can't Turn Back (4:49)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D414187B16522218588975CA5F7E9801ADEFFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216608   (749214) от 31.03.2018
 
 Carpenter Brut - Leather Teeth (2018) [MP3|320 Kbps] <80s, Dark Synth, Retrowave, Synthwave>
@@ -716,35 +745,6 @@ Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ECC1670216F65B23F7ABABF9D88A42FB7238BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287309   (705069) от 06.03.2019
-
-Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Blue
-02. Magic Fly
-03. Symphony
-04. Souvenir from Rio(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 05:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77DB4BEDFEB10C6A82BFD07BCA794BFA1B4E15A
 ```
 
 https://mybot314.ru/tekegram_catalog/

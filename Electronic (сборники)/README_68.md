@@ -1,3 +1,90 @@
+###  Публикация: 1279591   (765394) от 30.01.2019
+
+VA - Paints Of The Soul: Pure Deep House (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765394.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tchilla - Gentleman Drivers
+002. Tantsui - Beautiful Day
+003. Tevo Howard - Make It Right
+004. The 5Th Galaxy Orchestra - A Place Between Us(   Читать дальше...   )Жанр: Deep, Chill House, ElectroПродолжительность: 11:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437652CFBF9A99895ED5AE5CBAAD14A4BA96D287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279579   (765317) от 30.01.2019
+
+VA - Empire Records - Fake 3 (2018) [MP3|320 Kbps] <Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765317.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nathia Kate - The Mission (Original Mix)
+002. Luke Terry, Paul Gibson - Achelous (Radio Edit)
+003. Talla 2XLC - It Makes Me Wonder (Steve Allen Remix)
+004. Sunset, Jess Morgan - The Gift of Giving (Original Mix)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 10:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40B92174164549C4907680CD9865995E3EF1780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521464   (765170) от 02.01.2022
+
+VA - Beatport Psychedelic Trance: Sound Pack #388 (2021) [MP3|320 Kbps] <Psychedelic Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Является ли Psy Trance музыка танцевальной? Ответ один, без сомнения это танцевальная музыка. Некоторые почему-то относятся к танцевальным стилям достаточно легкомысленно и настойчиво ассоциируют их только с развлекательными и увеселительными мероприятиями. Не отрицая этого, все же стоит заметить, что танец является одной из самых древнейших техник, которую использовали (   Читать дальше...   )001. Galactic Cowboy - Supersonic Fly
+002. Neutro - Hypnosis
+003. N3xu5 & Gu - 5th Dimension
+004. E-Mov - Mystic(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 12:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A45A6AF5E9D9A48DA1D424877744AFF755EA80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214326   (764968) от 21.03.2018
 
 VA - Deep Delicate House (2018) [MP3|320 Kbps] <Deep House, Electro>
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC48AE441BC25CBFC8D884936538834F1B0B923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012386   (762309) от 16.05.2016
-
-VA - Erotic Desires Volume 501 - 504 (2016) [MP3|320 кб/с] <Vocal Trance> (обновляемая)
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Derek Ryan & Charmy - Faster Than Light (Mike Koglin Remix)
-02. Sied Van Riel feat. Alicia Madison - Gravity (Original Mix)
-03. Neev Kennedy with Adrian&Raz - Crystal Clear (Igor Dyachkov & U-Jeen Remix)
-04. The Blizzard & Yuri Kane Ft. Relyk - Everything About You (R.I.B Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8496E8812EE6DCBAD24AD69C88818CC9CEE55E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394629   (762300) от 06.07.2020
-
-VA - Beatport Chillout: Electro Sound Pack #122 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762300.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dismantlists - Somewhere Always Ever
-002. Reid Willis - Canopy Care
-003. Landhouse - Unknown Melody
-004. Fejkб - Skye(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E670DF04FC2C50215820CD9363F300A8AC39BBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394625   (762117) от 06.07.2020
-
-VA - Beatport Techno Electronic: Sound Pack #121 (2020) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Claas Herrmann - Raskolnikow
-002. DJ Hugo Enrique - Underworld
-003. Tyler Schauman - Rosary (Original Mix)
-004. David Temessi - Into The Groove(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A345B47F4D169DF232FA7F6C695946AAEF131F47
 ```
 
 https://mybot314.ru/tekegram_catalog/

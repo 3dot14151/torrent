@@ -1,3 +1,32 @@
+###  Публикация: 1085603   (156334) от 22.12.2016
+
+VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156334.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZYX Music — студия звукозаписи (лейбл), основанный в Германии в 1971 году Бернхардом Микульски. До 1992 года лейбл носил имя Pop-Import Bernhard Mikulski. Лейбл специализировался в диско и ранней хаус-музыке. Основатель студии Бернард Микульски вкладывал средства в итало-диско в 80-е годы. В 1997 году, после смерти Бернхарда, студия перешла его вдове Кристине Микульски. (   Читать дальше...   )2013 - ZYX Italo Disco New Generation Bootmix 1
+01. Dyva - Joy (2:57)
+02. Dario - All The Night (2:21)
+03. Miko Mission - Let It Be Love (2:04)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 03:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158EEECE9E3B5D8AC9E73798C585D92BDA772BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193625   (155733) от 25.12.2017
 
 VA - Italo Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Italo-Disco>
@@ -716,35 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5071C46F7AE81317BE93C05A4F28FE02EEF132EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679570   (138030) от 25.11.2023
-
-The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings [MP3|320 Kbps] <Electronic, Disco, Nu-Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Giving Me Something Better (feat. Obi Franky) (Aeroplane Remix) [00:03:31]
-02 - Slippery People (feat. Ramona Renea & Fiorious) (Sophie Lloyd Remix) [00:03:31]
-03 - Tell Me It's Not Over (feat. Adi Oasis) (Cosmodelica Remix) [00:03:22]
-04 - You Ain't Love (feat. Teni Tinks) (Ray Mang Remix) [00:03:25](   Читать дальше...   )Жанр: Electronic, Disco, Nu-Disco, HouseПродолжительность: 02:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA446A81D63E76BB20C915DB4F090D39319D5AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

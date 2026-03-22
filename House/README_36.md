@@ -1,3 +1,154 @@
+###  Публикация: 1143447   (635507) от 18.06.2017
+
+VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJGus - Sky Passage
+02. Psychopathic - X File
+03. PhiNek - Savage
+04. Stephen Barcella - Strong(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7974AD1CE7A23B1ABC670D67A78AD67C8115DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143463   (635384) от 18.06.2017
+
+VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 Kbps] <House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635384.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Housework - Loose My Mind (Hypnotic Slide mix) (06:20)
+2. Cachar - Don't Stop The Houseparty (The Rough cut) (07:48)
+3. Cinematic - Airflow (Chillhouse mix) (07:05)
+4. Adriatic Grooves - Zoom Zone (Ibiza Flow mix) (06:25)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 06:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B072089AA96B4693CDDB53A9D31C45B7D06308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034054   (634367) от 13.07.2016
+
+VA - A House Is Not A Home Without A Dog #01 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634367.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roland'Sousa - Feeling This Music (7:19)
+2. Andy Caz - Morning Theme (8:11)
+3. Fragoso - Mint (7:28)
+4. Ruben B Goode - Mind & Soul (6:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A1829ECAF64FA48A3BE657C90B842618C6A4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519134   (633884) от 08.07.2012
+
+VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazem Beltagui - Macarize (Intro Mix) 06:36
+02. Alandanat - Voyager (Original Mix) 07:08
+03. Outlook - Airplane (Original Mix) 06:30
+04. Aleksey Yakovlev - Space Odyssey (Original Mix) 07:08
+05. Eximinds - August (Original Mix) 07:56
+06. Mick Elsa - Significant Others (Original Mix) 08:07
+07. Vitodito - Pisha (Original Mix) 06:42
+08. Allan V. - What If (Original Mix) 07:56
+09. Michael Elliot - Pool Splash (Original Mix) 08:00
+10. Domestic Technology - Californian (Original Mix) 05:44Жанр: Progressive HouseПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB4446902292901A5084B5B1F4D23F22B097AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907606   (633864) от 14.06.2015
+
+VA - Deep House Ibiza - Vol 1 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pirupa - I can C through U feat. Manuela - Original Mix (06:16)
+02. Barbara Tucker - You Want Me back - Paolo Madzone Zampetti 2015 Vibe Rmx (06:40)
+03. BAG - Back It Up feat. Taka Boom - Rickie Snice Rmx (06:25)
+04. Paolo Madzone Zampetti - Close Your Eyes - Original Mix (07:03)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D7A75A9D9011322EEC53C8F01CCCB1B633C458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143744   (633393) от 19.06.2017
 
 VA - Boys & Girls Want to Workout (2017) [MP3|320 Kbps] <Electronic, Dance, House>
@@ -604,154 +755,6 @@ VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229950   (620892) от 09.06.2018
-
-Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running to the Sea
-02. Gorecki
-03. Serendipity
-04. A Love That’s Hard to Find(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520666   (619427) от 15.07.2012
-
-Tish - Shadows EP (08-07-2012) [MP3|320 кб/с]<Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows 07:50
-02. Shadows (Fabio Giannelli Remix) 08:19
-03. Attic House 07:52
-04. Inversus 06:19Жанр: Tech HouseПродолжительность: 00:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3058FE76BC99F3A1C685C2E893DF45ACFFBC93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523477   (619040) от 15.07.2012
-
-VA - Best Of Deep House (50 Most Wanted) (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weekend Of Robots - "Information 4 Peace" (07:47)
-02. Adapt To Survive - "Its Something" (06:18)
-03. Adapt To Survive - "Greed" (06:16)
-04. Alex Aglieri - "Twisted" (07:01)
-05. Klangware - "Strandrauber" (07:43)
-06. E-Teb - "Explicit Differentiation" (05:18)
-07. Sinior Cliff - "Across The Sunset" (08:54)Жанр: HouseПродолжительность: 05:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827F4F92EFC364A8329F854675843399CEA2C5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544797   (618306) от 17.04.2022
-
-Swedish House Mafia - Paradise Again (2022) [MP3|320 Kbps] <Bass House, Disco House, French House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia feat. Mapei - Time (Co-Prod. by Enzo Ingrosso)
-02. Swedish House Mafia & Connie Constance - Heaven Takes You Home (Co-Prod. by Klahr)
-03. Swedish House Mafia feat. Jacob Mühlrad - Jacob's Note
-04. Swedish House Mafia & The Weeknd - Moth To A Flame(   Читать дальше...   )Жанр: Bass House, Disco House, French HouseПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E4B115E0644D7534A52C7C21AAA42F8C2DF0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146043   (618239) от 27.06.2017
-
-VA - Get On Your Surfboard: Summer (2017) [MP3|320 Kbps] <Progressive, Electro, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duna Shain - Dolce 02:37
-02. Dexter Morgan - Galaxy 02:33
-03. Distances - Note 02:37
-04. Chris Folkz - Travel 02:56(   Читать дальше...   )Жанр: Progressive, Electro, Future HouseПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE74F432EDE81C235699E2E4837C1CC1BE210E51
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,123 @@
+###  Публикация: 930999   (513945) от 24.08.2015
+
+Royal Hunt - Devil's Dozen (2015) Japanese Limited Edition [MP3|320 кб/с]<Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Right So Wrong
+02. May You Never (Walk Alone)
+03. Heart On A Platter
+04. A Tear In The Rain(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5015D2AFEBC99464A513481FF15F3C458DF1D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242508   (512818) от 24.08.2018
+
+U.D.O. - Steelfactory (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512818.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tongue Reaper (4:26)
+ 2. Make The Move (4:04)
+ 3. Keeper Of My Soul (4:02)
+ 4. In The Heat Of The Night (4:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1733D54C5E92A720B72E9A5BC40B0C8689507198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536571   (512594) от 20.08.2012
+
+The Order Of Elijah - Accession (2012) [MP3|320 кб/с]<Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512594.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conquer (3:23)
+2. David's Frozen Sword (4:42)
+3. Ballad for Jimmy Baker (4:04)
+4. Bringing Down Hell (3:26)
+5. Stitches (1:14)
+6. Greed Machine (2:24)
+7. Starscream's Symphony (2:12)
+8. Nails Over Duct Tape (6:58)Жанр: DeathcoreПродолжительность: 00:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8340F06EAC49E6D56C788BC815A28C039F117F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562048   (512591) от 07.07.2022
+
+Marlugubre - Maladie (2022) [MP3|320 Kbps] <Death Metal, Post-Black, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milady (feat. Serena de Angelis) [00:05:30]
+02. Bleak Are The November Nights [00:08:51]
+03. The Coeur of Magdalene [00:09:26]
+04. Le Valtzer Macabre [00:06:53](   Читать дальше...   )Жанр: Death Metal, Post-Black, Progressive MetalПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA73957F85C621BBC80619983B24F067AA45AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927792   (512567) от 25.08.2015
 
 Disturbed - Immortalized (2015) Deluxe edition [MP3|320 кб/с]<Alt. Metal, Hard Rock>
@@ -629,122 +749,6 @@ Birth - Birth (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Doom>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A69A0DF696CF5B568159CC621FCDE331660EEC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563567   (503717) от 15.07.2022
-
-Jack Starr's Burning Starr - Souls Of The Innocent (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro - The Ascension [00:00:57]
-02 - Demons Behind Me [00:05:25]
-03 - I Am The Sinner [00:05:24]
-04 - River of Blood [00:05:18](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F276DD26F731EEFD4134D667629E596D44B8AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563533   (503712) от 15.07.2022
-
-Sinner - Brotherhood (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bulletproof (4:02)
-02. We Came To Rock (4:04)
-03. Reach Out (4:52)
-04. Brotherhood (4:22)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3651403A3A4FE0ABD88E04DAE976621F816709BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563808   (503520) от 15.07.2022
-
-Behold! The Monolith - From The Fathomless Deep (2022) [MP3|320 Kbps] <Stoner, Sludge, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Crown/The Immeasurable Void
-02 Psychlopean Dread
-03 Spirit Taker
-04 The Wailing Blade(   Читать дальше...   )Жанр: Stoner, Sludge, DoomПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16ACF020E039B699D7822E95CA669D1A6CE9C361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743705   (502950) от 04.09.2015
-
-Five Finger Death Punch - 6 Albums+19 Singles+2 Live+1EP (2007-2015) [MP3|160-320 кб/с]<Metalcore/Groove Metal/Nu Metal>
-
->>След.
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502950.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hard To See Butter (The Bloody Beetroots vs. Five Finger Death Punch)
-2. The Bleeding (Parshall Remix)
-3. Under and Over It (Kill The Noise Remix)
-4. Weight Beneath My Sin (featuring Ryan Clark of Demon Hunter)Жанр: Metalcore/Groove Metal/Nu MetalПродолжительность: 00:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AEDC1F7B61E048EE0310E2FACF776D6799010C
 ```
 
 https://mybot314.ru/tekegram_catalog/

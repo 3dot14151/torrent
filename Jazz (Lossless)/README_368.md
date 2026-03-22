@@ -1,3 +1,177 @@
+###  Публикация: 1813820   (6416) от 22.08.2025
+
+Scott LaFaro - Deep In A Dream: Live In 1958 (2012) Pacific Delights [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rehearsal Blues [9:37]
+02. There's No Greater Love [3:09]
+03. BeBop [2:46]
+04. Flamingo [3:11](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01AE875989B45A189A29B10BDF52262289DAF0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814565   (5984) от 25.08.2025
+
+VA - Chill Magic Summer (Beach-Wind Down Jazzy & Relaxed House vibes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anduze - Goddess Of War (4:36)
+02.  David Florio - Third Eye (3:10)
+03.  Billy Bogus - Another Day (4:27)
+04.  Visnadi - Melody (Original) (3:43)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F2EADA2B3588FD4A4E1C6335DA8D468D3031F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814568   (5949) от 25.08.2025
+
+VA - Soul Summer On The Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mario Biondi - Back Together Again (3:57)
+02.  Tamashi Pigiama - Golden Frame (3:28)
+03.  Anduze - Sour (3:57)
+04.  Wendy D. Lewis - Good Times (3:20)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 01:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2835478A97B882DED27805451CEC634F423CB8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814564   (5932) от 25.08.2025
+
+Dj Moy - Funk Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Play The Cool Hand (3:43)
+02.  Retro Funk (4:18)
+03.  Psiche Funk (4:20)
+04.  Party In The Jungle (4:00)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5213A3FFA3EB018D3F36509C21D2166EA54201AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815249   (5332) от 29.08.2025
+
+Sadao Watanabe - Peace (2024) Victor [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peace [3:37]
+02. I Fall In Love Too Easily [6:10]
+03. Last Night When We Were Young [5:02]
+04. Deep In A Dream [6:52](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5BA974ECF305C8F2B15D845065198A1CBDC278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815746   (4928) от 31.08.2025
+
+Leroy Vinnegar Quintet - Leroy Walks Again!! (1962, 1963) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard to Find [6:48]
+02. Down Under [4:35]
+03. I'll String Along with You [4:08]
+04. Subway Grate [5:39](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5578893A1A506EF18F51F8FC0A0F69A2281D11D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816004   (4647) от 02.09.2025
 
 Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>

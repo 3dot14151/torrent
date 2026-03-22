@@ -1,3 +1,55 @@
+###  Публикация: 1341735   (228530) от 29.11.2019
+
+Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Lingerie № 1 (2019) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_228530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комикса "Lady Death"Жанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D510ABB97933405B846996C931CB1DBA23E324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341940   (225235) от 01.12.2019
+
+Simon Bisley | Артбук Библия / La Biblia (2005) [CBR] [ES]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки художника Simon Bisley на библейские темыЖанр: АртбукФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EB70B5E42B950C18795778F8B767967E108293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342944   (219197) от 05.12.2019
 
 Paolo Eleuteri Serpieri | Артбук Одержимость / Serpieri Obsession: In Search of Druuna (1996) [PDF] [EN]
@@ -632,58 +684,6 @@ Mundfish | Артбук по игре Atomic Heart / The World of Atomic Heart (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3E8C6A38174C298A75F6437481E87761CCE8A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625372   (200177) от 09.04.2023
-
-Quantic Dream | Артбук по игре Detroit: Become Human / The Art of Detroit: Become Human (2018) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Detroit: Become Human".Жанр: АртбукЯзык: АнглийскийФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B1D81198BD709B2B1C434421D464B573C12822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625818   (200004) от 11.04.2023
-
-Ubisoft Massive | Артбук по игре Tom Clancy's The Division / The Art of Tom Clancy's The Division (2016) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Tom Clancy's The Division".Жанр: АртбукЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B57E34A98A5589ADE987A7377F93A864509821
 ```
 
 https://mybot314.ru/tekegram_catalog/

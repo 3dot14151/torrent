@@ -1,3 +1,60 @@
+###  Публикация: 1456278   (1025288) от 21.03.2021
+
+VA - Espectrum II: The Avantroots Dub Techno Compilation (2021) AvantRoots [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Segue - Stepping Up (06:36)
+ 02. Pulshar - Accept Fate (05:53)
+ 03. Sibling - Tunnel Vision feat. Drhamer (06:17)
+ 04. Beat Pharmacy - Hemp Dub (06:37)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 01:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72AA362B90FC37871C9562E5CC5EF16F7B7C09A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321792   (1025284) от 21.03.2021
+
+Jon Gaiser | Void | Fraktion  - Discography 20 Releases (2006-2017) M_nus [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Never Works (06:47)
+ 02. Disleb (07:03)
+ 03. Acidrop (05:55)Тип издания: CD, WEBЖанр: Techno/MinimalПродолжительность: 00:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9F51877122E37E20387A9651BE004D3EC6378D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014804   (1024855) от 23.03.2021
 
 Andy Stott - Discography 23 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tracks ] <Techno, Bass, Grime, Ambient, Downtempo, Experimental, House, Abstract>
@@ -683,64 +740,6 @@ VA - Maretimo Chillhouse Flight, Vol. 1 - Join This Spheric Lounge Trip (2021) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E0EF88426FE60E510445BCB63C1AD439BA1F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474167   (1013227) от 01.06.2021
-
-GusGus - Mobile Home (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Synthpop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay The Ride
-02. Higher (feat. Vök)
-03. Simple Tuesday
-04. Love Is Alone (feat. John Grant)(   Читать дальше...   )Жанр: House, Tech House, SynthpopПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809C48E2E20BD82F736598053381A8207C396E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474322   (1013066) от 02.06.2021
-
-Gambusia - Artist Series: Gambusia (2021) Superordinate Dub Waves [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaster (05:50)
- 02. Heron (04:42)
- 03. Perch (05:41)
- 04. Koel (05:52)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91790EB87703A2ECD14FD48530F52FA18C4E151
 ```
 
 https://mybot314.ru/tekegram_catalog/

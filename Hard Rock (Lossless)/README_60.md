@@ -1,3 +1,174 @@
+###  Публикация: 1188520   (272372) от 04.12.2017
+
+Kadavar - Kadavar (2012) [FLAC|Lossless|image + .cue] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Our Thoughts
+	02. Black Sun
+	03. Forgotten Past
+	04. Goddess Of Dawn(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EC8FA122F5F37C68E66D628B60D07D2C2D05C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188523   (272371) от 04.12.2017
+
+Kadavar - Berlin (2015) [FLAC|Lossless|image + .cue] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lord Of The Sky
+	02. Last Living Dinosaur
+	03. Thousand Miles Away From Home
+	04. Filthy Illusion(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3D3DE473DC2833CA77874A4D74F7C17DFAFEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266293   (269989) от 02.12.2018
+
+Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Stoner Rock, Hard Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269989.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Clutch» — cтоунер-рокеры из города Джермантаун, штат Мэриленд. За двадцатилетнюю историю группа имеет в своем багаже более десятка студийных альбомов, более 2000 сыгранных концертов, преданное фанатское сообщество и собственный лейбл «Weathermaker». Плотный гитарный звук, монструозный драмминг, ревущий блюзовый вокал - эту музыку определённо стоит слушать на большой (   Читать дальше...   )Список альбомов:
+1993 | Transnational Speedway League: Anthems, Anecdotes And Undeniable Truths
+1995 | Clutch
+1997 | Impetus (EP)(   Читать дальше...   )Жанр: Stoner Rock, Hard Rock, Southern Rock |Продолжительность: 15:18:18 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7BB3C11E9A44C2DF0D311598CED1E0E15432E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192152   (269307) от 15.11.2019
+
+The Doors - 20 albums, 10 Box Sets, 102 CD (1966-2019) Discography [FLAC|Lossless|image + .cue | tracks +.cue] <Psychedelic Rock, Acid Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269307.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Doors («Двери») — американская рок-группа, созданная в 1965 году в Лос-Анджелесе, оказавшая сильное влияние на культуру и искусство 60-х годов. Загадочные, мистические, иносказательные тексты песен и яркий образ вокалиста группы, Джима Моррисона, сделали её едва ли не самой знаменитой и равно же противоречивой группой своего времени. После смерти в 1971 году (   Читать дальше...   )--------------------------
+
+01. Back Door Man (7:22)
+02. Adolf Hitler (2:21)(   Читать дальше...   )Жанр: Psychedelic Rock, Classic Rock, Acid Rock, Blues |Продолжительность: 67:08:43 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69756418FA3D57B3251B5C2EBB4C7D8FA7D711D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264128   (268333) от 04.12.2018
+
+Empyray - Discography (2007-2009) [FLAC|Lossless] <Hard'n'Heavy, Oriental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-гуппа Эмпирей сегодня очень популярна и любима в Армении. Широкий географический и возрастной диапазон слушателей Empyray объясняется просто: исполнительское мастерство вокалиста Саркиса Манукяна, неожиданные переходы в мелодике произведений, автором большинства которых является гитарист Карен Арзуманян, содержательные тексты на армянском и английском языках, (   Читать дальше...   )Производство: EmpyrayЖанр: Hard'n'Heavy, Oriental RockПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F41EA3DA568EB5FA308CFB8DE9E8B984DCE349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337854   (268218) от 17.11.2019
+
+Crash - Crash (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_268218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dance Dirty - 2:57
+02. Close At Hand - 4:22
+03. Eyes Don't Lie - 4:51
+04. The World - 4:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C80226D868EEFECF05CC9B3E199841457E7048E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337875   (267124) от 18.11.2019
 
 Lover Under Cover - 2 альбома Collection (2012-2014) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
@@ -582,180 +753,6 @@ Deep Jimi And The Zep Creams - Funky Dinosaur (1992) [FLAC|Lossless]<Hard Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837432   (256705) от 16.11.2025
-
-Back Jack - Certainly In Neverland (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock & Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Peace Of War (05:17)
- 02 - Here We Are (05:04)
- 03 - Heal Your Pain (05:03)
- 04 - In Hell You Burn (07:02)(   Читать дальше...   )Жанр: Hard Rock & Heavy MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637FB132FBCB7FC0C187243C99001C8271771AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624547   (255476) от 06.04.2023
-
-Ghostmeat - Witch's Familiar (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Space>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prism of the Night [00:06:31]
-02. Death Song from the Poplars [00:02:35]
-03. Kisse Manitou Wayo [00:07:53]
-04. Mourning Song [00:07:07](   Читать дальше...   )Жанр: Heavy Rock, Psych, SpaceПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931D6DF4E8A2A543D9B3386201BDB283047FD87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625438   (255340) от 10.04.2023
-
-Amberjacks - The Ride (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Push [00:02:43]
-02. 49 Seconds [00:04:39]
-03. Kill the Fire [00:06:28]
-04. More Than a Lifetime [00:03:59](   Читать дальше...   )Жанр: Heavy Rock, Psych, 70'sПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96DA14E1DBD37BBC457C4046C400193A5EEB815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625935   (255260) от 12.04.2023
-
-D'ercole - Mass Formation (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trial by Fire [00:02:56]
-02. Make It Alone [00:05:09]
-03. Peacemaker [00:03:25]
-04. Synergy (Parts 1 & 2) [00:09:53](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9683A051B828409FF2D4BCC73AD624A4640126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627295   (255054) от 18.04.2023
-
-Gary Moore - After the War (1989) Japanese Edition, Reissue, 2023, Universal [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255054.jpg" />
-</div>
-
-
-###  Подробнее
-
-After the War — седьмой студийный альбом ирландского гитариста и певца Гэри Мура, выпущенный в 1989 году. Как и его предшественник Wild Frontier, After the War содержит элементы кельтской музыки. Инструментальная композиция «Dunluce» названа в честь замка Данлюс в Северной Ирландии.01. Dunluce, Part 1
-02. After the War
-03. Speak for Yourself
-04. Livin’ on Dreams(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10207FD597019C861CD49A3402DD2CD744343FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629734   (254744) от 27.04.2023
-
-Angels In Vein - Long Time Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One Gets Out Alive [00:03:36]
-02. With Me Tonight [00:03:25]
-03. Bang A Gong [00:05:06]
-04. Ready To Roll [00:03:11](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673F44839E99CFBE649FD5D6EEEE5616484F8B2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,154 @@
+###  Публикация: 584448   (310400) от 03.12.2012
+
+Ансамбль БЛАГОВЕСТ - Славянский глас (2012) [FLAC|Lossless]<Folklore>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добрий вечiр тобi
+02. Баллада о 12 Разбойниках
+03. Вниз по матушке, по Волге
+04. Вдоль по Питерской
+05. Ах ты, степь широкая
+06. Дед Пахом, во кузнице
+07. Ой, горе, горе
+08. Вдоль да по речке
+09. Ой, сiвы конь бяжыць
+10. Черный ворон(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470B13173163BCF560CF1D8624075AB51C002311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183489   (310209) от 13.11.2017
+
+Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aq Awakening (04:35)
+02. Not Cranky (03:40)
+03. Sirus Bound (05:27)
+04. Blue Float (05:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C60FE44C31E2E8B9D78F6AF7F770182B511E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960029   (310196) от 27.11.2015
+
+Wayne Gratz - Spring Rain / Piano and Rainfall (2005) [FLAC|tracks+.cue]<New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain On the Pond 05:43
+ 02. Glasses Of the Sun 03:56
+ 03. Good Question 02:41
+ 04. As I Fall 04:08(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73DD0AF8060FC869C2410E5B9F7C3CFBC2A0E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183291   (310088) от 13.11.2017
+
+Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - If I Could Make You My Own (3:22)
+2 - Just Say It Now (2:37)
+3 - Lovers On The Run (2:54)
+4 - Cold Waves (3:32)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D58347AC9BCF3C80A1D332D890E28F8CADDC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183283   (309958) от 13.11.2017
+
+Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - All the Trouble (5:41)
+02 - The Lonely, The Lonesome & The Gone (3:50)
+03 - He Called Me Baby (4:41)
+04 - Hollywood (4:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7D169093A6E1897F39FBECAAC8F81E637CBAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332286   (309561) от 22.10.2019
 
 David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
@@ -600,157 +751,6 @@ Harlow Monroe - Piano Christmas (2016) [MP3|320 Kbps] <Instrumental, Jazz, Easy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96BD4A63FEE01471B573143A2AE0C759144CC26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332802   (305513) от 24.10.2019
-
-Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dona Nobis Pacem (8:06)
-02. Gloria (10:50)
-03. Kyrie (7:44)
-04. Mea Culpa (6:19)(   Читать дальше...   )Жанр: Chants, WorldПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030BA877F83BBB5C8F7471F0E1A34767C831191C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584828   (305469) от 05.12.2012
-
-VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305469.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beenie Man - King Of The Dancehall
-002. Beenie Man feat. Miss Thang - Dude
-003. Beenie Man - Miss L.A.P.
-004. Beenie Man feat. So Solid Crew - Yagga Yo
-005. Damian Marley - Hey Girl
-006. Damian Marley - Welcome To Jamrock
-007. Lady Saw - Strip Tease
-008. Lady Sovereign - Random
-009. M.I.A. - Fire Fire
-010. Mr. Vegas feat. Wayne Anthony - Pull Up(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 06:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFFD49B7111A95752AAF3480E8BEAFD79C95B8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333172   (305269) от 24.10.2019
-
-Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sander van Zanten - Prelude (07:33)
-02. Sander van Zanten - Awakening (Interlude) (00:46)
-03. Sander van Zanten - Separation (02:24)
-04. Sander van Zanten - Preparations (04:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B299F023BDE4C5E79BF110645DB86ACA6C528D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261124   (305197) от 10.11.2018
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 1 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Sonatas KV 545, 330, 284 Eine Kleine Nachtmusik / Alla Turca
-Arranged By – Joze Privsek Composed By – Mozart Conductor – Simon GaleOrchestra – Symphonic Rock Orchestra
-2.	A Choral In Soft Rhythm (Choral)
-Arranged By – Louis AblazzoComposed By – Bach Conductor, Arranged By – John Matz, Peter SchindlerOrchestra – Wave's Computer Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F1705B4D4E0A51702CBC536087F8B4F519B4AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255853   (304459) от 10.11.2018
-
-Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack, Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 20th Century Fox Fanfare 00:25
-02. Somebody To Love 04:55
-03. Doing All Right (…Revisited) 03:16
-04. Keep Yourself Alive (Live At The Rainbow) 03:56(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4FC73AFD540EEA649655DC293A22E926F4D79C
 ```
 
 https://mybot314.ru/tekegram_catalog/

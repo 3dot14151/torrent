@@ -1,3 +1,32 @@
+###  Публикация: 750716   (776427) от 10.03.2018
+
+Myra - Discography (2006-2018) [MP3|192-320 кб/с]<Metalcore, Hardcore, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776427.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Promo (EP)
+2008 - The Venom It Drips
+2010 - Godspeed
+2014 - Valley(   Читать дальше...   )Жанр: Metalcore, Hardcore, Thrash MetalПродолжительность: 03:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17043C3F8C69E4037B198C1DD30786203D80BC70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212118   (776418) от 10.03.2018
 
 Drudkh - Їм часто сниться капіж (They Often See Dreams About the Spring) (2018) [MP3|320 Kbps] <Black Metal>
@@ -713,35 +742,6 @@ Pessimist - Holdout (2020) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7F91250CF9D411042F11C7C34D1D366EE0F43C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278599   (768523) от 26.01.2019
-
-Swallow The Sun - When A Shadow Is Forced Into The Light (2019) [MP3|320 Kbps] <Melodic Metal, Doom-Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768523.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. When A Shadow Is Forced Into The Light
-2. The Crimson Crown
-3. Firelights
-4. Upon The Water(   Читать дальше...   )Жанр: Melodic Metal, Doom-Death MetalПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAD1510B56F849CECFB32890A76303FDB59FB76
 ```
 
 https://mybot314.ru/tekegram_catalog/

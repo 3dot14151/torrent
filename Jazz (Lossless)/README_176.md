@@ -1,3 +1,183 @@
+###  Публикация: 549496   (462868) от 20.09.2012
+
+VA - Smooth Jazz Hits for Lovers (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney Jones - Send One Your Love [04:35]
+02. Dave Koz - feat. Herb Alpert - This Guy's In Love With You [04:56]
+03. Jessy J - True Love [03:49]
+04. Peter White - Always, Forever [05:09]
+05. Mindi Abair - feat. Ryan Collins - Get Right [03:25]
+06. Marion Meadows - Flirt [04:21]
+07. George Benson - Show Me The Love [04:18]
+08. Jeff Lorber - You Got Something [04:19]
+09. The Rippingtons - feat. Russ Freeman - Love Story [04:07]
+10. Norman Brown - Sending My Love [04:19](   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941480   (462861) от 27.09.2015
+
+Martin Denny - The Exotic Sounds of Martin Denny (1996) 2CD /Capitol Records/[FLAC|tracks+.cue]<Lounge, Easy Listening, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462861.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01.Quiet Village [03:43]
+02.Isle of Love [02:30]
+03.Manila [02:28](   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 02:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD486532F4542C4752B4A2DA164C9CE0182A09A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941034   (462859) от 27.09.2015
+
+Rufus Harley - King / Queens (1970) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Eight Miles High [06:00]
+02.Moon River [06:05]
+03.Love Is Blue [06:37]
+04.Windy [04:12](   Читать дальше...   )Жанр: Post-Bop, Ethnic JazzПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B0F5172BBC4C3F8F40155EFF9C63C9819F6F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407687   (462767) от 09.09.2020
+
+June Christy with The Lou Levy Sextet - Impromptu (1977) 1992, Discovery Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shining Hour [3:23]
+02. Once Upon a Summertime [4:50]
+03. Show Me [2:27]
+04. Everything Must Change [6:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC9FBDDCC8896F4A83450214D0B1CFF1F968C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407691   (462765) от 09.09.2020
+
+Bob Berg - Back Roads (1991) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Roads [5:35]
+02. Travellin' Man [6:36]
+03. Silverado [8:12]
+04. When I Fall in Love [4:14](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342665AF0687421302F6673211CF31007338A4A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407575   (462750) от 09.09.2020
+
+Tessa Souter - Nights Of Key Largo (2008) Venus Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Island [6:02]
+02. Close Enough for Love [7:19]
+03. Moondance [4:20]
+04. So Many Stars [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941005A1765FDA6BAAF7409924BB9BD0A2F3FCFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407689   (462749) от 09.09.2020
 
 Duke Ellington - An Intimate Piano Session (1969 - 1972) 2017, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz, Vocal Jazz>
@@ -570,180 +750,6 @@ Art Blakey & The Jazz Messengers - Live At Sweet Basil (1985) 2015, King Record 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30840F72CC62A3D361A291028FF1614F5594647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246793   (459232) от 12.09.2018
-
-Art Blakey & The Jazz Messengers - Hard Champion (1987) 2015, King Record [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scenic Route [13:42]
-02. Come Rain or Come Shine [4:56]
-03. Theme of Hard Champion [3:39]
-04. Witch Hunt [18:52]Жанр: Hard BopПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F37458757FDC938AEA93CC7DE53E63A477CAE4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162402   (459210) от 01.09.2017
-
-Weather Report - Mr. Gone (1978) Remaster, 1991, Columbia [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pursuit Of The Woman With The Feathered Hat (5:00)
-02. River People (4:49)
-03. Young And Fine (6:54)
-04. The Elders (4:20)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDF8595B51956DCF4F3CA17E67079768AF7CA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162398   (459163) от 01.09.2017
-
-Weather Report - Night Passage (1980) Remaster, 1987, Columbia [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Passage (6:30)
-02. Dream Clock (6:26)
-03. Port Of Entry (5:09)
-04. Forlorn (3:55)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B2FDFDB6C2C4C57F650AF8102423E162861528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 826050   (459012) от 28.09.2014
-
-Arnett Cobb And Eddie "Lockjaw" Dawis - Blow Arnett, Blow (1993) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Grow Too Old To Dream [06:44]
-02. Go Power [05:11]
-03. Dutch Kitchen Bounce [07:02]
-04. Go Red, Go [05:42](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED17DB388B8ECD0BDE1EB8B455289D6625733119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408166   (458421) от 11.09.2020
-
-Chris Woods - From Here To Eternity (1974) 2019, Solid Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Here to Eternity [6:18]
-02. Invitation [4:13]
-03. Smoke Gets in Your Eyes [9:02]
-04. You Can't Win None of 'Em [4:59](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547AD92FE86764B67500C7901C47D23A500D2D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408210   (458311) от 11.09.2020
-
-Richard "Groove" Holmes - Night Glider (1973) 2019, Solid Records [FLAC|Lossless|image + .cue] <Jazz-Funk, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Glider [5:19]
-02. Flyjack [3:35]
-03. It's Going to Take Some Time [4:31]
-04. Pure Cane Sugar [5:02](   Читать дальше...   )Жанр: Jazz-Funk, Soul JazzПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA89ABCAE604CDD8FBCAB1F343F43CD6CCAD7AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

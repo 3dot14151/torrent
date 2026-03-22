@@ -1,3 +1,32 @@
+###  Публикация: 1453041   (1027228) от 09.03.2021
+
+Aleph - Little Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire on the Moon (Under the Moon Version) (5:30)
+02. I'm on Fire (Grand Mix Extended Version) (4:45)
+03. Must Be Love (3:50)
+04. Fly to Me (5:28)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492A85AC1BD4D312049A0C9AD435AC565961660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453040   (1027220) от 09.03.2021
 
 Aleph - Black Out (1988) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
@@ -714,35 +743,6 @@ VA - Disco 80's Maxi Club Hits, Vol.1 (Remixes & Rarities) (2011) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63CE55083CD51F4F613F2C772A0A07A955F44EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466503   (1018424) от 30.04.2021
-
-Modern Boots - Tell Me the Reason (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me the Reason You Said Goodbye (Extended Vocal Fantasy Mix) 6:19
-02. A Lonely Romance 6:22
-03. Boulevard of My Dreams (Extended Vocal Fantasy Mix) 7:42
-04. Tears of a Broken Heart (Extended Vocal Fantasy Mix) 5:37(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27F988110CAA8F55290F511269C34225254BE01
 ```
 
 https://mybot314.ru/tekegram_catalog/

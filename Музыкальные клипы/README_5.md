@@ -1,3 +1,148 @@
+###  Публикация: 1359419   (962993) от 13.02.2020
+
+Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/1080p/720p-LQ] <Symphonic Power Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tarja Turunen: 00:50:41
+001 2017 Tarja - Feliz Navidad (Solo Version)
+002 2013 Tarja - Never Enough
+003 2017 Tarja - O Come, O Come, Emmanuel(   Читать дальше...   )Производство: Nuclear BlastЖанр: Symphonic Power MetalПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B6E747CB24313A683490D191598A31DF99EEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621822   (961654) от 21.02.2013
+
+"O2label" /Pulsar (vol.1.) (2013) HDTV 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar & Strannik - Dance Of Galaxies
+02. Back To Reality
+03. Belt Of Orion
+04. Canaan(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA88FECA02352DBDD5865E607C7D271FED8E6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979135   (960807) от 25.01.2016
+
+VA - Зимний марафон № 221: Продвинутые Зимние Хиты (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (25.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. A.R.M.I.A - Independent (Official Video) (00:03:35)
+02. Alekseev - Пьяное солнце (Official Video) (00:04:02)
+03. Alvaro Soler ft. Jennifer Lopez - El Mismo Sol (Under The Same Sun) (B-Case Remix) (00:03:25)
+04. Burak Yeter ft. Delaney Jane - Reckless (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, TranceПродолжительность: 01:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C061F440EB926B5F4D704230F34451CDDA0A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622268   (960469) от 22.02.2013
+
+"O2label"/Pulsar (vol.2.) HDTV 720p (2013) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am
+02. In Harmony With The World
+03. Mysteries Of Baikal
+04. Nomads Of The North(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEA38059D829E2A862F34706F8C4776A9D62F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622299   (960464) от 22.02.2013
+
+"O2label"/Strannik (vol.1.) HDTV 720p (2013) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Blue
+02. An Universe Is In A Pocket
+03. Autumn
+04. Out Of Mirror(About Love)(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3ABF01FE6A40FB23B591A4E47EC9BB44CCA473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 622058   (960319) от 22.02.2013
 
 Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
@@ -588,148 +733,6 @@ Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC179D3398A95ABCA35FDDFD5D71D0E8214ADCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362157   (947732) от 24.02.2020
-
-Сборник клипов 02 (02.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за февраль 202001_Jax Jones, Martin Solveig, RAYE, Europa - Tequila
-02_MOZGI - Девчонка
-03_Alex Sensation, Silvestre Dangond - Dame Un Chance
-04_Хлеб - Бамбалейла(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B218674E1FBA6DF222D892D3364222C72E60826E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982519   (946554) от 04.02.2016
-
-VA - Зимний марафон № 223: Презент Новинок Россыпью (2015-2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (03.02.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Abraham Mateo - Are You Ready (Official Video) (00:03:51)
-02. Andreea Balan - Baby Be Mine (Official Video) (00:03:41)
-03. Brod' Earth - So Sexy (Official Video) (00:03:21)
-04. Christopher ft. Madcon - Limousine (Official Video) (00:04:00)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, TechnoПродолжительность: 01:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF65F6C84D86FE47C3EFE9148F34261AC3C6F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853556   (945685) от 13.01.2015
-
-The Beatles - A Day In The Life (1967) HDTV [1080i] [hand made clip]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945685.jpg" />
-</div>
-
-
-###  Подробнее
-
-За один день может случиться много чего. Можно утром стать миллионером, а вечером попасть в автокатастрофу. Или с утра выпить чашечку чая, днем посмотреть фильм о том, как английская армия выиграла войну, а вечером попасть... на эту самую войну! Хотя в настоящей войне и автокатастрофы выглядят по-другому, и армия далеко не всегда побеждает.
-«A Day in the Life» (рус. (   Читать дальше...   )Жанр: МузыкальныйРежиссер: Джордж МартинПродолжительность: 00:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5F1BCB5DDE969B0462AB19C0B9D4944BFC290B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090480   (945568) от 07.01.2017
-
-Эстас Тонни - Внутренний полет / Estas Tonne - Internal Flight (2016) HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эстас Тонне – музыкант, обладающий яркой и мощной выразительной силой, обрушивающий все законы шоу-бизнеса, музыкант для которого Музыка является не целью, а средством, освобождающим человеческие возможности к познанию как самих себя, так и окружающей реальности.
-
-Путешествуя по несчетному количеству стран и континентов, Эстас Тонне часто находил себя в проявлениях (   Читать дальше...   )Производство: Паганель СтудиоЖанр: Музыкальный видеорядПродолжительность: 00:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C6F9FB3B323DA6F013E349C76E403F0A95B7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983368   (943427) от 06.02.2016
-
-Глюкоза – Энциклопедия. Том 1 (2004) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ненавижу
-02. Невеста
-03. Глюк'Oza Nostra
-04. Ой, ойЖанр: EuropopПеревод: ОтсутствуетПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689848B9F82886E38128E3311093DEDA5ACCD319
 ```
 
 https://mybot314.ru/tekegram_catalog/

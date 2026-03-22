@@ -1,3 +1,265 @@
+###  Публикация: 547044   (477058) от 14.09.2012
+
+VA - Битва DJ: Beauty vs. Bruno (2007) [MP3|320 кб/с]<Electro, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booka Shade - Darko (Booka's Funk Da Funk Mix) [06:24]
+02. Funkwerkstatt - Windrose (Format-B Mix) [04:45]
+03. Beckster - Wasp Theme [04:41]
+04. David Ekenback - Data Death [05:07]
+05. Sander van Doorn - Grasshoper [05:15]
+06. Ampere - The Unknown [05:08]
+07. Johannes Heil - The Magician (Thomas Schumacher Mix) [06:18]
+08. Oxia vs. Gino's and Snake - Seven (Original Mix) [05:01]
+09. Steve Angello - Otherwize Then [06:28]
+10. Cheshire Catz vs. Black Russian - Hooked On Hope [05:44](   Читать дальше...   )Жанр: Electro, Techno, Tech HouseПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669521FE74FD692DC4CDB958CC360BEE1823FCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547036   (476901) от 14.09.2012
+
+VA - DJ Tapolsky - Drum and Bass vol.6 (2002) [MP3|320 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476901.jpg" />
+</div>
+
+
+###  Подробнее
+
+[6:05] 01. Hand Grenade - Twisted Individual & APB (Grid)
+[3:53] 02. Sunrise - Surge (Full Cycle)
+[4:48] 03. When The Morining Comes - Mickey Finn + L.Double (Urban Takeover)
+[3:42] 04. Folder - Quality Control (promo)
+[3:42] 05. This Style - JB (Back 2 Basics)
+[3:14] 06. Hang Bang - Cedar Drive (J.A.K. Audio)
+[3:36] 07. Lazy Horn - Polarity (promo)
+[4:37] 08. Sound Of Freedom - Digital (C.I.A)
+[3:19] 09. Ska - Dj Zinc (True Playaz)
+[4:14] 10. Hold It Now - Pascal (True Playaz)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C4EB8C96175FE1E3EE43C4AA3589D58E0A1475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544592   (476778) от 14.09.2012
+
+VA - Night Flight (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triple A - Winter Stayed (Armin van Buuren's On The Beach Intro Mix)
+02. Giuseppe Ottaviani feat. Walsh - Ready (Maarten De Jong Remix)
+03. Marcus Schossow & Reeves ft. Emma Hewitt - Light (Stoneface & Terminal Vocal Remix)
+04. Armin Van Buuren & Sharon Den Adel - In And Out Of Love (Richard Durand Rmx)
+05. Fast Distance and Dimension feat. Anthya - Let Me Survive (Craving And Howe Remix)
+06. Ben Preston feat. Max Fredrikson - Glorious 2011 (Original Mix)
+07. Shogun feat Emma Lock - Run To My Rescue (Original Mix)
+08. Tiesto - Alone In The Dark (Tiesto Vocal Mix)
+09. Above And Beyond Feat. Richard Bedford - Sun And Moon (Club Mix)
+10. Tom Colontonio feat Michele Karmin - Colors Of A TearЖанр: Vocal TranceПродолжительность: 06:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E63DAF0A4D314D80D0F4F32D904CADC7919E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547037   (476766) от 14.09.2012
+
+VA - DJ Anna Lee - 7 Days Of Love (2005) [MP3|320 кб/с]<Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tilt - New Day (David West Mix) [09:01]
+02. Andy Moor - Halcyon [07:33]
+03. Leama and Moor - Fact Of The Matter [05:51]
+04. Hidden Logic presents Luminary - Wasting [07:52]
+05. Jose Zamora & Damian DP feat. Paleday - Transatlantic [07:23]
+06. Markus Schulz feat. Airwave - Ballymena [06:17]
+07. Markus Schulz vs. Departure - Without You Near (Coldharbour Mix) [07:42]
+08. Armin van Buuren with Gabriel & Dresden - Zocalo [04:46]
+09. Carrie Skipper - Time Goes By (David West Vocal Mix) [05:47]
+10. Markus Schulz feat. Carrie Skipper - Once Again [05:02](   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C030CD614FE5C124845A91AF2C7D722A597DDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546970   (476298) от 14.09.2012
+
+VA - RM Electro Sensation Vol.33 (2012) [MP3|320 кб/с]<Electro House, Electro, Electro Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476298.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3rd Prototype feat. Candy - Never Be Mine (Original Mix) (5:05)
+002. Alex C - Love In The Morning (Remady Remix) (5:43)
+003. Alex Hilton & Mirko Delgado - Dare Me (Alva Edison Remix) (5:21)
+004. Give It Up (Game Of Love) (DJ Re-Lay Remix) (5:46)
+005. Give It Up (Game Of Love) (René De La Moné Slin Project Remix) (5:18)
+006. Annie Rise - Get Into My Car (Pioneer DJ's Remix) (5:15)
+007. Armin Van Buuren - We Are Here To Make Some Noise (Maison & Dragen Remix) (6:35)
+008. Aura Dione - Friends (Bodybangers Remix) (5:23)
+009. BBX - Making Luv (Club Mix) (4:42)
+010. BBX - Making Luv (Extended Mix) (5:18)(   Читать дальше...   )Жанр: Electro House, Electro, Electro ProgressiveПродолжительность: 10:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFD3C6F2151DBD9375261A405036BDB2961B4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823345   (476238) от 20.09.2014
+
+VA - Lounge At The Seashore 17 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 351 Lake Shore Drive - Adorador Del Sol
+002. Orleya - Butterflies
+003. Mirador - Curral das Freiras
+004. Oman Chali - Drifting Along (Feat. Dew)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27D3927B163E46217A89A4F856CF61FE2C12500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160325   (476180) от 24.08.2017
+
+VA - Summer Trance Confession United (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila with Philippe El Sisi & Omar Sherif feat. Karim Youssef - The Chronicles (Extended Mix)  8:34
+02.  Miroslav Vrlik - Magic (Hamza Messaoudi Remix)  6:08
+03.  Dan Thompson & Holbrook feat. SkyKeeper - Ready To Fly (Extended Mix)  7:17
+04.  Tycoos & FloE - Intempestus (Extended Mix)  5:25(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Uplifting Trance, Tech TranceПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AF8A33DCF56043772066C1E7928A6B28B729F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938785   (475814) от 21.09.2015
+
+VA - South Beach Vocal Trance Party (2015) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475814.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Rull - Unsere (Original Mix)
+002. Driftmoon vs. Geert Huinink feat. Kim - Forever
+003. Armin van Buuren feat. Mr. Probz - Another You (Ronski Speed Radio Edit)
+004. Jes - Two Souls (Torio Remix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 08:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAC4439399F7ADA4BA0C03928FBB07D50140D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939355   (475795) от 21.09.2015
 
 VA - Music compilation September (2015) [MP3|320 кб/с]<House, Electro, Progressive, DubStep, Club>
@@ -525,244 +787,6 @@ VA - Beatport Trance Pack  (30.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C792A9883F71BF33D444212F27F3D551DBDEE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057212   (471312) от 30.09.2016
-
-Noon pacific - Сборник №210 от 26 сентября (2016) [MP3|128 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Slowes - Something Special
-02 dickystixxx - Off & On
-03 Tom Grennan - Something In the Water
-04 Brandyn Kaine - Artist Type(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1E190DA1AA31DA2874ACABEB984469266155AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058032   (471152) от 30.09.2016
-
-VA - Vocal House Experience Voyage (2016) [MP3|237-320 Kbps] <House, Funky, Soulful, Tech House, Club, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John De Sohn Ft. Noely Gray - Creedence 03:17
-02. Heavygrinder - Save You (Original Mix) 04:14
-03. Effex & Loco Feat. Amperage & Dela K - Hartertrackmitgutenvocals (Marc Reason Edit) 03:41
-04. Felix Jaehn - Shine (Extended Mix) 04:55(   Читать дальше...   )Жанр: House, Funky, Soulful, Tech House, Club, Nu DiscoПродолжительность: 09:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F169C6BA1891F3975FDE2B2C6B01A05DE144D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406758   (470695) от 05.09.2020
-
-VA - Beatport Tech House: Electro Sound Pack #170 (2020) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470695.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fat Legs - Do You Know
-002. Rich Wakley - Chase The Same High
-003. F-Lame - Minimal Terror
-004. Sergio Fernandez - Urano Beatz(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 14:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA4A3853E965AC73C9B36A1AEDA93995086E5B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567650   (470198) от 04.08.2022
-
-VA - Color Of The Universe (2015) [MP3|192-320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Van Dreamer - Color Of The Universe (6:42)
-02. Synthya - Back To Life (5:52)
-03. Luc Sinclair - Attack (4:19)
-04. Mats Forsell - Aliens Are For Real (4:08)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A702C5C5BFCE1FEFDD00BD85F8B82A1E70D59901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547073   (470157) от 17.09.2012
-
-VA - DJ Perfecta - Special Guestmix for Time 2 Bass (Time2Bass) by DJ Tapolsky (11.01.2012) (2012) [MP3|320 кб/с]<Dubstep, Moombahton>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Takers - She Blows (Dillon Fran Remix) (Ministry of Sound)
-02. xKore - Showdown (FREE)
-03. Porter Robinson - Spitfire (Kill The Noise Remix) (Victims Moombahcore Edit) (DUB)
-04. xKore - Everybody Rock (DUB)
-05. Skrillex - Right On Time (PockX Moombah Edit) (DUB)
-06. Coven - Wake You Up (FREE)
-07. Troublegum - Songo10 (PLAY ME)
-08. Habstrakt - My Culture (Addergebroed Remix)
-09. Ephixa - Division (Varien Remix) (FREE)
-10. xKore - Hello (FREE)(   Читать дальше...   )Жанр: Dubstep, MoombahtonПродолжительность: 00:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A00EBF91E270E352822AE49888F3841671BEC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245643   (470063) от 07.09.2018
-
-VA - Techno Vision (2018) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470063.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rachel B - Is It You (Original Mix)
-002. Sergio WoS - Back to the Old School
-003. DJ Combo - Beautiful Day (Extended Mix)
-004. Major Lover - We Begin To Rock(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 08:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DC08616BE642D62056479295870E945A3C2AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245708   (470059) от 07.09.2018
-
-VA - Factory Techno (2018) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470059.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Da Tweekaz - Essence Of Eternity
-002. Ransom - Poppin Bottles
-003. Clearmajeure - Our Lives Have Meaning
-004. Clear Majeure - Spaces Of Inspiration (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 09:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AC32B77760E5E515A392213CE3657E187F493E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161097   (469912) от 27.08.2017
-
-VA - Ambience Forest (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469912.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr. Tim Steiner - Zen In Your Den
-002. Elyzimila - Earthvibes (Original Mix)
-003. Wilton de Grey - Premadhara The Stream Of Love
-004. Key Of Dreams - Amos Moses(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 09:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F612553755A8E5C8A91C194C7E36282A977A35C
 ```
 
 https://mybot314.ru/tekegram_catalog/

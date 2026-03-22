@@ -1,3 +1,55 @@
+###  Публикация: 1116879   (820229) от 21.03.2017
+
+Проекты - VideoHive - Epic Logo - 19578725 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для показа профессионально-кинематографического названия вашей компании или логотипа в стиле Epic.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A93123F3866E461A730FDC0D7EDCD310F5161D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007483   (819321) от 16.04.2016
+
+Проекты - RocketStock - Refraction [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B06D3CEE78947EFCCC0F03B306D61C2F36E6C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117286   (818562) от 22.03.2017
 
 Проекты - VideoHive - Logo Snowbreak - 14662579 [AEP]
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75289C770C50218288AAF13AF9A522CB048C41CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009037   (811191) от 20.04.2016
-
-Проекты - VideoHive - Quick n Flat | Logo Reveal Toolkit [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811191.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoHive - Quick n Flat - Logo Reveal Toolkit - представляет собой сборник из трех разных, полностью настраиваемых показов логотипа. Помимо трех готовых к использованию заставок, Quick n’ Flat поставляется с 50 анимационными фигурами для составления вашего индивидуального логотипа с легкостью и в кратчайшие сроки.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734AA186334C8FF91BD1D06028A589F05C3C5DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009209   (811179) от 20.04.2016
-
-Проекты - VideoHive - Particular line Logo Reveal - 4440918 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый проект для демонстрации вашего логотипаФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF729C81F4884B357B18221DA7747D80CAD295D
 ```
 
 https://mybot314.ru/tekegram_catalog/

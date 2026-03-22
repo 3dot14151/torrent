@@ -1,3 +1,148 @@
+###  Публикация: 1217108   (744870) от 03.04.2018
+
+VA - Dj World All 2018 Nice Day (2018) [MP3|320 Kbps] <Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744870.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Grazze Ft. ARC - Aura (Original Club Mix)
+002. East Cafe, GMJ - 22 (Doppel Remix)
+003. Dont Look Now & Tom Tyler - All Day, All Night (Original Club Mix)
+004. Jewelz & Sparks feat. Pearl Andersson - All I See Is You (Afrojack Edit)(   Читать дальше...   )Жанр: DubstepПродолжительность: 07:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D962B1967AC869072E48C8A4FFDA92E1C7BAC9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217140   (744868) от 03.04.2018
+
+VA - Mimicry: Bass Line Edition (2018) [MP3|320 Kbps] <Drum And Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_744868.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jamda - Alekto Theme
+002. Seba & Robert Manos - Machine
+003. Airstrike & Allison Gray - Frozen (Original Mix)
+004. Arthur & Medic - Stone Ft. Veela(   Читать дальше...   )Жанр: Drum And Bass, DubstepПродолжительность: 08:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521A1177EE529E3B0390A94C306B0248D283DAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216977   (744749) от 03.04.2018
+
+VA - 100% Clubland X-Treme (4CD) (2018) [MP3|320 Kbps] <Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scooter - Jumping All Over The World
+02. Sak Noel - Loca People
+03. Artemesia - Bits & Pieces (Tidy Boys Remix)
+04. Special D - Come With Me (Single Edit)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 04:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8092D92162A857A8131D433D327E3D99DC345FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524347   (744652) от 15.01.2022
+
+SuperVox - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Panorama
+03. Black Hole
+04. Blue Rose(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 01:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49A487AE4667A5A344B0067B1DA6781E359E9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524354   (744650) от 15.01.2022
+
+Galactic Warriors - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outro
+02. Mission Phoenix
+03. Space Ranger
+04. No Return(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 01:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1087799CF53D940784A44121CE5190276B32978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524375   (744649) от 15.01.2022
 
 Various Artists - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
@@ -600,155 +745,6 @@ VA - Yoga Spirits: Wellness Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03505218ADA95436D2D4141B7ED67AB7C5F72BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021122   (740993) от 29.05.2016
-
-VA - DabSTEP Mistik MiX by zXz. Vol.1 (2013-2014) [MP3|192 кб/с] <DubStep, GlithHop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fr33m4n - Off We Go
-02.Access Denied - Black (Original Mix)
-03.Antiserum & Vinja Feat. Messinian - Murkulation (Original Mix)
-04.Nero - Promises (Nero & Skrillex Remix) (Tolgar's Symphony of Destruction Rework)(   Читать дальше...   )Жанр: DubStep, Drum&Bass, GlithHopПродолжительность: 02:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969FB5A964A5EA92F37D9D056C9FEE5D2B891E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217749   (740946) от 06.04.2018
-
-VA - Psy Trance Timewarp (2018) [MP3|320 Kbps] <Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tranceway - A Mind Trip
-002. Egorythmia - Anno Domini (Original Mix)
-003. Ovnimoon feat. Ascent & The Key - Spiritual Transformations (Original Mix)
-004. Psilocybe Project - I Am Darkness (Original Mix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2AFCAA86FFEAB77930DAE6463627CF65C12EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021296   (740680) от 29.05.2016
-
-VA - Неформатная Электронная Музыка Vol.1 [Compiled by Zebyte] (2016) [MP3|256-320 кб/с] <Glitch, Bass, Cosmic Dub>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Refraq - Semantics (05:25)
-02 Charlesthefirst - Miuris Cave (04:02)
-03 Eyeseeu - Tre... The Gun (04:50)
-04 Pierrothemoon - 3Msi (05:29)(   Читать дальше...   )Жанр: Glitch, Bass, Cosmic Dub, Crunk, Downtempo,
-Future Bass, Hypnotic, Midtempo, Psydub, PsyglitchПродолжительность: 02:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF64E6968A98811E804FD8628FD3BC835090CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283235   (740262) от 16.02.2019
-
-VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progressive, Melodic Progressive, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolier & NBLM - Follow Me (BLR Remix) [5:16]
-02. Deep Fog - Eagle Nebula (Original Mix) [7:50]
-03. JFR - Rainy Day In Mendoza (Original Mix) [7:58]
-04. Nerutto - Illuminate (Original Mix) [5:33](   Читать дальше...   )Жанр: Deep Progressive, Melodic Progressive, Progressive HouseПродолжительность: 03:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA200737EE5BF19DBD903FDDC004765EFD4E84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282973   (740145) от 16.02.2019
-
-VA - Hits of My Soul Vol. 44 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart (Original Mix) (08:51)
-02. Morvan - Kiss Of A Muse (Original Mix) (07:41)
-03. Dannie Denito feat.Wenturo - Rain On The Venus (Original Mix) (06:12)
-04. Neo & Farina - Alba Rossa (Remastered Original Vocal Mix) (09:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,322 @@
+###  Публикация: 1766994   (101192) от 21.12.2024
+
+Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101192.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Odyl (6:46)
+• 02. Reina (5:35)
+• 03. Poseidon (5:02)
+• 04. The Quest (7:30)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B43324E9E68DED6C5C424A20502BEEAADC4188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767482   (101178) от 22.12.2024
+
+SZA – Sos Deluxe: Lana (2024) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – No More Hiding
+02 – What Do I Do
+03 – 30 For 30
+04 – Diamond Boy (DTM)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA479016AFE1D5B5D512CF77B39A79A59E5125C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767475   (101167) от 22.12.2024
+
+Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Country Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – It’s Such A Pretty World Today (2024 Remastered)
+02 – Get While The Gettin’s Good (2024 Remastered)
+03 – Walk Through This World With Me (2024 Remastered)
+04 – Jackson (feat. Lee Hazlewood) (2024 Remastered)(   Читать дальше...   )Жанр: Country-Rock, Soft-RockПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF854170EA112A30FA6250CB1EF8466AE8DDB38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768644   (101128) от 25.12.2024
+
+Isa Nielsen - Break The Chains (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock & Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break The Chains (4:07)
+02. Wild Soul (3:09)
+03. Rebel For Life (2:44)
+04. Waiting For The Break Of Dawn (2:55)(   Читать дальше...   )Жанр: Hard Rock & MetalПродолжительность: 00:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BFEAB7DDB1BA9F1DD49FDCE07B330771EF8B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768666   (101127) от 25.12.2024
+
+Sensual Chill Saxaphone Band, Erotica - Shades of Erotica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Jazz Serenade (3:54)
+02. Coffee Dreams Melodies (4:12)
+03. Dawn's Delight Ballads (3:23)
+04. Jazz Lounge Harmony (3:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E56AD6106901A1386E749709FA8816EB2608D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768631   (101119) от 25.12.2024
+
+After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War of the Worlds (3:46)
+02. The Path (4:09)
+03. Cursed (5:02)
+04. Liber Fortitudinis (The Book of Destiny) (6:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10F4C7ECF9D7EA3A2C0AB6F9C70DEECDAEEB026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768669   (101114) от 25.12.2024
+
+The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Budapest in Winter (3:38)
+02. Windows of Warmth (3:13)
+03. Blessed Day (3:28)
+04. Time Machine (3:36)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9A138F9AD025B67E6428E2BB0B4DCD0C63DD90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768654   (101113) от 25.12.2024
+
+Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer- Feeling (3:16)
+02. Hungry for Love (4:08)
+03. I'm Here (3:14)
+04. Wave (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B76AAAB4FE13FB98872BDAFFA8EF7C98520144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768637   (101110) от 25.12.2024
+
+Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Wait (3:08)
+02. I've Said It (4:09)
+03. That Same Old Way (4:50)
+04. Never Worked It Out (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768661   (101109) от 25.12.2024
+
+Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Workhouse Blues (3:06)
+02. Sometimes I Sit and Wonder (2:58)
+03. I'm off to Saint Louis (3:29)
+04. Shallow Heels (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE7D9F98022FFDD5A1F8F0969D31E6250F71609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768657   (101108) от 25.12.2024
+
+Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1952 (1:09)
+02. Midnight Caravan (3:24)
+03. A Different Path (4:20)
+04. Wonders of the Crescent (2:19)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA512226871830C4E29CB649098A14DCE81B89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768663   (101107) от 25.12.2024
 
 Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -426,325 +745,6 @@ Canyon Lights - Breathe Easy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC1C04BF22A61792CF02FB6665C3E07F7EF9E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822372   (100773) от 06.10.2025
-
-Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  No Easy Way Out (4:27)
-02.  Danger Zone (3:30)
-03.  Rebel Yell (3:33)
-04.  Maniac (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73679C525BCABFB91C56237ADA73211C0E38FA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822387   (100758) от 06.10.2025
-
-Epitaph - Don't Let The Gray Hair Fool You (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One Heart (6:16)
-02.  Cold Light Of Day (5:28)
-03.  Don't Be Afraid (7:06)
-04.  Don't Let The Gray Hair Fool You (4:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D79E0EF9CB1C97A3E2C001C40910B87B8D2A95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822390   (100757) от 06.10.2025
-
-Mystic Majesty - Ad Maiora Semper (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mastermind (4:23)
-02.  Missing Pieces (2:38)
-03.  Sea of Snakes (4:58)
-04.  Midnight Sun (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FBF4CAF8725A3CAA1772C7183701CAEBC4864E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822394   (100755) от 06.10.2025
-
-Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bus Stop (2:37)
-02.  Mawil (2:42)
-03.  Subways (2:19)
-04.  Magnolia Boulevard (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822399   (100752) от 06.10.2025
-
-Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  East of the Sun (3:58)
-02.  Warm Embrace (4:45)
-03.  Moonlight In Vermont (4:28)
-04.  Ruby My Dear (7:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822404   (100751) от 06.10.2025
-
-Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ginja (3:00)
-02.  Paradox (3:43)
-03.  Frisky (3:00)
-04.  Soundwave (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE841E62C6303B2C511D7C99D1F6E6FFDBB887E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822409   (100750) от 06.10.2025
-
-Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mirrored (3:03)
-02.  Despite Everything (5:59)
-03.  Facing the Opposite (5:20)
-04.  March for Peace (8:26)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8FEDD59FBE479B87A85B9269E6ACD31997FE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822412   (100749) от 06.10.2025
-
-Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro (2:11)
-02.  Wir sind wieder da (3:34)
-03.  Kein Weg zu lang (3:03)
-04.  Für immer verbunden (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521A684D362C45934A71091E23E765450F85DB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822414   (100748) от 06.10.2025
-
-Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Northgate Way (4:05)
-02.  Never Hurts Never Mind (4:07)
-03.  All in Who You Know (3:32)
-04.  Peace Sign Pentagram (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E0F5D9504FF523A789B8519238CD47EFEE9DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822418   (100746) от 06.10.2025
-
-Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Praise / Strong Woman (9:35)
-02.  Freedom Song (4:54)
-03.  Woodstock / Go (7:48)
-04.  No Mind (6:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1137566A863DA2F584A29CB23FBBC3CBD3BC9DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822419   (100745) от 06.10.2025
-
-Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soul Brass (3:22)
-02.  CITY COLLECTIVE (3:10)
-03.  Piano Strumming (3:11)
-04.  Da Simplicity (3:03)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77F81635E1B112F2C6D6E1B8139BCDDC3207DEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

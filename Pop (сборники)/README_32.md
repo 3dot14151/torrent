@@ -1,3 +1,32 @@
+###  Публикация: 1206979   (781293) от 16.02.2018
+
+VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Eminem - River (feat. Ed Sheeran)
+003. Bausa - Was du Liebe nennst
+004. UFO361 - Beverly Hills(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435E0E8BD0A5BC3E971CD3CA46181F8658445395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206973   (781276) от 16.02.2018
 
 VA - Absolute Winter Hits (2018) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - International Web-Radio Playlist (Dance) (2016) [MP3|320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D489F06754E85F022197CBDF55F6C3D7E3A85685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013751   (777251) от 05.05.2016
-
-Va - Хитовая бомба весны №2 (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777251.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Джиган feat. Asti - Всё Будет Хорошо
-002. Тимати feat. Григорий Лепс - Дай Мне Уйти
-003. Кристалл - Уходи
-004. Денис Клявер - Прости за любовь(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E6A591EA2BA81715F0B26BEE6B198860DB6BAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 1283339   (739735) от 17.02.2019
+
+VA - Live @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Feel @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15:Жанр: Trance, Progressive HouseПродолжительность: 00:59:51
+N/A
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D6EA42C9A2B58516625EA3D249BC3CAFD9D830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527806   (735868) от 30.01.2022
+
+Kryder - Axtone House Party(Live @ Ministry Of Sound London 2021-11-19) (2022-01-07) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACRAZE & Cherish vs. 23 - Do It To It vs. Pink Soldiers (Squid Game OST) (Zedd Edit)
+02. MOGUAI - ACIIID (Kryder & Benny Benassi Remix)
+03. Toby Green - Motorkraft
+04. Julian Jordan & Martin Garrix ft. Tinie Tempah - Diamonds(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D10CDD9E3F95106BD990319BDAA738848FA7A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527801   (735866) от 30.01.2022
+
+Cosmic Gate - Live @ Sunset Set, Puerto Vallarta, Mexico (2022-01-19) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tinlicker feat. Nathan Nicholson - Be Here And Now
+02.Solee - Carant
+03.Anden & Yotto - Grouplove
+04.Estiva - Kaleido(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C979115FECECEF04BC5EB1CB9E21983073B2D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527961   (735392) от 31.01.2022
 
 KAAZE - Best Of 2021 Mashups (2021-12-27) [MP3|320 Kbps] <Electro House, Big Room>
@@ -658,93 +743,6 @@ VA - Ori Uplift & Ellez Ria - Uplifting Only 271 (2018) [MP3|320 Kbps] <Trance,U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F09D9090F9EB9A760183A61F159B8F490EAE7DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220895   (700652) от 21.04.2018
-
-VA - Aly & Fila - Future Sound of Egypt 544 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazem Beltagui - Reasons To Love (Extended Mix)
-02. iiO - Rapture (Hot TuneiK Remix)
-03. D-Formation - Anbar (Original Mix)
-04. Eelke Kleijn - The Method (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 01:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C44EEDF96AEA9B2C8C0BBC6BB0D60AB4F65DC04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132736   (698968) от 10.05.2017
-
-Aly & Fila - Future Sound Of Egypt 495 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Robert Nickson - Every Sun (Factor B's Perfect Sunrise Remix)
-02.London Grammar - Big Picture (Ciaran McAuley Rework)
-03.Driftmoon feat. Laurie Ann Haus - Felix (Ferry Tayle Remix)
-04.Arctic Moon - Nocturnal Horizons (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0E586DE7DD273A149FACB31C263DCF451EBD6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288225   (697863) от 10.03.2019
-
-VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB & Markus Schulz - Heartbeat (Festival Mix)
-02. Above & Beyond vs. Armin van Buuren - Show Me Love
-03. Bobina & Christina Novelli - Saviour
-04. Katrin's World - Memories(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34DA8DF159AA40483C247EE56D357C92E3BD1451
 ```
 
 https://mybot314.ru/tekegram_catalog/

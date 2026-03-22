@@ -1,0 +1,752 @@
+###  Публикация: 780238   (762895) от 24.04.2014
+
+Dieter Meier (Yello) - Out Of Chaos (2014) [FLAC|Lossless]<Electronic, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Night
+02. Paradise Game
+03. Busy Going Nowhere
+04. Night Porter(   Читать дальше...   )Жанр: Electronic, New WaveПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D903710E944C41CA07419681D42BA876320CCA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522110   (761920) от 05.01.2022
+
+Johan Tronestam - Luther (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chosen (8:13)
+02. Bad Feelings (8:42)
+03. To Rome (7:48)
+04. Come Closer (8:33)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108B2C11D80B8E30314263848A4BA64C13D319C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522112   (761909) от 05.01.2022
+
+Johan Tronestam - Cosmic Steps (2021) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving the Solar System (12:51)
+02. Interstellar Travel (10:50)
+03. Borderland (8:50)
+04. Habitable Zone (6:58)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55AD726F597E83A04EB3B5C6074B03418D3E7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280394   (760434) от 03.02.2019
+
+Ladytron - Ladytron (2019) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until the Fire (05:35)
+02. The Island (04:04)
+03. Tower of Glass (03:59)
+04. Far from Home (03:35)(   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C56FF2122A13E479F5D3356640182D58E3AC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280730   (758732) от 04.02.2019
+
+Freunde Der Technik - Maximal Minimal (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grüß Dich (3:30)
+ 02. Ping Pong (4:44)
+ 03. Bitte Bitte Mit Zucker Oben Drauf (3:38)
+ 04. APM (4:53)(   Читать дальше...   )Жанр: Electronic, Synthpop, EBMПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5023688B70E05821D70740F68DB9D48BAE9B9572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522790   (756769) от 08.01.2022
+
+AM 1984 (Maurizio Avossa) - 3 Albums (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mansion Ghost (4:05)
+02. Mr. Jones (4:15)
+03. Miami Beach (4:36)
+04. The Music's Got Me (4:33)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75C75CDCCDC7FA7F3BC26031464E75E0DA08EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281483   (751610) от 08.02.2019
+
+Pet Shop Boys - Agenda (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Stupidity A Chance
+02. On Social Media
+03. What Are We Going To Do About The Rich?
+04. The Forgotten ChildЖанр: SynthpopПродолжительность: 00:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A889C0101D759859D056DA9285D458D5FDF05655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396121   (748408) от 14.07.2020
+
+The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Years (prologue) (6:09)
+02. Gloria (4:50)
+03. WeMoveForward (8:08)
+04. Days of Thunder (5:24)(   Читать дальше...   )Жанр: Synthwave, SynthpopПродолжительность: 11:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFCC64AA2E4344A8F7188E494372AB659753883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525880   (739136) от 22.01.2022
+
+Tony Birch - Gamechanger (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lone Rider (3:54)
+02. Serene (3:59)
+03. Daydreamer (3:50)
+04. Gamechanger (3:46)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC82B9F724AF75686D5672C87B4B009BAB45CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526112   (738429) от 24.01.2022
+
+The Art Of Noise - Balance (Music For The Eye) (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synth Pop, Experimental, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Definition Three) (0:15)
+ 02. Driving Rain Plus (6:59)
+ 03. The Case For A Complete Performance (3:08)
+ 04. Blue Murder (1:23)(   Читать дальше...   )Жанр: Synth Pop, Experimental, AmbientПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E97AC45D5B88C0BA89AF9F8A40CE044D20BCFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397928   (735737) от 26.07.2020
+
+MRUKS - REMIXES 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735737.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) SKURM - 80X (MRUKS Remix)
+2) SKURM - Wasted (MRUKS Remix)Жанр: Funky, Retrowave, SynthwaveПродолжительность: 00:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A8633C58680802BAA0BC723D41B950AE354517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762435   (734907) от 01.02.2022
+
+VA - Super Eurobeat Vol. 227 (2014) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dejo -  Wilder Faster Louder  (5:15)
+02. Hotblade -  Showdown  (4:13)
+03. Pamsy -  Crazy and Free  (4:03)
+04. Manuel -  Manga Style  (4:11)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057286EA796A4FBB8B98743C6BB852C4D399C00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662828   (734888) от 01.02.2022
+
+Various Artists - Super Eurobeat Vol. 223 (15 May 2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, Synth-Pop, Eurobeat>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_734888.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dave Rodgers - Into The Sunrise (4:36)
+2. Belight - Tonight In Paradise (4:38)
+3. David Dima - Heart's On Fire (4:54)
+4. Megan - Walking Alone In London (4:41)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-Pop, EurobeatПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528583   (734463) от 02.02.2022
+
+Shyguys - Venture (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey (6:44)
+02. Abilities (3:45)
+03. Pursuit (4:49)
+04. Attraction (4:03)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E569CA318A13B1E588521FC354B50DE3C966D338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528605   (734439) от 02.02.2022
+
+VA - Hungarian Synthwave Allstars Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quixotic - Highway Violence (5:52)
+02. Retroxx - Antagonist (4:57)
+03. The Neon Droid - Goodbye Paradise Bay (5:41)
+04. Megahit - Rubber Burnin' Funk (3:59)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDC8192517ED080AD6386582B06565F13E7829C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528608   (734437) от 02.02.2022
+
+VA - Hungarian Synthwave Allstars Vol. 3 (2017) Summer Edition [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biodrive - Midnight Affair (4:40)
+02. Retroxx - Lethal (4:37)
+03. The Neon Droid - LOVE (4:00)
+04. Quixotic - Teenage Hero (4:07)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E935B748D4426C793ECD29B0F2916317E87C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528599   (734434) от 02.02.2022
+
+VA - Hungarian Synthwave Allstars Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quixotic - Escape from Budapest (3:40)
+02. The Neon Droid - Sonny's Justice (6:36)
+03. Lazerpunk! - Nightcrawler (5:01)
+04. Retroxx - Insane (4:10)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED9702CCB9F24F053881DDA96CB9CE2DA9CC5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528639   (733582) от 04.02.2022
+
+VA - For The Users Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevate the Sky - Forged In Neon (4:20)
+02. DeltaCity - StarKiller (5:16)
+03. Palm Lakes - Nothing To Me (4:04)
+04. Megatronix - Notorious (5:54)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C55B4B6F68448018FFDC6EC26B1E583660F13D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127693   (731042) от 22.04.2017
+
+Sуntec - Тhе Веginning (2016) [FLAC|Lossless|image + .cue] <SynthPop, ElectroPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Beginning
+02. Catch My Fall (feat. Blind Passenger)
+03. Devil In Heaven
+04. I Don't Want To Lie Anymore(   Читать дальше...   )Жанр: SynthPop, ElectroPopПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED25FA6CA1AAE20A5EFA1C11C46C623EB51C499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283891   (731032) от 19.02.2019
+
+Tourist - Everyday (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Chillwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake (03:01)
+02. Emily (03:51)
+03. Someone Else (04:07)
+04. Love Theme (04:29)(   Читать дальше...   )Жанр: Electronic,  ChillwaveПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC80C42F8ED3D84EDD4EB33F989DA5EA50BBE95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128850   (726266) от 26.04.2017
+
+Alphaville - Strange Attractor (2017) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giants (3:29)
+ 02. Marionettes With Halos (4:23)
+ 03. House Of Ghosts (5:08)
+ 04. Around The Universe (4:01)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CADF5920ABE180E98129A0168B8B8844B39642F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243242   (724194) от 24.02.2019
+
+Nina (Nina Boldt) - 8 Releases (2011-2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Away (Radio Edit) (3:24)
+02. Take Me Away (Extended Club Mix) (5:16)
+03. Take Me Away (TNTT Remix) (4:32)
+04. Take Me Away (Disco Damage Remix) (3:56)(   Читать дальше...   )Жанр: Synth-pop, SynthwaveПродолжительность: 03:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2A3DF9F4B8FF539FA5FADACE5F29E8CC7A2483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130297   (716418) от 01.05.2017
+
+Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Higher (1:31)
+ 02/10. Merci (2:58)
+ 03/10. What Do You Need (4:00)
+ 04/10. Time to Stay (3:47)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F684E1CB0ED5672BD90F64796FFC85377CBDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400827   (715023) от 07.08.2020
+
+Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Late (4:12)
+ 02. Face Up (4:09)
+ 03. Time to Walk Away (4:16)
+ 04. Paralyzed (3:21)(   Читать дальше...   )Жанр: Electronic, Indie Pop, ChillwaveПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00FDD4882AA554F26E3EA0DEF8A4C8E745282B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991089   (714511) от 01.03.2019
+
+CHVRCHES - 4 Альбома, 3 EP, 2 Сингла (2013-2018) [FLAC|tracks|Lossless]<Synthpop, Indietronica>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714511.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - EP (Japanese Edition)
+2013 - The Bones Of What You Believe (EU Limited Edition)
+2015 - Tether (Eric Prydz vs. CHVRCHES, Single)
+2015 - Every Open Eye (EU Limited Deluxe Edition)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 05:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED84E4E813C74EBE586838E5F6500F2997CA97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401049   (713394) от 08.08.2020
+
+Kedr Livanskiy - Your Need (2019) [FLAC|Lossless|image + .cue] <House, Synth Pop >
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Need (Твоя Беда) (03:27)
+02. Sky Kisses (На Танцполе) (03:12)
+03. Why Love (Зачем Любовь) (02:37)
+04. Lugovoy (November Dub) (03:26)(   Читать дальше...   )Жанр: House, Synth PopПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6462715EEA4A655EB15537A3C5734471BD69753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

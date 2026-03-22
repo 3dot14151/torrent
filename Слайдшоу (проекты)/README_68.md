@@ -1,3 +1,57 @@
+###  Публикация: 822381   (481379) от 17.09.2014
+
+Videohive - Vintage Projector Photo Album - 5515672 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект фотоальбома в винтажном стиле.
+Превью, туториал - в раздаче.
+Музыка inspire, в одной из раздач audiojungle.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60AD2CEA9A6186EBE488A1FF8D5F836469F62FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319589   (480769) от 13.08.2019
+
+Проекты - VideoHive - Beauty Center - 24303707 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beauty Center - красивая и в тоже время простая модульная фотогалерея с имитацией объёмного просмотра изображений... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17079FC4ACC1808192FE8BC9D84E364184DC318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159587   (479749) от 22.08.2017
 
 Проекты - VideoHive - Summertime Movements - Bright Opener - 20286763 [AEP]
@@ -630,58 +684,6 @@ Hacking Technology Promo - это высокотехнологичное сла�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:589DA4B0D0B5660836A3C641CB7D917DF8297754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057873   (472751) от 29.09.2016
-
-Проекты - VideoHive - Origami One [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Origami One - это проект для создания стильного и уникального слайд-шоу, презентации или промо.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8B3413F0B83C9E6D3B6E990B3F1B9B5D6B9BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057872   (472625) от 29.09.2016
-
-Проекты - VideoHive - Time Machine [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный проект для создания вашего фильма или слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750BBF9F53CC216CE2EAE52BDA7C1EE60FAFCC55
 ```
 
 https://mybot314.ru/tekegram_catalog/

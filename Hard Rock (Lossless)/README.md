@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1859816   (1061440) от 
+
+Blind Revolution - Far From The Sun (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far from the Sun (4:17)
+ 02. The Gang (3:36)
+ 03. Christine (3:39)
+ 04. Message of Love (4:11)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083CE294DCF55738CD3AB4CA10145D5C8FCF6FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859734   (1061217) от 
+
+Gotthard - More Stereo Crush (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Now(3:15)
+02. Ride The Wave(4:07)
+03. Liverpool (feat. Marc Storace)(3:05)
+04. Smiling In The Pouring Rain(4:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BAB83ADDB2FB34D6BBEC75FFC15D8CC2135EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859110   (1060894) от 14.03.2026
+
+Bad Marriage - Match Made In Hell (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head Trip (02:57)
+02. Match Made In Hell (04:01)
+03. Ashamed To Be Human (03:22)
+04. Heaven's a Bitch (03:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBCFC6590564FC1ADD395C7B31EB9F5776A27ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858619   (1060639) от 11.03.2026
 
 Phil Vincent - Thirst Trap (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -659,93 +746,6 @@ Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|image + .cue] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C771E2A1122F4785AEFFF7E71AD66B75E032AE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840113   (1047000) от 03.12.2025
-
-Stryper - The Greatest Gift Of All (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Greatest Gift Of All t3:14
-02. Go Tell It On The Mountain 3:06
-03. Heaven Came (On Christamas Day) 4:07
-04. Little Drummer Boy 4:06(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3113FD62FA52344A0E937AEC8EF103AA239BCD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839542   (1046631) от 29.11.2025
-
-Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing With The Devil (04:30)
- 02. Pictures Of The Dead (03:21)
- 03. Saints And Sinners (03:10)
- 04. Lift Up Your Soul (04:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0C28F82ADF2C656D18E8ABC2122B18C58719D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839396   (1046613) от 29.11.2025
-
-Buckcherry - Black Butterfly (2008) Deluxe, 2025, Endurance Music Group [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rescue Me [00:03:12]
-02. Tired Of You [00:03:07]
-03. Highway Star [00:04:26]
-04. Dreams [00:03:51](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D180CF4FBA91F48C78B3F09A2F809315FC166B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

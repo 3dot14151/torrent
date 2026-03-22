@@ -1,3 +1,32 @@
+###  Публикация: 1728332   (54154) от 06.06.2024
+
+VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:37)
+02. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+03. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryu (4:38)
+04. Sergey Bryukhno - Sonnet in C Major (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732524   (52002) от 25.06.2024
 
 VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -716,35 +745,6 @@ VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6F0EC498934F8E2C5C401E347DF34EC24C77CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806287   (11602) от 13.07.2025
-
-VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical, Contemporary, Romantic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Hammerstein: London Promenade Orchestra & Chorus / Flower Duet    [0:04:03.25]
-02. Edward Elgar / Chanson de Matin    [0:03:04.00]
-03. London Promenade Orchestra / Waltz in a Flat Major, Op. 39, No. 5    [0:01:26.48]
-04. Frédéric Chopin / Etude In A Minor, Op. 25, No. 11 ("Winter Wind")    [0:03:29.44](   Читать дальше...   )Жанр: Classical, Contemporary, RomanticПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4605ECDE9CA7B2C05A691FC5507FAA25CB4EDD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

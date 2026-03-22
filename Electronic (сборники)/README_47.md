@@ -1,3 +1,61 @@
+###  Публикация: 1007607   (819903) от 16.04.2016
+
+VA - Progressive Line Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrey Meduer - Progressive Strings (Original Mix) 08:23
+02. Artem Olenev - Tropical (Original Mix) 02:34
+03. Chesterbeat - Freedom (Original Mix) 04:23
+04. Dj RIO - Euphoria (Original Mix) 03:42(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCB688D5FCD31E1DD7B026E44D143B3374D810F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007826   (819821) от 16.04.2016
+
+VA - Super Bomb Electro: Classic 2 (2016) [MP3|320 кб/с] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack - Fatility (Original Mix) (4:47)
+02. Bingo Players - L’Amour (Original Mix) (4:49)
+03. Black Spark - Give It Up Now (Original Mix) (4:39)
+04. Candyland & DirtyRock - Four Loko (Original Mix) (3:52)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFB45C685D265F2E92F170C5541F355D1C97442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007703   (819655) от 16.04.2016
 
 VA - Extra Trance (episode 10) (2016) [MP3|320 кб/с] <Trance>
@@ -687,64 +745,6 @@ VA - Feel Good Dance (2020) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDC16D6E00441E8B01013BF0AF3641A729489A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117727   (815485) от 24.03.2017
-
-VA - Private Lounge - Spring Session (2017) [MP3|320 Kbps] <Lounge, Chillout, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KTB - Another Day in Paradise (Highpass Remix)
-02. Skyfall 5 - Free (Deep Dub)
-03. Kim McNichols - Frozen
-04. Genevieve Somers - Moon Dust(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 03:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB80BE60616C210EABD1C3E2AF62C569FCC83B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117815   (815479) от 24.03.2017
-
-VA - Chillout Hits Vol.3 (2017) [MP3|320 Kbps] <Chillout, Chilltrap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fliflo M. & SinDator - Winter Snow
-02. Michelle Buzz ft. Unlike Pluto - Found You
-03. Ember Island - Need You (Not Your Dope & Jakoban Remix)
-04. Fabian Mazur & Dia Frampton - Young Once(   Читать дальше...   )Жанр: Chillout, ChilltrapПродолжительность: 02:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6990C6B097B509C6304918E8383B21B4918C0DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

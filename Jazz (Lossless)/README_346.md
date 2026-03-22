@@ -1,3 +1,177 @@
+###  Публикация: 1779071   (70757) от 11.02.2025
+
+Sivuca & Guitars Unlimited - Let's Vamos (1987) Sonet Records [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coisa No 10 [4:09]
+02. Vassourinhas [3:08]
+03. Chorinho p'ra Ele [2:24]
+04. Trem Caipira [3:31](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA5320141245E70F9AE9746F1ADA58558D7ADB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779097   (70755) от 11.02.2025
+
+LAHR.(ex-De/Phazz) – Lyrical Amusement (Limited Edition) (2002) [FLAC|Lossless|tracks + .cue] <Future Jazz, Downtempo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backyard Rising
+02. Back From Paris
+03. Laughing Song
+04. Love Set You Going(   Читать дальше...   )Жанр: Future Jazz, DowntempoПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A4E2E8674446E81741E89B40CDC7AC9F9D110B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779234   (70731) от 12.02.2025
+
+Eliane Elias - Time And Again (2024) Candid [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At First Sight [5:24]
+02. Falo do Amor [3:58]
+03. It's Time [3:57]
+04. How Many Times [5:27](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662EA6CD98C20C69218398AB66A2F9F0523938A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779232   (70714) от 12.02.2025
+
+Eliane Elias - Quietude (2022) Candid [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voce e Eu (You and I) [4:54]
+02. Marina [3:37]
+03. Bahia com H (Bahia with H) [4:17]
+04. So Tinha Que Ser Com Voce (This Love That I've Found) [3:03](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF74F5624E5786DC995FB7676FCEC32F8FFDE9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779397   (70675) от 13.02.2025
+
+Carmen McRae - Milestones Of A Jazz Legend (1954 - 1961) 10CD, 2019, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Could Write a Book [3:11]
+02. Body and Soul [4:26]
+03. Thou Swell [1:33]
+04. Round Midnite [4:52](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 11:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF55E57746EEC57D39B5518E7AD2DE3A5A96A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779418   (70662) от 13.02.2025
+
+VA - Jazz Funk Instrumentals Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Venus Ship - Tupac Amaru (4:32)
+02.  Black & Brown - P-Lainz (6:23)
+03.  Soulstance - Wine Shop (5:59)
+04.  The Smoke Orchestra - God Make Me Funky (Instrumental) (4:12)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 02:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F2CD9AB23497EAFBC22E561848C0319A9A1D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779668   (70625) от 14.02.2025
 
 Les McCann - How's Your Mother (1967) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano jazz>
@@ -571,180 +745,6 @@ VA - Candlelight Rendezvous Romantic Smooth Jazz Instrumentals (2025) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501263598294CE8FE9E512299E30AE2C1AFE8778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780531   (70424) от 18.02.2025
-
-VA - Date Night Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roberta Flack - Killing Me Softly with His Song (4:47)
-02.  Guillaume Vincent - Summertime (3:44)
-03.  Rumer - Some Lovers (2:31)
-04.  Michael Bublé - When I Fall in Love (4:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E3F0EAB266C203FFC366C17F7714AD19B24855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780453   (70423) от 18.02.2025
-
-J.J. Johnson - Vivian (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Together [5:35]
-02. Frankie and Johnnie [5:19]
-03. I Thought About You [8:01]
-04. I Love You [8:20](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E57606B5BEDB2B22764D4D18532A7532C8011B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780445   (70422) от 18.02.2025
-
-Richard Davis, Sir Roland Hanna, Frederick Waits - Persia My Dear (1987) DIW Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manhattan Safari [7:50]
-02. Southpark and Richard [6:02]
-03. Summer in Central Park [5:06]
-04. Brownie Speaks [6:26](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C719AED81CE9FF20079EE46BC2422EB6D6C5AB65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780458   (70421) от 18.02.2025
-
-Woody Herman - The Jazz Collector Edition (1991) Laserlight [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caldonia [2:54]
-02. Wildroot [3:18]
-03. Curbstone Scuffle [3:09]
-04. The Good Earth [2:40](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54271223338FF103D7F76F9C49CA9426B356DA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780455   (70420) от 18.02.2025
-
-Nick Brignola - Things Ain't What They Used to Be: Last Set At Sweet Basil (1992) 2003, Reservoir Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things Ain't What They Used to Be [9:22]
-02. You Go to My Head [9:06]
-03. Tadd's Delight [7:48]
-04. In So Many Words [9:22](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAC475D78DAEBF18DC7B0BA3D17BE6D79B249F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780630   (70382) от 19.02.2025
-
-Kenny Burrell - Prestige Profiles (1956 - 1963) 2005, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Close My Eyes [4:51]
-02. Montono Blues [4:47]
-03. All of You [6:21]
-04. It's a Wonderful World [5:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Guitar JazzПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D749DD8B82D2474218AB7B380285D84540D24695
 ```
 
 https://mybot314.ru/tekegram_catalog/

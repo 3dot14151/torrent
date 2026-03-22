@@ -1,3 +1,61 @@
+###  Публикация: 1209214   (779125) от 28.02.2018
+
+Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. ODIN SPHERE's Theme [1:48]
+02. Opening Title [0:55]
+03. Attic Archive [3:15](   Читать дальше...   )Жанр: ScoreПродолжительность: 02:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209648   (779089) от 28.02.2018
+
+Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wakanda Origins (01:44)
+02. Royal Talon Fighter (04:01)
+03. Wakanda (02:20)
+04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B386E49946407D2CAC2A9FD5CE600852152D165B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210044   (778987) от 01.03.2018
 
 David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lounge>
@@ -687,64 +745,6 @@ Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B908D78504836CDB5B03835EA78DEE93AADC7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012985   (777961) от 03.05.2016
-
-Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pathway to the Past    06:23
-02. Celebrating Ancient Times    05:08
-03. Dance of the Spirits    04:27
-04. Festival at the Castle    08:16(   Читать дальше...   )Жанр: New Age, EthnicПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B335E12765C7BFFBE4F87FB2FB73FC9E72134C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533777   (777772) от 03.05.2016
-
-Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Universal Music Company [FLAC|Lossless]<Progressive rock, pop, Celtic fusion, world, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To France (with Maggie Reilly) (4:48)
- 02. The Lake (13:43)
- 03. The Killing Fields (2:44)
- 04. Etude (4:38)(   Читать дальше...   )Жанр: Progressive rock, Pop, Celtic Fusion, World, New AgeПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D10CD9FD8DA70676AF2B9D2917E8FA064EECAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

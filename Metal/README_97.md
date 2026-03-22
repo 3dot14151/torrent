@@ -1,3 +1,119 @@
+###  Публикация: 1584334   (224770) от 19.10.2022
+
+Hangar 55 - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:02]
+02. Asylum [00:04:29]
+03. Wings [00:04:53]
+04. Pilots [00:03:58](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 2 CD, 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27803BE96A6E7A5335C19A9265469C6C80AE8EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584778   (224767) от 19.10.2022
+
+Ira - Identidad (2022) [FLAC|Mp3|320 kbps] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Identidad [00:04:15]
+02. Mundo Enfermo [00:03:55]
+03. Cuestion de Fe [00:03:51]
+04. Cosas Raras [00:05:21](   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B145510F6F2F57A412A43E30A69B9372B634DFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584366   (224694) от 19.10.2022
+
+Big Big Train - Summer Shall Not Fade. Live At Loreley (2022) 2CD [MP3|320 Kbps] <Progressive Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude & Fugue [00:03:01]
+02. Judas Unrepentant [00:07:33]
+03. The Transit Of Venus Across The Sun [00:07:58]
+04. The Permanent Way [00:08:12](   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 2CD, 01:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE229EFDB81FD3380865EE07E8AAE1D076174B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965511   (224635) от 15.12.2015
+
+Ultimate Holocaust - Blackmail The Nation (2015) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224635.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. U.L.T.I.M.A.T.E. (Protector of the World)
+2. Out of Frequencies
+3. Blackmail the Nation
+4. Reportage(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C28E912E93DC49CC6069FFF58841C85852AA4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584350   (224398) от 19.10.2022
 
 Feskarn - 3 Albums (2014-2022) [MP3|320 Kbps] <Viking Folk Metal>
@@ -625,122 +741,6 @@ Iron Allies - Blood In Blood Out (2022) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034026D4F95D041D0C07EA6DAD6558D6BCAE961E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651183   (222376) от 06.08.2023
-
-25th Mission - Resilience (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resilience
-02. Clash Of The Faiths
-03. Fight Kill Die
-04. Compelled To Kill(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C21ECD51EA89280A3A4DF42200F39D68FD7D037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585142   (222240) от 21.10.2022
-
-Steel Inferno - Evil Reign (2022) [MP3|320 Kbps] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - No Escape [00:03:22]
-02 - Breakout [00:03:06]
-03 - Siren Of The Air [00:03:10]
-04 - Queen [00:03:54](   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65C76E1C752D3B00D7172C80A21080B06EBB833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269410   (221607) от 14.12.2018
-
-Лютомысл - Ecce Homo (2018) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221607.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Без Вогню Провідної Зорі (Without The Light Of The Guiding Star)
-2. Колиска Кровопролиття (Cradle Of Bloodshed)
-3. Омани Життя (Fallacies Of Life)
-4. Обминути Вартового (To Pass By The Guard)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AF0634A07784F1EC7947AA2A1C73E603736FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269394   (221338) от 14.12.2018
-
-Nita Strauss - Controlled Chaos (2018) [MP3|320 Kbps] <Instrumental Heavy Metal, Progressive Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Prepare For War 0:21
-02.Alegria 3:45
-03.Our Most Desperate Hour 4:05
-04.Mariana Trench 3:39(   Читать дальше...   )Жанр: Instrumental Heavy Metal, Progressive Metal, Hard RockПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD1B8F4151E088F68677CB966C15F9B670A3B06
 ```
 
 https://mybot314.ru/tekegram_catalog/

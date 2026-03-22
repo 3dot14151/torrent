@@ -1,22 +1,24 @@
-###  Публикация: 1175558   (378808) от 18.10.2017
+###  Публикация: 1574814   (383750) от 06.09.2022
 
-Журнал | Добрые советы. Люблю готовить! №11 (ноябрь 2017) [PDF]
+Ozzy Osbourne - 3 Singles (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Журналы
->>Кулинарные журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378808.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал о вкусной еде, не похожий на другие кулинарные издания. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах журнала — более 100 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою коллекцию рецептов (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+Single 01 - Patient Number 9 (feat. Jeff Beck)
+Single 02 - Degradation Rules (feat. Tony Iommi)
+Single 03 - Nothing Feels Right (feat. Zakk Wylde)Жанр: Heavy Metal, Hard Rock |Продолжительность: 00:17:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1ACA64998F9D4B1125F539D920D8D29C7DF9548
+magnet:?xt=urn:btih:0B088F80A629056402C03869A039FC69F28D0FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,119 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412616   (378807) от 11.10.2020
+###  Публикация: 1574714   (383748) от 06.09.2022
 
-Аквариум - Песни Джорджа (2020) [AAC|~328 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пой, пой, лира (3:32)
-02. Хорал (0:27)
-03. 15 Голых баб (2:21)
-04. Менуэт земледельцу (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBED57B2EA46CFB9D0A7974C19C56DE948DD490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573202   (378806) от 11.11.2012
-
-VA - Радио Шторм - NeРусский Шторм - 79 (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378806.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ace Of Base - Unspeakable (Dj A-One Remix)
-2. Airplace - Cherry pie
-3. Aitor Galan, Dr. Bellido - Ella No Volvera (Aitor Galan Extended Mix) (Blanco y Negro)
-4. Aldo Vanucci - You re All Show feat Kylie Auldist Dr Meaker Remix
-5. Alexandra Shine - CATCH YOU
-6. Aly and Aj - Potential breakup song
-7. Anna Lesko - Ia-ma (Extended)
-8. Chris Brown - Don&Judge Me (Fuego Radio Edit)
-9. Chris Thrace - Lullaby (Radio Edit)
-10. Christina Aguilera - Let There Be LoveЖанр: Pop, DanceПродолжительность: 03:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD4B1BDB1ECB4A6648F5A55654AFB5D5AEB5220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175343   (378805) от 18.10.2017
-
-VA - Sound Clinic (2017) [MP3|320 Kbps] <House, Tech House , Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alana Brazda – Nice To Meet You
-02. Caique Carvalho – Wanna (Original Mix)
-03. Martin Switch – Morpho (Original Mix)
-04. Bontan – Personal Question (Original Mix)(   Читать дальше...   )Жанр: House, Tech House , Future HouseПродолжительность: 05:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338B3269252C2E6890845B79945B44D98A617E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415266   (378804) от 11.10.2020
-
-HiBit Uninstaller 2.5.45 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Glary Utilities Pro 5.194.0.223 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378804.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HiBit Uninstaller - идеальное решение для удаления программ Windows, которое позволяет вам деинсталлировать программы быстро и полностью, используя простой и дружественный к пользователю интерфейс. Так же, в программе имеется множество средств для очистки и управления вашей системой.
-Удобной функцией в HiBit Uninstaller является удаления программ посредством менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6033D24BCA4DB270B02DC7E730570838587FEED3
+magnet:?xt=urn:btih:A371A023051E14F9965681D0687C97C93A7AD60C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -144,34 +52,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 573925   (378803) от 11.11.2012
+###  Публикация: 1574694   (383746) от 06.09.2022
 
-VA - Лидеры Музыкальных Чартов (2012) [MP3|256 кб/с]<Pop, Dance>
+VA - In Search of Sunrise 18 (Mixed by Markus Schulz & Matt Fax & Dennis Sheperd) (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - When the Light Breaks in Sarmi (Original Mix)
+02. Emma Hewitt & Markus Schulz - INTO MY ARMS (Original Mix)
+03. Will Atkinson - Pipe Dreams (Jerome Isma-Ae Remix)
+04. Kyau & Albert - Falling Anywhere (David Broaders Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832B2BE7867EB4200F35609F53EB39F596141A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719540   (383745) от 06.11.2013
+
+Etherwood - Etherwood (2013) [FLAC|Lossless|WEB-DL]<Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378803.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Samo'L - Двигаем Телами
-002. Время и Стекло feat. Потап - Слеза
-003. T-killah feat. Лена Катина (ex. t.A.T.u) - Shot
-004. Юлия Савичева - Не Уходи
-005. Оксана Ковалевская - А Девочке Хочется
-006. Лера Туманова (Электра) - Здравствуй (Paul Vine Remix)
-007. Mike - Love Me Like You Say
-008. Горячий Шоколад - За Тобой
-009. А-Студио - Раз И Навсегда
-010. Connect-R - Love Is The Way (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:04
+01. Begin By Letting Go (Original)
+02. Weightless (Original)
+03. Unfolding (feat. Laurelle Robichaud) (Original)
+04. Hold Your Breath (Original)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:25:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B97ECD4DD866CAA6CF46767F53067F304FB979BD
+magnet:?xt=urn:btih:BE20A2C1240F9AA620B21CD02C8ED765F85DA4E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -179,25 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175349   (378802) от 18.10.2017
+###  Публикация: 1574742   (383744) от 06.09.2022
 
-Вечерний Ургант (2017.10.17) SATRip
+Футболисты / Ballers (2015) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) Amedia
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378802.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:52Реклама: Присутствуют вставки текстовой рекламы
+Сюжет повествует о жизни профессиональных игроков в американский футбол. Они зарабатывают миллионы, на них молятся фанаты, их показывают в новостях. Но помимо многочасовых тренировок, пятничных игр и вспышек фотокамер у них есть друзья, семьи и, конечно, проблемы – почти такие же, как у обычных людей. С девушкой помириться - это, знаете ли, не тачдаун оформить.Производство: США /  Closest to the Hole Productions, Film 44, Leverage ManagementЖанр: драма, комедия, спортРежиссер: Джулиан Фарино, Саймон Селлан Джоунс, Хлоя ДомонАктеры: Дуэйн Джонсон, Джон Дэвид Вашингтон, Донован В. Картер, Трой Гэрити, Омар Бенсон Миллер, Роб Кордри, Лондон Браун, Жасмин Саймон, Карл Макдауэлл, Ричард ШиффПеревод: Многоголосый профессиональный (Amedia)Язык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: ~00:27:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C557FA5AA240F172D19AA3E5894FD53BB7503B67
+magnet:?xt=urn:btih:E42F0489FC70D5635B5878535DE3F6B663FB293C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -205,25 +136,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414949   (378801) от 11.10.2020
+###  Публикация: 1574783   (383742) от 06.09.2022
 
-Спаси и сохрани (Благослови дитя) / Bless the Childa (2000) WEB-DLRip [H.264/720p-LQ]
+Дмитрий Борк | Последний рубеж (2022) [MP3, Иван Букчин]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378801.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Спокойная и размеренная жизнь Мэгги О`Коннор превращается в сплошной кошмар, когда она узнает, что ее приемная дочь становится объектом преследования секты сатанистов. Мегги, собрав всю свою волю и храбрость, отчаянно защищает свою малышку. Однако, в битве с силами тьмы обычное оружие не может помочь. Только чистая душа маленькой девочки и ее врожденные способности (   Читать дальше...   )Производство: США, Германия / Paramount Pictures, Icon Entertainment InternationalЖанр: Ужасы, Триллер, Драма, КриминалРежиссер: Чак РасселлАктеры: Ким Бейсингер, Джимми Смитс, Холлистон Коулмэн, Руфус Сьюэлл, Анджела Беттис, Кристина Риччи, Майкл Гэстон, Луми Кавасос, Димитра Арлисс, Юджин ЛипинскиПеревод: Многоголосый профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 01:47:47
+«Последний рубеж» – роман в жанре остросюжетных приключений. История беспечного игрока, случайно попавшего на Аляску, в тайгу. Там, в дикой природе, в полном одиночестве начнется ежедневная борьба за жизнь. Удастся ли выжить и поможет ли ему в этом дружба с волчицей, вы узнаете, прочитав этот увлекательный роман. Роман поднимает вопросы о том, как часто нам в своей (   Читать дальше...   )Жанр: Приключения, современная прозаПродолжительность: 12:47:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A01FFB50148F94FEDDFB6FB1E5399F55E3C95304
+magnet:?xt=urn:btih:FCA76F90E477D35126DD08F3A5EFAE142150004C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -231,25 +162,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175607   (378799) от 18.10.2017
+###  Публикация: 719523   (383740) от 06.11.2013
 
-С.И. Кабанихин | Обратные и некорректные задачи (2009) [DJVU]
+Bee Gees - The Festival Albums Collection (1965-1967) 3CD /2013, Warner Music/  [FLAC|Lossless]<Pop-Rock>
 
->>Научная и техническая литература
->>Учебники
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378799.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В учебнике изложены методы исследования и решения обратных и некорректных задач линейной алгебры, интегральных и операторных уравнений, интегральной геометрии, спектральных обратных задач и обратных задач рассеяния; рассмотрены линейные некорректные задачи и коэффициентные обратные задачи для гиперболических, параболических и эллиптических уравнений; дан обширный (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+01.   Turn Around Look At Me   (2:20)
+02.  The Battle Of The Blue And The Grey   (2:08)
+03.  The Three Kisses Of Love   (1:51)
+04.   Theme From  Jamie McPheeters   (1:54)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:35:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40CE2C71344B1D929C4771BFD9FC136274BBD450
+magnet:?xt=urn:btih:2C498CC06C59EE0351844BD246788EEB4BD08399
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,25 +191,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175278   (378797) от 18.10.2017
+###  Публикация: 717272   (383738) от 06.11.2013
 
-Право голоса. Европа против Украины? (17.10.2017) SATRip
+Подшивка журналов | Факел (2002-2004) [PDF]
 
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378797.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Принятый Украиной закон об образовании нарушает баланс между государственным языком и языками проживающих в стране национальных меньшинств, говорится в резолюции по украинскому закону, одобренной ПАСЕ. Ранее Будапешт заявил, что будет требовать пересмотра Соглашения об ассоциации между ЕС и Украиной. Может ли Евросоюз изменить соглашение под давлением Венгрии и Румынии?Телекомпания: ТВ-ЦентрЖанр: Политическое ток-шоуПродолжительность: 01:20:00
+Fакел - журнал для тех, кому больше всех надо. Самое дорогое бесплатное издание в мире. Журнал для тех, кто хочет действовать, умеет мыслить и любит любить. Для думающих молодых людей, способных интересно, весело и вкусно жить. В  любом пейзаже и при любом доходе. Наш девиз - жизнь прекрасна, потому что несправедлива.Жанр: ПублицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF0C4D42CBDA85B0098A5A11396F686C69CA850E
+magnet:?xt=urn:btih:940728D760CDFF0B9F03292C30A0DA312FEC28DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,172 +217,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175612   (378795) от 18.10.2017
+###  Публикация: 1414444   (383726) от 09.10.2020
 
-VA - Лучшие Клубные Новинки Vol.1 (Октябрь) (2017) [MP3|320 Kbps] <House, Progressive, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378795.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  KSHMR & Sonu Nigam - Underwater (Extended Mix)  4:17
-002.  Steve Allen & Sarah Lynn - Broken Child (Extended Mix)  8:15
-003.  Arkham Knights - Gravity (Extended Mix)  6:54
-004.  Damien N-Drix - Wingz (Original Mix)  3:24(   Читать дальше...   )Жанр: House, Progressive, Trance, Club, DanceПродолжительность: 08:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F0AF4DD63F258D97E312C1FCF90FD13C55F115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573473   (378792) от 11.11.2012
-
-VA - MAXI. Взрывной Зарубежный Хит (2012) [MP3|320 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greg Basso feat. Theodora - From Paris with Love (Original Radio Edit)
-02. Flo Rida - Let It Roll (Gordon & Doyle Bootleg Mix)
-03. Example - Close Enemies (Extended Mix)
-04. Dmitriy Gordov feat. Maryana Dan - Love Station
-05. Waveshock - Summer Love (Radio Edit)
-06. Dereck feat. Iulian Florea - Ellatheia
-07. Tom Boxer feat. Meital De Razon - Pu Pu Pu
-08. Kelly Clarkson - Catch My Breath
-09. Delyno feat. Morra - Je T'adore (Radio Edit)
-10. Timati feat. Nick McCord - Taking You Home(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7199C5294C1C314A1AF95AC33A7C1F16880457BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326826   (378791) от 23.09.2019
-
-EverWeb 3 v3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378791.jpg" />
-</div>
-
-
-###  Подробнее
-
-С EverWeb вы даже можете создает мобильные сайты, которые отлично смотрятся на iPhone и iPad, и включает в себя такие мощные функции, как раскрывающиеся меню, интеграция с социальными сетями, встроенный SEO, поддержка шрифтов Google и многое другое. Множество готовых шаблонов, из которых есть что выбрать или использовать нужные элементы.
-
-Публикуйте свой веб-сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: RAGE SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204842B18AD78FABF72D4787EEA7559D23E4C63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326846   (378790) от 23.09.2019
-
-MarsEdit 4 v4.3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5F16641E49FD8CF1BC88A621BE180691C431B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326780   (378789) от 23.09.2019
-
-Unite 2.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unite позволяет быстро и легко превратить веб-сайты в полнофункциональные нативные приложения для MacOS. Используя революционный браузер Unite в качестве бэкэнда, каждое приложение Unite имеет собственный браузер, оставаясь при этом невероятно маленьким и полнофункциональным. И поскольку приложения Unite являются уникальным браузером, они имеют отдельные файлы cookie (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: BZG Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4B487C48979C33A0B67A92805CEC151E85FF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327103   (378788) от 23.09.2019
-
-Miles Davis - Miles' Groove (1953 - 1956) 3CD, 2007, IMC Music [APE|Lossless|image + .cue] <Bop, Cool, Hard Bop>
+Sam Lazar Trio - Playback (1961) 1998, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378788.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Kelo [3:17]
-02. I Waited for You [3:29]
-03. The Leap [4:30](   Читать дальше...   )Жанр: Bop, Cool, Hard BopПродолжительность: 02:34:47
+01. Deep [5:09]
+02. Long Gone [3:53]
+03. Bag's Groove [4:06]
+04. Fuzz Buzz [7:07](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:38:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0AF4EA2CE38C0D94EC0E7BDEBD3BA294EFA1A43
+magnet:?xt=urn:btih:EEE163B790687915676DBB29D059D47981A73462
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,26 +246,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327007   (378787) от 23.09.2019
+###  Публикация: 1414635   (383725) от 09.10.2020
 
-Pastebot 2.2.1 [En]
+Walt Dickerson - 1976 (2010) Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378787.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pastebot - менеджер истории буфера обмена
-Если copy & paste является частью вашего рабочего процесса, Pastebot является незаменимым инструментом для повышения производительности. Быстро вспомнить обрывки, которые вы скопировали и применять мощные текстовые фильтры для форматирования перед вставкой. Вы можете даже стоять в очереди несколько копий, чтобы вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tapbots LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+01. Sky [10:17]
+02. Awareness [4:29]
+03. Key of Wisdom [6:00]
+04. Yesterdays [9:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:42:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:781A01BA276274FB63AD8760E789BA8EC7A4F863
+magnet:?xt=urn:btih:6496B37C5392297D755B093EB7BF390EA981E3EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,28 +275,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327054   (378786) от 23.09.2019
+###  Публикация: 1414633   (383724) от 09.10.2020
 
-MovieSherlock 6.0.2 [En]
+Peter Bernstein - Let Loose (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378786.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
-MovieSherlock - это лучший способ получить видео на ваш Mac.
-
-MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Capibara Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+01. Let Loose [6:47]
+02. Resplendor [7:06]
+03. Hidden Pockets [6:01]
+04. Tres Palabras [5:25](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:55:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F15C0426EF235E8AEE9CE5A71AF15C565DF0D72
+magnet:?xt=urn:btih:484861F2A724E69C5D07F0F9063399F6E9A4A2B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,163 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326875   (378785) от 23.09.2019
+###  Публикация: 1414795   (383723) от 09.10.2020
 
-TextBar 3 v3.2.182 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378785.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextBar позволяет вам использовать скрипты, чтобы добавить что-нибудь в вашу строку меню.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Rich SomerfieldПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCF60F94D65DE24C080B7CFA07F9C480E14577E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326860   (378784) от 23.09.2019
-
-TotalSpaces 2 v2.7.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378784.jpg" />
-</div>
-
-
-###  Подробнее
-
-TotalSpaces - удобное приложение для управления рабочими столами на вашем Mac. Определите размер сетки (количество рабочих столов) и можете свободно перемещаться между ними - вверх, вниз, вправо и влево. Выберите переходы - куб, слайды или другие из доступных, назначьте горячие клавиши и получите макисимальное удобство при работе с приложением. TotalSpaces - простая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2019Разработчик: BinaryageПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1093D5EF7F91A4DC43FD9413A07F7BCAC2EBD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326982   (378783) от 23.09.2019
-
-GlueMotion 1.3.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378783.jpg" />
-</div>
-
-
-###  Подробнее
-
-GlueMotion - идеальный инструмент для фотографов. Приложение позволяет редактировать пакетные Deflicker и собирать последовательности изображений в покадровые фильмы.
-
-GlueMotion был создан, чтобы сэкономить время и помочь вам в процессе работы. Благодаря использованию инструмента пакетного редактирования, нет необходимости использовать дополнительные приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B491C298262FF004F327442AF77A81491C22D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326804   (378782) от 23.09.2019
-
-Grids for Instagram 5.6.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grids переносит лучшее из Instagram на ваш Mac.
-Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37321CDDACB60EFADAF74BC2DDD167DAAA57771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327011   (378781) от 23.09.2019
-
-Mellel 4.2.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
-
-Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.09.2019Разработчик: RedleXПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97823EB4E2887DCD3652570B1D11B160BBBE2905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326936   (378780) от 23.09.2019
-
-Place Vendome - 4 Albums (2005-2017) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Warlung - Optical Delusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378780.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Place Vendome - проект в который входят бывший вокалист «HELLOWEEN» Михаэль Киске «Michael Kiske» и басист «PINK CREAM 69» Денис Уорд (Dennis Ward) был основан в 2004 году. На выбор названия проекта, предположительно, повлиял фильм Place Vendome (Вандомская площадь, 1998) с участием Катрин Денёв.Список альбомов:
-2005 - Place Vendome
-2009 - Streets Of Fire
-2013 - Thunder In The Distance(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:43:06
+01. Phantasmagoria [00:05:30]
+02. The Scorpion In The Sand [00:04:49]
+03. Snake Eyes [00:03:21]
+04. Sun Eater [00:05:55](   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:39:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A15142409C3B2AB3E3E9A4F0CEAEA31926797B1A
+magnet:?xt=urn:btih:992997C4E8AB85D990DFE3F957651BECAD4F891B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,28 +333,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327183   (378779) от 23.09.2019
+###  Публикация: 1414631   (383722) от 09.10.2020
 
-The Black Keys - Let's Rock (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Blues Rock, Garage Rock>
+Allen Farnham - Live at Maybeck Recital Hall, Vol. 41 (1994) 1996, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378779.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shine A Little Light (3:17)
- 02. Eagle Birds (2:40)
- 03. Lo/Hi (2:58)
- 04. Walk Across The Water (3:56)(   Читать дальше...   )Жанр: Alternative Rock, Blues Rock, Garage RockПродолжительность: 00:38:34
+01. In Your Own Sweet Way [6:38]
+02. Waltz for Debbie [7:44]
+03. The Carpal Tunnel Blues [4:48]
+04. Maybeck Sketch No.1 [4:43](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:03:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFA1EB22211C568B02DF03FF626973E1AFF84B3D
+magnet:?xt=urn:btih:740D279D83A7EF5BA0830EE1F371A147A8876353
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,25 +362,392 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327021   (378778) от 23.09.2019
+###  Публикация: 1414432   (383721) от 09.10.2020
 
-iClock Pro 5.5 [Multi]
+The Kenny Burrell Quartet - The Tender Gender (1966) 2012, Passion Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother-in-Law [4:42]
+02. Hot Bossa [4:40]
+03. People [2:43]
+04. Isabella [5:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B7A9B35C27AA77C761086507970E49AAE9887A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572960   (383720) от 09.11.2012
+
+VA - Big City Trance Volume 41 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383720.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Big City Trance Volume 41 (2012)
+Год: 2012
+Жанр: Uplifting Trance, Trance
+Продолжительность: 02:30:28Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Lunar Motion - Aozora (Benjani Remix)
+002. Realistic Brain - Art (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50FC1CEFD75269229A1BA0183A40C006A1AB5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572465   (383718) от 09.11.2012
+
+VA - Осенний хит. Полный вперед! (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J'well - Небо В Твоих Руках (Radio Edit)
+02. Ирина Билык - Сильнее
+03. Андрей Артемьев - Всего Лишь Игра
+04. Кирилл Андреев - Кофе с ромом (DJ Arhipoff Original Mix)
+05. Амира - Вот И Всё
+06. Варвара & Бурановские Бабушки - А Не Пойду Замуж Я
+07. Danila Rastv - Ну, Как Ты Там (DJ Shulis aka Sergey Version 2.0 Remix 2012)
+08. Winter - Нелюбовь (Andrian & Alex Ortega Remix)
+09. Иракли - Я Тебя Люблю (DJ Favorite & DJ Kristina Mailana Remix)
+10. Юлия Савичева feat. DJ Feel - Я С Тобой(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF8F03D685F89421E368334AA08637389488E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572238   (383714) от 09.11.2012
+
+VA - Shimi Sonic - Beats And Thoughts Mixtape (2012) [MP3|320 кб/с]<Funk, Breaks, Soul, Bass, Hip Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Shimi Sonic - Supernova (Mouldy Soul Remix)
+02.Gramatik - the culture
+03.Kid Cudi feat. Chip Tha Ripper & Christian Bale - All Talk
+04.Baker brothers - Can ya dig it
+05.Mad Lads - Get Out of My Life, Woman (shimi sonic remix)
+06.Ronson Osaka Monaurail - Pick Up Bang Bang (Steely Chan Blender Mash)
+07.Shimi Sonic - I'll Take You (El Bomba Remix)
+08.Bounce Brothas - Do It
+09.Marc Mac - Speak Louder
+10.Marc Hype and Jim Dunloop - stamp out reality(   Читать дальше...   )Жанр: Funk, Breaks, Soul, Bass, Hip HopПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1B69332FCF82D047D23DC6C0D1667F89563929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572935   (383712) от 09.11.2012
+
+VA - Global Trance Music (27.10.2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378778.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iClock - это отличная замена часов в строке меню, установленных по умолчанию. iClock Pro - это полностью переработанная и усовершенствованная версия популярного iClock. Огромное количество настроек времени, даты, календаря и множества других приятных мелочей, которых иногда не хватает в системных часах Apple.Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: Plum Amazing, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+01. Veselin Tasev - Sant Rafel De Sa Creu (Reorder remix) (7:17)
+ 02. Andy Wide - Friday 13 (original mix) (6:15)
+ 03. Nikhil Prakash - Booyah (8 Mirrors remix) (7:11)
+ 04. Mathew Brabham - Be Strong (Mindrunner remix) (8:27)
+ 05. Secret Lady - Key To The True (Single) (3:49)
+ 06. Redy - Boza Majurac (original) (7:27)
+ 07. Dmitry Aeolus - Island Of Magnan (original mix) (6:09)
+ 08. Nathalie Van Rain - Dark Soul (dirty mix) (6:07)
+ 09. Gnidj - Stay In His Dream (original mix) (7:07)
+ 10. Ajvas & East - Sugar (feat Syntheticsax - original mix) (6:42)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:59:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF2FD8546BBABEA54B317D6B35127AE5429A2E06
+magnet:?xt=urn:btih:6857C57E2DD6B8D0BF093F0D35E33145624C3EC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572897   (383710) от 09.11.2012
+
+VA - TMP: Clear Sky 090 (2012) Set [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383710.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - TMP: Clear Sky 090 (2012) Set 
+Год: 2012
+Жанр: Trance, Vocal Trance
+Продолжительность: 01:09:27Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Norin & Rad - Bloom
+002. Michael Jay Parker - Blue (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1359782764107E58A1986D7D6B678DC4DA77EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572135   (383705) от 09.11.2012
+
+VA - Dub-Pack - Week 9 (2012) [MP3|320 кб/с]<Dub-Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 16bit – Cobra
+2. Bassnectar & Datsik – YES
+3. Camo & Krooked feat. Shaz Sparks – All Fall Down (Club Mix)
+4. Camo & Krooked feat. Shaz Sparks – All Fall Down
+5. Cheryl Cole – Parachute (Eliminate Remix)
+6. Clubroot – Remember Me
+7. Craig Armstrong – Escape (Mt Eden Remix)
+8. Dansette Junior – Paranoid
+9. Fenech-Soler – Lies (Doctor P Remix)
+10. Flux Pavilion – Bass Cannon (Lily Bizarre Remix)(   Читать дальше...   )Жанр: DubStepПродолжительность: 01:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9606613440CCDE164CF3C5557DECF4D1E27B6756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403412   (383697) от 28.10.2011
+
+Доказательства Бога-2 Не просчитаться (2011) DVD5
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый мощный фильм с доказательствами существования Бога и загробной жизни.Жанр: ДокументальныйПродолжительность: 03:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1512BB5075F21885A06B2F87CDC0D68149F520D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403366   (383689) от 28.10.2011
+
+Трансформеры [Трилогия]/ Transformers [Trilogy] (2007-2011) BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Фантастика Приключения БоевикРежиссер: Майкл Бэй /Michael Bay/Перевод: Дублированный
+
+ФайлСубтитры: Русские (полные (2 вида), форсированные), Украинские (полные, форсированные), Английские (отдельно)
+
+ФайлФормат: AVIПродолжительность: 02:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3BACCBE22DDD9628E8BB3E0BD1F2D3A86BAD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403779   (383687) от 28.10.2011
+
+[Lossless RePack] Battlefield 3 [Ru/En] 2011 | PUNISHER
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battlefield 3 оставляет позади всех своих конкурентов, благодаря мощностям нового невероятного игрового движка Frostbite™ 2 от DICE. На этом произведении искусства основывается весь Battlefield 3, предлагая игроку великолепное качество графики, локации невероятных масштабов, полное разрушение объектов, динамический звук и реалистичную анимацию персонажей. Вы сможете прочувствовать поле боя как никогда раньше, с свистящими вокруг пулями, рушащимися стенами и сбивающими вас с ног взрывами. В Battlefield 3 игрокам предстоит стать элитой морской пехоты США и погрузиться в захватывающие задания из одиночной игры и великолепные многопользовательские сражения по всему миру, в том числе в Париже, Тегеране и Нью-Йорке.Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006D30C449DDB8F20F2ADCEA171CF2D6FFF008F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403860   (383685) от 28.10.2011
+
+Один день / One Day (2011) [H.264] BDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмма — романтична, остра на язык и хочет изменить мир к лучшему. Декстер — плейбой, баловень судьбы и хочет, чтобы мир принадлежал ему. Впервые Эм и Декс встретились 15 июля на выпускном в колледже и провели вместе только один день. А потом пришла ночь, и они…решили остаться друзьями. Они будут встречаться в тот же день через год, через два. Но сколько лет должно (   Читать дальше...   )Производство: США, Bold Films, Odd Lot EntertainmentЖанр: Драма, МелодрамаРежиссер: Лоне ШерфигАктеры: Энн Хэтэуэй, Джим Стёрджесс, Том Мисон, Джоди Уиттакер, Тим Ки, Рейф Сполл, Жозефин Де Ла Буме, Патришия Кларксон, Кен Стотт, Хейда Рид и др.Перевод: ДублированныйПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F717B387737029DB8A8BD296D818CD39C2D3216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 404095   (383679) от 28.10.2011
+
+[Игра] (Android 2.1+) Dead space 1.1.37 (+ кэш для всех устройств и отдельно для SGS2, LG Optimus 2x)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_383679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead space - - космическая история, созданная Electronic Arts . Мобильная версия являестя связующим звеном компьютерных версий Dead Space и Dead Space 2. Игрок управляет главным персонажем игры, Айзеком Кларком, от третьего лица. В отличие от многих шутеров, игрок не может делать обычные прыжки и как-либо слезать с обрывов или уступов; частично это возможно в местах с невесомостью.2011Жанр: 3D Action
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719321   (383659) от 06.11.2013
+
+Ласковый май (2009) BDRip [720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383659.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1985 году в Советском Союзе началась перестройка и появилась группа "Ласковый май". На их концертах были только аншлаги, от неразделенной любви к ним совершались самоубийства. Фигура Михаила Горбачева меркла в лучах славы создателя "Ласкового мая" — Андрея Разина. Случайно сделанная фотография на пляже, где Андрей Разин, будучи ребенком, запечатлен (   Читать дальше...   )Производство: Россия / DIXI-TVЖанр: драма, биографияРежиссер: Всеволод АравинАктеры: Вячеслав Манучаров, Дмитрий Блохин, Виктор Вержбицкий, Людмила Зайцева, Раиса Конюхова, Максим Костромыкин, Максим Литовченко, Инга Стрелкова-Оболдина, Марина Орел, Раиса Рязанова, Петр Скворцов, Владимир Стеклов, Екатерина Федулова, Василий Белокопытов, Виктория Матвеева, Сергей Романович, Иван Агапов, Юрий Шатунов, Андрей РазинПеревод: Не требуется (Русский Язык)Субтитры: ОтсутствуютПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7EBAB4968ECF317949F640B3CDDB3CB5BCDF2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

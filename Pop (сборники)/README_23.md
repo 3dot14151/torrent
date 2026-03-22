@@ -1,3 +1,29 @@
+###  Публикация: 309840   (840913) от 16.03.2011
+
+Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance >
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/DanceПродолжительность: 06:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739725E0C86E78E1069735F8470D67696090B409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309704   (840700) от 16.03.2011
 
 VA - Как Это Было. Хиты 80-х от Ретро Fm (2010) [MP3|256 kbps]<Pop/Disco>
@@ -698,35 +724,6 @@ VA - Top 100: Deluxe Disco Party (2021) [MP3|320 Kbps] <Disco, Dance, Remasterin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C921131B5D32A77FB81098100C10E5D51E0D1CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114129   (834996) от 13.03.2017
-
-VA - Hits Cocktail Vol.3 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charming Horses Feat. Jona Bird - Follow (Radio Edit)
-02. Kygo & Selena Gomez - It Ain't Me
-03. Krono feat. Paul Kostick - You're Beautiful (Extended Mix)
-04. Anne-Marie - Ciao Adios(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4771F9CF7644AA93A962088FE2DBB66E94322AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

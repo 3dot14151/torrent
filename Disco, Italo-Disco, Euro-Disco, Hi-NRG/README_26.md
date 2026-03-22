@@ -1,3 +1,29 @@
+###  Публикация: 1318782   (492839) от 07.08.2019
+
+VA - Italo Made In Spain 5 (2018) 2xCD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Italo Made In Spain 5Жанр: Italo-DiscoПродолжительность: 02:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF5A4D30065CC1D4DCBCA47C1128591BD561285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318784   (492838) от 07.08.2019
 
 VA - Italo Made In Spain 6 (2019) 2xCD, Mixed [MP3|~245 Kbps (V0)] <Italo-Disco>
@@ -715,35 +741,6 @@ Ronnie Jones - Games (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18609BCAC853C0427721CC9751A8B133914DC09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245929   (467878) от 08.09.2018
-
-Coffee - Slippin' And Dippin' (1980) Reissue CD, Big Break Records, 2016 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slip And Dip (5:39)
-02. Mom And Dad 1980 (5:13)
-03. I Wanna Be With You (7:41)
-04. Casanova (6:12)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5973BE2279CF150B30E28DE632B0EA0A43E23635
 ```
 
 https://mybot314.ru/tekegram_catalog/

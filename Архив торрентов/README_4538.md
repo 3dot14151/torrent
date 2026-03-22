@@ -1,111 +1,20 @@
-###  Публикация: 466653   (96459) от 12.03.2012
+###  Публикация: 468092   (97019) от 17.03.2012
 
-Glenn Hughes - Live In Wolverhampton (2CD) (2011) [MP3|320 кб/с]<Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96459.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Muscle and Blood
-02. You Got Sould
-03. Love Communion
-04. Don‘t Let Me Bleed Out
-05. What‘s Going On Here
-06. Mistreated
-07. Crave
-08. Hold Out Your Life
-(   Читать дальше...   )2011Жанр: Hard RockПродолжительность: 01:06:30 / 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466404   (96456) от 12.03.2012
-
-Викторъ Кренке | Оборона Балтiйскаго прибрежья в 1854-1856 годахъ [1887] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга может служить материалом для истории восточной войны 1854-1856 годов. В книге описываются: оборона Санкт-Петербурга, невские батареи, оборона окрестностей Петербурга, оборона Выборга в 1855 году, Свеаборг, Гельсингфорс, Або и другие пункты в Финляндии, об обороне Кронштадта. Автор Виктор Данилович Кренке (1816-1893) — русский генерал, военный инженер, участник русско-турецкой войны 1877—1878 годах. Родился в 1816 году, из дворян Новгородской губернии; воспитанник Павловского кадетского корпуса, из которого был выпущен в 1834 году в Гренадерский сапёрный батальон, где состоял до 1850 году, а затем находился в распоряжении начальника инженеров Гвардейского и Гренадерского корпусов.1887Жанр: Раритеты / Научная литература / ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426643428966A682750F390048EF3B3A7B322DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466715   (96452) от 12.03.2012
-
-DJ GraF aka Slava - Sabotage (2012) [MP3|320 кб/с]<Minimal-Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96452.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ GraF aka Slava -  Sabotage (2012) Год: 2012
-Жанр: Minimal - Techno
-Продолжительность: 1:08:01
-Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBR
-Трек лист: N/AВремя раздачи: (24/7 - круглосуточно)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB607DBEBE98168F51B1149F0FA33F54913236D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466708   (96447) от 12.03.2012
-
-Большой каньон / Grand Canyon (1991) [1080p] BDRemux
+Игла / Needle (2010) DVD5
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96447.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У любого человека есть свой ангел-хранитель. И совсем необязательно, что в нужный момент он явится в образе сверхъестественного крылатого существа. Им вполне может оказаться обыкновенная женщина в бейсболке, в последнюю секунду оттащившая тебя от проносящегося перед твоим носом автобуса. Или чернокожий автомеханик, рискнувший своей жизнью и закрывший тебя своей грудью от жаждущей крови вооруженной шпаны. Или близкий друг, который не даст сойти с ума после того, как омерзительный грабитель-наркоман подстрелил тебя и практически сделал инвалидом. Люди и их спасители мистическим образом связаны между собой. И, возможно, ты сам уже избран хранителем человека, которого еще не знаешь…Жанр: Драма, криминалРежиссер: Лоуренс КэзданАктеры: Дэнни Гловер, Кевин Клайн, Стив Мартин, Мэри МакДоннел, Мэри-Луиз Паркер, Элфри Вудард, Джереми Систо, Тина Лиффорд, Патрик Мэлоун, Рэндл МеллПеревод: Многоголосый закадровый, Двухголосый закадровый, АвторскийПродолжительность: 02:14:27
+Студенту-археологу Бену Резерфорду достается по наследству старинная вещица XVIII века, которая представляет собой необычный механизм. Бен спешит похвастаться новым приобретением перед друзьями. Однако уже на следующий день вещицу похищают.
+
+А через некоторое время один за другим при загадочных и ужасающих обстоятельствах погибают его друзья. Бен, вместе со своим братом Маркусом, должен срочно найти пропавший предмет и вычислить: кто стоит за этими убийствами.Жанр: Ужасы, Триллер, ДетективРежиссер: Джон В. СотоАктеры: Майкл Дорман, Трэвис Фиммел, Тахина Тоцци, Джессика Маре, Трилби Гловер, Кхан Читтенден, Люк Кэрролл, Джейн Бэдлер, Джон ДжэррэтПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:25:28
 
 ## Скачать торент
 ```bash
@@ -117,160 +26,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465574   (96446) от 12.03.2012
+###  Публикация: 468986   (97013) от 17.03.2012
 
-KRS-One - The BDP Album (2012) [MP3|185-205 кб/с]<Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Parker Intro
- 02. Tote Gunz
- 03. Forever (Feat. Channel Live)
- 04. All Day
- 05. The Solution
- 06. Cypher Remix
- 07. Introducing
- 08. I Do This For You
- 09. Comin’ In
- 10. Do It(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD8C1A82FA38B45C7C9AC1F90A245286FC39759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465139   (96432) от 12.03.2012
-
-Gianni Lee - Trill Wave Deux (2012) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Still Tippin Leon (Remix) (Feat. Lyon)  (03:57)
-02. Antown - Partyline (Feat. Opskichan)  (03:27)
-03. John Lass - Poured Up (Prod. By Sledgren)  (03:19)
-04. Paris Artelli - Droppin Bows On Em (Feat. The Bol AC)  (02:44)
-05. Space Ghost Purp - Low MF Keys (Feat. Klvn Vmber London) (Prod. By Space Ghost Purp)  (04:09)
-06. St. Joe Louis - Kinda Strange (Prod. By Tim Dolla)  (02:29)
-07. New Jersey Rebels - Jrugs Rock N Roll  (03:17)
-08. Zigcepticon - Shamless (Prod. By Paris Artelli)  (02:34)
-09. G.R. Zombie - Covered In Blood (Interlude)  (04:39)
-10. Elroy - Language (Feat. Elmo Kream)  (04:16)(   Читать дальше...   )Жанр: RapПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAB867C906CDC3204746C97EC3FBD9B9315E905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466901   (96426) от 12.03.2012
-
-Журнал | Клаксон №4 [февраль-март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новости автомобильного мира, анализ рынка новых и подержанных автомобилей, консультации экспертов, мировые и российские автопремьеры и масса другой полезной информации, относящейся к миру автомобилей.февраль-март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3B25C084DB6BACB032F6EC4F466700C400CEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466677   (96422) от 12.03.2012
-
-VA - Новинки Танцевальных Хитов. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luke Silver vs. Jesse Spalding - Forever tango (remix)
- 002. Avicii - Levels (Saradis Christmas Feeling Edit)
- 003. Roxette - Shes Got Nothing On (But The Radio)
- 004. Bobina feat. Erin Marsz - Let you in
- 005. Radio Killer - Lonely heart
- 006. Melanie C - Think About It
- 007. Serge Devant Feat. Coyle Girelli - On Your Own
- 008. DJ Bobo - Everybodys gonna dance (Bryce remix edit)
- 009. Cobra Starship Feat. Sabi - You Make Me Feel (Disco Fries Remix)
- 010. Niels Van Gogh & Emilio Verdez - Beatrocker(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F471664A695752F0E32E51E1A50B5E9615B61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466416   (96420) от 12.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 68
+[Картинки] Фото знаменитости/Анастасия Макеева
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96420.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 68
-Название: Desktop Wallpapers Pack 68
+Анастасия Васильевна Макеева — российская актриса.
+Анастасия Макеева родилась 23 декабря 1981 года в Краснодаре. Её отец был руководителем вокально-инструментального ансамбля. Анастасия с детства начала выступать с ансамблем на сцене, входила в состав квартета «Гармония». Участвовала во многих конкурсах. На конкурсе «Маленькие звездочки» Макеева получила «Гран-При».
+В это время Анастасия училась в музыкальной школе, занималась в Доме культуры и творчества своего города. Также в течение одного года училась в Краснодарском музыкальном училище им. Н. А. Римского-Корсакова.
+Помимо вокальных конкурсов Анастасия участвовала в конкурсах красоты, где завоевала множество наград. Сейчас она работает моделью, снимается для обложек журналов, рекламных роликов. Была лицом канала «СТС» на региональном телевидении, помимо этого вела телепередачи.
+В 2000 году Анастасия поступила в Государственное музыкальное училище эстрадно-джазового искусства (ГМУЭДИ). Ещё являясь студенткой, Анастасия сыграла главные роли в мюзиклах: «Дракула» (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30728F8DA2C3A08203E0ECA53A63AEFCC28DCD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468651   (97004) от 17.03.2012
+
+Я хочу только, чтобы вы меня любили / I Only Want You to Love Me / Ich will doch nur, dass ihr mich (1976) [1080i] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петер попадает в тюрьму за убийство хозяина кафе. Тюремному психологу он рассказывает всю предысторию совершенного преступления. Задавленный и униженный родителями, закомплексованный, но искренний и добрый Петер пытается выстраивать свой мир любви и уважения, но каждый раз он действует не как победитель, а как побежденный. Жизнь загоняет героя в угол, ставит перед ним острые вопросы, на которые Петер не может сам найти ответа. В замешательстве происходит срыв, вылившийся в тяжкое преступление...Жанр: драмаРежиссер: Райнер Вернер ФассбиндерАктеры: Витус Зеплихал, Александр Аллерсон, Эрни Мангольд, Йоханна Хофер, Вольфган Хесс, Армин Майер, Эрика РунгеПеревод: Двухголосый закадровыйПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469009   (97001) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97001.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 32
+Название: Sexy Girl Wallpapers Pack 32
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920x1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55B63125022FF44EAA77F63B05E3AB03E5E00327
+magnet:?xt=urn:btih:88C5F457918B26A5E4C847C0A89E45D577F52957
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,34 +112,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466608   (96419) от 12.03.2012
+###  Публикация: 469365   (96999) от 17.03.2012
 
-VA - House Vip (10.03.12) [MP3|320 кб/с]<Electro House>
+[Wallpapers] Girls Desktop Wallpapers Pack 9
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96419.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. A-Peace – Electronique (Original Mix) (5:34)
- 2. Bassmonkeys, Dominatorz - Don't Throw It Away Feat. Amanda Wilson (Chris Kaeser Remix) (5:33)
- 3. Clark & Kent - Catch a Star (Andy Chiles Remix) (7:31)
- 4. Deadmau5 - Ghosts N' Stuff (Beef Theatre Remix) (5:40)
- 5. Electro Makerz - U Got Me Rocking (Original Mix) (5:03)
- 6. GOTYE - Somebody I Used To Know (It's The DJ Kue Remix!) (5:12)
- 7. Kelly Clarkson - Stronger (What Doesn't Kill You) (7th Heaven Club Mix) (7:28)
- 8. Laurent Simeca - Miami (Original Mix) (5:46)
- 9. Replug - Let's Rock (Soulfix & Chi No Remix) (5:48)
- 10. The Digital Monkey - Radeon (Original Mix) (6:52)2012Жанр: Electro HouseПродолжительность: 01:00:33
+[Wallpapers] Girls Desktop Wallpapers Pack 9 
+Название:  Girls Desktop Wallpapers Pack 9 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
+magnet:?xt=urn:btih:BCFB9959A1EB68A7F66BE399813AA599073BA5B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,25 +142,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466643   (96415) от 12.03.2012
+###  Публикация: 469218   (96998) от 17.03.2012
 
-Газета | Ждём гостей №3 [март 2012] [PDF]
+[Wallpapers] Sexy Girl Wallpapers Pack 33
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96998.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 33
+Название: Sexy Girl Wallpapers Pack 33
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45EAF3C7D4A643E46BFE8923F527734637BB82A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469155   (96995) от 17.03.2012
+
+Александр Ян | Партизаны Луны [2011] [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96415.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
+В середине XXI века мир погрузился в Полночь - период войн и катастроф. И когда человечество оказалось на грани гибели, явились они. Высокие господа. Вампиры. Новая стадия эволюции? Высшее звено в пищевой цепочке? Симбионты? Паразиты? Носители давно известного, но неисследованного заболевания? Или одержимые, заключившие сделку с дьяволом? Они установили порядок, спасли род людской от хаоса, пандемий и взаимоистребления. Они держат хрупкое равновесие на своих плечах. Стоит ли это цены, которую платит им человечество? Горстка жизней в год, малая часть от целого. Многих такая цена устраивает. Но есть и те, кто посмел восстать против мира Полуночи.Формат: FB2, RTF, TXT, jar, JAD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B05217B0709E862823FB0F25DCCC81EB75902DE
+magnet:?xt=urn:btih:400B1B0D555C054C5F9BFB23DD8D81BFBA9C42E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,30 +198,183 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466625   (96412) от 12.03.2012
+###  Публикация: 469147   (96989) от 17.03.2012
 
-Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
+John O'Callaghan - Unfold (The Remixes Extended Versions) (16.03.2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96412.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All Guts, No Glory (instrumental) 01:48
-02. As Hammer to Anvil 03:38
-03. Your Funeral, My Feast 03:27
-04. Through Cadaver Eyes 04:08
-05. Death Knell 03:48
-06. Distorted and Twisted to Form 02:40
-07. I Rot Within 03:44
-08. Dis-assembly Line 03:00
-09. Necrotized 03:39
-10. Funereality 03:01(   Читать дальше...   )2011Жанр: Death Metal, GrindcoreПродолжительность: 00:35:49
+01.John O'Callaghan - Raw Deal (Exit Remix)
+ 02.John O'Callaghan, Thomas Bronzwaer - Stargazer (Mark Leanings Remix)
+ 03.John O'Callaghan - Stresstest (John Askew Remix)
+ 04.John O'Callaghan - Centurion (Chris Schweizer Remix)
+ 05.John O'Callaghan - Smokescreen (Sneijder Remix)
+ 06.John O'Callaghan - Stresstest (Heatbeat vs Kent & Gian Remix)
+ 07.John O'Callaghan, Betsie Larkin - Save This Moment (Sebastian Brandt Remix)
+ 08.John O'Callaghan - Psychic Sensor (Indecent Noise Remix)
+ 09.John O'Callaghan, Giuseppe Ottaviani - Ride The Wave (Will Atkinson Remix)
+ 10.John O'Callaghan, Audrey Gallagher - Big Sky feat. Audrey Gallagher (Ben Gold Festival Remix)(   Читать дальше...   )16.03.2012Жанр: TranceПродолжительность: 02:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1202DB49905DE15449F189F868D49B87B80C4EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469499   (96987) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 36
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96987.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 36
+Название: Sexy Girl Wallpapers Pack 36
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30068BC2D0BE5951BCCDFA8C617D53CD8FBA0A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469495   (96984) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 35
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96984.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 35
+Название: Sexy Girl Wallpapers Pack 35
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48616F821A119FA8C2176BE2755252098C40987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469586   (96976) от 17.03.2012
+
+Peter White - Here We Go (2012) [MP3|~245 кб/с (V0)]<Smooth Jazz, Jazz-Guitar-Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night After Night
+02. Time Never Sleeps
+03. Here We Go
+04. If Ever...
+05. Our Dance
+06. Desert Night
+07. Joyride
+08. Costa Rica
+09. My Lucky Day
+10. Requiem For A Princess(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Guitar-LoungeПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265F64228529D9179A70FAD1B8E3950161C3FCD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469459   (96975) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 34
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96975.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 34
+Название: Sexy Girl Wallpapers Pack 34
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1933FD7DA8051CDA2DB6FA365B78B46EF9BBD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469058   (96972) от 17.03.2012
+
+Машина для убийств / Icarus (2010) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдвард Дженн, в криминальном мире известный, как Икар, в обычной жизни — преуспевающий предприниматель и любящий отец. Однако, и у таких успешных людей, как он, есть свои скелеты в шкафу, и переходить такому человеку дорогу, — обрекать себя на верную гибель.
+
+Такие люди всё же находятся, но они пока не знают, что уготовил им отчаянный Икар, который будет бороться до конца, дабы защитить себя, свою семью, своих близких. Борьбы до победного конца не избежать…Жанр: Боевик, Триллер, ДрамаРежиссер: Дольф ЛундгренАктеры: Дольф Лундгрен, Стефани Фон Пфеттен, Саманта Феррис, Дэвид Льюис, Линдсэй Максвелл, Джон Тенч, Бо Свенсон, Кэтлин Магер, Моника Гандертон, Слави СлавовПеревод: Язык субтитров: русскийПродолжительность: 01:24:41
 
 ## Скачать торент
 ```bash
@@ -374,25 +386,307 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466494   (96410) от 12.03.2012
+###  Публикация: 469379   (96967) от 17.03.2012
 
-Восстановление Японии / Rebuilding Japan. Пилотный выпуск (2012) SATRip
+[Wallpapers] Desktop Wallpapers Pack 24
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96967.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 24 
+Название:  Desktop Wallpapers Pack 24 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACC8EFAC9BD51EC37C4F571DF1ADFCDE1A941C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469546   (96965) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 37
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96965.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 37
+Название: Sexy Girl Wallpapers Pack 37
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3931х2745
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123C74433C210EA4EC96D1E9C95CF22FBD0DA7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469010   (96958) от 17.03.2012
+
+[Wallpapers] Animals Full HD Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96958.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Animals Full HD Wallpapers Pack 4 
+Название:  Animals Full HD Wallpapers Pack 4 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8443D69EA3460205ACC796405819217753BF161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469375   (96957) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 22
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96957.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 22 
+Название:  Desktop Wallpapers Pack 22 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478F899330CCBBE2E1D36C5E334C3D5ACB997FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469484   (96956) от 17.03.2012
+
+VA - 50 Miami Tunes 2012 (2012) [MP3|320 кб/с]<Trance, House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96956.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - 50 Miami Tunes 2012 (2012)
+Год: 2012
+Жанр: Trance, House, Progressive House
+Продолжительность: 02:51:23Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Armin Van Buuren ft Adam Young - Youtopia (Radio Edit)
+02. Dash Berlin ft Jonathan Mendelsohn - World Falls Apart (Radio Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5654D84DF8E3F8D30B051AFAB021526B9936A8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468991   (96953) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 31
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96953.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 31
+Название: Sexy Girl Wallpapers Pack 31
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17B27CFD6CF69B03A15669FA3C1B3EFF6958B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469373   (96949) от 17.03.2012
+
+VA - Trance World Vol. 14 (Mixed by Shogun) (2012)  [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96949.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance World Vol. 14 (Mixed by Shogun) (2012) 
+Год: 2012
+Жанр: Uplifting Trance
+Продолжительность: 04:41:00Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. John O'Callaghan ft Cathy Burton - Perfection (Shogun Remix)
+02. Kyau & Albert - Always A Fool (2011 Rework)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468752   (96948) от 17.03.2012
+
+Свободная Стая (Маста Кэш и Женя Лир) - Кто я без тебя (2012) [MP3|320 кб/с]<Hip-Hop, Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мишель (интерлюдия)
+02. Мишель
+03. Приговор
+04. Скажи мне (интерлюдия)
+05. Скажи мне
+06. Танец с огнем
+07. 29 марта
+08. Кто я без тебя
+09. Yaroslavna
+10. Мишель (акустическая версия)Жанр: Hip-Hop, RockПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F5E170C1B9D4765DFE80CF3656F4A5B3B7B319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469371   (96946) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 21
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96946.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 21 
+Название:  Desktop Wallpapers Pack 21 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208573A179BA95C1FEE07C4CE2C34A6FA89AFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469051   (96938) от 17.03.2012
+
+Формула 1. Гран-При Австралии. 2-ая свободная практика (2012) HDTV [1080i]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96410.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы увидите, как инженеры и ученые неустанно работают для того, чтобы улучшить жизнь людей, пострадавших от землетрясения.Жанр: ДокументальныйПродюсер: Shiro Toma, Yuji TodaПеревод: Профессиональный (одноголосый)Продолжительность: ~ 00:22:04
+Гран-при Австралии 2012 года — автогонка чемпионата мира «Формулы-1», проходит с 16 по 18 марта 2012 года на трассе Альберт-Парк, Мельбурн, Австралия.
+Эта гонка отрывает сезон 2012 Формулы-1. Длинна трасы составляет 5303 м., на ней 16 поворотов из них 10 правых и 6 левых.Жанр: СпортПродолжительность: 01:42:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DDAD143511E483184D3A07EAAEDD5B4B129B148
+magnet:?xt=urn:btih:68AFB5FE6CB5087A526B8CA37DD4104569561857
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,34 +694,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465504   (96407) от 12.03.2012
+###  Публикация: 468927   (96937) от 17.03.2012
 
-VA - House Vip (09.03.12)[MP3|320 кб/с]<Electro House>
+[Wallpapers] Desktop Wallpapers Pack 19
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96407.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Gerra G. - Humanize (Original Mix) (7:33)
- 2. Armin Van Buuren feat Jan Vayne - Serenity (Dj Amor Remix)
- 3. Amy B & W.arehouse - You And Me Tonight (Danny Merx Instrumental) (6:52)
- 4. A Virtual Friend - Sorry (Neon Stereo Club Remix) (5:55)
- 5. Kitsch 2.0 - Tonight Is the Night (Sunlight Remix) (5:42)
- 6. Mylo - Drop The Pressure (Dada Life Guerilla Fart) (5:40)
- 7. Harris & Ford – Ich Habe Lust (Club Mix) (5:35)
- 8. BAZEDA, Custom Drops - Love To Party (Original Mix) (5:16)
- 9. Hot Pink Delorean - Move It (Original Mix) (5:06)
-10. Gotye feat. Kimbra - Somebody I Used To Know (NE!TAN Bootleg) (4:57)2012Жанр: Electro HouseПродолжительность: 01:00:00
+[Wallpapers] Desktop Wallpapers Pack 19 
+Название:  Desktop Wallpapers Pack 19 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
+magnet:?xt=urn:btih:33613245815F7C67DF04B74C3C031C174AC4653F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,34 +724,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466621   (96403) от 12.03.2012
+###  Публикация: 468916   (96935) от 17.03.2012
 
-Edge Of Sanity - Kur-Nu-Gi-A (2012) [MP3|~259 кб/с (V0)]<Death Metal>
+[Wallpapers] Girls Desktop Wallpapers Pack 5
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96403.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Decepted By The Cross 03:47
-2. Maze Of Existence 04:47
-3. Beyond The Unknown 03:48
-4. The Day Of Maturity 03:41
-5. Immortal Souls 03:50
-6. Serenade For The Dead 00:55
-Bonus Tracks:
-7. Decepted By The Cross (Live) 03:40
-8. Immortal Souls (Live) 04:12
-9. Maze Of Existence (Roughmix) 04:082012Жанр: Death MetalПродолжительность: 00:32:48
+[Wallpapers] Girls Desktop Wallpapers Pack 5 
+Название:  Girls Desktop Wallpapers Pack 5 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:519EAA3BCA2185D83952882E939DC8C9D9604A0D
+magnet:?xt=urn:btih:50D5BEF5C95D1475866246A2EE9EFB40F8FA49F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,335 +754,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466312   (96401) от 12.03.2012
+###  Публикация: 469094   (96932) от 17.03.2012
 
-Аферисты. Выпуск 22-25 (2012) SATRip
+Желание моего отца / My Father's Will (2009) DVD5
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96401.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Граждане! Будьте осторожны - в городе орудует банда опасных преступников. Сначала они обманут Вас и заберут последнее, а потом еще и покажут по телевизору, как это было!
-Вы и моргнуть глазом не успеете, как эта четверка доберется до Вашего кошелька, присвоит себе только что купленный Вами телефон, а кроме этого сможет посидеть в ресторане на круглую сумму за Ваш счет!
-Приветливая и обаятельная Елена-Кристина Лебедь, двое харизматичных мужчин - Дмитрий Суммар и Денис Розгон, а также главарь банды Анастасия Касилова уже готовы втянуть Вас в аферу только для того, чтобы потом Вас больше никогда не смогли обмануть! Вы узнаете психологические приемы настоящих аферистов и увидите на практике, как действуют самые невероятные мошеннические схемы. Вам станет известно, как можно получить новенькую видеокамеру за... чашку кофе. Или как можно украсть из ювелирного бутика платиновое колье просто на глазах у продавцов.Жанр: ТелепередачаПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6682943ED1033F9E06513C54D89E64C0372628C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466607   (96397) от 12.03.2012
-
-VA - House Vip (11.03.2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96397.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 9Five - Dental (Original Mix) (7:02)
- 2. Chris Brown - Turn Up The Music (Alessio Silvestro Remix) (5:58)
- 3. Distorted Frequency, Teslatronik - Rocket Knight Adventures (NewtonE Remix) (4:35)
- 4. G-Lontra - The Time Is Now feat. Rachel Kramer (Alex Guerrero Remix) (6:43)
- 5. Irrenhouse - Party On & On (Original Mix) (4:51)
- 6. Jeany Kiss & Sunray feat. Gemma B - My Heart Beats Like A Drum (Nick Austin Remix) (6:37)
- 7. Savage - Dont Cry Tonight 2012 ( Alexandra D Extended Mix) (5:02)
- 8. Tejl - Boing (HAS Remix) (6:45)
- 9. Under Construction - Yourself Tonight (Scarytoys Remix) (6:00)
- 10. Uppermost - Life Is A Fight (Original Mix) (6:30)11.03.2012Жанр: Electro HouseПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEC392BB3A64052ACE64393F9C32D4E6CCBD9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466672   (96395) от 12.03.2012
-
-VA - Попсовый всесезонный хит (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Света - Пятый Элемент (Andrey S.P.L.A.S.H. Radio Remix)
- 002. Алина Кабаева - Верьте В Себя
- 003. Vilana - Море
- 004. MMDance - Мой Босс
- 005. Neoclubber - Только Я и ты
- 006. Таша - Ищи Меня В Своих Снах
- 007. Виктория Дайнеко & Корни - Многоточие
- 008. Ирина Нельсон - Тёплое Солнце (Dark City Remix)
- 009. Марина Журавлева - Небо плакало
- 010. Сhris Parker Feat. Катя Старикова - Не Уходи (Radio Edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7FF6CFAAB51A37FD0A0D338BF14D2D17B621B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466081   (96376) от 11.03.2012
-
-Аравия / IMAX - Arabia (2011) [720p] BDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96376.jpg" />
-</div>
-
-
-###  Подробнее
-
-фильм Аравия 3D IMAX перенесёт зрителей в глубь экзотической страны богатой 2000-летней древней историей.Зрители обнаружат потерянный город Мадаин Салех, изучат древние гробницы,отправятся в путешествие с караваном верблюдов,будут нырять среди коралловых рифов и затонувших кораблей в Красном море, ощутят тепло всемирно известного бедуинского гостеприимства, а также поучаствуют в ежегодном паломничестве, где собираются около двух миллионов мусульман, и является крупнейшим собранием людей на Земле.Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CAEB2775F002F02D0F746D615E3C13DD0C163E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466128   (96367) от 11.03.2012
-
-Freaked Frequency - FF Syndrome (2007) [FLAC|Lossless]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freaked Frequency - Say (07:44)
- 02. Freaked Frequency - Light Beams (06:46)
- 03. Freaked Frequency Vs. Alternative Control - Elevation (07:03)
- 04. Freaked Frequency - Against the Machine (06:51)
- 05. Freaked Frequency - FF Syndrome (08:02)
- 06. Freaked Frequency - Saw (07:45)
- 07. Freaked Frequency - Night Mode (06:59)
- 08. Freaked Frequency - Dreamer (08:34)
- 09. Freaked Frequency - The Flow (07:28)
- 10. Freaked Frequency - Landing (07:24)(Bonus Track)Жанр: Psychedelic / Full OnПродолжительность: 01:14:36
+Богатый и успешный бизнесмен Ферро Оливетти наслаждается всеми привилегиями, которые только могут дать деньги и высокое социальное положение. Но вот умирающий отец хочет, чтобы сын исполнил его последнее желание…Жанр: ДрамаРежиссер: Фред МэнокэриэнАктеры: Виктор Альфьери, Айони Скай, Рон Сильвер, Джерри Бэммен, Уильям Уайз, Ивонна Копач, Мэтт Ньютон, Мелисса Клер, Иган Marнa, Алонсо СаундерсПеревод: Многоголосый закадровыйПродолжительность: 01:24:09
 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466108   (96357) от 11.03.2012
-
-Google Chrome 18.0.1025.54 Beta [Русский/Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это браузер, обеспечивающий более удобную, быструю и безопасную работу в Интернете, который имеет облегчающий работу упрощенный дизайн.
-Chrome спроектирован сотрудниками Google с нуля, а для обработки HTML использует движок Webkit, который уже применяет браузер Apple Safari.
-В отличие от других браузеров, Chrome для стабильности оформляет каждую вкладку как отдельный процесс. В случае, если содержимое вкладки зависнет, ее можно будет закрыть без риска потерять все данные в браузере.Название программы: Google ChromeЯзык интерфейса: Русский/Multi
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466120   (96352) от 11.03.2012
-
-Kaspersky TDSSKiller 2.7.19.0 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лечение систем, зараженных вредоносными программами семейства Rootkit.Win32.TDSS, производится с помощью утилиты TDSSKiller.
-В системах Windows под rootkit принято подразумевать программу, которая внедряется в систему и перехватывает системные функции (Windows API). Перехват и модификация низкоуровневых API-функций, в первую очередь, позволяет такой программе достаточно качественно маскировать свое присутствие в системе. Кроме того, как правило, rootkit может маскировать присутствие в системе любых описанных в его конфигурации процессов, каталогов и файлов на диске, ключей в реестре. Многие rootkit устанавливают в систему свои драйверы и службы (они также являются "невидимыми").
-Для борьбы с руткитами специалистами Лаборатории Касперского была разработана утилита TDSSKiller.Название программы: Kaspersky TDSSKillerЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466114   (96343) от 11.03.2012
-
-Corona - Sonar Luminescence (2012) [MP3|~257 кб/с (V0)]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5-0 8:16
- 02. Turtle6 6:35
- 03. Triptronic 7:10
- 04. Eine Kleine Bang Bang 7:05
- 05. Subsonic 6:33
- 06. Shakedown 8:09
- 07. All In 6:23
- 08. Forward 6:16
- 09. Tektite 6:25
- 10. Metaphonic 6:29Жанр: Psychedelic / ProgressiveПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6697379FE12E9E230F7B9F36C1BC9DC8B6EBD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466291   (96339) от 11.03.2012
-
-Цитаты из жизни. Митрополит Антоний Сурожский (2001) DVD5
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автобиографический по форме фильм расскажет о жизненном пути и пастырском служении митрополита Сурожского Антония (Блума). Рассказ владыки Антония иллюстрирован редкими хроникальными кадрами и фотодокументами.Жанр: ДокументальныйРежиссер: В. ВасильевПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7126B9CFFB7062411A3DD207A08E495DEC16633E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466276   (96338) от 11.03.2012
-
-Биатлон. Чемпионат мира 2012. Рупольдинг (Германия). Женщины. Эстафета 4x6 км (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская эстафета на ЧМ по биатлону в Рупольдинге (Германия)Жанр: СпортПеревод: Двуголосый закадровый, профессиональный (Дмитрий Терехов и Николай Круглов)Продолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EA012C6A39C6EE1B5B66BDB72A3AE99D05F318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466116   (96329) от 11.03.2012
-
-Solar Kid - Sint Etik (2012) [MP3|~247 кб/с (V0)]<Psychill, Dub>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Synthetic 8:25
- 2. Playground 8:39
- 3. The 1st Jhana 5:11
- 4. Human Eyes 8:26
- 5. Namaste 7:14
- 6. Flamebach 7:28
- 7. Rising 4:54
- 8. Fantasy 8:39
- 9. Chill With Me 7:56Жанр: Psychill, DubПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4839B87962F1413EFB5A251F9F6D01F05EF722E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

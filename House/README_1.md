@@ -1,3 +1,148 @@
+###  Публикация: 1610063   (1042669) от 06.02.2023
+
+VA - Move Ibiza Radio Annual: Progressive House (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B-Liv - That Hill (A Deal With God) (Extended Mix) [06:56]
+02. Xenso - Dives [06:49]
+03. Andrea Mirgone - Astral [07:30]
+04. Leon De Haro - Never Again (Instrumental Mix) [06:54](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA707160F5B583FC8221D3DFB57E9C36486A340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437201   (1042270) от 04.01.2021
+
+VA - Motivation Training Music 2021 Explicit [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Absinth - Follow My Lead (3:34)
+02. Eddy Chrome - Beg (3:25)
+03. Mykel Mars, Diandra Faye, Moox - King & Queen (3:16)
+04. Michael Ruland - Everything (3:07)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1204DF0C4BB89B3C094CB6BB5732FEBAC20830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610378   (1042193) от 08.02.2023
+
+VA - Winter 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyunji-A - This Too Shall Pass (Hakan Ozurun Remix) [7:36]
+02. Manuelo & Joan Dik - High Skies (Tojogo Remix) [7:36]
+03. XSPANCE - Hope (Nic Rinaldi Remix) [6:56]
+04. Matías Delóngaro - Espuma En Sal (Maxi Welchen Remix) [7:50](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62F475384C6FD629152E1522E990BEEB51CDCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437886   (1041707) от 06.01.2021
+
+VA - Running Music 2021 Explicit [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - What Do You Mean (03:28)
+02. CLMD - DANCE (02:54)
+03. No Others - Broken Strings (03:21)
+04. Shawn Mendes - There's Nothing Holdin' Me Back (03:19)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D906F6372D3795E8E73212F98C1524BA999DD7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611165   (1041677) от 10.02.2023
+
+VA - Pogo House Classics Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech House, Classic House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altered Feast - alita
+02. T.Markakis - forever (extended garage mix)
+03. Dan Laino - that feeling
+04. Gustaf Tamm - in a house mood (nikita k remix)(   Читать дальше...   )Жанр: Soulful, Tech House, Classic House, FunkyПродолжительность: 01:25:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC4A84025D7E60A1B69CB3BFAFF762A17184187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611153   (1041652) от 10.02.2023
 
 VA - Hit Factory Vol. 1 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech House, Deep Groove>
@@ -600,151 +745,6 @@ VA - 50 DJ Tracks 2023 Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C094F88E1E85C734773F94E703F34B90485E7E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449619   (1029730) от 22.02.2021
-
-VA - Thumbs Up For Cardio Dance 2021 Workout Compilation (2021) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Mixmasters - 911 (Fitness Version 128 Bpm) (04:15)
-02. DJ Kee - Push It (Fitness Version 128 Bpm) (04:00)
-03. D'Mixmasters - Lasting Lover (Fitness Version 128 Bpm) (04:00)
-04. Groovy 69 - Dominos (Fitness Version 128 Bpm) (04:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BDA9993EF9D42E008B17E7F4E5079B8887DDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622917   (1029607) от 31.03.2023
-
-VA - Future Trance - Rave Classics (2023) [MP3|320 Kbps] <Electro House, Progressive House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darius & Finlay feat. Aili Teigmo - World's Crashing Down (Club Mix) (4:00)
-02. John Newman - Fire In Me (Sigala Remix) (3:39)
-03. Don Diablo & Marnik - Children Of A Miracle (3:09)
-04. Avicii feat. Agnes & Vargas & Lagola - Tough Love (Tiësto Remix - Radio Edit) (3:13)(   Читать дальше...   )Жанр: Electro House, Progressive House, Future HouseПродолжительность: 05:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A41CF868275112C7C12640561E5C32E326016C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623382   (1029414) от 01.04.2023
-
-VA - Ibiza XXL - The Summer Hits 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hight & Basti M & Blaikz feat. Hannah Jane Lewis - I'm With You [2:56]
-02. Klaas - 1   1 1 [2:23]
-03. Steve Modana & Freischwimmer - You Can't Buy My Like [2:35]
-04. Shaun Baker vs NDEE & ROOMS feat. Jessica Jean - Do It All Night [2:29](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262E4563743F1F8D1C9586D99892A6DA69B3D75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623484   (1029400) от 01.04.2023
-
-VA - Cafe De Anatolia - Desert Rose (2023) [MP3|320 Kbps] <Organic House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Spite & Cafe De Anatolia - Desert (Original Mix) (6:14)
-02. Tamer ElDerini & Cafe De Anatolia - Dawama (Original Mix) (5:16)
-03. Rialians On Earth & Cafe De Anatolia - Blaze (Gobi Desert Collective Remix) (4:52)
-04. Billy Esteban & Stanisha & Cafe De Anatolia - Four Legs (Original Mix) (4:00)(   Читать дальше...   )Жанр: Organic House, Progressive HouseПродолжительность: 05:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC7F549958423033A3525402059C2C1D43D26EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451207   (1028356) от 02.03.2021
-
-VA - Pure Aerobic Hits 2021 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Mixmasters - Edge Of Midnight (Fitness Version 135 Bpm) (04:16)
-02. D'Mixmasters - Matches (Fitness Version 135 Bpm) (04:01)
-03. D'Mixmasters - Girl Like Me (Fitness Version 135 Bpm) (04:01)
-04. D'Mixmasters - Save Tonight (Fitness Version 135 Bpm) (03:47)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE674F6FFE426D8EAAE51C3DCFDB9F2589A2B2FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

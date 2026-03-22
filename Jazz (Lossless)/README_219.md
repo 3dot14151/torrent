@@ -1,3 +1,183 @@
+###  Публикация: 960407   (307985) от 28.11.2015
+
+Barbara Fasano - Busy Being Free (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Little We Know
+02. Cactus Tree
+03. Remind Me
+04. Dancing in the Dark(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655796A78533A789C81DFACD603CF57746E5F0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584493   (307900) от 04.12.2012
+
+Peggy Lee - 2 Compilations (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_307900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 01:15:11
+01. Why Don't You Do Right (Get Me Some Money Too) [02:28]
+ 02. I Don't Know Enough About You [03:04]
+ 03. 'Deed I Do [03:03]
+ 04. I'm Glad There Is You (In This World Of Ordinary People) [03:03]
+ 05. It's A Good Day [02:50]
+ 06. Don't Smoke In Bed [03:07]
+ 07. Them There Eyes [03:00]
+ 08. Fever [03:21]
+ 09. Sugar (That Sugar Baby Of Mine) [02:36](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183382   (307875) от 14.11.2017
+
+Roland Guerin Sextet - Live At The Blue Note (1999) Half Note [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [13:05]
+02. Brandy [05:11]
+03. That Moment [14:48]
+04. A Small Still Voice [07:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291F52C274DBFE03A6D08CEDFA43E54117B206B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183651   (307865) от 14.11.2017
+
+Tom Harrell - Upswing (1993) Chesky Records [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upswing [08:59]
+02. Angela [07:03]
+03. Train Shuffle [10:27]
+04. Emergence [10:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF60478BE99A4B5D15C45FB9AD4C4BF92866062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183650   (307864) от 14.11.2017
+
+Chuck Mangione - Save Tonight For Me (1986) CBS [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Tonight For Me [04:42]
+02. Machu Picchu [04:22]
+03. Take It To Church [05:25]
+04. Secret Of Love [06:05](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F33C730877B88BE9F37A6D2A7EB00EB172645BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261015   (307796) от 09.11.2018
+
+Buck Clayton - Jam Session: How Hi The Fi (1953, 1954) 2005, Membran Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Hi The Fi [13:50]
+02. Blue Moon [14:13]
+03. Sentimental Journey [13:52]
+04. Moten Swing [12:44]Жанр: Swing, Big BandПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E271ADA1B017EE30F1A1BFE6BC15A0E214EB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260912   (307785) от 09.11.2018
 
 Elina Duni - Partir (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Balkan Jazz>
@@ -568,180 +748,6 @@ June Christy - Big Band Specials (1962) 1999, Capitol Jazz [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D703EA38DB2E48E46D8C4F133827B8CA7EF71E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960904   (305568) от 29.11.2015
-
-Duke Ellington - Ellington At Newport 1956 Complete 2CD, 2014, Sony Music[FLAC|tracks+.cue]<Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305568.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Star Spangled Banner [01:15]
-02.Father Norman O'Connor Introduces Duke & The Orchestra [03:40]
-03.Black and Tan Fantasy [06:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F13EC56204A6D3A53B3DB0CDA95D6E908879D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333275   (305523) от 24.10.2019
-
-Charlie Byrd - Christmas Carols for Solo Guitar (1966) 1997, Columbia Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O Holy Night [3:21]
-02. The Bells of Bethlehem [2:10]
-03. God Rest Ye Merry, Gentlemen [2:54]
-04. Silent NIght, Holy Night [1:54](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85979D5E26D2A7DCF62D7C93E88B9E70AECE8A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333280   (305521) от 24.10.2019
-
-Stan Getz - Out Of Nowhere (1960) 1994, FourStar [FLAC|Lossless|tracks + .cue] <Cool, Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born to Be Blue [6:25]
-02. Ack Varmeland du skona [6:11]
-03. Ah-Moore [4:44]
-04. Move [5:20](   Читать дальше...   )Жанр: Cool, Bop, Mainstream JazzПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8AEF2AEB5EBFA67D40D06361F7216BDECC189E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423008   (304295) от 11.11.2020
-
-Clifford Brown & Max Roach Quintet - The Complete Study In Brown (1954 - 1956) 2016, 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304295.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cherokee [5:46]
-02. Jacqui [5:14]
-03. Swingin' [2:55](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8B84AE09388B06C757A226E6AF76D23C13661B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184135   (303617) от 16.11.2017
-
-Roger Kellaway - Live At The Jazz Standard (2006) 2CD, 2008, IPO Recordings [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303617.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cottontail [06:44]
-02. C Jam Blues [10:16]
-03. Someday My Prince Will Come [08:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D07778DA870ED8EA90E1B0FED78250C69DA53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184133   (303609) от 16.11.2017
-
-Louis Prima - The Wildest! (1956) 2000, DCC Compact Classics [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley: Just A Gigolo / I Ain't Got Nobody [04:50]
-02. (Nothing's Too Good) For My Baby [02:43]
-03. The Lip [02:23]
-04. Body And Soul [03:29](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D813C84B26F26D1DCDC9C2FD66897BD93ABEADC
 ```
 
 https://mybot314.ru/tekegram_catalog/

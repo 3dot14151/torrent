@@ -1,3 +1,148 @@
+###  Публикация: 1188262   (275974) от 01.12.2017
+
+Yiruma - Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embrace of Silence (2:53)
+ 02. Dance (4:05)
+ 03. Lamentation (3:42)
+ 04. Papillon (Replayed Version) (3:10)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9338C1C271840B91C7F517FECD8489F60A6E991F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188082   (275957) от 01.12.2017
+
+Marco Allevi - Spa Music (Music For Relaxation Meditation Massage) (2017) [MP3|320 Kbps] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Genesis (Part 1) (6:26)
+ 02.  Genesis (Part 2) (7:05)
+ 03.  Genesis (Part 3) (6:37)
+ 04.  Chromatic Vibrations (7:36)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F3556559CA4267724A06A7DB756544301BDCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337184   (275860) от 09.11.2019
+
+Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Major Lazer & Khalid - Trigger (02:52)
+02. Au/Ra & Alan Walker - Ghost (02:59)
+03. CHVRCHES - Death Stranding (05:19)
+04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFB1FE972900F7C910E51FD6B7ED3165370A41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337186   (275540) от 09.11.2019
+
+Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC 2.0|48/44.1/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Major Lazer & Khalid - Trigger (02:52)
+02. Au/Ra & Alan Walker - Ghost (02:59)
+03. CHVRCHES - Death Stranding (05:19)
+04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7C0F8C48E6BB1298864FC403E2475009C67ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337228   (275007) от 10.11.2019
+
+Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Waterfall 04:22
+2. Yoga Mat Sessions 02:02
+3. Serenity  02:44
+4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337219   (274805) от 10.11.2019
 
 Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
@@ -598,151 +743,6 @@ VA - Лучшие песни французских мюзиклов (2008) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4336A79329C5828444CE7E2243EBEF79E12EA66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 40433   (272813) от 29.11.2018
-
-Евгения Смольянинова - В лунном сиянии... (2005)
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В лунном сиянии... (муз. и ст. Е.Юрьева)
-02. Степь да степь кругом (муз. неизв. авт., ст. И. Сурикова)
-03. Затворница (муз. неизв. авт., ст. Я.Полонского)
-04. Вот мчится тройка удалая (муз. И.Иваново, ст. Ф.Глинки)(   Читать дальше...   )Жанр: Народная песня / романсПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356976C3A0E10EEA2F8F8147F97B8B956664F7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337453   (272629) от 12.11.2019
-
-VA - Autumn is Coming: Soft Music Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Adam Fielding, James Wordsworth, John Westbourne - Starting Over (2:45)
-2.Luigi Seviroli - Minimal Skies (2:53)
-3.John Paul Rushton, James Wordsworth, John Westbourne - Terminal (2:44)
-4.Daniel Finot, Arnaud Rozenblat - Changing Colours (4:17)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666EFF82BFFFA4958906C03A377F3E1A0A7310D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 139281   (271758) от 30.11.2018
-
-VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Lai - Un Homme Et Une Femme (02:45)
-02. Nino Rota - Love Theme From The Godfather (02:41)
-03. Henry Mancini - The Windmils Of Your Mind (& His Orchestra) (03:01)
-04. Francis Lai - Love Story (04:12)(   Читать дальше...   )Жанр: Soundtrack (Pop)Продолжительность: 01:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243FDFF78FEB7C8DFA831539A3DC9723E7A6AA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337901   (271656) от 13.11.2019
-
-Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Merrymaker (01:19)
-02. Better Days Past (01:57)
-03. The Merrymaker Murderer (01:17)
-04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337902   (271654) от 13.11.2019
-
-Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Merrymaker (01:19)
-02. Better Days Past (01:57)
-03. The Merrymaker Murderer (01:17)
-04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5458AFF2A2B52EBA8D35B73D313111F5085708B
 ```
 
 https://mybot314.ru/tekegram_catalog/

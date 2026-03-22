@@ -1,3 +1,61 @@
+###  Публикация: 1002845   (845114) от 02.04.2016
+
+VA - Nude Mix #3 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icarus feat. Aniff Akinola - Ride This Train (Ivy Lab Remix) (05:12)
+02. Wilkinson feat. Wretch 32 - Flatline (04:10)
+03. Hidden Agenda - The Sun (07:47)
+04. Big Bud - Millenium (Carlito Remix) (07:56)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E97FA154A20CF6297FE38BCDB8039E55F296CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112126   (844869) от 07.03.2017
+
+VA - Девочки танцуют 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Dance, Pop, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Donna Summer, Svet, No Hopes - Bad Girls (Coranny Vocal Version)
+02 - David Guetta - Just A Little More Love (Ibitaly Remix)
+03 - Lexter - Never Gonna Give You Up (Tale & Dutch Remix)
+04 - Justin Timberlake - Can't Stop The Feeling (Denis First Remix)(   Читать дальше...   )Жанр: Club House, Dance, Pop, Deep HouseПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76145F8AC300F47010988DA02CBEFDB2D13D68FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378671   (844804) от 26.04.2020
 
 VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
@@ -687,64 +745,6 @@ VA - Beatport Electro House: Sound Pack #72 (2020) [MP3|320 Kbps] <Progressive H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12320F8966727E383576F43742A1D3E69E1344D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379524   (839454) от 29.04.2020
-
-VA - Beatport Tech House: Electro Sound Pack #71 (2020) [MP3|320 Kbps] <Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839454.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armonica - Samburu
-002. Martin Schulte - Frosty Sky
-003. Waveform 99 - Ibiza (Night Tech Mix)
-004. Gabriele Toma - Hook (Original Mix)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 09:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FBA4572C3343CA4FBF094D742A4356FF2FFB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499407   (839219) от 07.10.2021
-
-VA - Крутые пушки Осень 2021 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wellboy - Гуси (Stanislav Almazov Radio Remix) (3:29)
-02. Земфира - Ромашки (Cheeful & D.Slap Upfinger Radio Edit) (3:52)
-03. Kuyano NAEMS - Rolling in the Deep (Extended Mix) (3:27)
-04. Zivert - Del Mar (Winstep Radio Remix) (3:30)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94F39C472A5F546FC89199D78CF21A3D1780702
 ```
 
 https://mybot314.ru/tekegram_catalog/

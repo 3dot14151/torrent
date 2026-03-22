@@ -1,3 +1,119 @@
+###  Публикация: 1269019   (223210) от 13.12.2018
+
+VA - Driven By The 70s (2018) 5CD [MP3|320 Kbps] <Pop, New Wave, Indie, Hard Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223210.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Lynyrd Skynyrd - Sweet Home Alabama
+02. Don McLean - American Pie
+03. Thunderclap Newman - Something In The Air(   Читать дальше...   )Жанр: Pop, New Wave, Indie, Hard RockПродолжительность: 05:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC68D1A3215ACB53C2A58FF40CCAD0B53F259BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651264   (223104) от 05.08.2023
+
+VA - NOW That's What I Call Music! Vol. 86 (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop, Post-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_223104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metro Boomin feat. The Weeknd & 21 Savage - Creepin’
+02. Sam Smith, Calvin Harris & Jessie Reyez - I’m Not Here to Make Friends
+03. Miguel - Sure Thing (Sped Up version)
+04. P!nk - Never Gonna Not Dance Again(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, Post-DiscoПродолжительность: 01:05:48 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6915DA5C9F9EE097C82C55FF7FB445F143E950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585256   (222832) от 21.10.2022
+
+Anastacia - Anastacia (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seasons Change
+02. Left Outside Alone
+03. Time
+04. Sick and Tired(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE909E9CD59B3D4BDA6CE4F0100C7501624F98D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585124   (222780) от 21.10.2022
+
+Belinda Carlisle - Wilder Shores (2017) [OGG Vorbis|480 Kbps] <Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adi Shakti
+02. Ek Ong Kar Sat Gur Prasad
+03. Light Of My Soul
+04. Rakhe Rakhan Har(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3B172DE94EE6A643F3681BCEBF68E953093FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585341   (222674) от 21.10.2022
 
 VA - Car Booster Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Electro Pop, Dance, Club, Future House>
@@ -647,122 +763,6 @@ VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC6F905FEAA2FD136699B1E7D444722768AD4243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585869   (219551) от 24.10.2022
-
-VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almklausi - Wir machen mit bei der Rettung der Erde
-02. Tim Toupet feat. Lorenz Buffel - Pietro Lombaaadi
-03. Schafer Heinrich - Ich hatte heut schon Sex
-04. Biervampir - Biervampir(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:08:01 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42FF8679A7B7346CDE6D6DA4AE5246DF286DFA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585865   (219533) от 24.10.2022
-
-VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julian Sommer - Dicht im Flieger
-02. Micha von der Rampe - Partyanimal
-03. Mickie Krause - Eine Woche wach
-04. HBZ - Gasteliste +1(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:43:41 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF6E45B6CD0BF7224AE2D7F4B4889980956D109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585866   (219523) от 24.10.2022
-
-VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Bier - Bierkapitan
-02. Tobee - Cordula Grun
-03. Micky Band Bruhl - Buenos Dias Matthias (Version 2021)
-04. Buddy - Ab in den Suden (Neuaufnahme)(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:32 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D60565BA627BAC8C4E75A82EDE1FE4F719F3BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585868   (219514) от 24.10.2022
-
-VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nancy Franck - Korken knallen
-02. Marc Koste - Open Air
-03. Die Eierheiligen - Feiereier
-04. Rick Arena Moses C. - Vorn an der Theke stehn(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:08:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33C92DC2E47016C9B2B1375CA21DE71FD24BFA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1591588   (187116) от 18.11.2022
+
+D.White & DimaD. - The Butterfly Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Have Fun Tonight (Album Version)
+02. 600 Km (Album Version)
+03. Verone (Album Version)
+04. You Are My Love(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E71520147202A36FA249EB66F9E4EF97D5D965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427144   (183719) от 27.11.2020
 
 Savage - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop, EuroDance>
@@ -721,35 +750,6 @@ Silent Circle - Chapter 80s (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:445B677A6AC8AC074FA53368387E698C93AC7361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679459   (138018) от 25.11.2023
-
-The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Nu-Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Second Chance (feat. Kimberly Davis) (The Shapeshifters Reprise)
-02 – Bring On The Rain (feat. Joss Stone)
-03 – Slippery People (feat. Ramona Renea & Fiorious)
-04 – Finally Ready (feat. Billy Porter)(   Читать дальше...   )Жанр: Electronic, Disco, Nu-Disco, HouseПродолжительность: 2CD, 02:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC10AB3CAC5EFB2ECA89DBFEA4E2DC95E46E25A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

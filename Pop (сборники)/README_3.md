@@ -1,3 +1,32 @@
+###  Публикация: 1469321   (1016531) от 11.05.2021
+
+VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016531.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam van Hammer - Self Control (Radio Edit) (3:10)
+002. Aurora feat. Lizzy Pattinson - Summer Son (Radio Edit) (3:28)
+003. Dirty Disco - I Feel Dirty (Space City Remix) (6:35)
+004. Eiffel 65 - Move Your Body (D.J.Gabry Ponte Original Radio Edit) (4:29)(   Читать дальше...   )Жанр: Disco, Dance, HouseПродолжительность: 08:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469650   (1016277) от 13.05.2021
 
 VA - Soft Pop Hits 3 (2021) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Glam Essentials (2021) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87C5C3D981EC5FBD2862A58CC3608C8069A550FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474890   (1012133) от 08.06.2021
-
-VA - 230 DJ Loaded - Musiced Dedications (2021) [MP3|192-320 Kbps] <Afrobeat, Hip-Hop, Dancehall, Future House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WhoHeem vs Waka Flocka Flame ft Wale & Roscoe Dash - Let's Link vs No Hands (Even Steve Wordplay Trans 60-66) Short Clean
-02. YZY - Punisher (Original Mix) Clean
-03. Problem Child 5 ft Young Thug - Da Tooly (Dirty)
-04. Skemaddox - Edamame (Original Mix) Clean(   Читать дальше...   )Жанр: Afrobeat, Hip-Hop, Dancehall, Future HouseПродолжительность: 13:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD21EC5C611DD5C68F07A56FA332C5CDA6DC6C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

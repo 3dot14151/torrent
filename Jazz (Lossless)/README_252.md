@@ -1,3 +1,177 @@
+###  Публикация: 1627219   (237471) от 18.04.2023
+
+Gabriele Mirabassi & Simone Zanchini - Il gatto e la volpe (2021) Egea [FLAC|Lossless|tracks + .cue] <World Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choro Romagnolo [5:39]
+02. Our Spanish Love Song [7:57]
+03. Chisciotte [4:37]
+04. Impro N.5 [1:26](   Читать дальше...   )Жанр: World Fusion, Contemporary JazzПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D98FA26889D4F8C27EC981E38AC9F573B079C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638635   (237464) от 11.06.2023
+
+Lou Bennett - Enfin! (1963) 1997, RCA Victor [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_237464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment's Notice [4:48]
+02. I Remember Sonny [5:34]
+03. Loin du Bresil [4:55]
+04. Indicatif [0:45](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD1F272B099BE5E7EB397F7E24DFBFFEB8CBAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606246   (237446) от 21.01.2023
+
+The Herb Geller Sextette -  The Herb Geller Sextette (1955) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outpost Incident [4:27]
+02. Crazy He Calls Me [5:29]
+03. Gin for Fuguelhorns [3:44]
+04. Tardi at Zardi's [4:35](   Читать дальше...   )Жанр: BopПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFF705873D9D1FD5FC650D93FA3AAA50C7786FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606440   (237383) от 22.01.2023
+
+Karin Krog & Laila Dalseth, Per Borthen Swing Department Ltd. - Swingin' (1999) Carat [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wop [4:15]
+02. Me, Myself and I [4:22]
+03. Flying Home [3:54]
+04. Sailboat in the Moonlight [4:25](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8411F434855245E3ED0F4D8E1179F2383ED88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606561   (237369) от 22.01.2023
+
+Wilbur De Paris And His New New Orleans Jazz - Marchin' And Swingin' (1952) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martinique [5:19]
+02. Tres Moutarde [3:15]
+03. Under The Double Eagle [5:09]
+04. Shreveport Stomp [3:02](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE911EEA78A79EA2022543E54D22F42C5B910469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450929   (237356) от 28.02.2021
+
+Benny Goodman - The Essential Benny Goodman (1937 - 1958) 2CD, 2015, Not Now Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237356.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Dance [2:35]
+02. Stompin' At The Savoy [3:14]
+03. Whispering [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D9A7E57AE3ABDD9EA2D9CE47D12904C1E2E618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627414   (237348) от 19.04.2023
 
 The Ruby Braff Trio - Me, Myself And I (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
@@ -571,180 +745,6 @@ The Phil Woods Quintet + One - Flash (1990) Concord Jazz [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A4284AC02210DDE678F30FC86EE4D46C25A1223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641240   (236706) от 21.06.2023
-
-Konstantin Klashtorni - Chillaxonic: 3rd Facet (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Within Attraction (3:46)
- 02. Serenity (4:17)
- 03. Living Water (4:04)
- 04. Creation Sings (3:56)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCD8978E2DEC17CB722C0C888809072946EDA2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608847   (236688) от 01.02.2023
-
-Betty Carter - I Can't Help It (1992) Impulse! [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Help It [2:49]
-02. By the Bend of the River [2:10]
-03. Babe's Blues [2:54]
-04. You're Getting to Be a Habit with Me [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2FDCED6F4D26D9BF99555CEBC2C4A145E7B0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628472   (236599) от 23.04.2023
-
-Riccardo Fassi & Gary Smulyan - L'amico Immaginario (1994) 1998, Splasc(H) Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Budda [8:58]
-02. Harpo [6:43]
-03. Amico immaginario [9:30]
-04. Near the River [5:09](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1E90869A2EC73E84E12673F91AD12D79C21562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609140   (236527) от 02.02.2023
-
-Jimmy Giuffre - Jimmy Giuffre (1954, 1955) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [3:17]
-02. Someone To Watch Over Me [3:10]
-03. Sultana [2:53]
-04. A Ring-Tail Monkey [2:36](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED4400B0B32B87A5F4488490FC1E8185B606633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640307   (236449) от 17.06.2023
-
-European Jazz Trio - Pray: Spring Sea (2012) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pray [4:30]
-02. The Four Seasons: Winter 2nd Movement [4:33]
-03. Recuerdos de la Alhambra [5:59]
-04. Haruno Umi (Spring Sea) [5:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A6FDD752DD416667E692B4F2CE710F14E6C8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609442   (236421) от 03.02.2023
-
-Barney Kessel - Three Classic Albums Plus (1957 - 1959) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236421.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Some Like It Hot [4:22]
-02. I Wanna Be Loved by You [3:42]
-03. Stairway to the Stars [3:20](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Guitar JazzПродолжительность: 02:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB18F644E26A334901DEE7FF26A43D5F0F90E8D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

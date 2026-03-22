@@ -1,3 +1,32 @@
+###  Публикация: 1386180   (795230) от 28.05.2020
+
+VA - Europop Music Sound: Nonstop FM Radio (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795230.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. All Saints - Never Ever
+002. David Delabrosse - Burn Out
+003. Liza Sherdom - My Style
+004. Countdown Singers - If I Can't Have You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29DAD479DC97E4CAF8971C2CE602A879BB73506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011831   (795212) от 29.04.2016
 
 VA - Дискотека 80-90 годов по-новому Modern Talking ( Зарубежный выпуск - 31 ) (2016) [MP3|320 кб/с] <Pop, Euro-Disco, Dance>
@@ -716,35 +745,6 @@ VA - Ukrainian Hits Vol.5 (Romantic) (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B533FF8B292271299E430CB75DAF9C482DF57F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511126   (789250) от 20.11.2021
-
-VA - Weekend Play List (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789250.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moltheni - Tutte Quelle Cose
-002. Willow Sage Hart - Cover Me In Sunshine
-003. Danna Paola - Tq Y Ya
-004. Yukika - Pung!(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3FE1A00B23CD0EFFF4BEE8A98A8DD7B17415754
 ```
 
 https://mybot314.ru/tekegram_catalog/

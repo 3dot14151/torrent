@@ -1,3 +1,90 @@
+###  Публикация: 837756   (736334) от 29.01.2022
+
+Fausto Papetti - Magic Sax (2012) 2CD [MP3|320 кб/с]<Instrumental, Saxophone, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736334.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. London Fever (4:10)
+2. Medley - Samba Pa Ti (3:59)
+3. Brivido Felino (3:56)(   Читать дальше...   )Жанр: Instrumental, Saxophone, Easy ListeningПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527858   (735838) от 30.01.2022
+
+Anais Mitchell (Anaïs Mitchell) - Anais Mitchell (Anaïs Mitchell) (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brooklyn Bridge (4:19)
+ 02. Bright Star (3:11)
+ 03. Revenant (3:30)
+ 04. On Your Way (Felix Song) (2:54)(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9835910F7B21D765902FD1AF28F2DB8BAAB751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398776   (735125) от 27.07.2020
+
+Нейромонах Феофан - Акустика (2020) [MP3|320 Kbps] <Folk, Acoustic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Под Драм Легко (Акустическая Версия)
+2. Пойдём Со Мной (Акустическая Версия)
+3. Сияние (Акустическая Версия)
+4. Камыш (Акустическая Версия)(   Читать дальше...   )Жанр: Folk, AcousticПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F281B0BA47E620E6A39AD43EBD9E5684567F3743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527882   (734956) от 01.02.2022
 
 Anais Mitchell (Anaïs Mitchell) - Xoa (2014) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
@@ -49,6 +136,35 @@ VA - Waykey (2007) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F734439DE8C2C7648D7B9D74685A2D2AD3AAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399237   (733837) от 30.07.2020
+
+Игорь Крутой - ...без слов... (2000) [FLAC|Lossless|tracks + .cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песнь о друге
+02. Эвридика - дэнс
+03. Нежность
+04. Коктейль Джаз(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82BE752FD5ACD02E18FDD6E65FD379774FFFAB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,122 +742,6 @@ Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7079C78F6527448F6F00FC8C5ACFA852FC8BFE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127723   (730358) от 22.04.2017
-
-Дидюля & Chris Wonderful - Аквамарин (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Свадебное путешествие
-2. Страна дураков
-3. Белый месяц
-4. Посох шамана(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FC5E40E806650361036B41874E60F4C3BECC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283973   (730045) от 20.02.2019
-
-DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <Folk-rock, Gypsy Punk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Shot (05:22)
-02. Let Me Sleep (04:39)
-03. Lose You In the Crowd (04:41)
-04. Love Letters (04:25)(   Читать дальше...   )Жанр: Folk-rock, Gypsy PunkПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F96A47E36880F951A7002E0116062B0941EE433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128003   (730039) от 23.04.2017
-
-VA - India Experience (Vol. 1) (2015) [MP3|320 Kbps] <Downtempo, Lounge, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brass - Indian Landscape
-02. Brass - Delhi Nights
-03. Brass - Sun After Rain
-04. Brass - Calcutta Groove(   Читать дальше...   )Жанр: Downtempo, Lounge, New Age, WorldПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4BC0CF84AA8FCF50A03AE073C3C4AC4772B875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283905   (730015) от 20.02.2019
-
-VA - Не грози Южному Централу, попивая сок у себя в квартале / Don't Be A Menace To South Central While Drinking Your Juice In The Hood (1996) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730015.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winter Warz (Cappadonna)
-2. Renee (Lost Boyz)
-3. Funky Sounds (Lil Bud & Tizone)
-4. Give It Up (Jodeci)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5269F424AB3102D1CC116336A735EA2852B46330
 ```
 
 https://mybot314.ru/tekegram_catalog/

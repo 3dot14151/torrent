@@ -1,3 +1,61 @@
+###  Публикация: 1097063   (915874) от 26.01.2017
+
+VA - Intergalactik Highway: Space Mix (2017) [MP3|201-320 Kbps] <SpaceSynth, SynthPop, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alphawave - Underwater World
+002. Camouflage - Shine
+003. Cosmologia - Eternal Seeker
+004. DMC - Noisy Pillars(   Читать дальше...   )Жанр: SpaceSynth, SynthPop, ElectronicПродолжительность: 10:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81362E9F71817A62BBFB5770B5560E0CBAE8D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989586   (915833) от 23.02.2016
+
+VA - Sexy House, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915833.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Audio Jacker - By My Side (Anthem Mix) [07:05]
+2. Soul Power - No Diggity (Soul Power Classic Club Mix) [05:17]
+3. Martin Thomas - Love Has A Way (Original Mix) [07:00]
+4. Audio Jacker - Rotate (Original Mix) [05:39](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ABFD221A5B935A19C02BBE7043E16E3D8A0601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989819   (915827) от 23.02.2016
 
 VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
@@ -687,64 +745,6 @@ VA - International Sports Collective 4 (2017) [MP3|320 Kbps] <Eurodance, Vocal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B7B9F02FEBE36F5221F360FE02E0597DAD6C2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098390   (910503) от 29.01.2017
-
-VA - Best Chillout Vol.25 (2017) [MP3|96-320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Absoluteterror - Toyota (Original mix) 2:22
-002. Adventure Club - Wonder (ANDRU Remix) 4:05
-003. agrx & Kringe - Let The Music (feat. Kringe) (Original Mix) 2:45
-004. Alivvve - Dreams (Original Mix) 2:24(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9103AF4B2FABB36CBECEB364E05C23027F975D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098220   (910279) от 29.01.2017
-
-VA - The January Club and Dance Music (2017) [MP3|320 Kbps] <House, Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910279.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 20 Fingers vs. Vincent & Diaz - SHORT Dick Man (Markiza Mash-Up)
-002. Abraham Ruiz - 212 vs. Boogie Vice - What A Day (DЭ GAME SOUND REMIX 2017)
-003. Alexander Holsten - Rock is Alive (Mikhail Rado Sax Extended Radio Version 2017)
-004. Alisha Pillay vs. Kolya Funk & Eddie G - Mayday (VINCENT & DIAZ MASH-UP 2O17)(   Читать дальше...   )Жанр: House, Electro House, Dance, ClubПродолжительность: 06:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCAC4DBB9401D6D59050850AF666A71AD98D95A
 ```
 
 https://mybot314.ru/tekegram_catalog/

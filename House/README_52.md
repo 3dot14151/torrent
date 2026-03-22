@@ -1,3 +1,160 @@
+###  Публикация: 1067090   (408388) от 28.10.2016
+
+VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modell - Do You Remember a Time - Deep Elements Mix
+02. Yolette Mercure - Pretty Amper - Cinosa Mix
+03. South Soul - Light Passion for Beauty - Beach & Fashion Mix
+04. Parfait Deblois - Heat Wave - On The Moon Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EF515D0A713ED603FF5090E7ECF1A48784E687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560369   (407504) от 14.10.2012
+
+VA - World Club Tour Amsterdam: The Amsterdam Club Sound Collection (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falko Niestolik - Explore (Brockman & Basti M Full Vocal Mix)
+02. Eriq Johnson - Should I Like This (Incognet Remix)
+03. Stan Kolev - Love Revolution (Matan Caspi Tribolution Remix)
+04. Joe Flex - Manhattan (Paul Strive Remix)
+05. Chriss Ortega - When You Say (Fine Touch Remix)
+06. Tune Brothers - Diamonds (Francesco Gomez Remix)
+07. Dimitri Vangelis - Ignited (Original Mix)
+08. Marc Vedo - Lullabyes (Original Mix)
+09. Vengerov - Kazantip Intro (Matt Caseli & Danny Freakazoid Remix)
+10. Felix Leiter - Better Days (Original Mix)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4E99C4278918EDB0A8488E06DD8D2ABDC9F452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413995   (406809) от 06.10.2020
+
+VA - Kontor Sports: Nonstop Powermix 2020.05 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Kontor Sports-Nonstop Powermix 2020.05 (Continuous DJ Mix) 1:01:59
+02. Armin van Buuren feat. Bonnie McKee - Lonely For You (Jerome Remix) 2:59
+03. Loud Luxury feat. Morgan St. Jean - Aftertaste 3:17
+04. Nora En Pure & Lika Morgan - In The Air Tonight (Croatia Squad Remix) 3:05(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5B8A91665F6614F9D8AEB324D50FFD91C6502E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414019   (406807) от 06.10.2020
+
+VA - Kontor Sports: Nonstop Powermix 2020.04 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Kontor Sports-Nonstop Powermix 2020.04 (Continuous DJ Mix) 1:01:18
+02. Jerome - Take My Hand 2:43
+03. Sondr & VIZE feat. Lilly Ahlberg - Kids (feat. Lilly Ahlberg) 2:28
+04. Micar - This Time It's My Life 3:07(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F5AD27AADD53CEF295B48CA7563BAD8693D68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560020   (406721) от 15.10.2012
+
+VA - Dancefloor FG Ete Summer 2012 (2012) [MP3|~245 кб/с (V0)]<House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - Levels (04:37)
+02. Hardwell - Spaceman (06:19)
+03. Afrojack - Can't Stop Me (03:05)
+04. Sebastian Ingrosso - Calling (Lose My Mind) (06:12)
+05. Nicky Romero - Toulouse (03:05)
+06. Cedric Gervais - Molly (03:31)
+07. Bingo Players - Rattle (03:09)
+08. Steve Aoki - Ladi Dadi (04:02)
+09. Kaskade - Lick It (04:31)
+10. DAB - Life (03:02)(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3F337103BE41CDDC100CE74CA2FDA4189A9E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561325   (406424) от 16.10.2012
 
 Dave Ross - Dance Machine (2012) [MP3|320 кб/с]<Deep House>
@@ -648,151 +805,6 @@ VA - Keep It up Workout, Vol. 1 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C39F74143FE528CF022C475192112A6EA9C97FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572305   (386032) от 08.11.2012
-
-Ledina Celo - Can U Touch Me Baby (WEB) (2012) [MP3|320 кб/с]<House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can U Touch Me Baby (Edit Mix) 03:17
-02. Can U Touch Me Baby (Extended Mix) 04:16
-03. Can U Touch Me Baby (Club Mix Edit) 03:04
-04. Can U Touch Me Baby (Club Mix) 04:38Жанр: House, DanceПродолжительность: 00:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9539FDC3FD02B3F156DC00BF752038838CF5251A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253393   (383613) от 09.10.2018
-
-VA - Digital Empire - Miami Underground (2018) [MP3|320 Kbps] <House, Electro-House, Bigroom>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Mendosa - That Bass (Original Mix)
-02. Slamtype - Hit Em Like (Original Mix)
-03. Tommy Jones - Calling Your Name (Original Mix)
-04. Kirin - Party Up (Original Mix)(   Читать дальше...   )Жанр: House, Electro-House, BigroomПродолжительность: 04:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CBB40B4A7DFF260AA1FB0967C17F0365359EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253395   (383567) от 09.10.2018
-
-VA - Bass House Autumn '18 (2018) [MP3|320 Kbps] <House, Future-House, Electro-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Weeks - Attention (Original Mix)
-02. Brain Masters - We Super Stylin (Original Mix)
-03. Martin Weeks - Whenever I'm Down (Original Mix)
-04. Henrick B Jordan - The Pressure (Original Mix)(   Читать дальше...   )Жанр: House, Future-House, Electro-HouseПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5799558F2E554FE35B276DE6CC8931E6F61D3BC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253558   (381775) от 10.10.2018
-
-VA - Tech House Patrol [40 Dirty Beats] Vol.3 (2018) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Raum - Dark Sheen (Original Mix) 5:36
-02. Max Porcelli & A-Drex - From The Dust (Max Porcelli Remix) 7:07
-03. Manuel Turobin - Leather Strap Bra (Original Mix) 8:32
-04. Larry Baaaam! - Kiezmer Kiezmer (Original Mix) 5:57(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DF8CB525CBD290BFCF6D21F573812196C78ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253572   (381763) от 10.10.2018
-
-VA - ADE 2018 [Bonzai Progressive] (2018) [MP3|320 Kbps] <House, Progressive House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airwave - Rain Upon My Skin (Original Mix) 10:16
-02. Cherry - Alma (Original Mix) 6:51
-03. Tom Wax - Jippi Jappa (Original Mix) 8:18
-04. Ken Ishii & Van Czar - Kitai (Robert Babicz Remix #2) 8:02(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 06:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657790A21453DE83735106E15AB22ACB521D9BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

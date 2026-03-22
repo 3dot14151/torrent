@@ -1,247 +1,24 @@
-###  Публикация: 1333853   (301351) от 26.10.2019
+###  Публикация: 1077505   (306306) от 28.11.2016
 
-Борис Лурье | Дом Аниты (2017) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301351.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дом Аниты» — эротический роман о Холокосте. Эту книгу написал в Нью-Йорке на английском языке родившийся в Ленинграде художник Борис Лурье (1924–2008). 5 лет он провел в нацистских концлагерях, в том числе в Бухенвальде. Почти вся его семья погибла. Борис Лурье чудом уцелел и уехал в США. Роман о сексуальном концлагере в центре Нью-Йорка был опубликован в 2010 году, (   Читать дальше...   )Жанр: Контркультура, Современная русская и зарубежная прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1D4AC1C6D4724AE4DEC6E05E5125B94326BA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333406   (301350) от 26.10.2019
-
-Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic, New Wave>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Was Our House (From "Breathing") (02:01)
-02. Where Did You Go (04:05)
-03. Breathing (02:50)
-04. It's Them (04:35)(   Читать дальше...   )Жанр: Score, Soundtrack, Electronic, New WaveПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C8EC7D9C140D4483C14E15E96B2695754CC690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333615   (301349) от 26.10.2019
-
-Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackway & Black Caviar - What's Up Danger (03:42)
-02. Post Malone & Swae Lee - Sunflower (02:38)
-03. Jaden Smith - Way Up (02:34)
-04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681BAF529FFA30F50068A78E5B21BCAF815CF482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333895   (301348) от 26.10.2019
-
-VA - Drizzly Music presents: Magic Island Of Lounge Series (Life Is A Journey) - 5 Releases (2015-2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301348.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 - Magic Island Of Lounge • Volume 1 (Life Is A Journey)
-2015 - Magic Island Of Lounge • Volume 2 (Life Is A Journey)
-2016 - Magic Island Of Lounge • Volume 3 (Life Is A Journey)
-2017 - Magic Island Of Lounge • 2017 Edition (Life Is A Journey)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 11:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE854AF911E88963F32138B4C9238C8D44A59C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333599   (301347) от 26.10.2019
-
-Frederator Studios | Артбук по мультсериалу Храбрейшие Воины / The Art of Bravest Warriors (2019) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по мультсериалу "Храбрейшие Воины"Жанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655CCD8EE5999BA9FB73C4FF30F2D0B832D24EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333708   (301346) от 26.10.2019
-
-Blank & Jones - The Singles (The Hitmix by Oliver Momm) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbeat (The Hitmix Version) (3:37)
- 02. A Forest (The Hitmix Version) (3:18)
- 03. Perfect Silence (The Hitmix Version) (3:19)
- 04. Summer Sun (The Hitmix Version) (3:18)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B256F50B974BDB422FE7059B11300C9255667BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333563   (301345) от 26.10.2019
-
-Борис  Ляпунов | По следам Жюля Верна (1960) [FB2]
+Сергей Плотников | Обретённая (2016) [FB2]
 
 >>Художественная литература
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301345.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Почти столетие отделяет нас от тех времен, когда Жюль Верн, великий фантаст, поэт науки и техники, написал первую книгу из серии романов-путешествий — «Пять недель на воздушном шаре».
-Многое изменилось с тех пор. И все же…
-Идя по следам героев Жюля Верна, путешественники не всегда повторяли сделанное ими. Но перед ними стояла та же цель: искать и находить! Проникнуть (   Читать дальше...   )Жанр: Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A1DB83D93466421A69472885720C0E5A089E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329682   (301344) от 26.10.2019
-
-Как вырвать зуб у кита / Jak vytrhnout velrybe stolicku (1977) DVDRip [H.264] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная история о 8-летнем Вашике, который всю жизнь мечтал стать альпинистом, как и его папа, погибший в горах под лавиной еще до его рождения. Смышленый мальчишка всеми силами старается найти для своей хрупкой мамы-балерины нового мужа. Поиски не дают результатов, ведь «все порядочные мужчины уже давно женаты»…
-Поездка в горы на каникулы знакомит Вашика с (   Читать дальше...   )Производство: Чехословакия / Ceskoslovenská televize Praha, Filmové Studio BarrandovЖанр: Комедия, СемейныйРежиссер: Мария ПоледняковаАктеры: Яна Прейссова, Томаш Холы, Франтишек Немец, Властимил Харапес, Яна Дитетова, Бланка Валеска, Габриэла Вранова, Петр Костка, Стелла Зазворкова, Мирек ВыдлакПеревод: Одноголосый любительский (Палата №6 для NNM-CLUB)Субтитры: ОтсутствуютПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCFED9C15583CF95AF3BF489800B33FC6575F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333910   (301343) от 26.10.2019
-
-DjVu Reader Pro 2.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301343.jpg" />
-</div>
-
-
-###  Подробнее
-
-DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
+Третий роман цикла «Космоопера».
 
-В целом, DjVu Reader Pro это отличная читалка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2019Разработчик: FirmShell LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+Иногда, чтобы обрести искомое, сначала приходится всё потерять. Землянин Михаил, известный теперь как техспек Миш, на самом краю гибели оказался спасён собственной женой. Та, которую он любил больше всего на свете, та, ради которой покинул Землю, та, кого считал погибшей, жива! Правда, почему-то выглядит гораздо моложе своих лет (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1429B85A69228201AFD8C0BD6C468FE69D60A20
+magnet:?xt=urn:btih:AC21BAA49E852CF9976FEAFBB14E3F6D6222CCC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,25 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333899   (301342) от 26.10.2019
+###  Публикация: 1422858   (306305) от 10.11.2020
 
-Phoenix Labs | Артбук по игре Dauntless / The Art of Dauntless (2019) [CBR] [EN]
+After Forever - Emphasis - Who Wants To Live Forever (2002) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
 
->>Комиксы и Артбуки
->>Артбуки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301342.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре DauntlessЖанр: АртбукФормат: CBR
+01. Emphasis (4:18)
+02. Who Wants To Live Forever (4:47)
+03. Imperfect Tenses (4:09)
+04. Intrinsic (6:53)Жанр: Symphonic Gothic MetalПродолжительность: 00:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF5A9E5B3D61B16FC6AE3EEA26AE94F137F399D7
+magnet:?xt=urn:btih:55C86FB09CC299D5FEF91BAF8C579898BBEE2350
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,28 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333617   (301341) от 26.10.2019
+###  Публикация: 1422950   (306304) от 10.11.2020
 
-Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-паук: Через вселенные (Soundtrack + Score) (2018) [FLAC|Lossless|tracks] <Soundtrack, Score>
+VA - Summer Breeze Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, Lounge, Chillout>
 
->>Other Styles
->>OST (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301341.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blackway & Black Caviar - What's Up Danger (03:42)
-02. Post Malone & Swae Lee - Sunflower (02:38)
-03. Jaden Smith - Way Up (02:34)
-04. Nicki Minaj & Anuel Aa - Familia (feat. Bantu) (02:55)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:12:26
+01. Michael e - Conversations (Chill Mix) (5:50)
+02. Peter Pearson - Move On (Original Mix) (4:17)
+03. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
+04. The Soul Crusaders - The Future (Original Mix) (5:31)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:09:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFE4643A84B154C62C01743321387A736BC807C2
+magnet:?xt=urn:btih:B1EAE87D912B540A3C624C660A599237C16AC5B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -304,28 +84,316 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961299   (301340) от 01.12.2015
+###  Публикация: 1422815   (306303) от 10.11.2020
 
-Dominik von Francois - Last Resort (2015) [FLAC|Lossless|WEB-DL]<Trance>
+VA - Traveling Lounge: Chillout Your Mind (2020) [AAC|~319 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eivissarts - No Motion (Original Mix) (5:57)
+02. Magmatunes - Sunset Lovers (Original MIx) (5:23)
+03. Marga Sol - Think About You (Original Mix) (5:36)
+04. Schwarz & Funk - Blue Rose (Eivizzards Mix) (5:55)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9609DD28325B345EFE93DA39561D28C8D62B71B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422790   (306302) от 10.11.2020
+
+Temple of Switches - The Wings of Mind (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melba (05:49)
+ 02. Pondering (06:02)
+ 03. Freon Suitcase (04:23)
+ 04. Living on the Edge (03:12)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6CDF9E21A53D75FBC5A9FBB45C1F8337E3BBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422799   (306301) от 10.11.2020
+
+VA - Sandwalk Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Sandwalk (Original Mix) (4:35)
+02. Schwarz & Funk - Keep On (Remastered) (5:49)
+03. Chillson, Marc Hartman - With You (4:35)
+04. The Soul Crusaders - This City Never Sleeps (5:02)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7C62FDE0163A5221AAA7E7F75CE64DB0E09430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422774   (306300) от 10.11.2020
+
+Clifford Brown - Jazz Immortal (1953, 1954) 2019, MatchBall Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiny Capers [4:21]
+02. Gone with the Wind [3:44]
+03. Finders Keepers [3:56]
+04. Blueberry Hill [3:20](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C337D8A647C267CC68F7EB3174B330A909AC729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422957   (306299) от 10.11.2020
+
+VA - Deep Voyage Lounge: Chillout Your Mind (2020) [AAC|~312 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - As Far as the Eye Can See (Original Mix) (8:18)
+02. Mission Brown - Watching Clouds (Original Mix) (6:03)
+03. DJ T.H., Robin Vane - Be My Hero (Gambrita Remix) (3:41)
+04. Patiotic - Hold Me (Marga Sol Chill Mix) (4:21)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39AEFDEFA2D11928F73FFEAAB11FF70B5355B404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422920   (306298) от 10.11.2020
+
+Don McLean - Starry Starry Night (Live in Austin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306298.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:50] 01. Everyday (Live)
+[04:24] 02. La La Love You (Live)
+[04:52] 03. Homeless Brother (Live)
+[04:06] 04. If We try (Live)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C04922C460187C3EEC908047C4DBFF7E6A56F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422869   (306297) от 10.11.2020
+
+After Forever - Energize Me (2007) Single [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Energize Me (Radio Edit) (2:53)
+02. Energize Me (3:11)
+03. Sweet Enclosure (5:03)Жанр: Symphonic Gothic MetalПродолжительность: 00:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86AFE92BB690E71B4A7BE9B751CD1AB8BC85970F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422915   (306296) от 10.11.2020
+
+Trishula - Time Waits For No Man (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How It's Supposed to Be (5:39)
+02. Fallen Hero (5:15)
+03. I Want It All (4:11)
+04. Make up Your Mind (Take Your Time) (5:23)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C8AF79068D9ED4C91F7FFF4AD4DD5128EC0C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422853   (306295) от 10.11.2020
+
+After Forever - Follow In The Cry - Silence From Afar (2000) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow In The Cry (4:04)
+02. Silence From Afar (Radio Version) (4:38)
+03. Wings Of Illusion (7:21)
+04. Mea Culpa (Acapella) (2:17)Жанр: Symphonic Gothic MetalПродолжительность: 00:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DB89D0E7E70FD3A85A469552CD5D4ED8FA45B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422863   (306294) от 10.11.2020
+
+After Forever - Monolith Of Doubt (2002) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolith of Doubt (Single version) (3:32)
+02. For the Time Being (5:04)
+03. Forlorn Hope (6:21)
+04. Imperfect Tenses (Orchestral version) (4:06)Жанр: Symphonic Gothic MetalПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BE4710CA4586A54A0F1507F24E07689883B661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422911   (306292) от 10.11.2020
+
+Afrojack & Nicky Romero - Two Is One, Amsterdam Music Festival, Netherlands (2020-11-07) [MP3|320 Kbps] <Electro House, Big Room>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301340.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Another Chance (Original Mix) (7:35)
-02. Over The Sky (Original Mix) (8:27)
-03. Last Resort (Original Mix) (9:11)
-04. Hopeful Dreams (Original Mix) (7:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:27
+01. David Guetta ft. Sia - Titanium (Acappella) w/Robin Schulz ft. Alida - In Your Eyes (Nicky Romero Remix) (Instrumental Mix) w/Camarda & Almero - Good Old Days w/Topic ft. A7S - Breaking Me (Aappella) w/Chico Rose & Afrojack - The Bass
+02. MASTERIA & AceMyth - Do It w/Yves V ft. Afrojack & Icona Pop - We Got That Cool (Acappella)
+03. Joel Corry (   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:31:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CADE6A9A4CBB5F81CB9E7B5F06A85DC8D3D0736B
+magnet:?xt=urn:btih:C3C7A1FDFD46CAD810F45090AA4F6C415AA594EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -333,25 +401,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961195   (301339) от 01.12.2015
+###  Публикация: 1422736   (306291) от 10.11.2020
 
-Н.Г. Головнина (ред.) | Арабы-христиане в истории и литературе Ближнего Востока (2013) [PDF, DJVU]
+Благовест (изд.) | Маргарит. Избранные душеспасительные изречения (2012) [EPUB]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301339.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Исследования, посвященные проблемам Христианского Востока, в настоящее время приобретают новое звучание в связи с укреплением интереса к всестороннему изучению духовных традиций тех Церквей, которые начиная с VII в. были отторгнуты от Византии в ходе арабского завоевания и со временем восприняли арабский язык в качестве разговорного и литературного. Именно он и служит (   Читать дальше...   )Жанр: Сборник статейФормат: PDF, DJVU
+В настоящую книгу собрано много кратких и душеспасительных назидательных историй и советов для душевной пользы каждого христианина, избранных из многих творений святых отцов и подвижников благочестия. В издании повествуется о том, как на христианских началах построить свою духовную жизнь и стяжать ни с чем не сравнимое благо жизни во Христе. Издание рассчитано на (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6660D2DCCBEA58328F6EBA6A38E0255B1B880DB
+magnet:?xt=urn:btih:4CF55E8BD0A16F025069039FF15DDF6FC1BDC452
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,26 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961418   (301338) от 01.12.2015
+###  Публикация: 1422959   (306290) от 10.11.2020
 
-Газета | Морфей №24 (322) (2015) [PDF]
+VA - Beach Bar Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Downtempo, Lounge, Chillout>
 
->>Журналы
->>Другие журналы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301338.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как защитить своё сокровище? Как прогнать дурной сон? Мандариновая ворожба?
-Это и много другое, что поможет вам сохранить душевное равновесие и разгадать вещий сон, который вам обязательно присниться в новогоднюю ночь.Жанр: Сны, гадания, приметыФормат: PDF
+01. Boyzen SA, Butler - Never Meant to Be (Original Mix) (6:11)
+02. Chappell, Gregor Salto - Lonely (4:43)
+03. Monodeluxe - Sunny Afternoon (Original Mix) (5:35)
+04. Marga Sol - Satisfied (Original Mix) (5:34)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:32:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CB20529F2D5437CCA4614FDEE0FC3492AF733F4
+magnet:?xt=urn:btih:3B08C7074DB5E58C8444BDE780C4B871E010FE48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,25 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 960934   (301337) от 01.12.2015
+###  Публикация: 1414227   (306289) от 10.11.2020
 
-А. В. Подосинов, М. В. Скржинская | Римские географические источники (2011) [DJVU]
+Журнал | Wheels Sverige №2 (февраль 2020) [PDF] [Se]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301337.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очередной выпуск свода «Древнейшие источники по истории Восточной Европы» посвящен историко-географическим сведениям, содержащимся в «Хорографии» Помпония Мелы — древнейшем из сохранившихся целиком географических сочинений римских авторов (середина I в. н. э.) — и в «Естественной истории» римского энциклопедиста Плиния Старшего (вторая половина I в. н. э.). Эти памятники (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+Журнал Wheels Magazine был основан в 1977 году. Журнал издается Egmont Tidskrifter AB в Стокгольме. В основном это касается хот-родов и нестандартных автомобилей. В 2014 году тираж журнала Wheels Magazine составил 15 400 экземпляров.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB2CA648051137E2AA4348B8AE9687BD887A22F6
+magnet:?xt=urn:btih:4F29EE107EEDC4E217235939648331206FAC6BD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,28 +482,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 960319   (301336) от 01.12.2015
+###  Публикация: 1422849   (306288) от 10.11.2020
 
-VA - Kineta Lounge (2015) [MP3|CBR|320 кб/с] <Chill Out, Downtempo, Ambient, Trip Hop>
+Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
 
 >>Electronic
->>Easy listening
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301336.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Side Liner - Little Whale (Original Mix) (05:43)
-  02. Zen Garden - Morning May (Original Mix) (03:48)
-  03. Fourth Dimension - Standing Still (Original Mix) (05:33)
-  04. Germind - Freediving (Original Mix) (05:33)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Ambient, Trip HopПродолжительность: 01:30:43
+1. Boy's First Kill (05:59)
+2. Cut Me Open (04:51)
+3. Facing the Laccadive (05:22)
+4. Alpine Swift (02:18)(   Читать дальше...   )Жанр: Ambient, Experimental, DroneПродолжительность: 00:40:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E2AD531B749555219462CDC183240541FCF5464
+magnet:?xt=urn:btih:C44B07E681CDF1FBDFEA0446D0B4434987254BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,26 +511,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 960925   (301335) от 01.12.2015
+###  Публикация: 1422846   (306287) от 10.11.2020
 
-Генрих Латвийский | Хроника Ливонии (1938) [DJVU]
+After Forever - Prison Of Desire (2000) Reissue, 2003, Transmission Records [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
 
->>Научная и техническая литература
->>Историческая литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301335.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выходящая ныне в свет Хроника Ливонии Генриха Латвийского является важнейшим источником для изучения далекого прошлого Прибалтийских народов. Она говорит о временах давно минувших. Однако, значение этого памятника не ограничено тем, что он является первоклассным историческим источником для познания истории Прибалтики и северо-западной Руси.
-Произведение средневекового (   Читать дальше...   )Жанр: ИсторияПеревод: С. А. АннинскийФормат: DJVU
+01. Mea Culpa (The Embrace That Smothers - Prologue) (2:00)
+02. Leaden Legacy (The Embrace That Smothers - Part I) (5:05)
+03. Semblance of Confusion (4:06)
+04. Black Tomb (6:26)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:58:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF55F72D9EC9A7BE6AAE7A3DB9777488F9E25029
+magnet:?xt=urn:btih:EEAF3AA61A9A3C91AE0D3147F4DBBF34DDB7D387
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,26 +540,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961252   (301334) от 01.12.2015
+###  Публикация: 1422868   (306286) от 10.11.2020
 
-Джеймс Алисон | Жизнь в последние времена. Иной взгляд на эсхатологию (2010) [PDF]
+After Forever - Decipher (2001) Reissue+EP, 2007, Avalon [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301334.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не надо думать, что последние времена близки или, наоборот, что конец света настанет еще не скоро. Прочитавший книгу Джеймса Алисона поймет, что последние времена уже наступили и от него самого зависит, найдет ли он свой путь на небо и будет ли он там рядом с Христом на стороне агнцев, тех, кто сам стал жертвой или встал на сторону жертв, изгоев этого мира.
-Есть (   Читать дальше...   )Жанр: Богословие, эсхатологияФормат: PDF
+01. Ex Cathedra (Ouverture) (2:02)
+02. Monolith Of Doubt (3:32)
+03. My Pledge Of Allegiance #1 (The Sealed Fate) (6:25)
+04. Emphasis (4:20)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:26:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79DB46BB9DF8FCFBED4D8D2BFF6721F7CEAA7C0E
+magnet:?xt=urn:btih:C3410BB706B94ABE4CBDEAEABE4776EA375644AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -495,25 +569,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961307   (301333) от 01.12.2015
+###  Публикация: 266333   (306285) от 05.12.2010
 
-CocCoc 52.2.98 [Multi/Ru]
+Л. Головченко - Колыбельные природы (2006) [MP3|192 kbps]<Колыбельные песни и музыка для детей>
 
->>Архив торрентов
->>Архив Программ
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301333.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CocCoc Browser - браузер, который является продуктом вьетнамской компании Cốc Cốc. Браузер основан на открытом исходном коде проекта Chromium, поэтому браузер очень похож на Google Chrome.Язык интерфейса: Русский, Английский и Другие
+Русские народные мелодии и лучшие классические произведения в неповторимом сочетании со звуками природы помогут Вашему малышу крепко заснуть.Колыбельные лета
+1. Во поле березка стояла
+2. Я пойду по улице
+3. Веночек(   Читать дальше...   )Жанр: Колыбельные песни и музыка для детейПродолжительность: 02:54:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:744E4D2596CD2DDA6A7040992632DC349AEE76FF
+magnet:?xt=urn:btih:BAB2A3FB52C6508A318F86966DF1F6ED13FCC5FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,105 +598,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961424   (301332) от 01.12.2015
+###  Публикация: 266408   (306279) от 05.12.2010
 
-Beamer 3.0.1 [En]
+Суперкомпьютер Jaguar начнет охоту на любителей и авторов детской порнографии.
 
->>Архив торрентов
->>Архив 4Apple
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301332.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Beamer for Mac: смотрите видео любого формата на Apple TV
-Приложение Beamer предназначено для стриминга вашего видеоконтента непосредственно на Apple TV. Оно подкупает своей простотой и удобством. В приложении нет никаких настроек, а только окошко, куда необходимо «перетянуть» видеофайл.
-Для обладателя обширной видеотеки iTunes, приобретение Apple TV является самим (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 декабря 2015Разработчик: Tupil B.V.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6FEC0D37C522922F0E3583BEBD3745A476030B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961328   (301331) от 01.12.2015
-
-Rumpus PRO 8.0.14 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rumpus - простой в использовании, высокопроизводительный FTP, WebDAV сервер для Mac OS X.
-Встроенные, удобные в администрировании пользовательские учетные записи, интегрированная передача файлов в сети Интернет, уведомления о загрузке файлов, обширные настройки безопасности, потрясающе высокая производительность, и многое другое... Также включает монитор активности (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 ноября 2015Разработчик: MaxumПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95232436D22F057AD180663EC1D15DB8B62CAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961485   (301330) от 01.12.2015
-
-The Future Sound of London - Life in Moments (2015) [FLAC|Lossless|WEB-DL|tracks]<Ambient, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taken Leave Of All Sense (05:59)
- 02. Viewed From Across The Room (02:17)
- 03. I Turn To Face The Sun (04:04)
- 04. Bring (06:18)(   Читать дальше...   )Жанр: Ambient, IDM, ExperimentalПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC96F0EF9C604C8FBB046CF9FCCFDDBD52C5E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961035   (301329) от 01.12.2015
-
-Создан симулятор, позволяющий воссоздать чрезвычайные условия стихии морей и океанов
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_301329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Строители морских нефтяных платформ, морских судов, портовых сооружений, ветряных электростанций и многого другого, сталкиваются с одним и тем же вопросом - смогут ли их творения выдержать бурный натиск морской стихии? Ответ на этот вопрос остается в области гипотетических предположений до тех пор, пока реальная конструкция или сооружение не столкнется с реальным (   Читать дальше...   )
+Эта новость является очень плохой новостью, как для любителей детской порнографии, так и для авторов, размещающих ее на просторах Интернета. В течение следующего года более одного миллиона часов работы суперкомпьютера Jaguar, мощностью 1.8 Петафлопс, будет выделено на борьбу с детской порнографией.(   Читать дальше...)
 
 ## Скачать торент
 ```bash
@@ -631,83 +624,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961304   (301328) от 01.12.2015
+###  Публикация: 266388   (306269) от 05.12.2010
 
-VA - Recoverworld Radio 003 (Mixed by Rich Smith) (2015) [FLAC|Lossless|WEB-DL]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Le Saux - Bodhisattva (Original Mix) (6:38)
-02. Liam Wilson & Grez Turner - The Optimist (Original Mix) (8:00)
-03. Billy Rutts - Alpha Male (Original Mix) (7:20)
-04. Lost Man - Destination Nowhere (Original Mix) (7:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D09075F641A842860DF850E5F7654E2870E344A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961373   (301327) от 01.12.2015
-
-Журнал | Сад своими руками №12 (декабрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301327.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад своими руками» - ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B049B3A7BF7D9589693637D21F458C1415E1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961237   (301326) от 01.12.2015
-
-Reece (ex.Accept) - Universal Language (2009) [FLAC|image+.cue]<Hard Rock>
+Roy Orbison - 19 альбомов (1961-1992) [FLAC|Lossless]<Rockabilly, Pop>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301326.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Before A Die 4:42
-02. All The Way 4:40
-03. Flying Too Close To The Flame 3:50
-04. Fantasy Man 3:30(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
+Жанр: Rockabilly, PopПродолжительность: 01:06:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:632960661E6079E0C575F85BFCD710A907DE3110
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730113   (306263) от 03.12.2013
+
+Джастин и рыцари доблести / Justin and the Knights of Valour (2013) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие мультфильма разворачивается в магическом мире, о котором мечтает каждый ребёнок. Джастин мечтает стать рыцарем, но на его пути появляется много препятствий бюрократического характера. Даже отец Джастина против рыцарства и хочет, чтобы сын стал придворным служащим. Тогда мальчик, обуреваемый желанием стать настоящим доблестным Рыцарем, сбегает из дома в поисках (   Читать дальше...   )Производство: Испания, Aliwood Mediterr'aneo Producciones, Kandor Graphics, Ono, Out Of The Box FeatureЖанр: Приключения, МультфильмРежиссер: Мануэль СисилияПерсонажи: Фредди Хаймор, Сирша Ронан, Марк Стронг, Дэвид Уоллиамс, Антонио Бандерас, Альфред Молина, Джули Уолтерс, Оливия Уильямс, Чарльз Дэнс, Руперт ЭвереттПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5130B7E9B7A3AF06364409379C757A5E932AF83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729855   (306261) от 03.12.2013
+
+Девственники, берегитесь! / Love Bite (2012) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейми живёт в глухом приморском городке, откуда мечтает выбраться. Однажды на вечеринке появляется американка Джулиана. Она умна и совсем не похожа на местных. Но одновременно с её появлением в городе начинают пропадать подростки. Загадочный мужчина предупреждает Джейми — держись от этой девушки подальше, особенно если ты девственник.Производство: ВеликобританияЖанр: Комедия, УжасыРежиссер: Энди де ЭммониАктеры: Эдвард Спелирс, Джессика Зор, Фэй Вэрэйнг, Люк Паскуалино, Тимоти Сполл, Роберт Пью, Робин Мориссей, Элуиз Смит, Пол Бирчард, Кейт СуиниПеревод: Многоголосый закадровый, профессиональный (лицензия)Продолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC36BDAED5763DDA7E728EEF6C8FD1328B8276A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729796   (306258) от 03.12.2013
+
+Путь к сердцу мужчины (2013) HDTVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Провинциальная девушка Анюта не знала, что приезд в Москву изменит не только ее жизнь, но и ее саму. Она вырвалась из глуши, где мир делят на "черное" и "белое", не зная полутонов. Но можно ли назвать только "белым" любовь к образованному, но испорченному мужчине? А исключительно "черным" - необходимость жить в элитном доме и в обществе, где всё и все имеют свою цену?Жанр: МелодрамаРежиссер: Михаил ЖерневскийАктеры: Олеся Фаттахова, Иван Жидков, Ирина Шеянова, Эвелина Сакуро, Виктор Синайский, Людмила Кучеренко, Александр Зеленко, Александр ОдинецПеревод: Не требуется (русский)Продолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AB17C0863A65EB98A7586101F2CAE30E4049EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

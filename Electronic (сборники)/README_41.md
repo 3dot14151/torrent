@@ -1,3 +1,60 @@
+###  Публикация: 1002056   (850655) от 30.03.2016
+
+VA - Sunset Lounge, Vol. 1  (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Sweet Summer Days [02:20]
+02. Elisha La'Verne - Love It When We Do (The Antidotes Instrumental Mix) [06:07]
+03. Cool Million - Running Around (Roberto Di Carlo Remix)Жанр: House, Tech House, Deep HouseПродолжительность: 01:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8CFEE52D5016439F1CCE3E662EC201CA084421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001893   (850573) от 30.03.2016
+
+VA - Vocal Energy Stages (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ben Gold Ft. Christina Novelli-All Or Nothing (Allen Watts Ex 05:31
+02 Martin Roth & Alex Bartlett-Off The World (Eddie Bitar Remix) 07:08
+03 Gareth Emery feat. Wayward Daughter-Reckless (Standerwick Extended Remix) 06:33
+04 RAM Feat. Kim Kiona-Miss You (Original Mix) 07:40(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5286D2000E0066FE73208F57B9AE8EF8560843D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001708   (850560) от 30.03.2016
 
 VA - Spring Break (2016) [MP3|320 кб/с] <House>
@@ -684,64 +741,6 @@ VA - DMC Dance Mixes 2016 (Volume One) (2017) [MP3|320 Kbps] <Club, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F67E0BC72920455480AFFFBE0E89A0B0C607DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002845   (845114) от 02.04.2016
-
-VA - Nude Mix #3 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icarus feat. Aniff Akinola - Ride This Train (Ivy Lab Remix) (05:12)
-02. Wilkinson feat. Wretch 32 - Flatline (04:10)
-03. Hidden Agenda - The Sun (07:47)
-04. Big Bud - Millenium (Carlito Remix) (07:56)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E97FA154A20CF6297FE38BCDB8039E55F296CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112126   (844869) от 07.03.2017
-
-VA - Девочки танцуют 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Dance, Pop, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Donna Summer, Svet, No Hopes - Bad Girls (Coranny Vocal Version)
-02 - David Guetta - Just A Little More Love (Ibitaly Remix)
-03 - Lexter - Never Gonna Give You Up (Tale & Dutch Remix)
-04 - Justin Timberlake - Can't Stop The Feeling (Denis First Remix)(   Читать дальше...   )Жанр: Club House, Dance, Pop, Deep HouseПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76145F8AC300F47010988DA02CBEFDB2D13D68FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

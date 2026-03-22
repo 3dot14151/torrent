@@ -1,3 +1,32 @@
+###  Публикация: 1048628   (546470) от 02.09.2016
+
+VA - Ladies of Jazz (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simona Parrinello - Everybody's Song but My Own
+02. Erin Dickins - Tain't What You Do
+03. Deborah J. Carter - Satin Doll
+04. Martie - Besame Mucho(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63C53C9B18B59849ED697393B8FB3A01B68CDA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531199   (541949) от 05.08.2012
 
 VA - Capitol Sings Collection (21CD) (1991-1995)  [MP3|320 кб/с]<Vocal Jazz, Pop, Oldies, Easy Listening>
@@ -722,35 +751,6 @@ VA - Soft Jazz Best Background Music: Exam Study Music to Help Increase Concentr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C05E3FC2B5EC03361334DB82757EE5BB4243C85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245655   (469780) от 07.09.2018
-
-VA - Smooth Jazz: Lyric Theatre (2018) [MP3|320 Kbps] <Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469780.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Tuvman - Fall Is in the Air
-002. Good Morning Jazz Academy - Jazzy Romance
-003. Jazz Piano Bar Academy - Smooth Lovers Song
-004. Jazz Guitar Club - Jazzy Instrumentals(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 06:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E51E4CE0A4DADDF56F446CB8471EA6F2E870AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,179 @@
+###  Публикация: 1410887   (431926) от 23.09.2020
+
+Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monk's Shop (Remastered 2017) (03:52)
+02. 'Round Midnight (Remastered 2015) (04:53
+03. One for My Baby (And One More for the Road) (Remastered) (07:41)
+04. Falling in Love With Love (Remastered 2017) (06:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F58B2EC8C3E359C46719DAA476E748D9CD19E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945685   (431909) от 11.10.2015
+
+Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stolen Moments
+02. Double Space
+03. Venus
+04. Dat Love(   Читать дальше...   )Жанр: Post-Bop, Free JazzПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246A1B1814A9D2A9ACEB7C1422C2E2DB17F76B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945683   (431908) от 11.10.2015
+
+Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Waltz Waldron
+02. Hat and Beard Dolphy
+03. Feather Smith
+04. 245 Dolphy(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1887DABEDA4A98383B3BCAD9AE14875AB69AFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553497   (431869) от 03.10.2012
+
+Jaco Pastorius, Kenwood Dennard, Hiram Bullock - PDB (1989) Live / DIW Records / [APE|Lossless]<Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (Kaper/Webster) (9:43)
+02. Three Views Of A Secret (Pastorius) (7:37)
+03. Son Of Creeper (Bullock) (6:01)
+04. Ode To Billy Joe (Gentry) (3:37)
+05. Continuum (Pastorius) (4:36)
+06. Dolphin Dance (Hancock) (10:21)Жанр: Jazz-RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945962   (431865) от 11.10.2015
+
+The Australian Jazz Quintet - At The Varsity Drag (1956) /2014, Solid Records/[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alone Together [02:11]
+02.Koala [03:12]
+03.That Old Feeling [03:14]
+04.Affaire d'Amour [03:10](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050915AF48F65A48F479C9F88E9005D3D540D217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945708   (431861) от 11.10.2015
+
+Omar Sosa - A New Life (Solo Piano) (2003) [FLAC|image+.cue]<Afro-Cuban Jazz, Latin Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling The Baby
+02. Una Mano
+03. Three Persons
+04. Crash De la Tierra(   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, Post-BopПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1297041F69219AD008B04AF0BBEC7ED2E17036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945718   (431850) от 11.10.2015
 
 Omara Portuondo - Magia Negra The Beginning (2014) [FLAC|tracks|WEB-DL]<Vocal, Latin Jazz>
@@ -596,180 +772,6 @@ Wynton Marsalis & Arturo Sandoval - Los Elefantes (1999) in-akustik [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94483B43E6ED08A1BA95136D8BCCD4ADC975DACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571702   (429843) от 23.08.2022
-
-Woody Shaw - The Complete CBS Studio Recordings Of Woody Shaw (1977, 1979, 1981) 3CD, 1992, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429843.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Legend Of Cheops [6:06]
-02. Rosewood [7:15]
-03. Everytime I See You [7:15](   Читать дальше...   )Жанр: Bop, Post-Bop, Big BandПродолжительность: 02:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4191C19891417E31DF590B5AE334874E68FA9F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946189   (429412) от 12.10.2015
-
-John Coltrane - Interstellar Space (1967) /2015, Universal/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mars [10:45]
-02.Venus [08:37]
-03.Jupiter [05:26]
-04.Saturn [11:34]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28C240CB2B2C21F8938238AF6566F194129AB9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249984   (429380) от 26.09.2018
-
-The Four Freshmen with Stan Kenton And His Orchestra - Live At Butler University (1972) 1989, Creative World [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Will Never Be Another You [3:32]
-02. After You [4:18]
-03. Byrd Avenue [2:18]
-04. Surfer Girl [2:29](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4C2799E2915BA3454E8F076DA8BBC1E7D3F884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249986   (429372) от 26.09.2018
-
-The Four Freshmen - More 4 Freshmen and 5 Trombones & In Person, Vol. 2 (1963, 1964) 2002, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, Dolly! [2:53]
-02. I Left My Heart in San Francisco [1:55]
-03. Midnight Sun [3:33]
-04. The Girl from Ipanema (Garota de Ipanema) [3:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA44B01F48529C70AF5877C9855903A82E75B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250033   (429353) от 26.09.2018
-
-Ruby Braff - Linger Awhile (1953 - 1955) 1999, Vanguard Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Sue [9:19]
-02. Ghost of a Chance [7:26]
-03. Wishing [3:17]
-04. I Cover the Waterfront [8:29](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40E1C3FC3B4AED16D5994014254CD30B2342CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249989   (429271) от 26.09.2018
-
-The Four Freshmen - Voices in Love & Love Lost (1958, 1959) 1998, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Always Chasing Rainbows [3:05]
-02. There Is No Greater Love [2:56]
-03. Moonlight [3:04]
-04. It Could Happen to You [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A044D9378E849F96EB5D80BD2068AEA58E8BC1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

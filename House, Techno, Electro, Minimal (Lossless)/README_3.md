@@ -1,3 +1,61 @@
+###  Публикация: 1316884   (1030417) от 19.02.2021
+
+Special Request - Discography 24 Releases (2013-2021) Houndstooth [FLAC|Lossless|tracks+.cue, tracks] <Techno, House, Hardcore, Breaks, Drum & Bass, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 01 Aleksi Perälä-UK74R1619170 (00:56)
+ 02. Special Request - Telepathic Dog (02:36)
+ 03. Caustic Window - Cordialatron (03:30)
+ 04. DJ Stingray - Solitude (02:59)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, House, Hardcore, Breaks, Drum & Bass, Electro •Продолжительность: 13:42:15 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4982A6F4D24CC96BF335AEF3DC04D4673405C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449177   (1030257) от 20.02.2021
+
+VA - Yossi Amoyal Presents Fluere II (2020) Sushitech Records [FLAC|Lossless|tracks|Vinyl] <Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jin Choi - High Quality Schal _Baby Ford Remix (09:09)
+ 02. Sten - Circles (06:10)
+ 03. Mark Broom - Gira (05:42)
+ 04. Edward - Sender (07:53)Жанр: Techno, MinimalПродолжительность: 00:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DF84EF6D6B7E7825A8B6C4D9932F0AD21BCCA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449139   (1030230) от 20.02.2021
 
 VA - Spencer Brown Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -685,63 +743,6 @@ Marsh - Lailonie (The Remixes: Part 1-2) (2021) [FLAC|Lossless|WEB-DL|tracks] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F69A9ED765965D8ECDC817402AB7416E99F7DF3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456278   (1025288) от 21.03.2021
-
-VA - Espectrum II: The Avantroots Dub Techno Compilation (2021) AvantRoots [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Segue - Stepping Up (06:36)
- 02. Pulshar - Accept Fate (05:53)
- 03. Sibling - Tunnel Vision feat. Drhamer (06:17)
- 04. Beat Pharmacy - Hemp Dub (06:37)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 01:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72AA362B90FC37871C9562E5CC5EF16F7B7C09A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321792   (1025284) от 21.03.2021
-
-Jon Gaiser | Void | Fraktion  - Discography 20 Releases (2006-2017) M_nus [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Never Works (06:47)
- 02. Disleb (07:03)
- 03. Acidrop (05:55)Тип издания: CD, WEBЖанр: Techno/MinimalПродолжительность: 00:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9F51877122E37E20387A9651BE004D3EC6378D
 ```
 
 https://mybot314.ru/tekegram_catalog/

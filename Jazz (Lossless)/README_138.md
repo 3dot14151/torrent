@@ -1,3 +1,177 @@
+###  Публикация: 1549032   (593905) от 06.05.2022
+
+VA - Saxappeal Vol. 2 Lounge Saxophone Smooth Jazz Del Mar (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Nimerfro - My Heart Won't Move On (Birds in the Trap Mix)
+02. Wonderphazz - Moonlight in Paradise (Late Night Chill Out)
+03. Gary Rosenblatt - This Must Be Paradise (Sunset Chill Bar Mix)
+04. Perelandra - On the Box (Smooth Sax Edit)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BABDA9B08F542BF093E49AAF5E31F01CCEF16FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300317   (593888) от 05.05.2019
+
+Cat Anderson - Cat Anderson Plays W.C. Handy (The Definitive Black & Blue Sessions) (1997) [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Dog Blues (Handy) - 4:41
+02. Ole Miss (Handy) - 3:41
+03. Careless Love (Loveless Love) (Handy) - 4:31
+04. Beale Street Blues (Handy) - 4:16(   Читать дальше...   )Жанр: SwingПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460DB08F12AF2EF2BBD4CFE915A628956468D3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040003   (593658) от 03.08.2016
+
+Laurent Cugny & Orchestre National De Jazz - Yesternow (1994) Verve[FLAC|Lossless|tracks + .cue] <Modern Big Band, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yesternow (opening) [02:06]
+ 02.Red China Blues [05:46]
+ 03.Right Off [05:09]
+ 04.Tout De Suite [07:10](   Читать дальше...   )Жанр: Modern Big Band, Contemporary JazzПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FF2098927A96D3A587B3C4C965654824E0C0F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039999   (593582) от 03.08.2016
+
+Charlie Byrd Trio - I've Got The World On A String (1994) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I'm Gonna Sit Right Down And Write Myself A Letter [03:31]
+ 02.Blue Skies [03:16]
+ 03.How Deep Is The Ocean [04:16]
+ 04.Gee Baby, Ain't I Good To You? [02:53](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6D07865CFB4C49968E77509DA5A0664E1FCD90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300413   (593262) от 06.05.2019
+
+The Sheryl Bailey 3 - Live @ The Fat Cat (2006) [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Neo-Bop, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedar's Mood (6:05)
+02. A Soft Green Light (6:09)
+03. Starbrite (5:50)
+04. Elvin People (7:43)(   Читать дальше...   )Жанр: Mainstream Jazz, Neo-Bop, FusionПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE1F41FF2A238E1791BC6DD95D45E281CA4D679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300476   (593261) от 06.05.2019
+
+Bill Potts - Porgy & Bess + Bye Bye Birdie (1963) 2006, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime [3:07]
+02. A Woman Is a Sometime Thing [2:22]
+03. My Man's Gone Now [4:10]
+04. It Takes a Long Pull to Get There [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0582B7DABE4C3CFC0F6B8C4EC0A471FD361CF56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233505   (593026) от 30.06.2018
 
 Mose Allison - Greatest Hits (1957 - 1959) 1988, Original Jazz Classics [APE|Lossless|image + .cue] <Hard Bop, Vocal, Piano Jazz>
@@ -571,180 +745,6 @@ Kammerflimmer Kollektief - Désarroi (Desarroi) (2015) [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:723975DA8F7D1A66FF56D5DC27C68534FB92F4E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917029   (590001) от 10.07.2015
-
-Nils Gessinger - Pass-ion (2011) [FLAC|tracks+.cue]<Jazz, Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toses [04:52]
-02. Bondone [06:26]
-03. Catinaccio [08:48]
-04. Fugazze [03:56](   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFEBAC846A3276720D9A3F35DC439DEE38961A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551485   (589781) от 16.05.2022
-
-Woody Herman - Four Classic Albums (1958 - 1962) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589781.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Northwest Passage [3:05]
-02. Caldonia [2:57]
-03. Wild Root [3:20](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 02:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FA09A0D98D4A6970405727104144691F200788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917291   (589609) от 11.07.2015
-
-Melanie Durrant - Anticipation (2015) [FLAC|tracks+.cue]<Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By Your Side (02:41)
-02. Wait (03:21)
-03. Life Goes On (Since You've Been Gone) (03:16)
-04. Ain't Coming Back (03:27)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CEF5421ED8FE1B4B8655A843677E7073DBD8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917296   (589568) от 11.07.2015
-
-Charenee Wade - Offering: The Music of Gil Scott-Heron & Brian Jackson (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offering (Feat. Stefon Harris) (04:31)
-02. Song of the Wind (Feat. Stefon Harris) (07:42)
-03. A Toast to the People (06:37)
-04. Home Is Where the Hatred Is (Feat. Stefon Harris) (04:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E9AC9271022442DE08C2B6536B07ADF0E92AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551757   (589433) от 17.05.2022
-
-Charnett Moffett - Internet (2006) Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.E.M. [3:51]
-02. Icon Blues [3:13]
-03. PTL [3:48]
-04. Kings and Queens [4:25](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E260773C64DC0C5011DEA871A68800E257C1AAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551755   (589431) от 17.05.2022
-
-Charnett Moffett - For The Love Of Peace (2004) Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Beginning [3:29]
-02. I Love the Lord [7:47]
-03. Numbers [7:17]
-04. Free Spirit [3:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1701A9F175B8104CE1E57367093221E3889790
 ```
 
 https://mybot314.ru/tekegram_catalog/

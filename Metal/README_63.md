@@ -1,3 +1,119 @@
+###  Публикация: 1565239   (494915) от 23.07.2022
+
+Blizzard Hunter - The Path Of Triumph (2022) [MP3|320 Kbps] <Heavy, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	On the Warpath	01:52
+02.	Final Flash	05:07
+03.	The Path of Triumph	07:34
+04.	Screaming (My Bloody Anger)	04:40(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2304A4091B7A7DADA0D9533E333BD05BE7DCBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565111   (494900) от 23.07.2022
+
+Imperial Triumphant - Spirit Of Ecstasy (2022) [MP3|320 Kbps] <Avantgarde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chump Change (7:49)
+02. Metrovertigo (6:10)
+03. Tower of Glory, City of Shame (7:55)
+04. Merkurius Gilded (6:08)(   Читать дальше...   )Жанр: Avantgarde Black MetalПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6CC386CFD931EF1739D9CBFC708B1D4318A264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318509   (494397) от 06.08.2019
+
+Slipknot - We Are Not Your Kind (2019) [MP3|320 Kbps] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insert Coin
+02. Unsainted
+03. Birth of the Cruel
+04. Death Because of Death(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590A7FF07F7A4941C07AAB7065C0D9DD196A6F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565625   (492677) от 24.07.2022
+
+Wolf Counsel - 5 Albums (2015-2022) [MP3|320 Kbps] <Doom Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healer [00:07:02]
+02. Torchbearer [00:05:56]
+03. Ruins [00:06:15]
+04. Aeons [00:06:53](   Читать дальше...   )Жанр: Doom Metal, Stoner MetalПродолжительность: 5CD, 03:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA15FE87A97915183C68CF7AFFC197BDCC02817B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565601   (492674) от 24.07.2022
 
 Sedimentum - Suppuration Morphogénésiaque (2022) [MP3|284-296 kbps VBR] <Death Metal, Doom Metal>
@@ -646,122 +762,6 @@ Pain Of Salvation - Panther (2020) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE0EF9198D863AFC5F0D701EB294B6CE7BF20ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056126   (484100) от 24.09.2016
-
-Veonity - Into The Void (2016) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Humanity Is Gone
-02. Frozen
-03. A New Dimension
-04. Awake(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F266B2E46E79564E69B091A674F3984C7653AC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938039   (484065) от 17.09.2015
-
-Claret Ash - The Cleansing (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Progressive Black Metal,>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484065.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tides Of Darkness
-2. Effigy Of Insolence
-3. Desolation Of A Pierced Soul
-4. The Sombre Fields(   Читать дальше...   )Жанр: Atmospheric Black Metal, Progressive Black Metal,Продолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832D19CE71BFEE8681B6A8D10DCA27699864A815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244074   (483981) от 31.08.2018
-
-Omnium Gatherum - The Burning Cold (2018) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483981.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Burning
-2. Gods Go First
-3. Refining Fire
-4. Rest In Your Heart(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E4D7312FC3D9206785922B8BEF1D111DDD0489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405662   (483683) от 30.08.2020
-
-Devon Murray - Dedicated, Resistant, Minute. (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedication (03:13)
- 02. Man in the Wall (08:47)
- 03. Wander (04:16)
- 04. Traversing the Truth (05:19)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C958740C62D332ED4FB914EC3FC1E7503F3D04
 ```
 
 https://mybot314.ru/tekegram_catalog/

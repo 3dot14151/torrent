@@ -1,3 +1,166 @@
+###  Публикация: 543115   (496433) от 05.09.2012
+
+Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496433.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:18) 01. Too Late
+(3:56) 02. The Tree In The Heaven
+(3:03) 03. Beautiful Bride
+(4:29) 04. In Love With You
+(4:14) 05. A Letter To Myself
+(3:40) 06. Just When I Needed You Most
+(4:54) 07. There Is Not So Easy
+(4:34) 08. Zhuyingtai
+(4:28) 09. Flower Sea
+(4:23) 10. Song Of Praising For Love(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D47CCFB8DA80C29A45312DD8D40D994BA50A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543094   (496339) от 05.09.2012
+
+Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496339.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:40) 01. Preludes
+(6:34) 02. April Morning
+(6:24) 03. Bubbles
+(5:07) 04. Aurora
+(5:31) 05. Healing Waters
+(6:23) 06. Rebirth
+(5:43) 07. Bliss
+(5:28) 08. Kama
+(6:29) 09. Aqua
+(3:36) 10. Sanctuary(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D784693FC50CC7851089B3EA1070AB308DB596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543054   (496086) от 05.09.2012
+
+WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<Parody, Country, Bluegrass, Western-and-Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Twist Again (3:04)
+02. Peppermint Twist (3:20)
+03. Blackbird (2:18)
+04. Jailhouse Rock (2:32)
+05. For You (3:17)
+06. Hello, Mary Lou (3:29)
+07. Heart of the Country (2:39)
+08. Bad Case of Lovin' You (Doctor, Doctor) (3:12)
+09. Baby Boy (3:12)
+10. AC/DC (3:25)(   Читать дальше...   )Жанр: Parody, Country, Bluegrass, Western-and-CountryПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381868   (495301) от 31.08.2011
+
+Anthony Ventura And His Orchestra - 5 альбомов (1979-1993) [MP3|320 kbps]<Instrunental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1979 - Music For Making Love
+01. I Can't Stop Loving You 	(04:21)
+02. I'd Love You To Want Me 	(03:38)
+03. Don't Cry For Me, Argentina (02:20)(   Читать дальше...   )Жанр: Instrunental, Easy ListeningПродолжительность: 03:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CD5416FD3FB3D17EA01094EB4E84BA4EC7B06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936736   (494267) от 12.09.2015
+
+Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World Music, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imana Piano
+02. Nafsha
+03. Manau Gavra
+04. Alma(   Читать дальше...   )Жанр: New Age, World Music, VocalПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F95216BDC3CFF190A85EF39B8DDDFBB58EC3387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242911   (493966) от 26.08.2018
 
 VA - Ska Anthems - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Jamaican Mento, Calypso, Reggae>
@@ -618,151 +781,6 @@ Estas Tonne, ONE Heart Family - Mother of Souls (2016) [FLAC|Lossless|tracks] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A3E80D6C2352BF6C7658CFE5E9F60D0D0B5FC17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159138   (487735) от 18.08.2017
-
-VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lorna - Tu Gatita (feat. Henry Mendez) (Remix) 03:26
-02. Papi Wilo - La Reina de la Discoteca (feat. Duran The Coach & Kevin Roldan) (Remix) 03:42
-03. Alex Roy, Matt Houston - Dime 03:09
-04. Martin Sangar - Me Enamore (feat. Angel & Khriz) 03:22(   Читать дальше...   )Жанр: Reggaeton, Bachata, KizombaПродолжительность: 03:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3843583A124FD0817C978C1F1F3FD78A9D400F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158944   (487725) от 18.08.2017
-
-Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Blade (Instrumental) [03:05]
-02. Dark Harbor (Instrumental) [03:16]
-03. Earth Rising (Instrumental) [03:22]
-04. Master of Shadows (Instrumental) [03:04](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7D11D39F0F9C2E3EEA0A8DD3B63D571A307C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937730   (487329) от 15.09.2015
-
-Отава Ё - Лучшие песни 2006-2015 (2015) [MP3|320 кб/с]<Neo-Folk, Celtic-Slavic Folk, Post-Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник «Лучшие песни 2006-2015» - промежуточный итог творческой деятельности Отавы Ё, в который вошли не только песни со всех четырёх студийных альбомов, но и два новых, ранее не издававшихся трека. Это «Сумецкая», главный на сегодняшний день хит группы, а также кавер-версия песни «В роще», записанная в рамках готовящегося трибьюта проекту «Иван Купала».01. Про Ивана groove
-02. Сумецкая
-03. Дворник
-04. На речке, на речке(   Читать дальше...   )Жанр: Neo-Folk, Celtic-Slavic Folk, Post-FolkПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7584B39C019C4EE66E853BA90ACC209968C8AA08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404955   (487020) от 28.08.2020
-
-Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole New Mess (03:42)
-02. Too Easy (Bigger Than Us) (02:32)
-03. (New Love) Cassette (02:50)
-04. (We Are All Mirrors) (02:36)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A95A9BA77FD2752CA18B15FAE2508AC81FF257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319256   (486809) от 10.08.2019
-
-Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Lies Beneath [02:07]
-02. Legion [02:19]
-03. Fear [02:40]
-04. Power of Imagination [02:16](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FA50C4D820A7E6B1655E07F21D121D536BEAEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

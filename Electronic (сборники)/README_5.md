@@ -1,3 +1,61 @@
+###  Публикация: 1451522   (1028254) от 03.03.2021
+
+VA - Beatport Electro House: Sound Pack #250 (2021) [MP3|320 Kbps] <Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028254.jpg" />
+</div>
+
+
+###  Подробнее
+
+250-й релиз от Beatport является ярким образцом современной электронно-танцевальной музыки. Зарубежные треки в стилях Electro House порадуют всех любителей танцевать или просто слушать музыку в данном формате. Треки сборника не только подарят Вам хорошее настроение, но и позволят быть в курсе последних горячих музыкальных новинок. Раз Вы заинтересовались лонгплеем (   Читать дальше...   )001. Shadow Child - Mars
+002. Einmusik - Geyser
+003. Worakls Ft Eivor - Red Dressed
+004. Joe Stone - Feeling Dynamite(   Читать дальше...   )Жанр: Electro House, ClubПродолжительность: 10:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CECAE3E2427327B0ECD277BA68FEF310590B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451527   (1028243) от 03.03.2021
+
+VA - Organic EDM Dance Party (2021) [MP3|320 Kbps] <House, Dance, Club, Techno, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию новый сборник танцевальной музыки с качественным битрейтом. Зарубежные треки в стилях Dаnсе, Club, Tech Hоusе и Elесtrо порадуют всех любителей танцевать или просто слушать музыку в данном формате. Отборные композиции и треки сборника "Organic EDM Dance Party" не только насытят твой организм положительным позитивом, но и позволят быть в (   Читать дальше...   )001. Fizzom - Good Vibrations
+002. Gavrio - Pin Down (Original Mix)
+003. Voonix - Boogie Fever
+004. Scorpia - Hypnose (DJ Mix)(   Читать дальше...   )Жанр: House, Dance, Club, Techno, EDMПродолжительность: 11:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500A5A57B9ED3D2B3F6CD7C62F6D484D1AF1A85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451525   (1028241) от 03.03.2021
 
 VA - Melodic Synthpop Release (2021) [MP3|320 Kbps] <Synthpop, Electropop, Pop Dance>
@@ -687,64 +745,6 @@ VA - Soft House Lounge (2021) [MP3|320 Kbps] <Soft House, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A01862E29E8BC8618F28779BCCCCE5C0F6B86CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455707   (1025496) от 20.03.2021
-
-VA - The Stardust: Future House Party (2021) [MP3|320 Kbps] <Future House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка и космос в наших душах. Безграничная и удивительная Вселенная, вдохновившая прогрессивных авторов эксперимента в электронной музыке на создание их шедевров.001. Simos Tagias - Neutron (Original Mix)
-002. Marco Resmann - Nevertheless
-003. Cybernalia - Emtek (Original Mix)
-004. Gmj And Matter - Perfect Storm(   Читать дальше...   )Жанр: Future House, ElectroПродолжительность: 12:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CB4EAFE4DCD3C964B55A2B850F09A32B43EA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455704   (1025494) от 20.03.2021
-
-VA - The Bliss Sound (2021) [MP3|320 Kbps] <Synthpop, Electro Disco, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам хочется послушать чего-нибудь привычного и не древне-классического, но в более свежем формате и с легкими нотками нестандартной новизны, то тогда рады предложить Вам послушать новый сборник под названием "The Bliss Sound". Отличная студийная пластинка для настоящих ценителей альтернативной музыки.001. Social Ambitions - Turn The Tables
-002. Mondtraeume - Let Me Go
-003. Sonnig 991 - Final Escape
-004. Tribeleader - Start Point(   Читать дальше...   )Жанр: Synthpop, Electro Disco, ElectropopПродолжительность: 07:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B116CCF3C3D04076E78D65D68B388129C929CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

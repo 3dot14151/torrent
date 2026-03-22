@@ -1,3 +1,351 @@
+###  Публикация: 1087489   (146511) от 27.12.2016
+
+Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146511.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Love On The Line (4:41)
+A2. Alright Down Get Boogie (Muala Rusic) (3:58)
+A3. The Song (They Love To Sing) (6:09)
+A4. Skin Flicks (6:50)(   Читать дальше...   )Производство: Polydor - 2383 557Жанр: Progressive RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435126   (146183) от 27.12.2020
+
+VA - Песни из телефильма ''Тайна Снежной Королевы'' (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Pop, Children's>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146183.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 О. Ефремов - Песня Сказочника ''Однажды В Старой Дании...''
+A2 С. Степченко - Песенка Герды ''Когда Повзрослеешь...''
+A3 А. Фрейндлих - Песня Снежной Королевы ''Все Равно...''
+A4 С. Степченко - Песенка Герды ''Где Же Сказка?''(   Читать дальше...   )Жанр: Soundtrack, Pop, Children'sПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A0FBCB5E793F3264906C901880BEE5661A2C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959934   (146130) от 27.12.2016
+
+Михаил Боярский поёт песни Юрия Чернавского - Лунное Кино (1987) [APE 2.0 24/96|image+.cue (Vinyl-Rip)] <Pop, Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лунное Кино
+02. Если Ты Помнишь
+03. Капитан
+04. Фараон(   Читать дальше...   )Жанр: Pop, Synth-PopПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2952542D757E130C61F699A5AAF7DF9B1D19E72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678462   (146041) от 21.11.2023
+
+Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Look In Her Eyes (05:51)
+02 - Sister Of Pain (05:03)
+03 - Can't Have Your Cake (03:56)
+04 - The Edge (04:54)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5352D3FC1302D1FEB52ED3AB839E50F51FB247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969121   (145212) от 28.12.2015
+
+Группа Диалог - Просто (1985) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поймем Потом • We'll Understand One Day	3:35
+02. Свет в Окне • Light In The Window	3:20
+03. Маргарита • Margarita	1:40
+04. Любил Тебя • I Loved You	3:05(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6E780DD19E0C0090CA31C0C0B25A0E4F67B65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087703   (144425) от 28.12.2016
+
+П. Чайковский - Сюита из балета Лебединое озеро, Увертюра до минор (Е. Светланов) (1991) [WavPack2.0|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Сюита из балета Лебединое озеро
+01. Сцена 3:22
+02. Вальс 7:24(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271896   (144407) от 27.12.2018
+
+VA - The Civil War - Original Soundtrack Recording. Traditional American Songs And Instrumental Music Featured In The Film By Ken Burns (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144407.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Old Bethpage Brass Band - Drums Of War"
+A2 Paul Roebling - Oliver Wendell Holmes (Quote)
+A3 Evan Stover, Jay Ungar, Matt Glaser (Fiddle) and Molly Mason, Russ Barenberg (Guitar) - Ashokan Farewell
+A4 Jacqueline Schwab (Piano) - Battle Cry Of Freedom(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678765   (142479) от 23.11.2023
+
+Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142479.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. The Moor (11:23)
+B1. Godhead's Lament (9:47)
+B2. Benighted (4:59)
+C1. Moonlapse Vertigo (8:59)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED8610D4BC63645E0CE188C2522045293D0B553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272624   (142464) от 28.12.2018
+
+VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. ''Руки Вверх'' - Ай-яй-яй
+02. ''Вирус'' - Кап-кап
+03. ''Ночной Патруль'' - Первая любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348452   (142401) от 28.12.2019
+
+Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Woman Blues (3:36)
+ 02. War in My Mind (4:22)
+ 03. Without Words in the Way (4:34)
+ 04. Let It Grow (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: Кодек: FLAC 2.0 24/192
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD51D2CA58B2F54286599D7B06E741C242536019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520157   (141809) от 28.12.2021
+
+The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death By Rock And Roll (3:54)
+ 02. Only Love Can Save Me Now (5:12)
+ 03. And So It Went (4:29)
+ 04. 25 (5:26)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6F89D9D1EC8FF53102CF4DB3172D3EF4E8480B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435802   (141802) от 29.12.2020
+
+Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141802.jpg" />
+</div>
+
+
+###  Подробнее
+
+A So Weit So Gut (Maxi-Version)
+Written-By – Jurgen Attig, Michael Reincke
+B Hinein Ins Wilde Pralle Leben
+Written-By – Michael Reincke(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF67F2776AE8044D64831086BCA1C0D993A2DC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679006   (141592) от 23.11.2023
 
 Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash/Death Metal>
@@ -402,353 +750,6 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088306   (137699) от 31.12.2016
-
-Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Classic Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137699.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1  One More Night (Last Farewell)
-A2  Falling In Love
-A3  Woman Of The Night
-A4  I'm Alive(   Читать дальше...   )Жанр: Classic Rock, Prog RockПродолжительность: 04:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195922   (137613) от 31.12.2017
-
-Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137613.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Party (2:24)
-A2. Khashoggi's Ship (2:48)
-A3. The Miracle (5:02)
-A4. I Want It All (4:41)(   Читать дальше...   )Производство: EMI / Virgin - 00602547202802Жанр: RockПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68374BE5617866AF4E17D78AC06517CB54C4A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015340   (137173) от 31.12.2022
-
-Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137173.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Shoo Be Da Dabba Doobee
-A2	Wrong In Love
-A3	Looking At Midnight
-A4	The Need To Be Free(   Читать дальше...   )Жанр: Synth-Pop, DiscoПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FC48365F8397BBF2513419B15EC380E6218D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824988   (136850) от 16.10.2025
-
-Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alien Weaponry — новозеландская метал-группа из Вайпу, образованная в Окленде в 2010 году.2018 - Tū
-2021 - Tangaroa
-2025 - Te RāЖанр: Groove/Thrash MetalПродолжительность: 02:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEB6617791BB0EDDE730568EE155EF4BFEEA738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825420   (136750) от 17.10.2025
-
-Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arcturus — норвежская группа, играющая авангардный метал, созданная в 1987 году.1996 - Aspera Hiems Symfonia
-1997 - La Masquerade infernale
-1999 - Disguised Masters
-2002 - The Sham MirrorsЖанр: Avant-garde Progressive MetalПродолжительность: 05:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40F45A128E4EB1B8FC3F1992EE06F089970B4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547377   (136740) от 17.10.2025
-
-Sabaton - Studio Albums (12 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabaton — шведская хэви-пауэр-метал группа, основанная в декабре 1999 года. Основной темой для песен являются войны и отдельные сражения и подвиги. Название группы в переводе с английского означает латный ботинок, часть рыцарских доспехов.2005 - Primo Victoria
-2006 - Attero Dominatus
-2007 - Metalizer
-2008 - The Art Of WarЖанр: Heavy/Power MetalПродолжительность: 11:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03A16672CE4EC97B33F11FC26C041D01801B51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679568   (135329) от 26.11.2023
-
-Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135329.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Heritage (02:04)
-A2. The Devil's Orchard (06:39)
-A3. I Feel the Dark (06:37)
-B1. Slither (04:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49269CE9A95AB7D03D11EEDCA85332FAB051E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679533   (135301) от 26.11.2023
-
-Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135301.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Ghost of Perdition (10:28)
-A2. The Baying of the Hounds (10:40)
-B1. Beneath the Mire (07:57)
-B2. Atonement (06:30)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89F8A35A60B642F0F62640D7A456FE28BE0A101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679884   (134951) от 27.11.2023
-
-Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134951.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I'd Love To Live (Chtel Bych Zit Tak, Jak Se Ma)
-A2 You're Special (Jsi Zvlastni)
-A3 You Know What It's All About (Kam Tak Nahle Pospichas?)
-A4 Story Of A Girl I Knew (Lasko Ma, Nerikej Dik)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05263E71FB7BC6D610F935F3E66650053AA3C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680060   (134943) от 27.11.2023
-
-Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская рок-группа, образованная гитаристом и автором песен Карлом Беллом и басистом Джеффом Аберкромби в 1994 году.1998 - Sunburn
-2000 - Something Like Human
-2003 - Natural Selection
-2007 - Angels & DevilsЖанр: Hard Rock, Post-GrungeПродолжительность: 04:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC20FB2D7A206ED1F7F303F5EE0549799AE4DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680168   (134644) от 28.11.2023
-
-Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134644.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Eternal Rains Will Come (06:43)
-A2. Cusp of Eternity (05:34)
-B1. Moon Above, Sun Below (10:53)
-B2. Elysian Woes (04:48)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F06BE16125C39D0796051A37FD0283724566321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680302   (134295) от 29.11.2023
-
-Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sorcerer — шведская эпическая дум-группа из Стокгольма, основанная в 1988 году, распавшаяся в 1992 году и реформированная в 2010 году.1995 (2015) - Sorcerer
-2015 - In the Shadow of the Inverted Cross
-2017 - The Crowning of the Fire King
-2020 - Lamenting of the InnocentЖанр: Epic Doom MetalПродолжительность: 05:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
 ```
 
 https://mybot314.ru/tekegram_catalog/

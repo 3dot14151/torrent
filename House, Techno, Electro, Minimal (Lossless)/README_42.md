@@ -1,3 +1,148 @@
+###  Публикация: 1245690   (469892) от 07.09.2018
+
+Yotto - Hyperfall (2018) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperfall (2:55)
+ 02. The One You Left Behind (5:29)
+ 03. Kantsu (4:59)
+ 04. Nada C (3:02)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2F95A7BB5B1CE4E4A299289A9730930AAE45CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058529   (468828) от 01.10.2016
+
+VA - Ibiza 2016 Closing Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Knight - Yebisah (original mix) [08:23]
+02. Ian Pooley - Cold Wait (Bicep dub) [06:22]
+03. Eats Everything - Monegros (original mix) [07:17]
+04. Dubspeeka - K377 Unfriended (original mix) [08:22](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 08:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF5DB1C056EE66D39BCE9DF79C70696A09DCCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407119   (468602) от 06.09.2020
+
+VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech House, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tm Shuffle & Kalle-M - Androidien Maailma (07:22)
+ 02. Genning - Life Of Faraway Birds (07:07)
+ 03. Dan Goul - Automation (07:30)
+ 04. Supply-Demand - What Came Before (07:56)Жанр: Tech House, Techno, ElectroПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF33E280B53D236F283E5BA04380A5FC74887973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237783   (468271) от 06.09.2020
+
+VA - Hello Strange Story Series #1-#8 (2016-2020) hello▼strange [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asphalt Layer - Bulk Into Mist (08:59)
+ 02. B|Minor - Offsetspaces (08:51)
+ 03. DP-6 - Urban Silence (07:16)
+ 04. Flying Cobra - Epiphany (05:45)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Ambient, Deep Techno, Minimal •Продолжительность: 20:13:21 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B05BBF66E1D6B05F545BAE3062B8736860C26A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940781   (466730) от 25.09.2015
+
+Robin Schulz - SUGAR (2015) [FLAC|Lossless|WEB-DL]<Dance, House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz feat. Ilsey - Headlights (3:30)
+02. Robin Schulz feat. Francesco Yates - Sugar (3:41)
+03. Robin Schulz feat. Akon - Heatwave (3:09)
+04. Robin Schulz & Disciples - Yellow (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, House, Deep HouseПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13033D7963F61F78964A042F683979D2EC2A5611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058852   (466437) от 02.10.2016
 
 VA - Oh my God,... It's Electro House volume 2 (mixed by Sebastian Gnewkow) (2008) [FLAC|Lossless|image + .cue] <Electro House>
@@ -607,156 +752,6 @@ VA - AFTER DARK 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electropop, Nu Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51B28877B7BF0A1CD37C8292A8F46065CCF82174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046067   (451290) от 14.09.2020
-
-Polynation - Discography 11 Releases (2015-2020) Atomnation [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildeburg (08:20)
- 02. Coral (06:32)
- 03. Coral Pt. 2 (03:31)Тип издания: WebЖанр: Techno, Ambient, Tech House, Downtempo •Продолжительность: 03:19:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB509A26E75D03EFDDF3D8CCF1DFD80A31B1DCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827037   (451173) от 01.10.2014
-
-Scooter - The Fifth Chapter (Limited Edition) (2014) 2CD [FLAC|Lossless]<Big Room, Dubstep, Electro House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451173.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 00:58:06
-Bonus CD - 00:40:50
-
-01. T5c(   Читать дальше...   )Жанр: Big Room, Dubstep, Electro House, Trance |Продолжительность: 01:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859019086900DE7E4BBE4001F6AFBF5494223CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551884   (451106) от 25.09.2012
-
-Vista Le Vie - A Futuristic Family Film (2005) [FLAC|Lossless]<Downtempo, Future Jazz, Abstract>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский дуэт VISTA LE VIE не изобрел в музыке ничего нового. Его участники попали в причудливый мир парижского техно, но одновременно были очарованы джазом. Из сочетания мягкого и безупречного чувства ритма перкуссиониста и мелодической фантазии пианиста родился этот проект. По последней французской моде они складывают в одну корзину все, что любят, все, чем заинтересовались, все, что способно пробудить чувства или напомнить о них. Микс клавишных Rhodes, гитарных риффов, джаза, трип-хопа, цитат из футуристических ретро-фильмов, скетчей, построковых ритмов, резких звуковых эффектов. Сквозь неторопливый тягучий бит сочатся звуки трубы, гитар и голоса приглашенных гостей, среди которых Barbara Silverstone и GENERAL ELECTRICS. В итоге слушатель отправляется в кинематографическое путешествие, которое не поддается никакой жанровой классификации. AIR встречают Бертрана Бургала - почему бы и нет?01. That Strange Rhythm (feat. Barbara Silverstone) :: 04:22
-02. Beauty for Ashes :: 02:39
-03. First Class - (Black Joy version) (feat. General Electrics) :: 05:17
-04. Refuse, Resist :: 05:08
-05. Seven Thousand and Three Hundred Days (feat. Grand National) :: 04:22
-06. A Curse She Cannot Win (feat. Barbara Silverstone) :: 07:03
-07. Kids With Gloves :: 03:45
-08. For You and You (feat. Ishmael Reed) :: 06:31
-09. Tanzanite :: 05:08
-10. Crime in Stereo (feat. Black Sifichi) :: 03:53(   Читать дальше...   )Жанр: Downtempo, Future Jazz, AbstractФормат: CD, Album, DigipakПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322163   (450821) от 28.08.2019
-
-VA - Kunst Musik V2 (2018) Kunst Musik [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cabrinha - Garden of Eden (05:33)
- 02. Tom Cabrinha - Distances (07:19)
- 03. Tom Cabrinha - Breakness (05:56)
- 04. Tender H - Apatic (06:00)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACD9E3443E1B88597EA804BE6FD9299D07123B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247586   (450333) от 16.09.2018
-
-Orbital - Monsters Exist (3xCD Deluxe) (2018) ACP Recordings [FLAC|Lossless|tracks+.cue] <Techno, Electro, IDM, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinetic (2017) (06:12)
- 02. Copenhagen (05:26)
- 03. To Dream Again (Reocurring Mix) (04:02)
- 04. Where Is It Going? (Live Style Mix) (07:56)Жанр: Techno, Electro, IDM, HouseПродолжительность: 01:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A519B7959644FB052F1F6B6285ED2E26EDBAA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

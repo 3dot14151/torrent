@@ -1,3 +1,146 @@
+###  Публикация: 1573649   (236886) от 06.09.2022
+
+VA - Stranger Things: Season 4 (2022) Soundtrack from the Netflix Series [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey - Separate Ways (Worlds Apart) (Bryce Miller / Alloy Tracks Remix)
+02. The Beach Boys - California Dreamin'
+03. Talking Heads - Psycho Killer
+04. Kate Bush - Running Up That Hill (A Deal With God)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE89058D9288429DB8A83DB41B15001F98AAA8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641485   (235970) от 25.06.2023
+
+Dr. Jeffrey Thompson - Creative Mind System 2.0 (2004) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creative Insight
+02. Inner GeniusЖанр: Ambient, Relax, HealingПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624F922AD06292364CF05F7A264C6B85DBD6F0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457985   (235780) от 28.03.2021
+
+Vitaly Kis (Виталий Кись) - Chromatic Dreams (2007) [MP3|320 Kbps] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Day (3:36)
+02. Song For You (5:12)
+03. Scorpion (5:17)
+04. Chromatic Dreams (4:42)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182F6BCE005573BA0EFBDCB62355F7532AACB697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641765   (235120) от 25.06.2023
+
+Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional Mexican>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ROSA PASTEL [00:03:24]
+02. LUNA [00:02:43]
+03. 77 [00:03:35]
+04. RUBICON [00:03:58](   Читать дальше...   )Жанр: Regional MexicanПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8AAC90B402128D0441ED6E3FB3DBDB613724A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538502   (234871) от 27.03.2022
+
+Dropkick Murphys - Turn Up That Dial (2021) Expanded Version [FLAC 2.0|96/44.1/24|WEB-DL|tracks] <Celtic Punk, Folk Punk>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Up That Dial (3:43)
+02. L-EE-B-O-Y (3:24)
+03. Middle Finger (2:36)
+04. Queen Of Suffolk County (3:52)(   Читать дальше...   )Жанр: Celtic Punk, Folk PunkПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC93A596AF8747042F33EABBE4E69CBD97230BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279928   (234170) от 20.05.2022
 
 Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Classical>
@@ -605,157 +748,6 @@ Gene Autry's - Christmas Cracker (2009) [FLAC|Lossless|WEB-DL|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B384CD382E9C91593D0965F3AEDD72C0799075CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513062   (227376) от 27.11.2021
-
-Gary Ryan - Midnight Guitar (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mallorca Op.202 (6:45)
-02. Recuerdos De La Alhambra (4:35)
-03. Lute Suite No. 4 in E Major (BWV 1006a) - Prelude (4:45)
-04. Lute Suite No. 4 in E Major (BWV 1006a) - Gavotte En Rondeau (2:54)(   Читать дальше...   )Жанр: Instrumental, Guitar, ClassicalПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401CDCD016800A0848B0FB71C0DB7680B8F044A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586661   (227334) от 09.12.2012
-
-A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227334.jpg" />
-</div>
-
-
-###  Подробнее
-
-(09:21) 01. Cerca Del Arroyo IV
-(05:18) 02. Bonshai
-(04:54) 03. Lacricum
-(03:16) 04. El Jardin De Las Esencias
-(04:11) 05. Asia Lounge
-(04:47) 06. Dreams
-(05:53) 07. Crystal
-(10:24) 08. Otro Dia
-(10:09) 09. Anestes I
-(08:47) 10. Anestes II(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3999ED2BC3E9F5C4C31D002B28E73B7047FC407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513159   (227324) от 27.11.2021
-
-Blackmore’s Night - Here We Come A-Caroling (2020) EP [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_227324.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Here We Come A-Caroling
-2. It Came Upon A Midnight Clear
-3. O Little Town Of Bethlehem
-4. Silent NightЖанр: Folk RockПродолжительность: 00:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE9C83C88CD9D98F94857189E545956CE93C5B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583739   (227308) от 16.10.2022
-
-VA - Piano Relaxation Covers (2022) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_227308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Schultz - Fix You (02:22)
-02. Henry Smith - Shallow (Piano Version) (02:37)
-03. Flying Fingers - Blinding Lights (Piano Version) (02:01)
-04. Henry Smith - Perfect (04:32)(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 07:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1EB82E8F7A29FF6ECD6AD7A288D4C2456D9CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340714   (226714) от 30.11.2019
-
-Grand Theft Auto IV - Vladivostok FM (2008) [FLAC|Lossless|tracks+ .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberty City: The Invasion
-02. РЭП
-03. Мама
-04. Никого не жалко(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A2D6C320C1144923FFBC0D261A1E1BC3FD822D
 ```
 
 https://mybot314.ru/tekegram_catalog/

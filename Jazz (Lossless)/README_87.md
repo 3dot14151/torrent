@@ -1,3 +1,32 @@
+###  Публикация: 1280059   (763726) от 01.02.2019
+
+Carl Saunders - Be Bop Big Band (2002) Sea Breeze Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Compilation [6:31]
+02. Love Dance [8:20]
+03. Emily [3:40]
+04. I'm All for You [8:37](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6CA28CC5A9D3813C7B3B90EAD9193AF558A598E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394188   (763722) от 05.07.2020
 
 Yoko Kanno & Seatbelts - Space Bio Charge (2009) CD Collection [FLAC|Lossless|image + .cue] <Electronic, Jazz, Rock>
@@ -716,35 +745,6 @@ Rufus Harley - Bagpipe Blues (1965) Remaster, 2013, Warner[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5C7BAD47A9B6CF2E7EE8706A3F83BA0D0CE6671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017468   (761105) от 17.05.2016
-
-Oz Noy - Twisted Blues Volume 2 (2014) [FLAC|Lossless|tracks] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Dig
-02. Rhumba Tumba
-03. Let Your Love Come Down
-04. Come Dance with Me(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2245DAF89996CF4DD941484B4339C7D55575DE69
 ```
 
 https://mybot314.ru/tekegram_catalog/

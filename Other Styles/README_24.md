@@ -1,3 +1,32 @@
+###  Публикация: 1098274   (908862) от 30.01.2017
+
+Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New Age, Celtic, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Cuilfhíonn (3:43)
+02. Our Wedding Day (She Moved Through The Fair) (4:31)
+03. The Lark In The Clear Air (3:52)
+04. The Norwegian Minstrel Boy (3:25)(   Читать дальше...   )Жанр: New Age, Celtic, Neo-ClassicalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30D78B9BF6135B6F0C6096668C5E976C38BC6E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966507   (908812) от 20.03.2020
 
 Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
@@ -717,35 +746,6 @@ Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099714   (903278) от 02.02.2017
-
-Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Misty Morning Across the Water (05:48)
-02. Drifting (05:09)
-03. Lonely Shore (05:21)
-04. On a Mountain (05:49)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
 ```
 
 https://mybot314.ru/tekegram_catalog/

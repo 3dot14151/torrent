@@ -1,3 +1,119 @@
+###  Публикация: 1582066   (324492) от 08.10.2022
+
+Sarah Brightman - The Very Best Of 1990-2000 (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Question Of Honour (Part 2 - Radio Edit)
+02. Heaven Is Here
+03. Who Wants To Live Forever (With The London Symphony Orchestra)
+04. Time To Say Goodbye (Con Te Partiro) (With Andrea Bocelli)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785E130CC682AAFF6AF321160E349008FE65B095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582216   (324488) от 08.10.2022
+
+Sarah Brightman - A Winter Symphony (2008) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. Colder Than Winter
+03. Ave Maria (Duet With Fernando Lima)
+04. Silent Night(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5ECAC121ACBEEA1A813617C4619156BECC31DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180930   (323827) от 07.11.2017
+
+VA - Zouk Monster Vol 1. (2017) [MP3|320 Kbps] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love virtuel - Carbeti, Stephane Moreau 3:43
+02. Une vie sans couleur - Myl's 4:29
+03. Je m'enfuis - Lindsey Lin's 3:44
+04. I ja tro ta - Cedrick Vernon 4:42(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEF46D4F0FC4DFE1C5C3B89C7B2326AFEDDC97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958339   (323526) от 21.11.2015
+
+Adele - 25 (2015) Target Exclusive Deluxe Edition [MP3|320 кб/с]<Indie Pop, Neo Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+ 02. Send My Love (To Your New Lover)
+ 03. I Miss You
+ 04. When We Were Young(   Читать дальше...   )Жанр: Indie Pop, Neo Soul, Vocal JazzПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0329109142EE215CF9CD39CF72488C2D2EAD588A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582498   (323340) от 09.10.2022
 
 VA - Now Yearbook 85 (2022) 4CD, Compilation, Special Edition [MP3|320 Kbps] <Pop, Synth-Pop, Reggae, Rock>
@@ -641,131 +757,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:486A21C06777C6AF17C0FFE8D86654438274573D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583255   (312674) от 02.12.2012
-
-Supermax - Hello, Kurt! (2011) [MP3|320 кб/с]<Funk,Disco,Reggae>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Funk,Disco,ReggaeПродолжительность: 02:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C3971DB0B674B081C2EE4727879E08CA4B4876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582887   (312579) от 02.12.2012
-
-Bad Boys Blue - 25 Best Hits (2012) [MP3|320 кб/с]<Pop,Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back And Stay
- 02. I'm Never Gonna Fall In Love Again
- 03. Queen Of Hearts
- 04. Love Is No Crime
- 05. Kisses And Tears
- 06. Kiss You All Over, Baby
- 07. A Love Like This (Radio Edit)
- 08. You're A Woman
- 09. How I Need You
- 10. I Wanna Hear You HeartbeatЖанр: Pop,DiscoПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BB834A1B43957605955D2555AC71310E2F007D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582549   (312570) от 02.12.2012
-
-Demis Roussos - 14 Best Hits (2008) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Someday Somewhere
- 02.  Island Of Love
- 03.  Goodbye My Love Goodbye
- 04.  Summerwine
- 05.  Mamy Blue
- 06.  I miss you
- 07.  My Only Fascination
- 08.  From Souvenirs To Souvenirs
- 09.  We Shall Dance
- 10.  Velvet Mornings(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE452D3477C7B5E3E5CE084C4D17CD0E55D2AF9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260299   (312185) от 07.11.2018
-
-Rasmus Seebach - Ingen Kan Love Dig I Morgen (2013) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandstorm
-02. Øde Ø
-03. I Min T-Shirt
-04. Olivia(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F252AEB212B8D73022D1BB00171280D60AF497D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

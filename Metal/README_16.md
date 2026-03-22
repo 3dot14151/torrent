@@ -1,3 +1,31 @@
+###  Публикация: 1366728   (920720) от 13.03.2020
+
+DED - 2 Releases (Mis-An-Thrope (CD) / Mannequin Eyes (EP)) (2017-2020) [MP3|320 Kbps] <Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mannequin Idol (Lullaby)
+02. Eyes Sewn Shut
+Продолжительность альбома: 00:06:02Жанр: Nu MetalПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A186B2111D9FDEFC7145112D795E9F2C5D18FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988510   (920707) от 20.02.2016
 
 Mastodon - White Walker (2016) [MP3|320 кб/с] <Heavy Metal, Progressive Metal, Rock>
@@ -727,35 +755,6 @@ Ethir Anduin - Pathway To Eternity. The Agony (2020) [MP3|320 Kbps] <Black, Doom
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA44CD483C3A1B27424DA7AA900AC1A395ADF248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368007   (914255) от 17.03.2020
-
-Kreator - London Apocalypticon - Live at the Roundhouse (2020) 3CD [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Choir of the Damned (0:42)
-02. Hordes of Chaos (5:27)
-03. Phobia (3:56)
-04. Satan Is Real (5:24)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 3 CDr 03:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0B7E3F22FB5421CE80ADDF847B362401014332
 ```
 
 https://mybot314.ru/tekegram_catalog/

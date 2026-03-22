@@ -1,3 +1,177 @@
+###  Публикация: 1191497   (264183) от 14.12.2017
+
+George Otsuka Trio - Page 2 (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Cha [04:49]
+02. On Green Dolphin Street [14:25]
+03. I Fall in Love Too Easily [05:45]
+04. Blues by Five [05:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4065EE6A70C40DDA682C982B037FC8EC9E12561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191693   (264181) от 14.12.2017
+
+Chris Potter - Moving In (1996) Concord Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nero's Fiddle [08:07]
+02. Book Of Kells [08:25]
+03. Moving In [06:37]
+04. A Kiss To Build A Dream On [07:28](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB69E14AAACBB486F10EF77789C745A945704DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191491   (264177) от 14.12.2017
+
+Wes Montgomery - Dangerous (1961 - 1963) 1999, Milestone Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Should Lose You (take 2 - alternate) [06:17]
+02. S.O.S. (take 2 - alternate) [04:51]
+03. Yesterday's Child [04:26]
+04. Dangerous [08:16](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07F6972EEFDA6E9F700F83146B27A8B6114218A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191670   (264176) от 14.12.2017
+
+George Otsuka Trio - Last Summer: Page 3 (1969) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Summer [10:54]
+02. The Things We Did Last Summer [06:55]
+03. Over the Rainbow [09:12]
+04. Sea View [05:08](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48BE61BF076168D0621CB6B447E835C76A3EDDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340503   (264016) от 23.11.2019
+
+Optimystica Orchestra - Полубоги Вина (2005) 2018, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz, Alternative Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просто ни о чём (Remastered) (3:36)
+02. Море знает (Remastered) (4:12)
+03. Там, где ты танцуешь - ночь (Remastered) (6:08)
+04. Тридцать лет тишины (Remastered) (3:33)(   Читать дальше...   )Производство: Zapal RecordsЖанр: Jazz, Smooth Jazz, Alternative RockПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42503F3D2AAF0A92ACFBD3EC14EB8EFFD305593B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191864   (263918) от 15.12.2017
+
+Chris Potter - Coming Together (2009) Inarhyme Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shining Hour [06:32]
+02. Dream Behind The Winter [04:17]
+03. Full Moon [04:27]
+04. 3 Steps Ahead of the Spider [05:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46ECEAB268DD91ECB328A940AA6AC3699357A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191855   (263914) от 15.12.2017
 
 George Shearing & Brian Torff - Lullaby of Birdland (1979, 1980) 2CD, 2000, Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
@@ -572,180 +746,6 @@ Djabe & Steve Hackett - Life Is A Journey: The Sardinia Tapes (2017) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB6E61A295D4B744F985FBA6E6471544E8E8D6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341011   (262948) от 26.11.2019
-
-Chris Lightcap - SuperBigmouth (2019) Pyroclastic Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through Birds, Through Fire [5:52]
-02. Zero Point Five [8:53]
-03. Queenside [5:17]
-04. False Equivalency [4:07](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F63C8AD6BB0560EAA40CAA079436E1470286A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340831   (262947) от 26.11.2019
-
-Nat Adderley Quintet - Blue Autumn 1983 (1992) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Duke and Cannon [7:05]
-02. The Fifth Labor of Hercules [6:26]
-03. Book's Bossa [9:03]
-04. Blue Autumn [8:30](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D99DA687588D530BE95BF76DA76E603E2DDCA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192758   (262846) от 18.12.2017
-
-Ralph Moore - Round Trip (1985) 1987, Reservoir [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dunes [06:38]
-02. Bewitched [06:13]
-03. Round Trip [05:14]
-04. Lotus Blossom [06:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6A053CA844D5D8306E0864D3BE04141029CB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192763   (262845) от 18.12.2017
-
-Ralph Moore - Images (1989) Landmark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freeway [08:08]
-02. Enigma [05:33]
-03. Episode from a Village Dance [07:41]
-04. Morning Star [08:36](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A54028B3D71F11CA7BB1F177EBBFD0DC2B9297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192745   (262833) от 18.12.2017
-
-Les McCann - Live at Montreux (1972) 2014, Warner [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Pop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cochise [06:31]
-02. Comment [01:27]
-03. Price You Gotta Pay To Be Free [05:02]
-04. What's Going On [08:39](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-Pop, Soul JazzПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121961EC58FF15F71B5B8D9C63F102C217A41EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192755   (262807) от 18.12.2017
-
-Charlie Haden & Antonio Forcione - Heartplay (2006) Naim Label [FLAC|Lossless|tracks + .cue] <Chamber Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna [03:59]
-02. If... [02:58]
-03. La Passionaria [08:22]
-04. Snow [06:03](   Читать дальше...   )Жанр: Chamber JazzПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F058C93981AF01F0FA9C9DA40BF9F9B8CE5E21
 ```
 
 https://mybot314.ru/tekegram_catalog/

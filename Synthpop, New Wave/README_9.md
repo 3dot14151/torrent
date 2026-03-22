@@ -1,3 +1,32 @@
+###  Публикация: 1580987   (329051) от 03.10.2022
+
+Macrocosm - Second Voyage (2005) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Invasion
+02. Galactic Fighters
+03. Maximum Power
+04. Out of the Ordinary(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4665806A037E1CF7F482F507301E3AEFD24A11F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580929   (328984) от 03.10.2022
 
 Macrocosm - First Mission (2002) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
@@ -714,35 +743,6 @@ W O L F C L U B - W O L F C L U B (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C54EBC42FF54422A499BE0E08F624A68FF87C09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266741   (268387) от 04.12.2018
-
-W O L F C L U B - Chasing The Storm (2018) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 84 (2:45)
-02. Summer Lights (3:13)
-03. Things Were Simpler Then (3:00)
-04. Chasing the Storm (3:36)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59A60E426303E9A01BF177FA4D3FE7B6A730A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

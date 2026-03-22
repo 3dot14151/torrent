@@ -1,3 +1,125 @@
+###  Публикация: 533480   (530655) от 11.08.2012
+
+Mr. Zivago - Tell By Your Eyes (2002) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell By Your Eyes (6:24)
+02. Say Yes (4:24)
+03. Alive (4:17)
+04. Show The Love (4:55)
+05. Welcome To The Edge (4:17)
+06. Just For You To Be There (5:00)
+07. Sadness Is Like Snow (5:21)
+08. I Will (4:35)
+09. You're The Only (5:03)
+10. Gloria (4:36)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558883   (528859) от 22.06.2022
+
+One-T - The One-T ODC (2003) 20th Anniversary Remastered, 2022, Minority [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Magic Key Theme (2022)
+2. Music Is The One-T ODC (2022 Remaster)
+3. One-T's Army (2022 Remaster)
+4. Bein A Star (2022 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207E4BA33995DC6AB4F6613C16B517F7A2227E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156233   (528550) от 06.08.2017
+
+Roland Bocquet - 3 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Roland Bocquet с 1969 по 1977 был лидером французской инструментальной рок-группы Catharsis. Далее, сменив стиль, продолжил свое творчество в качестве исполнителя и композитора. Выпустил три предлагаемых альбома и начал писать саундтреки к фильмам.Список альбомов:
+1977 - Paradia
+1982 - Robot Rose (Claviers Synthetiseur)
+1983 - Robot Bleu(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, ExperimentalПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E16FE16100746C820D4DD48F3D0E37CD98B0619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156145   (528484) от 06.08.2017
+
+Eighth Wonder - 2 Albums (1987, 1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская поп-группа 80-х годов. Образовались в 1983 году и пользовались большим успехом в Японии и Италии между 1985 и 1987 годом, до того как серия хит-синглов не прокатилась по Великобритании и далее по всей Европе в 1988 году. Безусловно "изюминкой" группы стала актриса Пэтси Кенсит (Patsy Kensit).01. When The Phone Stops Ringing (3:41)
+02. Loser In Love (3:23)
+03. Open Your Mind (3:58)
+04. Stay With Me (3:19)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997F71EE3DB5CB6C215A7B0538816DD099C77F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313121   (528232) от 07.07.2019
 
 Saint Etienne - Saturday Boy (2019) Single [MP3|320 Kbps] <Alternative Dance Pop, Synthpop, Indie Pop>
@@ -627,122 +749,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:408AC34C28406500E4B739FF1EAAFEA075BAB64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314501   (518081) от 15.07.2019
-
-Paul McCartney - Paul Is Live (2019) Original Release Date: 8 Nov. 1993 (Digitally remastered) [MP3|320 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive My Car (2:16)
-02. Let Me Roll It (4:04)
-03. Looking For Changes (2:37)
-04. Peace In The Neighbourhood (4:42)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341844B213C3FB7BB2BFFA35C8E69270EFBF56BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314577   (517968) от 15.07.2019
-
-VA - NOW 100 Hits Car Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen, John Deacon, Brian May, Freddie Mercury, Roger Taylor - Another One Bites The Dust (03:35)
-02. Fleetwood Mac - Little Lies (03:38)
-03. Duffy, Steve Booker - Mercy (03:40)
-04. Coldplay - Adventure of a Lifetime (04:24)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA0BB131FA696CEA3FF8A6BF2F7DD8AF300029C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929484   (517350) от 21.08.2015
-
-Lauren Christy - Lauren Christy (1994) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain (03:33)
-02. You Read Me Wrong (04:27)
-03. Steep (04:29)
-04. The Rumour (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2E7014076DBA8052C1DC74914210733B695033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930005   (517312) от 21.08.2015
-
-Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Strawberry Fields
- 02. Gave Me Something
- 03. Hold My Hand
- 04.  Real Love(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C062CACF3C955274BE3BFE11B7540DCC041F235
 ```
 
 https://mybot314.ru/tekegram_catalog/

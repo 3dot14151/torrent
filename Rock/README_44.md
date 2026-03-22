@@ -1,3 +1,150 @@
+###  Публикация: 921663   (571639) от 27.07.2015
+
+Robert Plant - More Roar (2015) Vinyl, EP[MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571639.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Turn It Up [07:44]
+2. Poor Howard [04:58]
+3. Whole Lotta Love (Medley) [05:33]Жанр: RockПродолжительность: 00:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B228CB0F1283C0FE3BF3CADBDD4B75F4C7398E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362277   (571273) от 13.07.2011
+
+Rod Stewart - You Wear It Well. The Collection (2011) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3FF6573827A2EBB18972C39981D58F71C77206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234552   (569296) от 06.07.2018
+
+Piper - Piper (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569296.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Out Of Control
+2. Whatcha Gonna Do
+3. The Road
+4. Sail Away(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC60EE3372F37273D996830F992D46CE349BDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529107   (568711) от 30.07.2012
+
+The Beatles - Tomorrow Never Knows (2012) (Compilation)[MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Revolution (3:25)
+ 2. Paperback Writer (2:18)
+ 3. And Your Bird Can Sing (1:59)
+ 4. Helter Skelter (4:31)
+ 5. Savoy Truffle (2:54)
+ 6. I'm Down (2:31)
+ 7. I've Got a Feeling (Naked Version) (3:37)
+ 8. Back in the U.S.S.R. (2:44)
+ 9. You Can't Do That (2:34)
+ 10. It's All Too Much (6:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7450AE5413C8FDC53921BF3A45FDDABED8A1844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922565   (568349) от 29.07.2015
+
+Magma  - Art Zoyd - Les Génies Du Rock - Mekanik Destruktiv Kommandoh (1993) [MP3|320 кб/с]<Prog Rock, Experimental, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magma - Otis (5:21)
+02. Magma - Nono (6:46)
+03. Magma - Ehn Deiss (5:13)
+04. Magma - I Must Return (6:40)(   Читать дальше...   )Жанр: Prog Rock, Experimental, SoulПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C51F45880708F939A2BED85EC927231141A0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922584   (568347) от 29.07.2015
 
 The Nice - Les Genies Du Rock - Rondo (1993) [MP3|320 кб/с]<Prog Rock, Psychedelic Rock>
@@ -606,151 +753,6 @@ Tow Truck Tom And The Roadside Wrecks - Sophomore Slump (2001) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:940E7C076F99FCA7F944F8464B39645025D656F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153791   (556870) от 28.07.2017
-
-The Isley Brothers & Santana - Power Of Peace (2017) [MP3|320 Kbps] <Soul, Funk, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready
-02. Total Destruction to Your Mind
-03. Higher Ground
-04. God Bless the Child(   Читать дальше...   )Жанр: Soul, Funk, Blues RockПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD4E50E116225E93A528F1F48B4BB0B8A42240E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235895   (556613) от 14.07.2018
-
-Axcraft - Dancing Madly Backwards (1974) Reissue, 1999, Akarma [MP3|320 Kbps] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. So Far Away
-2. Astral Love
-3. 727 Suite
-4. Firewheel(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AAA34FD2D7FB9643E1B872B00F62BD34D74FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235867   (556609) от 14.07.2018
-
-The Running Man - The Running Man (1972) Reissue, 2000, Akarma [MP3|320 Kbps] <Psych-Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Higher And Higher
-2. Hope Place
-3. Nicholas
-4. Another(   Читать дальше...   )Жанр: Psych-Prog RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D2A1DF2A506DA6407D41440DE914A832FA15AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236184   (556279) от 15.07.2018
-
-The Real Gone Tones - Backseat Bingo (2018) [MP3|320 Kbps] <Rockabilly, Rock&Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piglet (03:07)
-02. Stick With It (02:26)
-03. Watch Out (02:22)
-04. Black Coffee (02:13)(   Читать дальше...   )Жанр: Rockabilly, Rock&RollПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0077AFE4F8BE56A8A22FD02D25CFB2B9077D5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306178   (555834) от 03.06.2019
-
-Chrome - Addictions (2019) [MP3|320 kbps] <Progressive Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive Again (06:45)
-02. Heart on Fire (06:00)
-03. Rhody (03:50)
-04. Addiction (05:18)(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C69CE0F70EC882FF3D0FEC72A0190948D71168F
 ```
 
 https://mybot314.ru/tekegram_catalog/

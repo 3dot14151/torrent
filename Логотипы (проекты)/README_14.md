@@ -1,3 +1,81 @@
+###  Публикация: 1014110   (776652) от 06.05.2016
+
+Проекты - VideoHive - Sport Logo Reveal Pack [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sport Logo Reveal Pack - спортивный энергичный проект состоящий из трех тематических композиций: футбол, хоккей, баскетбол.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51C6DB3863A74453438ADE4195DA222B781496F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014309   (776289) от 07.05.2016
+
+Проекты - VideoHive - Colorful Splash Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации красочного всплеска названия вашей компании или логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB15701414AFB989CD6E97B36CFF933960FDF04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014785   (776075) от 08.05.2016
+
+Проекты - VideoHive - Clash [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа. Эффектный, мощный и при этом эпичный шаблон проекта "Столкновение" от CreativeLab.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922D45C36287142584774BB9AD3B54D3ADB6261F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014889   (776033) от 08.05.2016
 
 Проекты - VideoHive - High Speed Logo [AEP]
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D200155E3FFAF8150AA9E77E8103694B4D1B4949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213972   (766516) от 19.03.2018
-
-Проекты - VideoHive - Minimal Metallic Stripes Reveals - 20766995 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8FECD000BA9F2E40D6D13DEC102FEED4AD2BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394267   (764286) от 04.07.2020
-
-Проекты - VideoHive - Alien World 2 - 20840294 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект «Alien World 2» - отличное вступление к фильмам ужасов, мистическим триллерам и т.п.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718A94C2D4A7BE05AC7FED9B923A1B0F003F88DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126522   (764157) от 19.04.2017
-
-Проекты - VideoHive - Spherical Logo - 19679401 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект АЕ для демонстрации логотипа на корпоративную тематику.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F906956E1CDD7D795FEA85D25E812F81973B2D8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

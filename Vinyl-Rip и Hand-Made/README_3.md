@@ -1,3 +1,234 @@
+###  Публикация: 1608024   (1043805) от 28.01.2023
+
+Alice in Chains - Studio Albums (8 releases) (1990 - 2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Grunge, Heavy/Sludge Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alice in Chains — американская рок-группа из Сиэтла, образованная Джерри Кантреллом и Лейном Стейли в 1987 году. В начале 90-х годов коллектив получил широкую известность на волне роста популярности гранжа, наряду с Nirvana, Pearl Jam и Soundgarden.1990 - Facelift
+1992 - Dirt
+1995 - Alice In Chains
+1999 - Music Bank(   Читать дальше...   )Жанр: Grunge, Heavy/Sludge Metal, Hard RockПродолжительность: 11:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4321F77154E854F08DB88D4B5D9FAFA56DCF662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573515   (1043800) от 28.01.2023
+
+Lake of Tears - Studio Albums (9 releases) (1994 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Doom/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lake of Tears (с англ. — «Озеро слёз») — шведская группа, играющая в жанрах готик-метал и дум-метал с элементами психоделического рока и прогрессивного метала.1994 - Greater Art
+1995 - Headstones
+1997 - A Crimson Cosmos
+1999 - Forever AutumnЖанр: Doom/Gothic MetalПродолжительность: 06:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B2686D3E950699D7DFEE40C0A0AF91CE42D1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608205   (1043653) от 30.01.2023
+
+The Dogma - Studio Albums (3 releases) (2006-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043653.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Dogma — прогрессив-метал/пауэр-метал группа из Анконы, Италия.2006 - Black Roses
+2007 - A Good Day to Die
+2010 - Black WidowЖанр: Symphonic Gothic/Power MetalПродолжительность: 02:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245C1B0A9C1653B600171059B943283EFB304FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609809   (1042934) от 05.02.2023
+
+Type O Negative - Studio Albums (8 releases) (1991 - 2007) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Type O Negative (с англ. — «первая группа, резус-отрицательный»)— метал-группа из Бруклина (Нью-Йорк), одни из основателей жанра готик-метал. Основной чертой группы была медленная, мрачная музыка с частым использованием клавишных и низким, но чистым мужским вокалом в исполнении Питера Стила. Питер также писал тексты группы, посвящённые эротике, страсти, (   Читать дальше...   )1991 - Slow, Deep And Hard
+1992 - The Origin Of The Feces
+1993 - Bloody Kisses
+1996 - October RustЖанр: Gothic/Doom MetalПродолжительность: 09:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4A6D39E7607E360FF6C737C93E3B07D4C25247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436864   (1042756) от 02.01.2021
+
+Sing Sing - Sex Attraction (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042756.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Last Goodbye
+A2 Love On The Beach
+A3 There's No Way Back
+A4 She's Gone(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C149B190D6B9D54DA288DE1BD2C35A3F3722E8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610271   (1042343) от 07.02.2023
+
+Work Of Art - Studio Albums (4 releases) (2008 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Work Of Art — хард-рок-группа из Стокгольма, Швеция, основанная в 1992 году.2008 - Artwork
+2011 - In Progress
+2014 - Framework
+2019 - ExhibitsЖанр: Hard Rock, AORПродолжительность: 03:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FDDE8E1ABAE802FB00B59FD15911CDBD4C9597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610733   (1041888) от 09.02.2023
+
+Talisman - Studio Albums (10 releases) (1990 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Talisman — шведская рок-группа, основанная в 1989 году басистом-автором песен Марселем Джейкобом и возглавляемая американским певцом Джеффом Скоттом Сото1990 - Talisman
+1993 - Genesis
+1994 - Humanimal. Part 1
+1994 - Humanimal. Part 2Жанр: Hard RockПродолжительность: 10:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C7FCCA94A92725AD1E704033B4EA645B579BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437921   (1041705) от 06.01.2021
+
+Оркестр "Современник" п/у А. Кролла - Музыка из к/ф "Мы из джаза" (1983) Сувенирное издание [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041705.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Рэгтайм
+A2 Улыбка Старой Москвы
+A3 Рэг-Дикси
+A4 Эрмитаж, Фокстрот(   Читать дальше...   )Жанр: Soundtrack, JazzПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FFFE39BCBF096BC3601C6ADB312888E6909F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611888   (1040558) от 14.02.2023
 
 Karel Gott/Карел Готт - Stori/Рассказы (1982) [FLAC 2.0|192/24|image+.cue] <Pop>
@@ -514,238 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29C2D944B9DAA233782085AFCF9DB5A7BC4EEE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208528   (1034040) от 11.03.2023
-
-VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claudio Baglioni - Un Giorno nuovo
-02. Lucio Battisti - E Penso A Te
-03. Edoardo Bennato - L'isola Che Non C'e
-04. Lucio Battisti - Ancora Tu(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618699   (1033680) от 13.03.2023
-
-Wisdom - Studio Albums (5 releases) (2004-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wisdom — венгерская пауэр-метал-группа из Будапешта.2004 - Wisdom (EP)
-2006 - Words Of Wisdom
-2011 - Judas
-2013 - Marching for Liberty(   Читать дальше...   )Жанр: Power MetalПродолжительность: 03:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6438FAD4E4516FEF1C2A0B2E0FA85EBFEECAB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446400   (1032997) от 08.02.2021
-
-VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tracks|Vinyl] <Deep House, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SPCE - Lightness (06:02)
- 02. Maizena - The Future (05:55)
- 03. Mandee & Central - If I Feel Like It (06:28)
- 04. Hi Mount - U N Me (04:47)Жанр: Deep House, DowntempoПродолжительность: 00:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59D09A006049E5D5774A47C49853CC0D07A7951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619367   (1032970) от 16.03.2023
-
-MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032970.jpg" />
-</div>
-
-
-###  Подробнее
-
-MaYaN — нидерландская симфоник-дэт-метал-группа, образованная в 2011 году лидером группы "Epica" вокалистом Марком Янсеном, клавишником Яком Дриссеном и гитаристом Франком Схипхорстом. Название группы было выбрано Марком из-за его заинтересованности в культуре майя..
-2011 - Quarterpast
-2014 - Antagonise
-2018 - DhyanaЖанр: Symphonic Death MetalПродолжительность: 03:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118C5DB1E4923A9775AE82F07134C253BDD4BADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620890   (1031642) от 22.03.2023
-
-Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Life Is Just What You Make It • Ты хозяин своей судьбы
-A2. The Twelfth Of Never • Буду любить тебя вечно
-A3. Sunshine Rose • Солнечная роза
-A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621442   (1030764) от 26.03.2023
-
-Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
-1999 - Legends
-2001 - Middle Earth
-2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622220   (1030295) от 28.03.2023
-
-Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
-1998 - The Electric Sleep
-2000 - Celestial Hi-Fi
-2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623730   (1029090) от 03.04.2023
-
-Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029090.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Doctor For My Heart (12" Version) 5:18
-A2. Wings Of Love (12" Version) 5:21
-A3. Colder Than Ice (12" Version) 5:38
-A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
 ```
 
 https://mybot314.ru/tekegram_catalog/

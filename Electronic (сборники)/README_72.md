@@ -1,3 +1,90 @@
+###  Публикация: 1281885   (748411) от 10.02.2019
+
+VA - Butterfly's Eyes: Trance Project (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abstract Vision - Noonday Shadows
+002. Apaches - Back2Again (Extended Mix)
+003. Jo Cartwright - Through The Barricades
+004. Cenk Basaran - Acid Harmony (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 10:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D066CFC1F482ECE454B8E426317B0A38260F5AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019658   (748342) от 24.05.2016
+
+VA - Top 100 EDM Summer (2016) [MP3|256-320 кб/с] <Electronic, Dance Music>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Militia & Vanze Ft. Tyler Fiore - You Found Me (Original Mix)
+02. Christopher S & Lecrema - Rebel's Mind (Radio Edit) (feat. Jamayl Maleek)
+03. Mario Joy - California (Radio Edit)
+04. Calvin Harris - This Is What You Came For (feat. Rihanna)(   Читать дальше...   )Жанр: Electronic, Dance MusicПродолжительность: 06:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D656944134408E7DBC17752E9FE0971D9D58994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281815   (748301) от 10.02.2019
+
+VA - Record Super Chart 573 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calvin Harris & Rag'n'Bone Man - Giant
+02.  Hugel & Amber Van Day - Wtf
+03.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+04.  Fisher  -  Losing It(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497083C3C7C25B6448D812DD46EB1109866AF89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523749   (748227) от 13.01.2022
 
 VA - NME: Best New Electro Hype (2022) [MP3|320 Kbps] <House, Electro>
@@ -607,6 +694,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217137   (744943) от 03.04.2018
+
+VA - Deep Cool Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_744943.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. !Sooks - The Kitchen Will Dub  (Phasen Remix)
+002. 1Kilo - Duro Igual Concreto (Hisashi & RFeL Remix)
+003. Bobby Rock - Move On (Radio Edit)
+004. Lunde Bros - Boomba (Radio Edit)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5018636FAAD53CE89C120B0F70744B8FE8C877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524283   (744888) от 15.01.2022
 
 VA - Kiss FM Top 100: The Best Tracks Of 2021 (2022) [MP3|320 Kbps] <Progressive House, Dance, Other>
@@ -629,122 +745,6 @@ VA - Kiss FM Top 100: The Best Tracks Of 2021 (2022) [MP3|320 Kbps] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7C371F9B6E75579ACE4E15499E9C01F6C0C7E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217108   (744870) от 03.04.2018
-
-VA - Dj World All 2018 Nice Day (2018) [MP3|320 Kbps] <Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Grazze Ft. ARC - Aura (Original Club Mix)
-002. East Cafe, GMJ - 22 (Doppel Remix)
-003. Dont Look Now & Tom Tyler - All Day, All Night (Original Club Mix)
-004. Jewelz & Sparks feat. Pearl Andersson - All I See Is You (Afrojack Edit)(   Читать дальше...   )Жанр: DubstepПродолжительность: 07:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D962B1967AC869072E48C8A4FFDA92E1C7BAC9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216977   (744749) от 03.04.2018
-
-VA - 100% Clubland X-Treme (4CD) (2018) [MP3|320 Kbps] <Electronic, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - Jumping All Over The World
-02. Sak Noel - Loca People
-03. Artemesia - Bits & Pieces (Tidy Boys Remix)
-04. Special D - Come With Me (Single Edit)(   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 04:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8092D92162A857A8131D433D327E3D99DC345FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524347   (744652) от 15.01.2022
-
-SuperVox - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Panorama
-03. Black Hole
-04. Blue Rose(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49A487AE4667A5A344B0067B1DA6781E359E9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524354   (744650) от 15.01.2022
-
-Galactic Warriors - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outro
-02. Mission Phoenix
-03. Space Ranger
-04. No Return(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 01:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1087799CF53D940784A44121CE5190276B32978
 ```
 
 https://mybot314.ru/tekegram_catalog/

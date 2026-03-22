@@ -1,3 +1,32 @@
+###  Публикация: 1376536   (858798) от 18.04.2020
+
+Звери - Одинокому везде пустыня (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дама с собачкой
+2. Попрыгунья
+3. Человек в футляре
+4. Палата №6(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6753A7BC7879A76DCE3F25FEEE4D731D2C998BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498364   (858069) от 26.09.2021
 
 Анатомия Меланхолии - Мой бог (2021) [FLAC|Lossless|WEB-DL|tracks] <Melancholic Metal, Instrumental Metal, Melancholic Rock>
@@ -718,35 +747,6 @@ VA - Иллюминатор. Песни на стихи Ильи Кормиль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:358FEE5F3D77C6C15D0061F19D42AF344ACF3E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501085   (837990) от 08.10.2021
-
-Кипелов - Часы Судного Дня (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Огненная Дуга
-02. Часы Судного Дня
-03. Лунный Ковчег
-04. Крик ТишиныЖанр: Heavy MetalПродолжительность: 00:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB78BBCD2C1E40BF89F2D373F80E8E22E2E5D8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

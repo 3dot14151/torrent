@@ -1,3 +1,32 @@
+###  Публикация: 975966   (970471) от 16.01.2016
+
+VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [MP3|320 кб/с] <Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ennio Morricone - L'Ultima Diligenza Di Red Rock (7:32)
+02. Ennio Morricone - Overture (3:11)
+03. Jennifer Jason Leigh, Kurt Russell, Samuel L. Jackson - "Major Warren Meet Daisy Domergue" (0:33)
+04. Ennio Morricone - Narratore Letterario (2:02)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714B0B750589E2691BD649F6609AAD757B92E413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358231   (969705) от 07.02.2020
 
 Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -722,35 +751,6 @@ Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359411   (964191) от 12.02.2020
-
-VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Latin, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bert Kaempfert - A Swingin' Safari (3:07)
-02. Al Hirt - Java (1:56)
-03. Perez Prez Prado - Patricia (2:06)
-04. Henry Mancini - Baby Elephant Walk (2:43)(   Читать дальше...   )Жанр: Instrumental, Latin, JazzПродолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB96286756BBF00DFBEAD158D64D93EFD3EB50CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

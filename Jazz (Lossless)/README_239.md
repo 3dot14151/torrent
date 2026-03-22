@@ -1,3 +1,177 @@
+###  Публикация: 1608406   (245677) от 30.01.2023
+
+The Dave Stryker Trio - Prime (2022) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Along with Jared Gold on organ and McClenty Hunter on drums, Stryker offers eight new compositions and the beautiful standard “I Should Care.” From the burning title track “Prime” to songs penned for his first boss Jack McDuff (“Captain Jack” and “Dude’s Lounge”) as well as “Mac” for his drummer and the original trio versions of “Hope” and “As We Were” from Stryker’s (   Читать дальше...   )01. Prime (Stryker) - 6:25
+02. Lockdown (Stryker) - 6:37
+03. Captain Jack (Stryker) - 8:14
+04. Hope (Stryker) - 5:20(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98BFCB1C49A084CE76E119CCFE6BB4249C221135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058371   (245636) от 01.10.2016
+
+John Lewis & Mirjana Lewis - The Chess Game Part I (1987) 2000,  Philips[APE|Lossless|image + .cue] <Third Stream, Classical, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Queen's Pawn Opening - Aria On Harpsichord [02:15]
+ 02.Aria On Piano  [02:44]
+ 03.King's Gambit - Variation 1 On Harpsichord [01:10]
+ 04.Variation 1 On Piano  [01:10](   Читать дальше...   )Жанр: Third Stream, Classical, CoolПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68945E549E0D160CF128E9FA5946372BE5975143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512214   (245621) от 24.11.2021
+
+John Di Martino's Romantic Jazz Trio - Moliendo Cafe (2011) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Cervantes [4:43]
+02. Angelitos Negros [4:22]
+03. Amapola [5:55]
+04. Obsesion [5:12](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8936811FB640050BE61BF423C84BD40F90E3F555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630534   (245560) от 02.05.2023
+
+Emily Remler - Retrospective, Vol. 2: Compositions (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mocha Spice [4:30]
+02. Nunca Mais [5:02]
+03. Waltz for My Grandfather [6:40]
+04. Catwalk [7:25](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7139B12F6A36000E7C5F5CBFF2942B33978661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624196   (245500) от 04.04.2023
+
+Karl Seglem - Nye nord (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Nordic Folk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tro din fot (Seglem) - 5:01
+02. Nye nord (Seglem) - 4:55
+03. Alcalar (Seglem) - 5:58
+04. Manefar (Seglem) - 6:54(   Читать дальше...   )Жанр: Contemporary Jazz, Nordic FolkПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80ADD94EFA9E45F1642255992AA84D5DAB4B89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250784   (245471) от 29.09.2018
+
+Jimmy Raney - Wisteria (1985) 1991, Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hassan's Dream [7:19]
+02. Wisteria [5:32]
+03. Ovals [6:25]
+04. Out of the Past [7:04](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596809C5B3AF02BFB98A5AD5A783AB50FAB67059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624000   (245437) от 04.04.2023
 
 Dick Oatts - Standard Issue (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -570,180 +744,6 @@ Dizzy Gillespie Quintet - Treffpunkt Jazz (1961) 2020, Jazzhaus [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B303A8832823334B957AE63DCE63AEDEBB3267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609641   (244773) от 04.02.2023
-
-Kai Winding & Curtis Fuller - Bone Appetit (1980) 2004, Par Media Music [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicoise [5:58]
-02. Bone Appetit [6:08]
-03. Baja Iberia [6:04]
-04. Entonces [4:05](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54B7DFF8C974FA7DADF182DE9D5CC328015CA63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609637   (244737) от 04.02.2023
-
-Lester Young - Four Classic Albums: Second Set (1943 - 1957) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244737.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lester Leaps Again (take 1) [4:27]
-02. After Theatre Jump (take 2) [4:45]
-03. Destination K.C. (take 1) [3:53](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606FABE549C035978849ED1ED95171FAE76E3F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069821   (244670) от 05.11.2016
-
-Hank Jones - Urbanity (1947-1953) 1997, Verve[FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Thad's Pad (master tk) [03:00]
- 02.Things Are So Pretty In The Spring (master tk) [03:42]
- 03.Little Girl Blue [02:50]
- 04.Odd Number [03:35](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C4BC9673FDC3C48B306CB5CAE317889FC738D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069575   (244665) от 05.11.2016
-
-Lars Gullin - Baritone Sax (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Summertime [05:33]
- 02.Fedja [05:03]
- 03.A Foggy Day [04:45]
- 04.Perntz [05:16](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31B2C0DA336BB35BC429156149544CBF6A31490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069476   (244655) от 05.11.2016
-
-Pierre de Bethmann - Sisyphe (2014) 2CD, Plus Loin Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244655.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Sisyphe [09:31]
-02.Volseau [11:04]
-03.Patience [09:58](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D947742866B2BDF05240F977FBBEACAFE59D3CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069931   (244644) от 05.11.2016
-
-Clint Houston - Inside The Plain Of The Elliptic (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Geri [06:41]
- 02.You Are Like The Sunlight [06:01]
- 03.Goodbye Mr. P [07:18]
- 04.Letitia [06:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A4D1F56B424769A49AB9AD982FF345F6E6C8CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

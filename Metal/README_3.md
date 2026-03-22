@@ -1,3 +1,32 @@
+###  Публикация: 1615824   (1037297) от 27.02.2023
+
+Druid Stone - 3 Albums (2022-2023) [MP3|320 Kbps] <Blackened Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - Druid Stone (Re-issue)
+2023 - The Corpse Vanishes (Remixxx)
+2023 - The Grateful UndeadЖанр: Blackened Doom MetalПродолжительность: 3 CD, 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8CA660C2A81D2FA83292D3DB66AEA6E949E811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441886   (1037049) от 23.01.2021
 
 Accept - Too Mean to Die (2021) [MP3|320 Kbps] <Heavy Metal>
@@ -715,35 +744,6 @@ Cave of Swimmer - Aurora (2021) [MP3|320 Kbps] <Doom Metal, Progressive, Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35EE2CB2AEC92B2D067DD1178F602136E64CE53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449679   (1029677) от 22.02.2021
-
-Rob Zombie - The Lunar Injection Kool Aid Eclipse Conspiracy (2021) [MP3|320 Kbps] <Hard Rock, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expanding The Head Of Zed [00:00:54]
-02. The Triumph Of King Freak (A Crypt Of Preservation & Superstition) [00:04:07]
-03. The Ballad Of Sleazy Rider [00:03:03]
-04. Hovering Over The Dull Earth [00:00:23](   Читать дальше...   )Жанр: Hard Rock, Industrial MetalПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E997AA047A17DC48AC4991632C512B4FFFAC06B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

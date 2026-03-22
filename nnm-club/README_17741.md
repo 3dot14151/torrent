@@ -1,25 +1,24 @@
-###  Публикация: 1261855   (298600) от 13.11.2018
+###  Публикация: 1330069   (303547) от 25.10.2019
 
-Welshly Arms - No Place Is Home (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Blues Rock, Indie Rock>
+Санта Монтефиоре, Саймон Себаг-Монтефиоре | Королевские кролики Лондона (2019) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298600.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All The Way Up
-02. Indestructible
-03. Sanctuary
-04. How High(   Читать дальше...   )Жанр: Alternative Rock, Blues Rock, Indie RockПродолжительность: 00:50:17
+Маленький кролик Шайло такой медлительный и неуклюжий. Хотя его братишки и сестрёнки бойкие и быстрые. Вечно они подшучивают над бедным Шайло!
+Однажды Шайло узнаёт о подлом плане Крысорацци – злейших врагов королевской семьи за всю историю Англии. Они затеяли выставить Королеву на посмешище всему миру!
+Сможет ли Шайло постоять за честь Королевы? Ведь ему предстоит (   Читать дальше...   )Жанр: Детские сказкиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BE72CDA01949BEBC70664C7EA646F7EE3BE0E13
+magnet:?xt=urn:btih:25059C06EED665794BA72BD6AE7A08C6B3F5105E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261928   (298599) от 13.11.2018
+###  Публикация: 1333595   (303546) от 25.10.2019
 
-Александр Войкин | Оруженосец (2018) [FB2]
+Г. Лагерлёф и др. | Принц Альве. Сборник сказок (2018) [FB2]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298599.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Он пришел в этот мир человеком, но оказался зараженным, день за днем теряя остатки жизни в погоне за светом. Чтобы выжить, ему предстоит стать воином, не знающим пощады, вкусившим горечь потерь и поражений. Боги недружелюбного мира ненавидят его, но Смерть сделала ставку на одинокого воина, а прошлое позволит ему добиться силы. Или же вновь бросит в пучину забвения? (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
+Накануне летних каникул родители задумываются, что выбрать для детского православного чтения, как сделать чтение на отдыхе душеполезным? Многие зарубежные христианские писатели сочиняли замечательные сказочные истории, которые станут благодатным и радостным чтением для всей семьи — ведь сказки любят не только маленькие дети! Сборник сказок «Принц Альве» отличают (   Читать дальше...   )Жанр: Поучительные сказкиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC8CFA90F10364BCA5EA2883FC61E103B255ABAD
+magnet:?xt=urn:btih:C2FBC0D13F1B07A1E0AD20169433DA0C055DFEBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261859   (298598) от 13.11.2018
+###  Публикация: 1333579   (303545) от 25.10.2019
 
-Эдвард Сент-Обин | Патрик Мелроуз. Книга 1 [сборник] (2018) [FB2]
+Мэри Нортон | Великанов больше нет? (2018) [MP3]
 
->>Художественная литература
->>Современная поэзия и проза
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298598.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Цикл романов о Патрике Мелроузе явился для меня самым потрясающим читательским опытом последнего десятилетия», – писал Майкл Шейбон. Ему вторили такие маститые литераторы, как Дэвид Николс («Романы Эдварда Сент-Обина о Патрике Мелроузе – полный восторг от начала до конца. Читать всем, немедленно!»), Алан Хол лингхерст («Эдвард Сент-Обин – вероятно, самый блестящий (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
+Мальчик Джеймс, герой сказочной повести известной английской писательницы Мэри Нортон, попадает в причудливый мир, где легко и забавно переплетены сюжеты старинных сказок. В выдуманной стране ему предстоит пережить нешуточные испытания, проникнуть в великанье логово и спасти принцессу от заклятия - как и положено настоящему мальчишке, даже если он предпочитает сказкам (   Читать дальше...   )Жанр: Детская литература, приключенияПродолжительность: 03:38:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF4F78DA5015BAEAB3F8D8D7F4DA014CAEBD2818
+magnet:?xt=urn:btih:6F6FCFE3962A664C02C31D7D8B4134B4BD57AD52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261953   (298597) от 13.11.2018
+###  Публикация: 1333485   (303544) от 25.10.2019
 
-VA - Reverence: Deep House Exrta Mixes (2018) [MP3|320 Kbps] <Deep House, Electro>
+Yesterday / Yesterday (2019) BDRip [H.264/720p]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298597.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Demax - Galantis
-002. The Coachella - Give Me Love (Original Mix)
-003. Markwood - Goodbye
-004. Gagoled - Sunbath(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:31:29
+Еще месяц назад Джек был обычным неудачником. Теперь он суперзвезда, миллионы людей слушают его песни, билеты на концерты раскупаются за секунду. В чем секрет? Все просто. Джек — единственный человек в мире, кто помнит о существовании The Beatles.Производство: Великобритания, Россия, Китай / Etalon Film, Working Title FilmsЖанр: Мюзикл, фэнтези, мелодрама, комедия, музыкаРежиссер: Дэнни БойлАктеры: Химеш Патель, Лили Джеймс, Джоэль Фрай, Эд Ширан, Кейт Маккиннон, Мира Сайал, Санджив Бхаскар, Софи Ди Мартино, Эллиз Шаппелль, Гарри МишельПеревод: Дублированный, авторскийСубтитры: Русские (forced, full), Английские (Full, SDH)Продолжительность: 01:56:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAE51F4FC4EACB605A595F0B6FF422E1B6817E86
+magnet:?xt=urn:btih:A2E717CEC6292ABD14F8A4669663F92C5A711293
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,80 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261965   (298596) от 13.11.2018
+###  Публикация: 1333564   (303543) от 25.10.2019
 
-VA - Progressive House Project (2018) [MP3|320 Kbps] <Progressive House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298596.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tigran Oganezov - Sexciter
-002. Deljoi - Take It Back Jack
-003. Douglas Greed - Down Here
-004.  Klangdeko - Haubutze(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 09:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F74E3F0F446C4B5E1B85EBCD966323D93B1E280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175095   (298595) от 13.11.2018
-
-Kiasmos - Discography 9 Releases (2009-2018) Erased Tapes Records [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Tech House, Modern Classical, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zebra (03:43)Тип издания: CD, WebЖанр: Tech House/Modern ClassicalПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A13744B1D2566ADA9461393483699EA04B0D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262077   (298594) от 13.11.2018
-
-Дэн Симмонс | Песнь Кали (2018) [MP3]
+Наташа | Когда солнце станет белым (2018) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298594.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журналист и поэт Роберт Лузак получил от редакции своего журнала задание отправиться в Индию, где должен получить для публикации в Америке рукопись поэмы М. Даса. Лузак человек образованный, предрассудки и суеверия ему чужды. Но первый же день, проведённый в Калькутте полностью выбил его из колеи... А дальше события вокруг рукописи и личности самого Даса, который (   Читать дальше...   )Жанр: МистикаПродолжительность: 08:38:07
+Анна – любитель путешествовать. Друзья, живущие на тропическом острове в Таиланде, приглашают девушку в гости. Кто бы мог подумать, что обычная поездка обернётся невероятными событиями. Знакомство со странным молодым человеком из Финляндии поначалу вызывает у героини смешанные чувства, а после переворачивает привычную картину мира. Анне предстоит выяснить тайну Ааро, (   Читать дальше...   )Жанр: Любовно-фантастический романПродолжительность: 07:23:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D57A44256C7AB6A41D7C9ABA5F48E27906F830A8
+magnet:?xt=urn:btih:F50153F1228FDD3E386676675440CDCD3D5A6771
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,25 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262111   (298593) от 13.11.2018
+###  Публикация: 1333570   (303542) от 25.10.2019
 
-NGW. Голый землекоп: Самый странный супергерой в природе / Naked Molerat. Nature's Weirdest Superhero (2017) HDTVRip [H.264/1080p-LQ]
+Crystal Ball - 2020 (2CD) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298593.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Внешний вид - это еще не все. Несмотря на свою неприглядную наружность, голому землекопу можно позавидовать. Он живет до преклонного возраста, никогда не болеет и практически не чувствителен к боли.Производство: Германия, Taglicht Media, ZDF and ARTE, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Герберт ОствальдПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+Жанр: Hard 'n' HeavyПродолжительность: 01:21:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EF5CFDCDB5ACA64920E7EFCE87F93947C9AD1C7
+magnet:?xt=urn:btih:878605A5334356D136AF7249D6A2991DA6983651
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +156,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261390   (298592) от 13.11.2018
+###  Публикация: 1333456   (303541) от 25.10.2019
 
-Марк Розин | Как спасти или погубить компанию за один день. Технологии глубинной фасилитации для бизнеса (2018) [FB2]
+VA - Your Bass List (2019) [MP3|257-320 Kbps] <DnB, Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303541.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Panix - Socery
+002. Untrue - Sacrifice
+003. Nacho Sotomayor - Wonderful
+004. Hugh Hardie - Endless(   Читать дальше...   )Жанр: DnB, BassПродолжительность: 09:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E55BA224272EB7B8AE6F701BB2E8DECCE1F987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333234   (303540) от 25.10.2019
+
+И. Славин | Вредительство на фронте советского уголовного права (1931) [PDF]
 
 >>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298592.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сложные ситуации возникают в компаниях и в моменты кризиса, и в периоды роста. Руководителям и сотрудникам не всегда удается найти общий язык и прийти к консенсусу. В этот момент на помощь приходят фасилитаторы – люди, которые помогают наладить диалог в компании. Благодаря фасилитаторам участники дискуссии наконец слышат друг друга и приходят к конструктивному решению. (   Читать дальше...   )Жанр: Управление и подбор персоналаФормат: FB2
+Предлагаемые очерки преследуют цель — разоблачить вредительские приемы врага и показать их в своей контрреволюционной наготе.
+
+Один из излюбленных методов маскировки представителей враждебной идеологии — переодевание в советские одежды. Цель оправдывает средства и враг не останавливается даже перед таким цинизмом, как переодевание покойников — своих былых единомышленников.Жанр: История, политология, социология, правоведение, публицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EEDA96FDDD3BBB33D093CC8D876C218D32225A4
+magnet:?xt=urn:btih:101BA93D209AB6DBA2CF40E92F9C7BD214134C86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,28 +213,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262100   (298591) от 13.11.2018
+###  Публикация: 1333493   (303539) от 25.10.2019
 
-Tanita Tikaram - Tanita Tikaram (Acoustic) (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop. Acoustic>
+Сансара - The Best Of, Pt. 2 (2013-2019) (2019) [MP3|320 Kbps] <Rock>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298591.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – My Love (Acoustic)
-02 – Valentine Heart (Acoustic)
-03 – Wonderful Shadow (Acoustic)
-04 – Only the Ones We Love (Acoustic)(   Читать дальше...   )Жанр: Pop. AcousticПродолжительность: 00:31:39
+1. К осени
+2. Почему ты танцуешь так мало
+3. Все смотрят только на тебя
+4. Тянет(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D5C48BCC71F83DE8868B69AEEB456FA7480E905
+magnet:?xt=urn:btih:6741A4590B9AB9C6416F927E1387C2427FD3C23E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,54 +242,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262023   (298590) от 13.11.2018
+###  Публикация: 1183716   (303538) от 16.11.2017
 
-Skype 8.34.0.78 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9669E653F7D53CBE52CC8E6AEE3B5E0A8CE5863E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262036   (298589) от 13.11.2018
-
-VA - Disco 80's Rare & Special Versions Vol. 1-2 (2016) 2CD, Compilation [MP3|320 Kbps] <Euro-Disco, Italo-Disco, Eurodance>
+Rare Gems - Million Dollar Disco (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
 
 >>Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298589.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joy - Touch By Touch (Extra Long Version) (6:00)
-02. Koto - Theme From Koto (Special Version) (3:46)
-03. Divine - Shoot Your Shot (Unreleased Version) (4:24)
-04. Wow - Bring On The Man (US Special Remix) (4:09)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EurodanceПродолжительность: 02:24:27
+01. Milion Dollar Disco (5:13)
+02. You've Got My Love (4:14)
+03. Love's Hall Of Fame (4:09)
+04. Music Is For Dancing (4:23)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:30:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC0C8E579CEEAD28E2C314E7CC263CB4E632EFEE
+magnet:?xt=urn:btih:03541882FA1EB306F11879CE32CCA41181A402BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,86 +271,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261867   (298588) от 13.11.2018
+###  Публикация: 1184055   (303537) от 16.11.2017
 
-Napoleon Solo - Open Channel D (2018) [MP3|320 Kbps] <Jamaican Ska, Reggae, Rhythm & Blues>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need
-02.   5 9
-03. Hot as Ice
-04. Nobody Told Me(   Читать дальше...   )Жанр: Jamaican Ska, Reggae, Rhythm & BluesПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102620D8904B7703CDE4F5F4D3FAD591F199A941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262030   (298587) от 13.11.2018
-
-VA - Disco 80's Rare & Special Versions Vol. 1 (2016) Compilation [FLAC|Lossless|tracks + .cue] <Euro-Disco, Italo-Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy - Touch By Touch (Extra Long Version) (6:00)
-02. Koto - Theme From Koto (Special Version) (3:46)
-03. Divine - Shoot Your Shot (Unreleased Version) (4:24)
-04. Wow - Bring On The Man (US Special Remix) (4:09)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EurodanceПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98CF702695EAB94E36B91D0F1A37B2471C4FA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261957   (298586) от 13.11.2018
-
-VA - 200 Popular November Songs (2018) [MP3|320 Kbps] <Pop>
+VA - EDM Lover: Rave Ultimate Dance Party (2017) [MP3|320 Kbps] <Club, Dance, Electro House>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298586.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ewa Farna - Interakcja
-002. 5 Seconds Of Summer - Killer Queen
-003. Jason Derulo - Make Up Feat Ava Max
-004. Paula Biskup - Wyliczanka(   Читать дальше...   )Жанр: PopПродолжительность: 12:09:46
+001. Yellow Claw - Good Day (feat. DJ Snake & Elliphant)
+002. Tim Lighterz - HeadRush (Extended Mix)
+003. Deetox - Don't Let Go
+004. The Avener - I Need A Good One (feat. Mark Asari)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:18:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DE510E4D2C85EF734EDA7ACE7C82C2571773D59
+magnet:?xt=urn:btih:2D3A261159CE6DA55A60FB515CD3C4CB84F780A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,25 +300,278 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332394   (298585) от 27.10.2019
+###  Публикация: 1184225   (303536) от 16.11.2017
 
-Максим Кузнецов | Российское неоязычество. История, идеи и мифы (2018) [DJVU, PDF, FB2, DOC]
+Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium
+02. The Flower Born Of Itself
+03. Dark Daughter Of The Snake
+04. The Hundred Names Of Kali Ma(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184017   (303535) от 16.11.2017
+
+VA - Italian Vacation: Radio Italo Disco (2017) [MP3|320 Kbps] <Disco, Italo Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303535.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Italove - No Fear (Flashback Remix)
+002. Italove feat. TQ - I Need Your Love (Extended)
+003. Mrs. Blue - Never Enough (BCR Extended Disco Mix)
+004. Maxthor - Flamingos (New Extended Version)(   Читать дальше...   )Жанр: Disco, Italo Disco, PopПродолжительность: 12:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23DB7D68ECAABF17C6032C72CFC77DD22025AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184193   (303534) от 16.11.2017
+
+VA - Best of Deep House. Volume 8. The Unofficial Chords of Planet Ee [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Torry Deep - Ultraman [6:22]
+02. Gnork - The Unofficial Chords of Planet Ee [5:50]
+03. Techno Kid - Hypnosis [2:00]
+04. DeftoN - Single Journey [5:36](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77FEE5E3C4BA78CD7DC3D3EB83325DEC539F939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184064   (303533) от 16.11.2017
+
+Вечерний Ургант (2017.11.15) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:50Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30004488D3D768B80BF353FCA973D1A9F08D20FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184035   (303532) от 16.11.2017
+
+Privacy Eraser Free 4.30.2 Build 2415 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для очистки системы от мусорных файлов и реестра от ненужных записей. Позволяет уничтожить следы работы с web-сайтами, локальными документами, программами и т.п. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК, а также позволяет настроить очистку системы "под себя".Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D8B1C783537E0E8D8AA94BB7F3EDE65A45AE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184145   (303531) от 16.11.2017
+
+Yes - Yes (1969) Reissue, 1989, Atlantic [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond And Before (4:58)
+02. I See You (6:53)
+03. Yesterday And Today (2:52)
+04. Looking Around (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE27532614A860E6CC88C393FC2270C71D8C418F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184010   (303530) от 16.11.2017
+
+Kinza Browser 4.3.0 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kinza Browser - японский браузер на базе Chromium с дополнительными настройками, такими как жесты мышью, супер перетаскивание, управление поведением вкладок, многофункциональная боковая панель (закладки, RSS, история).Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B76D25C9F1FF0DA97CB742E342AC20B55DD9F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184190   (303529) от 16.11.2017
+
+VA - Best of Chill House 2017. Volume 3. The Dream About You [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Chill House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Costa - Lolapalooza [5:35]
+02. Performative Mode - Path Of Motions [7:21]
+03. Marga Sol - Cafe del Amor [3:52]
+04. Freux - Bernie [6:04](   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 05:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F854BF1B54065963124B04071A722082D367043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183949   (303528) от 16.11.2017
+
+Gregg Wright's Left Hook - Round One (1995) [FLAC|Lossless|image + .cue] <Blues Rock, Extended Jams>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drivin' to New Orleans  (03:36) 
+02. Heidi Ann  (03:42) 
+03. Between Heaven and hell  (06:55) 
+04. .....or die trying  (06:41) (   Читать дальше...   )Жанр: Blues Rock, Extended JamsПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25316495596121F9E0FED40895B6EB720B0F2407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184099   (303527) от 16.11.2017
+
+Схиархимандрит Гавриил (Бунге) | Гнев, злоба, раздражение (2014) [PDF, DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298585.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автор этой книги - Максим Николаевич Кузнецов, сотрудник Миссионерского отдела Рязанской епархии, более 7 лет изучающий неоязычество. В этой книге он рассказывает об истории появления неоязыческого движения в России, рассматривает идеи и способы неоязыческой пропаганды, а также приводит разбор наиболее тиражируемых мифов неоязычества. По словам издателей, книга может (   Читать дальше...   )Жанр: РелигиоведениеФормат: DJVU, PDF, FB2, DOC
+От издателя:
+Евагрий Понтийский, как никто другой, разработал учение о гневе. Он был и великим учителем молитвы и мистической жизни. Схиархимандрит Гавриил анализирует то духовное ведение, которого достиг понтийский монах.Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7FD29DB9CA5E6586E75C4F30A44041DD9AF6CD1
+magnet:?xt=urn:btih:27212D7A870BE8374973FA0D15A1B3FB68805B56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,25 +579,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333976   (298584) от 27.10.2019
+###  Публикация: 1184125   (303526) от 16.11.2017
 
-Любовь слепа / Love Is Blind (2019) WEB-DLRip [H.264/720p-LQ][MVO] [AD]
+VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2017) [FLAC|Lossless|tracks] <Trance,Progressive House>
 
->>
->>
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_298584.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Элизабет страдает от селективного восприятия: она не видит собственную мать и думает, что та умерла. Ее психотерапевт предлагает ей в качестве лечения проводить время с Расселом, парнем с суицидальными наклонностями. Рассел влюбляется в Элизабет, вот только проблема в том, что она его тоже не видит.Производство: США / Locomotive, Regency EnterprisesЖанр: Драма, комедияРежиссер: Монти Уайтблум, Энди ДеланиАктеры: Шеннон Тарбет, Эйдан Тёрнер, Бенджамин Уокер, Мэттью Бродерик, Клоэ Севиньи, Марк Блум, Джейсон Фукс, Кэбби Бордерс, Сторми Эзра Бир Уайтблум, Катрина ЛенкПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:32:54Реклама: Присутствует баннер.
+01 Markus Schulz Presents Dakota - In Search Of Something Better (Extended Mix)
+02 Nifra - Never Forget (Extended Mix)
+03 Cosmic Gate & JES - Materia (Extended Mix)
+04 Gai Barone - Bus-Hill (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 02:18:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D761977B1714FB451DE23F2A2DF2BD6989A3F492
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,25 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334086   (298583) от 27.10.2019
+###  Публикация: 1184188   (303525) от 16.11.2017
 
-Экшены - GraphicRiver - Nebula Photoshop Action - 24837553 [ATN, ABR]
+Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_298583.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nebula - этот профессиональный экшен фотошоп даёт вашим изображениям, фотографиям удивительный эффект разноцветной туманности. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR
+1. 	Insane
+2. 	Terror Tactics
+3. 	Impalement Execution
+4. 	Spectral War(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:41:11
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BD29A203F5056CB6A250E700E37C5B6E0C1886F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,25 +637,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333944   (298582) от 27.10.2019
+###  Публикация: 1184176   (303524) от 16.11.2017
 
-Канарские острова / Die Kanarischen Inseln / The Canary Islands (2016) BDRip [H.264/1080p] (серии 1-2 из 2) [PR]
+VA - Vocal Dubstep: Radical Party (2017) [MP3|320 Kbps] <Dubstep, Bass, DnB>
 
->>
->>
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_298582.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Северо-Западная Африка, тысячи километров голой, выжженной пустыни. У этого побережья находится небольшой, удаленный архипелаг, окруженный Атлантическим океаном. Семь вулканических островов, и каждый из них – отдельный мир. Здесь теплые экваториальные течения смешиваются с холодными водами северной Атлантики. Планктон поднимается с глубины и собирается у поверхности (   Читать дальше...   )Производство: Австрия, Дания, Швеция, Science Vision Filmproduktions, Danmarks Radio, Sveriges TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Майкл ШламбергерПеревод: Одноголосый профессиональныйПродолжительность: 2 x ~00:50:00
+01. ENiGMA Dubz - The Woods
+02. DJ Snake & Yellow Claw - Ocho Cinco
+03. Skrillex - Kyoto VIP (feat. Sirah)
+04. Teddy Killerz - Bhaaloo(   Читать дальше...   )Жанр: Dubstep, Bass, DnBПродолжительность: 03:57:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:138413204EA853534A7443C04C52B2449324D8AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,28 +666,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334122   (298581) от 27.10.2019
+###  Публикация: 1184093   (303523) от 16.11.2017
 
-Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+Харвест (изд.) | Акафистник [4 книги] (2007) [PDF, DJVU]
 
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298581.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ça fait si longtemps (4:26)
- 02. C'est parce que je t'aime (3:17)
- 03. Le bonheur (3:35)
- 04. Je sais qu'un jour (2:35)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:35
+Акафист - жанр церковной гимнографии, который представляет собой хвалебную песнь в честь Бога, Богородицы или святого. В настоящем издании содержится более 200 акафистов, включенных в обиход Рус­ской Православной Церкви.
+ВЖанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07C8D64DC45CE820516B0F4F7EA656E8FF467834
+magnet:?xt=urn:btih:AE2D1286A26B190517A8BE216E3051AC73BF281B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,158 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334070   (298580) от 27.10.2019
+###  Публикация: 1183758   (303522) от 16.11.2017
 
-Экшены - Creative Market - The Phoenix - Fire Explosion - 4108857 [ATN, ABR]
+Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, Disco>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298580.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Phoenix - Fire Explosion -  это действие Photoshop преобразует ваши фотографии в профессиональный взрыв с эффектами вспышки огня. Очень подробный результат, много возможностей для легкой настройки и улучшения. Это действие специально сделано для фотографов, графических дизайнеров и художников.. Каждый раз, когда вы запускаете действие, вы получите уникальный результат, (   Читать дальше...   )Формат: ATN, ABR
+1. Tonight (feat. Kidsaredead) (05:39)
+2. Dance Boys (feat. Paulita Demaíz) (03:45)
+3. Canadian Ranger (04:55)
+4. Andrè (05:09)(   Читать дальше...   )Жанр: Pop, Electropop, DiscoПродолжительность: 00:39:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85C36BB4EB59DFD3BE2178A3BCC2D544A451CC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333997   (298579) от 27.10.2019
-
-Экшены - GraphicRiver - Modern Artist Photoshop Action - 23353213 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Artist - экшен фотошоп превратит ваши изображения в красочное художественное полотно в стиле модерн. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E32C24B4985C191A812F8A464E9E0CBC05C80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333744   (298578) от 27.10.2019
-
-VA – Super Instrumental Vol.3 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F. Goya - Historia De Un Amor
-02. R. King - Love Story
-03. Space - Secret Dreams
-04. F. Duval - Mandala(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEBCFACA884D7FA89177392596FB5B72494FEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333959   (298577) от 27.10.2019
-
-Frank Miller | Артбук по комиксу Город грехов / The Art of Sin City (2014) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки из комикса Город греховЖанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED271F32889F81AB32C6D65191A800B135FE85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333957   (298576) от 27.10.2019
-
-Brian Stelfreeze | Артбук художника Brian Stelfreeze / The Signature Art of Brian Stelfreeze (2016) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки художника Brian StelfreezeЖанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2028D0ECBCEAD3211E14317AC6225E534F41DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333991   (298575) от 27.10.2019
-
-6 дней / 6 Days (2017) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1980 году по Лондону молниеносно разлетелась новость о террористической атаке, направленной на иранское посольство. Все началось с того, что группа неизвестных ворвалась в здание посольства и взяла в плен всех его сотрудников. Власти пытались договориться с террористами, однако их требования были невыполнимыми. Руководство спецназа приняло решение взять штурмом (   Читать дальше...   )Производство: Новая Зеландия, Великобритания, General Film CorporationЖанр: Боевик, триллер, драма, историяРежиссер: Тоа ФрейзерАктеры: Джейми Белл, Марк Стронг, Эбби Корниш, Мартин Шоу, Бен Тернер, Иман Эллиотт, Аймен Хамдуши, Эндрю Грэйнджер, Колин Гарлик, Te Kohe TuhakaПеревод: Многоголосый профессиональный, многоголосый любительскийСубтитры: АнглийскиеПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BE0A45DD437B5F8D78FD603F9B176A6665369A
+magnet:?xt=urn:btih:99E659EC69B6D66511933CE80496B9BCDAB8A5CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

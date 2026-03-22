@@ -1,3 +1,148 @@
+###  Публикация: 1033336   (637937) от 11.07.2016
+
+Herman Rarebell & Friends - Herman's Scorpions Songs (2014) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Of You Like A Hurricane (Bobby Kimball of TOTO)    04:09
+02. Passion Rules The Game (John Parr)    03:48
+03. Loving You Sunday Morning (Michael Voss of MAD MAX)    03:34
+04. Is There Anybody There? (Alex Ligertwood of SANTANA)    04:06(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEDABB47CF55A9CBC0018C70DD09BE382AAFBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907752   (637626) от 12.06.2015
+
+Billy Joel - The Hits (2010) Remastered [MP3|320 кб/с]<Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Loves You Now
+02. Piano Man
+03. The Entertainer
+04. New York State of Mind(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B166F8886979B4983561A0DA3B78F7648F3FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541429   (637403) от 07.04.2022
+
+Stoned Apes - Monkey Sounds (2022) [MP3|320 Kbps] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sludge [00:03:52]
+02 Tune In [00:03:40]
+03 Underworld [00:03:08]
+04 Guru [00:04:24](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC09EC00EAE43B6D27B3EE4F6763718E141DB9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541433   (637389) от 07.04.2022
+
+The Basement Tribe - Path to the Temple (2022) [MP3|320 Kbps] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Nation of Wizards [00:09:00]
+02 Desert Shrine [00:05:14]
+03 Red Morning [00:06:08]
+04 Dune Walk [00:04:03](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34EDCB837FA2220D50F9E47A1BA286C144F591C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541378   (637386) от 07.04.2022
+
+Gggolddd - This Shame Should Not Be Mine (2022) [MP3|320 Kbps] <Gothic Rock, Trip-Hop, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish I Was a Wild Thing with a Simple Heart (2:43)
+02. Strawberry Supper (3:06)
+03. Like Magic (3:41)
+04. Spring (3:39)(   Читать дальше...   )Жанр: Post-Punk, Gothic Rock, Post-Metal, Trip-Hop, Female VocalПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220C94F6178867FAD7CDF4B16DC14856FCF17EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541454   (637250) от 07.04.2022
 
 Caught in Action - Devil's Tango (2022) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
@@ -624,157 +769,6 @@ The Alan Parsons Project - 5 Albums (1977-1986) (Japan Paper Sleeve SHM-CD) (200
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035113   (630587) от 15.07.2016
-
-Tomorrow - Tomorrow (1968) Reissue, 1991, See For Miles Records Ltd. [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My White Bicycle
-2. Colonel Brown
-3. Claremont Lake
-4. Real Life Permanent Dream(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59857F78EC504584E2FC192E1CA5C68816E3096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035119   (630584) от 15.07.2016
-
-Fever Tree - Fever Tree / Another Time Another Place (1968) 2006 Reissue Collectors' Choice Music [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630584.jpg" />
-</div>
-
-
-###  Подробнее
-
-FEVER TREE
-01. Imitation Situation (Toccata And Fugue) / Where Do You Go?
-02. San Francisco Girls (Return Of The Native)
-03. Ninety-Nine And One Half(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80341E1385D3C5B9ABDBB8F95510DDAE35ADFE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294348   (629990) от 07.04.2019
-
-Thump'n Pig & Puff'n Billy - Downunda (1973) CD, Remastered, 2005, Aztec Music [MP3|320 Kbps] <Classic Rock, Blues Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Straightman
-02. I've Cried over You
-03. You Look After Me, I Look After You
-04. Moving with Rock(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Rock'n'RollПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4800413C9477A4E20B539DD0B2F599D399314768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521024   (628804) от 10.07.2012
-
-Asia - The Platinum Collection 1982-2010 (5 CD Box Set) (2011) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628804.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Showdown
-02. Countdown To Zero
-03. End Of The World
-04. The Longest Night
-05. Wishing
-06. Through My Veins
-07. You're The Stranger
-08. Wherever You Are
-09. Rock And Roll Dream(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03FD20ABECD8C924691CE23CCEE9BAB548C8638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035125   (628672) от 16.07.2016
-
-Mutzie - Light of Your Shadow (1970) Reissue Synton Archive Productions[MP3|320 Kbps] <Heavy Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628672.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Highway
-2. The Light Of Your Shadow
-3. Cocaine Blues
-4. Jessie Fly(   Читать дальше...   )Жанр: Heavy Psychedelic RockПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838894275CA74B0C0DDC43DBA5EE127EBC7AAD5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1617130   (1035552) от 05.03.2023
+
+The J.Geils Band - Hotline  (1975) [FLAC|Lossless|tracks + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035552.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love-Itis 4:37
+2. Easy Way Out 4:04
+3. Think It Over 4:40
+4. Be Careful ( What You Do ) 4:04(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5581B3CEF3E79B61CD4457B9A51B2723BE90DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617026   (1035549) от 05.03.2023
+
+Astral Magic - The Last Survivors on Planet Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Survivors on Planet Earth [00:06:50]
+02. Monsters from the Id [00:05:20]
+03. Dawn of a New Age [00:06:40]
+04. Message from Within [00:05:24](   Читать дальше...   )Жанр: Psychedelic, Space Rock, Prog RockПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2342DDC08CAD295A61684DDF8F4728A822FD38E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617405   (1035369) от 06.03.2023
+
+Dave Kerzner - 2 Studio Albums (2021) (2xCD) [WavPack|Lossless|image + .cue] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035369.jpg" />
+</div>
+
+
+###  Подробнее
+
+All Worlds Live at Rosfest (2019):
+01. Stranded
+02. The Lie
+03. Secret(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 02:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A3706E9FD594F544FEA21749B504FF3E5E99C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443752   (1035217) от 30.01.2021
+
+The Romantics - Strictly Personal (1981) [WavPack|Lossless|image + .cue] <Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Nighttime
+02. Look At Her
+03. No One Like You
+04. Bop(   Читать дальше...   )Жанр: Power PopПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6A27CBAA1FCE3AD6D2F8ABF482BD0F45207B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617463   (1035046) от 07.03.2023
 
 The Inspector Cluzo - Horizon (2023) Scene [FLAC|Lossless|tracks] <Rock>
@@ -629,122 +745,6 @@ First Signal - Face Your Fears (2023) Japanese Edition [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57AA1ECE26B5BD1477876ED8A2E20A16EDD02FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620169   (1032327) от 19.03.2023
-
-Steve Augeri - Seven Ways 'Til Sunday (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (5:09)
-02. Never Far From Home (5:26)
-03. Bated Breath (3:23)
-04. Drive (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F55AEFBD76C788D2F8C456C5C666E986701AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620172   (1032317) от 19.03.2023
-
-Gabrielle de Val - Kiss In A Dragon Night (2023) [FLAC|Lossless|image + .cue] <Melodic Rock / AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take on the World (3:38)
-02. When Midnight Comes (with Mark Boals) (4:15)
-03. Moonlight Shadow (3:46)
-04. Kiss in a Dragon Night (with Robin McAuley) (4:12)(   Читать дальше...   )Жанр: Melodic Rock / AORПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7147F94619028F1420A132494B7DBFC610E088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620330   (1032142) от 20.03.2023
-
-The Waking Sleeper Band - Planetarium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planetarium [00:04:55]
-02. Astral Mathematics [00:03:42]
-03. The Earth Is the Center [00:03:43]
-04. Perception [00:04:14](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01518CCBD68350E1A9A4FBA5A39814E434C709B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620346   (1032135) от 20.03.2023
-
-Inner Prospekt - Canvas Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scratches [00:08:03]
-02. The Island of Despair [00:11:47]
-03. A Wordless Fable [00:11:20]
-04. The Showdown [00:20:16](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6893A9F2DC238EA0039AA242C0A8B47650A097
 ```
 
 https://mybot314.ru/tekegram_catalog/

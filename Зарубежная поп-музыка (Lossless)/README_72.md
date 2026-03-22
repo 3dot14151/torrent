@@ -1,3 +1,235 @@
+###  Публикация: 1625730   (241517) от 11.04.2023
+
+Ellie Goulding - Higher Than Heaven (2023) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Dreams (03:12)
+02. Cure For Love (02:57)
+03. By The End Of The Night (03:08)
+04. Like A Saviour (03:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B210575377F1F55FF84739CEB23B214233897590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625687   (241459) от 11.04.2023
+
+VA - Soul Hit Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Taylor - How Sweet It Is (To Be Loved By You)  [03:35]
+02. Otis Redding - Shake  [02:40]
+03. Talking Heads - Take Me to the River (2005 Remaster)  [05:03]
+04. Rod Stewart - It Takes Two (2008 Remaster)  [04:14](   Читать дальше...   )Жанр: R&B, Soul, FunkПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9A3F9508EF7192D203830CD64D4CB45513FB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618741   (241315) от 12.03.2023
+
+Gwen Stefani - Love.Angel.Music.Baby. (2004) 15th Anniversary Edition, 2020, Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You Waiting For?                    [03:41]
+02. Rich Girl                                [03:56]
+03. Hollaback Girl                           [03:19]
+04. Cool                                     [03:09](   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50061CA8ABCCC9051BFD9A0C287066F3E075C109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618583   (241307) от 12.03.2023
+
+VA - String Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241307.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coldplay - Viva La Vida                                 [04:02]
+   2. Liam Gallagher - All You're Dreaming Of                 [04:01]
+   3. Regina Spektor - Fidelity                               [03:47]
+   4. Ben Abraham - If I Didn't Love You                      [04:06](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AB422EFFF4BACAB585B42BA6DF24BED8CD55AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625825   (240700) от 12.04.2023
+
+VA - 00's Super Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay - Viva La Vida                                          [04:02]
+   02. Jay-Z - Numb / Encore                                            [03:25]
+   03. Gorillaz - Feel Good Inc                                         [03:42]
+   04. Green Day - Wake Me Up When September Ends                       [04:45](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C4595A5F51FC882575A82E63545E02F0DFF65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635327   (239907) от 25.05.2023
+
+The Jordan - Nowhere Near The Sky (2023) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Room
+02. What Was, Was Not
+03. Naked In The Sun
+04. Best Damn Day(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3615AE698370FA1D3CACB0FE819C0B4084F0D2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626851   (239876) от 17.04.2023
+
+Ann-Margret - Born To Be Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Around The Clock (feat. Joe Perry & Jim McCarty) (2:14)
+02. Bye Bye Love (feat. T.G. Sheppard) (2:36)
+03. Son Of A Preacher Man (feat. Steve Cropper & Brian Auger) (2:12)
+04. Earth Angel (feat. The Oak Ridge Boys & Harvey Mandel) (2:54)(   Читать дальше...   )Жанр: Pop Rock, Female VocalПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A400C5A8620ADF532F66B2B2C7E569BEFE7A7B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571826   (239760) от 23.08.2022
+
+Joe Dassin - Golden Disc (2005) Compilation [FLAC|Lossless|image + .cue] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salut
+02. A Toi
+03. Et Si Tu N'Existais Pas
+04. Le Cafe Des 3 Colombes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4621A4E27CBCE4570844C6322CD455A8B2D97DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621910   (239714) от 26.03.2023
 
 Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -513,239 +745,6 @@ Celine Dion - Love Again (Soundtrack from the Motion Picture) (2023) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6C8FD3FBD5CA5E083A46BC01E8E4E2F1791B91C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634210   (233658) от 19.05.2023
-
-Kesha (Ke$ha) - Gag Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something To Believe In
-02. Eat The Acid
-03. Living In My Head
-04. Fine Line(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C60AA8F31734C4827D2FD2FEFCFEEDF177E78C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634259   (233516) от 19.05.2023
-
-VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Boy - Forget You (2:27)
-02. Felix Jaehn - Call It Love (2:34)
-03. Glockenbach - YEAH (2:38)
-04. badmómzjay - Auf die Party (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 04:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800EE20958AA090381B6673F883E129D233A40A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634234   (233427) от 20.05.2023
-
-Victoria Anthony - New Disaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Disaster [00:03:26]
-02. Can't Hold Back [00:02:50]
-03. Better Boyfriend [00:03:19]
-04. Little Secret [00:02:59](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD0363314C2B9E928FD15D926B82D29449DAAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634604   (233236) от 21.05.2023
-
-Lana Del Rey - Say Yes To Heaven (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say Yes To Heaven
-02. Say Yes To Heaven (Sped Up)Жанр: Alternative PopПродолжительность: 00:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0C069D20E2A7DBB682F7C4F788471685C3F955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645663   (233106) от 10.07.2023
-
-Christopher Romberg - Stanna hos mig! (1992) [FLAC|Lossless|WEB-DL|tracks] <Pop, Schlager, Stage & Screen, Musical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skona manniskor - (Ingemar Olsson) - [02:24]
-02. Mitt sommarlov - (Britt Lindeborg) - [02:50]
-03. Musik ska byggas utav gladje - (Lill Lindfors) - [02:43]
-04. Jag skall mala hela varlden, lilla mamma - (Joss Toje) - [03:02](   Читать дальше...   )Жанр: Pop, Schlager, Stage & Screen, MusicalПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A7D7023F0452F193B9609699FF56CC32303289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643434   (232655) от 01.07.2023
-
-Sam Brown - The A&M Years 1988-1990 (2016) 4 x CD, Compilation, Remastered, Caroline International [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Samanhta Brown (7.10.964) - английская певица и автор песен. Ее родители - Joe Brown и Vicki Brown, к моменту рождения дочери, были уже известными фигурами на британской музыкальной сцене, поэтому, видимо, неизбежным стало то, что Samanhta последовала по их стопам. Первой студийной записью, которая принесла Sam первый гонорар, стали ее подпевки на альбоме In The (   Читать дальше...   )CD1 - Stop!:
-01. Walking Back to Me (3:43)
-02. Your Love Is All (4:09)
-03. Stop! (4:56)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 05:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9F82EC790CE3E88C9F21FF42E8333455B37BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635283   (232465) от 25.05.2023
-
-Tina Turner - Foreign Affair (Deluxe) (1989) 2021, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steamy Windows (2021 Remaster) (4:06)
-02. The Best (2021 Remaster) (5:30)
-03. You Know Who (Is Doing You Know What) (2021 Remaster) (3:48)
-04. Undercover Agent for the Blues (2021 Remaster) (5:20)(   Читать дальше...   )Жанр: PopПродолжительность: CD1: - 00:52:39
-CD2: - 01:26:12
-CD3: - 00:47:25
-CD4: - 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63EBD0D2986D6BCE1E2F9D6E68F73FDFC33B6C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643877   (232340) от 03.07.2023
-
-Marc Fruttero - Miracle (2023) [FLAC|Lossless|tracks] <Pop, Euro Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With Me Tonight (Extended Version) [00:05:18]
-02. Time On Your Mind (Italo New Generation Long Remix) [00:08:01]
-03. Look In My Heart (Extended Version) [00:07:49]
-04. Love Sign [00:05:05](   Читать дальше...   )Жанр: Pop, Euro DiscoФормат: CD, Album, Limited EditionПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47830CF8827C52D51D3DA1808F5DC500D57463A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

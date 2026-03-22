@@ -1,3 +1,90 @@
+###  Публикация: 1474268   (1013237) от 01.06.2021
+
+Venus Flycatchers - Scarred (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Me [00:04:46]
+02. Ball & Chain [00:04:09]
+03. Trust [00:04:31]
+04. Same Old Song [00:03:50](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA2C17D4EDE988D1CD7EBB3B60090887CC7A523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474201   (1013233) от 01.06.2021
+
+Phil Vincent - Stigmata (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No End In Sight 04:54
+02. My Darkness 06:51
+03. Time 05:01
+04. My Life 04:24(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0685899AF4A5EB5B058DA4C016316D991C5A8A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474214   (1013232) от 01.06.2021
+
+Bulbous Creation - You Won't Remember Dying (1994) Reissue, 2011, O-Music [FLAC|Lossless|image + .cue] <Acid Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The Page (4:48)
+02. Having A Good Time (4:09)
+03. Satan (6:05)
+04. Fever Machine Man (6:30)(   Читать дальше...   )Жанр: Acid Rock, Psychedelic RockПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704879470DE2148DE44ECC89C57CF8148ECC9BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474529   (1012910) от 03.06.2021
 
 Rod Marenna & Alex Meister - Out of Reach (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -656,93 +743,6 @@ King Company - Trapped (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B63230F39017C876F165932A6AB45B1710C11E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479709   (1009297) от 26.06.2021
-
-Fargo - Strangers D'Amour (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Of Champagne
-02. Gimme That Bone
-03. Closer To The Sun
-04. Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B28E1D8DA3DD482F35B095F9B96DE4E3B1C8FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480090   (1009164) от 27.06.2021
-
-Paul Gilbert - Werewolves Of Portland (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello North Dakota! 6:24
-02. My Goodness 3:32
-03. Werewolves of Portland 5:50
-04. Professorship at The Leningrad Conservatory 4:33(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9536E7BE1BE83E8387B92C5460D93AC77067E1EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480679   (1008688) от 30.06.2021
-
-Steel Rangers - Scarred for Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slaves of Addictions (05:04)
-02. Shattered Dream (04:03)
-03. Amanda (03:34)
-04. Silver Cross (05:33)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F283ECD96C039AFE7BDA012B9AD0D593B300AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

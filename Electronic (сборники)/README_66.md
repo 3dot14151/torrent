@@ -1,3 +1,96 @@
+###  Публикация: 318389   (772582) от 06.04.2011
+
+VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix) [08:10]
+02. Armin Van Buuren Feat. Christian Burns - This Light Between Us [05:09]
+03. Tony Igy - Astronomia (Original Mix) [05:58]
+04. Far East Movement Ft. The Cataracs & Dev - Like A G6 (Chew Fu Remix) [04:37]
+05. Avicii - Malo [07:14]
+06. Laurent Wery feat. Swiftkid - Hey Hey Hey [05:29]
+07. Black Eyed Peas - The Time [05:09]
+08. Nero feat. Alana - Me & You [04:31]
+09. DJ Feel, Matisse & Sadko - A Day To Remember [04:14]
+10. David Guetta & Snoop Dogg - Wet [05:42](   Читать дальше...   )Жанр: House, Electro, Trance, DanceПродолжительность: 02:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7658C8E7F8010790CAEAF7A586A30D778669CDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125368   (772101) от 14.04.2017
+
+VA - The Quest For Beauty Progressive Party House (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772101.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airwave - The Quest For Beauty (Jam El Mar Remix)
+002. Vintage & Morelli - Desire (Dezza Remix)
+003. Set Collins - Strangers
+004. Stan Kolev - Forsaken (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4776F4484F3E59EFAEA7CB047324AC6341E0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213342   (772006) от 16.03.2018
+
+VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synasthesie - Lotus (Clawz Sg Remix) [07:19]
+02. Nick Devon - Skyline (Mallone's City Lights Remix) [07:25]
+03. Frankye Lova, Stephan Seddel - Unstable [08:15]
+04. Jos & Eli, Sean Doron, Jenia Tarsol - Amore [08:27](   Читать дальше...   )Жанр: NeotranceПродолжительность: 04:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278346   (771915) от 25.01.2019
 
 VA - Urban Drum And Bass Arena (2019) [MP3|320 Kbps] <Drum and Bass, Electro Bass>
@@ -658,93 +751,6 @@ VA - Dominant Interaction Psy Trance Sound (2017) [MP3|320 Kbps] <Psychodelic Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1075A5503F529480C77A431057976B890B9F3A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278646   (768534) от 26.01.2019
-
-VA - A State Of Deep V [Compiled by ZeByte] (2019) [MP3|320 Kbps] <Progressive House, Melodic Techno, Neotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rustboy - Infinity Artifact [06:45]
-02. Alessandro Diga - End Of This Road (Marc Poppcke Remix) [07:20]
-03. Dahu - Hesia [06:20]
-04. Luis Sole - Green [07:41](   Читать дальше...   )Жанр: Progressive House, Melodic Techno, NeotranceПродолжительность: 05:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A14A2BCFB6DF48174BB706DF09F2E85B65A2D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278576   (768472) от 26.01.2019
-
-VA - Extreme Deep House Project (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Capitan - Renacimientos (Original Mix)
-002. Don Danny - Saturday
-003. Numedian - Balearic Winter (Original Mix)
-004. Gagoled - Sunbath(   Читать дальше...   )Жанр: Deep, Chill House, ElectroПродолжительность: 10:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB23348FDA04D893C4CDB669798BBA0A221276F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125256   (768450) от 14.04.2017
-
-VA - Музыка в Авто от LORDEGRAF (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eminem & 50 Cent feat. My Digital Enemy - You Don't Know (Artemy Love & A.Sattar)  5:37
-02.  Narcotic Thrust - I Like It (Just AMI Remix)  5:17
-03.  Sash! - Adelante (Ice Dmitriy Rs Remix)  4:47
-04.  DJ Sava feat. Irina Rimes - I Loved You (Extended Mix)  4:33(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 08:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FA22B520435B5836130D8D39C836AFBB9D3F5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,146 @@
+###  Публикация: 1221792   (691533) от 26.04.2018
+
+Marcus Meinhardt - 20 Years Best Of Marcus Meinhardt (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcus Meinhardt - Endjoy (Original Mix) (6:55)
+02. Marcus Meinhardt - Trouble (Original Mix) (7:53)
+03. Uone - Connections (Marcus Meinhardt Remix) (6:50)
+04. Marcus Meinhardt - For Her & For Him (Original Mix) (6:48)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E066A459179CD100BF3B8188174D43CF65CF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221711   (691532) от 26.04.2018
+
+Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klajoja (04:48)
+ 02. Perkunas (03:56)
+ 03. Gentis (03:56)
+ 04. Buk (07:12)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291D5B88B4DE5C7B49CE79C1869FE130E1262FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221596   (691266) от 26.04.2018
+
+Monolink - Amniotic (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amniotic (7:31)
+ 02. Black Day (5:37)
+ 03. Sirens (5:58)
+ 04. Rearrange My Mind (7:18)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEE791CB2204CAFAFE8FD9CF89763B695606D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028395   (690783) от 22.06.2016
+
+VA - Balkan Connection Summer 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subconscious Tales – Helligkeit (7:50)
+02. Vlada D'Shake – Public SecretЖанр: Deep House, Tech HouseПродолжительность: 06:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC5226D8690E604707D4CC2B8482B95B36D472A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028452   (690654) от 22.06.2016
+
+VA - Ministry Of Sound - Chilled House Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sigala - Give Me Your Love (John Newman & Nile Rodgers-The Rooftop Boys remix) (4:15)
+02. Mike Posner - I Took A Pill In Ibiza (Seeb remix) (3:19)
+03. Gorgon City - All Four Walls (feat Vaults) (3:12)
+04. Years & Years - Desire (feat Tove Lo) (3:23)(   Читать дальше...   )Жанр: Chill HouseПродолжительность: 04:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAE0D2AD04F5EA1F6A117FD485E3C9E35AB3ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534904   (690530) от 04.03.2022
 
 Blank & Jones - #WhatWeDoAtNight 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Indie Dance>
@@ -596,151 +739,6 @@ Twin Peetz | The Difference Engine - Discography 11 Releases (1998-2018) ODrex M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BFCA3C13F952D29418B77BA5B579CC3DB3524B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029692   (680341) от 27.06.2016
-
-VA - Summer Sessions 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar - My Lovin (Mat.Joe remix) (6:48)
-02. Ucha - Shosholoza (original mix) (7:33)
-03. Coeo - Humbled (original mix) (7:32)
-04. Karol XVII & MB Valence - What's That Say (original mix) (9:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B0C35339F97CA1EA5AFF7B993B1D1CB59E9A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029652   (680152) от 27.06.2016
-
-VA - Get Physical Music Presents: Body Language, Vol. 18 by Tim Green (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Green - Body Language, Vol. 18 (Continuous Mix)
-02. Sven Laux - Off You Go!
-03. Ole Biege - Justus
-04. Landside - Still There(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D74F80A61738B3D391FC704D0CB2D1F8493E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223138   (679367) от 02.05.2018
-
-PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natu (Original Mix) (10:40)
- 02. Cecilia (Original Mix) (7:10)
- 03. Magnolia (Original Mix) (8:11)
- 04. Natu (El Mundo Remix) (8:31)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34877643729E8AE8E8F3222F5054CB1B5A473940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290434   (678481) от 20.03.2019
-
-Lakker - Época (Epoca) (2019) R & S Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoulder to the Bat (04:21)
-02. 100 Bar (03:02)
-03. Nest (03:19)
-04. A Juggling of Numbers (05:07)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA08AF10B354781549A4A0C0F147B19DEB42908C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223244   (677281) от 03.05.2018
-
-Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Sun (Original) (8:23)
- 02. Burning Sun (DAVI Remix) (6:58)
- 03. Burning Sun (Be Svendsen Remix) (8:41)
- 04. Burning Sun (Just Emma's Just Take Me Back Mix) (10:30)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD48892E4A2CD26CF1BEFF8B3E319DF7BBFFD016
 ```
 
 https://mybot314.ru/tekegram_catalog/

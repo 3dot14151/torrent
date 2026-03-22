@@ -1,3 +1,177 @@
+###  Публикация: 1685322   (127221) от 18.12.2023
+
+VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ltj X-perience - Best Life (7:39)
+02. DOUT.D - Strolling (2:23)
+03. The Last Minister - Tribute To J.B. Family (6:20)
+04. Ice One - Dal Terrazzo (1:42)(   Читать дальше...   )Жанр: Smooth Jazz, Funk, ElectronicПродолжительность: 02:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A87A16FDA41063F44360119D21A41B6A69945F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685287   (127212) от 18.12.2023
+
+Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Night [3:29]
+02. Christmas Waltz [3:22]
+03. Everything's Not Lost [4:09]
+04. Someday at Christmas [2:55](   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB83819CE144E6E24E364436DF44AE4235328589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685291   (127210) от 18.12.2023
+
+Chet Baker - Chet Baker Sings: It Could Happen To You (1958) 2006, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Cool, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It the Hard Way [3:03]
+02. I'm Old Fashioned [5:05]
+03. You're Driving Me Crazy [2:56]
+04. It Could Happen to You [2:52](   Читать дальше...   )Жанр: Cool, Vocal JazzПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D29C09F8AE67EA8ADCCB19F00B47B5E28E0E36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685633   (127037) от 19.12.2023
+
+Mal Waldron Quintet - Mal-1 (1956) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stablemates [4:56]
+02. Yesterdays [7:51]
+03. Transfiguration [7:19]
+04. Bud Study [5:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915D3AF5AD585D447481D82D554197D02ABD0B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685626   (127035) от 19.12.2023
+
+Tina Brooks - Back To The Tracks (1960) 1993, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Tracks [8:08]
+02. Street Singer [10:22]
+03. The Blues and I [8:56]
+04. For Heavens Sake [6:05](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059390AABB8314BB1FBB77791FD89A32E1878DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685630   (127034) от 19.12.2023
+
+Toshiko Akiyoshi Jazz Orchestra featuring Lew Tabackin - Last Live In Blue Note Tokyo (2003) 2011, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Liberty [12:26]
+02. The Village [12:21]
+03. Unrequited Love [11:36]
+04. Hiroko's Delight [13:09](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Big BandПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019219B990C503EF7F321B87EF5D9EBBD6880E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685323   (126919) от 20.12.2023
 
 VA - Un poquito de Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -570,180 +744,6 @@ Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12811F8B1191DAEEE9C029BBC9881F1373343864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686787   (126178) от 24.12.2023
-
-Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Barbara [6:51]
-02. Afro Blues [5:33]
-03. Round About Midnight [10:13]
-04. Memphis Green [5:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86707B332CAFE2923B579808418611AAF45A976D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686791   (126177) от 24.12.2023
-
-Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filthy McNasty [11:03]
-02. Doin' the Thing [11:16]
-03. Kiss Me Right [9:19]
-04. The Gringo [10:55](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 07:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6830A60A29D4D29B898A59BD8C867B54A44BA834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687055   (125730) от 25.12.2023
-
-Ramsey Lewis - Ramsey Lewis And His Gentle-Men of Jazz (1957, 1958) 2008, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carmen [4:33]
-02. I'll Remember April [4:14]
-03. The Wind [4:06]
-04. Bei mir bist du schoen [3:16](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371A1500B197C74795E3A21DE18DEF2616B70F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686922   (125712) от 25.12.2023
-
-Felo Sepulveda - Long Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Llorona (7:03)
-02. Twinky Samba (3:55)
-03. Luna Llena (4:26)
-04. Lady in Black (6:15)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4F89D63FEC476C4AE96028221BB4C0593D650F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687051   (125700) от 25.12.2023
-
-John Hicks - Piece For My Peace (1996) Landmark Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith [3:54]
-02. Piece for My Peace [4:50]
-03. Mood Swings [6:32]
-04. Diane [4:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC023784FD2888CD895CA5018CFB33B05E6E73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687049   (125698) от 25.12.2023
-
-Frank Morgan - Gene Norman Presents Frank Morgan (1955) 1989, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [5:37]
-02. My Old Flame [4:46]
-03. I'll Remember April [4:29]
-04. Neil's Blues [5:11](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6FA3C37A54368F4807E55BD90BFEFAE6F6B2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

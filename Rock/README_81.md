@@ -1,3 +1,148 @@
+###  Публикация: 1584733   (224485) от 19.10.2022
+
+Bee Gees - This Is Where I Came In (2001) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Where I Came In
+02. She Keeps On Coming
+03. Sacred Trust
+04. Wedding Day(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000730291D6BDC8736294BF55060D300E2659B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965787   (223856) от 15.12.2015
+
+Marc Bolan & T.Rex - For All The Cats - The Best Of (2015) 2CD [MP3|320 кб/с] <Rock, Glam, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Rod Mama
+02. Blessed Wild Apple Girl
+03. Find a Little Wood
+04. Is It Love?(   Читать дальше...   )Жанр: Rock, Glam, Psychedelic RockПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6BDC1244CCB02D20A65C0601CC1A6228BAB139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585227   (222984) от 21.10.2022
+
+Diggeth - Zero Hour in Doomtown (2022) [MP3|320 Kbps] <Heavy Rock, Southern Metal, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freak Flag
+02. Soultwister
+03. Last Man Standing
+04. Acardiac(   Читать дальше...   )Жанр: Heavy Rock, Southern Metal, StonerПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9159C54D1B463DF760806ABCDE58462700059AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585377   (222975) от 21.10.2022
+
+Goatroach - 3 Albums (2019-2022) [MP3|320 Kbps] <Sludge Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Demo '19
+2021 - Excarnated/Of Guided Missiles and Misguided Men
+2022 - Plagueborn(   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 3 CD, 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BA161C8BD89D2FAA2BFC59F450B86DC8D30901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585246   (222966) от 21.10.2022
+
+Battalions - King of a Dead World (2022) [MP3|320 Kbps] <Sludge, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Boots
+02. Coughing Nails
+03. Diagnosis Fucked
+04. Bones to Dust(   Читать дальше...   )Жанр: Sludge, StonerПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DAFE2C2C383A69B455D10E82A2A7823571D34A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585120   (222889) от 21.10.2022
 
 Stereo Mammoth - EGO (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
@@ -600,151 +745,6 @@ Tau & The Drones of  Praise - 3 Albums (2019-2022) [MP3|320 Kbps] <Psychedelic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EF573D61AABD323B89E68AACA9ED81E7B27FD62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585604   (220781) от 23.10.2022
-
-The Vault - 2 Albums (2019-2020) [MP3|320 Kbps] <Heavy Rock, Stoner, Groove>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_220781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grounded [00:04:16]
-02. Drive [00:05:53]
-03. T.A.W. [00:04:11]
-04. Shelter [00:07:02](   Читать дальше...   )Жанр: Heavy Rock, Stoner, GrooveПродолжительность: 2 CD, 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AF7D49747D0D49C4606ECDCE5196AA73AA29D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585594   (220568) от 23.10.2022
-
-Chez Kane - 2 Albums (2021-2022) [MP3|320 Kbps] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Want You [00:05:24]
-02. (The Things We Do) When We're Young in Love [00:05:03]
-03. Rock You Up [00:03:45]
-04. Love Gone Wild [00:04:38](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 2 CD, 01:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1058DA072BEBF6ECDF92D3492FB99356633501B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585596   (220549) от 23.10.2022
-
-Richard Marx - HTV Music History (2001) 2 CD Unofficial Release [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazard
-02. Days In Avalon
-03. Too Early To Be Over
-04. Now And Forever(   Читать дальше...   )Жанр: Rock, Pop, Soft RockПродолжительность: 02:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361E10085D16BF704FEDB3743BAA8A683E2DD045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269536   (219975) от 15.12.2018
-
-Beacon Street Union - The Eyes Of The Beacon Street Union (1968) Reissue, 2010, Tune In [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Recitation / My Love Is
-2. Beautiful Delilah
-3. Sportin' Life
-4. Four Hundred And Five(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099C2E36A7845E6A75D221616F2D5F95807AF911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343272   (219915) от 05.12.2019
-
-The Who - WHO (2019) Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219915.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All This Music Must Fade
-2. Ball and Chain
-3. I Don't Wanna Get Wise
-4. Detour(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7122B25EF2C6EE20D73B5680C40E4F9C3DAAB077
 ```
 
 https://mybot314.ru/tekegram_catalog/

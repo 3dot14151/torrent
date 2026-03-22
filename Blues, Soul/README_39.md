@@ -1,0 +1,793 @@
+###  Публикация: 1822724   (104454) от 09.10.2025
+
+Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy Blues [03:28]
+02. «Hey, Jones!» [04:36]
+03. Kiss of Love [03:49]
+04. Sunset Girl [03:59](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226ED5FEF6F356B605588DDAAE26BD09BEF4AF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752235   (103960) от 29.09.2024
+
+Nuno Mindelis - Brazilian Blues (2013) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Days Straight [04:50]
+02. It s Your Fault [04:44]
+03. Talk About Somebody [04:38]
+04. Mean Old Train [03:30](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072B88442B08F047C4ADEAB231D55307D832243C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754592   (103709) от 11.10.2024
+
+Joe Bonamassa - Different Shades Of Blue - Overdrive (2014) Reissue, 2024, 10th Anniversary Edition [MP3|320 Kbps] <Blues Rock, Hard Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hey Baby (New Rising Sun) (01:19)
+ 02 - Oh Beautiful! (05:29)
+ 03 - Love Ain't A Love Song (03:49)
+ 04 - Living On The Moon (03:21)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01D6A440D28993C3CF88A4D746C7CFC9907BF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759948   (103193) от 12.11.2024
+
+Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrysalis Records [MP3|320 Kbps] <Soul, Soulful House, Deep House>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking About Your Love (Touchdown 2 Mix) [00:04:53]
+02. Outstanding (Macattack Mix) [00:08:04]
+03. Best Of You (12" Mix) [00:04:54]
+04. Piece By Piece (Absolute Mix) [00:06:20](   Читать дальше...   )Жанр: Soul, Soulful House, Deep HouseПродолжительность: 2 CD, 02:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7935B9053894CAE4CD72FCFE7E5A325198BF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764459   (101533) от 07.12.2024
+
+Marvin Gaye - Greatest Hits Live (1974) Remaster, 2024, Cult Legends [MP3|320 Kbps] <Soul, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - What's Goin' On (Live) [00:04:15]
+02 - Let`s Get It On (Live) [00:04:32]
+03 - How Sweet It Is (Live) [00:02:48]
+04 - I`ll Be Doggone (Live) [00:01:11](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C52C7C2C61D2B8E5DFB547D9D20E7488CBE2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480117   (99135) от 09.04.2012
+
+Mick Martin and the Blues Rockers - Way Down South (2006) [MP3|320 кб/с]<Blues / Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Down South
+02. I Love My Baby
+03. Another Day Without You
+04. Doin' Something To Me
+05. Pick Up, Baby
+06. Heartbreaker
+07. It's Hard Going Up
+08. I Don't Care About Nothin'
+09. Candy Girl
+10. Forever Ended Today(   Читать дальше...   )Жанр: Blues / Blues RockПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080D266FB4A9BEB6D2547C71F00A4C10D75785A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478563   (98731) от 05.04.2012
+
+VA - Bottleneck Blues Anthology (2011) 2CD [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98731.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01 - Dust My Broom - Elmore James
+02 - Rollin' Stone - Muddy Waters
+03 - Black Cat Bone - Lightnin' Hopkins
+04 - Nothing But Trouble - Lonnie Johnson
+05 - Little Boy Blue - Robert Lockwood Jr.
+06 - Special Stream Line - Bukka White
+07 - Pistol Slapper Blues - Blind Boy Fuller
+08 - Overhauling Blues - Big Joe Williams(   Читать дальше...   )Жанр: BluesПродолжительность: 02:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E25E359CDAD9053A0E489D81B2DBB000421BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469668   (97145) от 18.03.2012
+
+Ruthie Foster - Let It Burn (2012) [MP3|~245 кб/с (V0)]<Blues, Gospel, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97145.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Welcome Home Foster
+2 Set Fire to the Rain Adkins, Fraser T. Smith
+3 This Time Hidalgo, Perez, Perez
+4 You Don't Miss Your Water Bell
+5 Everlasting Light Auerbach, Carney
+6 Lord Remember Me Foster
+7 Ring of Fire Carter, Kilgore
+8 Aim for the Heart Foster, Tiven, Tiven
+9 It Makes No Difference Robertson
+10 Long Time Gone Crosby(   Читать дальше...   )Жанр: Blues, Gospel, SoulПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCFDBE51B42D3EDC608C159D43261AD78E1ADFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467357   (96556) от 13.03.2012
+
+Danny Thurmer & The Uptown Road House Devils - A Rockin Blues Album (2012) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Everybody Gets the Blues (4:27)
+02.  Move It On Over (2:51)
+03.  She Caught the Katy (3:26)
+04.  Waiting On a Friend (2:52)
+05.  Bright Lights, Big City (3:02)
+06.  Willie and the Hand Jive (3:19)
+07.  Hard to Handle (2:44)
+08.  Rockin Me Baby (4:36)
+09.  Nobody Loves Me Like My Baby (3:00)
+10.  I Wash My Hands in Muddy Water (4:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCD4C7712CD4DE8E661B231BAD5EAC610D9F21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467343   (96555) от 13.03.2012
+
+Big Shanty - Collection (2011) (2 Disc Set) [MP3|320 кб/с]<Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues, RockПродолжительность: 01:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142BC65EC2930ECDDCEF32ED1C9D77DFD9622D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455074   (93853) от 19.02.2012
+
+Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Men Don`t Dance (03:23)
+02. The Teaser (03:42)
+03. Big City Life (04:40)
+04. Back Porch (03:44)
+05. Highway 78 (05:11)
+06. Apple Picker (04:45)
+07. Dad`s Story (02:34)
+08. 8. 47 (04:41)
+09. Liquor Store (02:40)
+10. She Used To Call Me Sugar (04:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1121A71E490833139AEBE184E8E13CEB3741D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488672   (90789) от 26.04.2012
+
+Big Joe Turner - All The Classic Hits 1938-1952 (2003) 5 CD BoxSet [MP3|320 кб/с]<Jazz, Blues, Swing>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_90789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' Away Blues - [00:02:40]
+02. Roll 'Em Pete - [00:02:51]
+03. Cherry Red - [00:02:56]
+04. Baby, Look At You - [00:03:03]
+05. Lovin' Mama Blues - [00:03:16]
+06. Cafe Society Rag - [00:03:00]
+07. Piney Brown Blues - [00:03:00]
+08. Doggin' The Dog - [00:02:46]
+09. Careless Love - [00:02:50]
+10. Jumpin' Down Blues - [00:02:37](   Читать дальше...   )Жанр: Jazz, Blues, SwingПродолжительность: 05:45:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467382   (81788) от 13.03.2012
+
+Buck 69 - When She Whispers Your Name (2007) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01- T-Town
+02- When She Whispers Your Name
+03- Misery
+04- Risk It All
+05- Cold Wind
+06- Sometimes
+07- No Time For Love
+08- Sex, Drugs, Ur Mom & Me
+09- Sweet Spot
+10- Good Days Bad Days(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972FF6C94E63B3653160C88756CC82371B158A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441412   (72105) от 24.01.2012
+
+Ray Charles - Singular Genius: The Complete ABC Singles (2011) 5CD [MP3|320 kbps]<Blues, Jazz Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_72105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Baby (I Love Her Yes I Do) (3:04)
+02. Who You Gonna Love (2:04)
+03. Sticks And Stones (2:17)
+04. Worried Life Blues (3:10)(   Читать дальше...   )Жанр: Blues, Jazz Blues, Soul
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C0765B3098ED89444A9E8CD2167C40CE475994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798906   (66464) от 27.05.2025
+
+Mourning [A] BLKstar - Flowers For The Living (2025) [MP3|320 Kbps] <Soul, afrofuturism>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stop Lion 2 [00:03:49]
+02 - Can We_ [00:04:16]
+03 - Letter To A Nervous System [00:05:41]
+04 - 88, Pt. 1 [00:01:50](   Читать дальше...   )Жанр: Soul, afrofuturismПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4446E7F9B1612B3E609365BC3A207A961EDA449E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803956   (65731) от 26.06.2025
+
+Anthony Krizan - Cool Shade of Blue (2025) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into The Groove (03:47)
+ 02 - Strawberry Wine (03:58)
+ 03 - If You're Tired of Being Lonely (04:42)
+ 04 - It's All Coming Back to Me (04:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD627B73C4DC94191A7DAD1E8E24990378CFA51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806766   (65328) от 14.07.2025
+
+James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More River To Cross (03:31)
+ 02. Work Song (04:01)
+ 03. Area Grey (03:40)
+ 04. Ghost Train (04:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5CB3BAE5845DC8ADC259CEC1764AE283CBF62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722429   (56767) от 12.05.2024
+
+Jeff Michaels - 3 Albums (2024) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2024 - 1975
+2024 - Down in Texas
+2024 - Electric MountainЖанр: Blues RockПродолжительность: 3 CD, 01:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76821348E50281B41765096F505BD89D4A66C494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723730   (56347) от 16.05.2024
+
+Slash - Orgy of the Damned (2024) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pusher (7:08)
+02. Crossroads (5:35)
+03. Hoochie Coochie Man (6:43)
+04. Oh Well (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1C9986E7CCFAE6042EA1E3FBB20D6E1B7A2DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726988   (54675) от 01.06.2024
+
+Blues Dudes - Organ Blues (2013) [MP3|320 Kbps] <Blues, Organ, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Busted [02:31]
+02. That's Life [02:52]
+03. When a Man Loves A Woman [03:38]
+04. I Am... I Said [03:52](   Читать дальше...   )Жанр: Blues, Organ, InstrumentalПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE959F4F520B6B30ADD16499FD8F8081E07A6D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749124   (43669) от 13.09.2024
+
+Van Morrison - Marin, San Francisco, Sept 71 (2024) [MP3|320 Kbps] <Jazz, Funk, Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Into the Mystic
+02 – I’ve Been Working
+03 – Friday’s Child
+04 – Hound Dog(   Читать дальше...   )Жанр: Jazz, Funk, Soul, BluesПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AE477BA0CBB383B0C50969A38B74048B1A52FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750128   (43131) от 18.09.2024
+
+Layla Zoe - Into the Blue (2024) Live in Concert [MP3|320 Kbps] <Hard Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Lord I Want You to Help Me (Live) (02:30)
+ 02. Turn This Ino Gold (Live) (07:34)
+ 03. Automatic Gun (Live) (05:59)
+ 04. Are You Still Alive Inside (Live) (09:31)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0F49EF7D8FF5F093AF5EDEBC9759924976777D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756685   (39599) от 22.10.2024
+
+Beth Hart - You Still Got Me (2024) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savior With A Razor (feat. Slash) (4:48)
+02. Suga N My Bowl (feat. Eric Gales) (3:33)
+03. Never Underestimate A Gal (3:07)
+04. Drunk On Valentine (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24921CB39BC1B0DC1D31ECA89407F2C637452B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771623   (31704) от 07.01.2025
+
+KAT Blue & The True Believers - Start Believin'... (2024) [MP3|320 Kbps] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me Right 04:40
+02. Close To My Fire 05:07
+03. Hard Times 03:39
+04. Bad Woman Blues 03:28(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93EEA1D164573DC99E930865595C8DB61D02F9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701497   (30780) от 16.01.2025
+
+Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_30780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Do That [04:06]
+02. Eleanor Rigby [04:01]
+03. Yesterday [07:13]
+04. Help [03:04](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9C6D15A46B3ECF63D428B98050237DE70CF3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799008   (16827) от 26.05.2025
+
+Gary Moore - Gary Moore Live From Baloise Session (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, Pretty Woman (Live) [05:19]
+02. Since I Met You Baby (Live) [05:04]
+03. Thirty Days (To Come Back Home) (Live) [03:57]
+04. I Love You More Than You'll Ever Know (Live) [12:25](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A575F286BE0ADD0B3D1D9F643ED294751455E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

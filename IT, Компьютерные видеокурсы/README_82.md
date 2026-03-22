@@ -1,3 +1,86 @@
+###  Публикация: 1647426   (208682) от 18.07.2023
+
+JUG Ru Group | Mobius 2023 Spring. Конференция для мобильных разработчиков (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mobius 2023 Spring - конференция для мобильных разработчиков. Несколько десятков докладов об iOS, Android, кроссплатформенной разработке, инструментах, фреймворках и многом другом.Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 44:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C38EB34A82C06377FFA964A4A66D75BD1F38F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647380   (208660) от 18.07.2023
+
+Udemy, Michael Pogrebinsky | Distributed Systems & Cloud Computing with Java (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Have you always wanted to build software that reaches millions of users and impact people's lives?
+
+Have you been wondering how modern companies
+- HandleПроизводство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E432E435FB075BEFBE8B0B049243465F19E0B469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575773   (208332) от 11.09.2022
+
+Udemy, Klimentij Bulygin | UX c нуля: как стать проектировщиком интерфейсов (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Процесс освоения профессии проектировщика состоит на 90% из практики и лишь на 10 — из теории. При этом современные курсы по UX дизайну в основном состоят только из теории, которая еще и быстро забывается из-за недостатка практических занятий. В итоге, такой процесс освоения профессии может показаться более трудным и скучным, чем есть на самом деле.
+
+Поэтому я создал (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F97619D118A30B235AEAB5C7AD7AB8E887D8D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576582   (208117) от 14.09.2022
 
 JUG Ru Group | JPoint 2022. Международная Java‑конференция (2022) WEB-DL [RU]
@@ -622,90 +705,6 @@ Udemy, StudyEasy Organisation, Chaand Sheikh | Full Stack Java-разработ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89D084154BD5E673243B548181122CA6589A3924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583196   (205985) от 13.10.2022
-
-Udemy, Bo Andersen | Complete Guide to Elasticsearch (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите Elicsearch с нуля и заложите основу для изучения стека ELK (Elasticsearch, Logstash и Kibana). Вы хотите узнать популярный поисковый движок Elasticsearch с самого начала и стать профессионалом в кратчайшие сроки? Этот курс является отличным способом для быстрого изучения Elasticsearch и для того, чтобы ваши знания работали всего за несколько часов! Если это (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 12:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342807D948147E95564C4B70F63B25C2743C187D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583716   (205826) от 15.10.2022
-
-CodeWithMosh, Mosh Hamedani | The Ultimate C++ Series (2022) WEB-DL [Part 1-3] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn to write C++ code with confidence
-C++ is the language of choice for video games, embdded systems, IoT devices, high-performance apps, operating systems, database management systems, compilers, and so on. It's also the father of many languages like C#, Java, and JavaScript.
-With so many uses, it's one of the best languages to learn these days.
-The problem is: (   Читать дальше...   )Производство: CodeWithMoshЖанр: ВидеокурсЯзык озвучки: EnglishПродолжительность: 11:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC601F83F64FD93C23EB91F6D14767D901CE3413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568021   (205540) от 06.08.2022
-
-Global Digital Space, Алексей Лукацкий | Как обеспечивать кибербезопасность в условиях спецоперации (2022) CamRip [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205540.jpg" />
-</div>
-
-
-###  Подробнее
-
-GlobalDigitalSpace запускает цикл лекций с Алексеем Лукацким.
-Мы решили посвятить его вопросам кибербезопасности в условиях спецоперации.
-Алексей подробно ответит, приведет примеры и разъяснения к основным вопросам:
-— С чем мы боремся.(   Читать дальше...   )Производство: Global Digital SpaceЖанр: ВидеолекцииЯзык озвучки: РусскийПродолжительность: 05:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C501CF18048539EDA5EEA98306FF986A543C76
 ```
 
 https://mybot314.ru/tekegram_catalog/

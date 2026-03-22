@@ -1,3 +1,32 @@
+###  Публикация: 1303504   (572703) от 21.05.2019
+
+Blancmange - 4 Albums (1982-1985) [MP3|320 Kbps] <Electronic, Synth-pop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blancmange - британский электронный нововолновый дуэт, образованный в 1979 году в Хэрроу, Лондон, Англия, вокалистом Нейлом Артуром (англ. Neil Arthur) и мультиинструменталистом Стивеном Люкомбом (англ. Stephen Luscombe), и соединивший в своём творчестве (согласно Allmusic) «артовые танцевальные ритмы Talking Heads с причудливой мелодраматичностью британского синт-попа (   Читать дальше...   )Список альбомов:
+1982 - Happy Families (R-2008) CD
+1984 - Mange Tout (R-2008) CD1
+1984 - The B-Sides And Remixes (R-2008) CD2(   Читать дальше...   )Жанр: Electronic, Synth-pop, New WaveПродолжительность: 04:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A53ED9AA48810179DB967F32ECC37496ED7631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235110   (564074) от 09.07.2018
 
 Rheingold - Im Lauf der Zeit (2017) [MP3|320 Kbps] <Synthpop, New Wave>
@@ -716,35 +745,6 @@ Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:945B6C03A4AF07020E30F6DB3EA705820F95E443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565210   (496648) от 22.07.2022
-
-Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Secret (6:32)
-02. Universe (6:40)
-03. Xtreme (5:10)
-04. Wormhole (4:23)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD1C215A2CAAEB693E5E7C158A9F6B006D536A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1201498   (792233) от 25.01.2018
+
+DJ Koze - Seeing Aliens (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seeing Aliens (04:52)
+02. Seeing Aliens (extended Breakthrough Listen) (08:17)
+03. Nein König Nein (07:18)Жанр: House, DeepПродолжительность: 00:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FFE07039F1D54321802BCA2B62E42C9F2C972C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387270   (791852) от 01.06.2020
+
+St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Köpenickerstr (05:28)
+ 02. Oberbaumbrücke (06:56)
+ 03. Cass Ave (05:23)
+ 04. Skalitzerstr (06:37)(   Читать дальше...   )Жанр: Dub Techno, Techno, LeftfieldПродолжительность: 00:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F475CA595DFE1F0772BA876AB31428ACE333FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387359   (791851) от 01.06.2020
 
 Exos - Indigo (2020) Figure [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Ambient>
@@ -685,64 +742,6 @@ Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57C21A34FD6CB9282F2CE8984B3DFA51DBCAFA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275941   (789043) от 14.01.2019
-
-Ross From Friends - Family Portrait (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Lo-Fi, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Birthday Nick
-02. Thank God I'm A Lizard
-03. Wear Me Down
-04. The Knife(   Читать дальше...   )Жанр: House, Deep House, Lo-Fi, Tech HouseПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32C711E3DF7379C410554488CC96E27A9601D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276178   (789039) от 14.01.2019
-
-VA - Mama Thresl, Vol.1: Urban Soul meets the Alps (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Mountain - Deep Intro (feat Malou) [01:13]
-02. Satori - Days Without You (feat Miou Amadee - Crussen remix)[11:25]
-03. Escenda - Out Of Moves [05:08]
-04. Terranova - Prayer (feat Nicolette Krebitz & Udo Kier - Gui Boratto mix)[06:48](   Читать дальше...   )Жанр: Deep House, Tech House, DownbeatПродолжительность: 02:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D44BC8ED1B71DBC4B6BE3E334EF0C76B1471DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

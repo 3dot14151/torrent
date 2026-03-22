@@ -1,3 +1,32 @@
+###  Публикация: 1512164   (787390) от 24.11.2021
+
+VA - Soundbar Deluxe Chill Lounge, Vol. 6 (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - Discover a Nu World (In the Light Mix) (5:11)
+02. Artenovum - Innocence (Mystic Voices World Mix) (4:43)
+03. Book of Dreams - Trancephonia (Psytrance Chillout Mix) (8:02)
+04. Dave Neville - Focus (Deep Electronic Groove Mix) (6:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D385ADA5DE3A477E327502E54060CF8AB3C9279A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512163   (787389) от 24.11.2021
 
 VA - Soundbar Deluxe Chill Lounge, Vol. 5 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
@@ -668,32 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AD6B47192D0C545C98489A1593529EA5FA798AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124031   (786103) от 09.04.2017
-
-SuperАлиби / Alibi.com (2017) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нужно алиби, чтобы втайне от супруги спокойно отдохнуть с друзьями на футболе? Вам поможет агентство по созданию алиби. Нужна отмазка в школе? Обращайтесь! Решили отдохнуть от семьи в выходные? Мы на связи! Этот стартап Грега и его команды уже получил оглушительный успех…Производство: ФранцияЖанр: КомедияРежиссер: Филипп ЛашоАктеры: Филипп Лашо, Элоди Фонтан, Жюльен Аррути, Тарек Будали, Дидье Бурдон, Натали Бай, Науэлл Мадани, Меди Садун, Венсан Дезанья, Элис ДюфурПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5AF1F136C02D5D955945551A08A1308FEDA16D
 ```
 
 https://mybot314.ru/tekegram_catalog/

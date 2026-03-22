@@ -27,6 +27,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018231   (757362) от 19.05.2016
+
+Ariana Grande - Dangerous Woman (2016) [MP3|320 кб/с] <Pop, Hip-Hop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight
+02. Dangerous Woman
+03. Be Alright
+04. Into You(   Читать дальше...   )Жанр: Pop, Hip-Hop, R&BПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268027E0F3497F82E728E2297EE42B25D1BA2CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018196   (757255) от 19.05.2016
 
 VA - Super Hits Of The '70s: Have A Nice Day (1990-1996) 25CD [MP3|320 кб/с] <Pop,Rock>
@@ -49,6 +78,35 @@ VA - Super Hits Of The '70s: Have A Nice Day (1990-1996) 25CD [MP3|320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0431B314B0C064029576B1478D2812EEFF8E30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215700   (756733) от 27.03.2018
+
+Mary Chapin Carpenter (Мэри Чапин Карпентер) - Hometown Girl (1987) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_756733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэри Чапин Карпентер - американская кантри певица, автор песен и актриса. Певица в молодости никогда не представляла себя на профессиональной сцене. Дебютное выступление Мэри состоялось в местном баре, куда её привел отец. В 1981 году будущая певица получила высшее образование. Она стала выпускницей университета «Браун». Главной встречей в её карьере стало знакомство (   Читать дальше...   )01. A Lot Like Me 4:37
+02. Other Streets And Other Towns 5:01
+03. Hometown Girl 4:54
+04. Downtown Train 4:11(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, Indie, Soft RockПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8061C7B283FC62277F71D6A95B66794614D8EDD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,6 +607,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217236   (744948) от 03.04.2018
+
+Deana Carter (Дина Картер) - Everything's Gonna Be Alright (1998) Capitol Records Nashville [MP3|320 Kbps] <Country, Alternative Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_744948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. You Still Shake Me 2:48
+02. Ruby Brown 4:20
+03. Absence Of The Heart 3:31
+04. Brand New Key 3:18(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57500CF2BE259668C162668F295887C9A2440F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217229   (744945) от 03.04.2018
 
 Deana Carter (Дина Картер) - Did I Shave My Legs For This? (1995) Patriot Records [MP3|320 Kbps] <Country, Alternative Country>
@@ -658,93 +745,6 @@ Deana Carter (Дина Картер) - The Deana Carter Collection (2002) Capito
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E450A52678C1C371F7BA16F270DC41EEDFD45D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217341   (743234) от 04.04.2018
-
-Kylie Minogue - Golden (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing (02:59)
-02. Stop Me from Falling (03:02)
-03. Golden (03:08)
-04. A Lifetime to Repair (03:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9185BB285687A31BB19BD8AB1BFF077703539F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397113   (742607) от 18.07.2020
-
-VA - Ultimate Workout Music Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aden Phoenix Forte - In My Mind (02:59)
-02. Drake - Passionfruit (04:13)
-03. Shelly Peiken - I'm a Mess (03:15)
-04. Dua Lipa - Kiss and Make Up (03:09)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B91C6A43B0F81B3F5305BE22845D3DAFD6EB182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282849   (742464) от 14.02.2019
-
-VA - NRJ Just Hits (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742464.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01.  Calvin Harris feat. Rag'n'Bone Man  -  Giant
-02.  Redbone  -  Come And Get Your Love
-03.  Boulevard Des Airs feat. Vianney  -  Allez Reste(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DD18C11191DCA79A84B1FD29E6A92B1F7CCC62
 ```
 
 https://mybot314.ru/tekegram_catalog/

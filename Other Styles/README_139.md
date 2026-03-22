@@ -1,3 +1,145 @@
+###  Публикация: 1263516   (279352) от 24.11.2018
+
+James Newton Howard - Фантастические твари: Преступления Грин-де-Вальда / Fantastic Beasts: The Crimes of Grindelwald (2018) [FLAC|Lossless|tracks + .cue]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thestral Chase (8:05)
+02. Newt and Leta (2:32)
+03. Dumbledore (2:11)
+04. The Kelpie (1:33)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01EA540646AD4B42F56FE2C78BB0A9A84263477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263527   (279349) от 24.11.2018
+
+James Newton Howard - Фантастические твари: Преступления Грин-де-Вальда / Fantastic Beasts: The Crimes of Grindelwald (2018) [MP3|320 Kbps]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thestral Chase (8:05)
+02. Newt and Leta (2:32)
+03. Dumbledore (2:11)
+04. The Kelpie (1:33)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA096BD4D8C8225312775C8F4CBA906B4E18BD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336489   (279159) от 07.11.2019
+
+Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Family (04:52)
+02. Kait’s Theme (04:24)
+03. New Ephyra (02:07)
+04. Burned Up (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A087964F5B9963BF193923267D40A955961349C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336491   (279153) от 07.11.2019
+
+Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Family (04:52)
+02. Kait’s Theme (04:24)
+03. New Ephyra (02:07)
+04. Burned Up (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66027107FD7C9667FAFD9D8D3188F34C90BCCB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 241716   (279117) от 24.11.2018
+
+Иван Ребров - Kalinka (1999) [MP3|320 kbps]<Vocal, Classic, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Kalinka MalinkaЖанр: Vocal, Classic, FolkПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E055CCC5B8CDE1F4C4F6F356CB4FFEDE9F586936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081991   (279107) от 12.12.2016
 
 Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -590,151 +732,6 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62BE3874C93B8431E0E0A3BB81EBAED69EBF7CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188262   (275974) от 01.12.2017
-
-Yiruma - Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embrace of Silence (2:53)
- 02. Dance (4:05)
- 03. Lamentation (3:42)
- 04. Papillon (Replayed Version) (3:10)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9338C1C271840B91C7F517FECD8489F60A6E991F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188082   (275957) от 01.12.2017
-
-Marco Allevi - Spa Music (Music For Relaxation Meditation Massage) (2017) [MP3|320 Kbps] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Genesis (Part 1) (6:26)
- 02.  Genesis (Part 2) (7:05)
- 03.  Genesis (Part 3) (6:37)
- 04.  Chromatic Vibrations (7:36)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F3556559CA4267724A06A7DB756544301BDCCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337184   (275860) от 09.11.2019
-
-Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer & Khalid - Trigger (02:52)
-02. Au/Ra & Alan Walker - Ghost (02:59)
-03. CHVRCHES - Death Stranding (05:19)
-04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFB1FE972900F7C910E51FD6B7ED3165370A41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337186   (275540) от 09.11.2019
-
-Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC 2.0|48/44.1/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer & Khalid - Trigger (02:52)
-02. Au/Ra & Alan Walker - Ghost (02:59)
-03. CHVRCHES - Death Stranding (05:19)
-04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7C0F8C48E6BB1298864FC403E2475009C67ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337228   (275007) от 10.11.2019
-
-Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Waterfall 04:22
-2. Yoga Mat Sessions 02:02
-3. Serenity  02:44
-4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

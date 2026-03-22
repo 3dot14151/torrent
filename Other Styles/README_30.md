@@ -1,3 +1,32 @@
+###  Публикация: 1107019   (869674) от 21.02.2017
+
+Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enamor
+02. Lost Love
+03. La Guitarra De Oro
+04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB182E83FF0F2E61487EA315342168E7806838A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374588   (868615) от 12.04.2020
 
 Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -711,32 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBB3C06F13106BA441B27A9DDC2BF58FDD299D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189811   (861059) от 06.04.2010
-
-Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Atlas burn-in & demagnetizing disc (00:10:41)Жанр: TestПродолжительность: 00:10:41
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

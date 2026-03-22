@@ -1,3 +1,119 @@
+###  Публикация: 923870   (561030) от 02.08.2015
+
+Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girly
+02. Sizzlin’
+03. Don’t Even Wanna Teach Me
+04. Liberation(   Читать дальше...   )Жанр: Euro PopПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF7C019229965BAAB257F2C7689DBCC8F0A1446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923910   (560919) от 02.08.2015
+
+VA - Ibiza Lounge Deluxe (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tokeo - Riva (Restart the Game) (03:00)
+02. Vibe2Vibe - Cheerleader (03:05)
+03. Vibe2Vibe - Lean On (02:57)
+04. DJ Tokeo - Ain't Nobody (Loves Me Better) (03:06)(   Читать дальше...   )Производство: Sugar & Lime RecordsЖанр: Pop, DanceПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396E7C242D15BF324B52FD39A103BFB763E9BBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923921   (560908) от 02.08.2015
+
+Natalie Imbruglia - Male (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instant Crush
+ 02. Cannonball
+ 03. The Summer
+ 04. I'll Follow You Into The Dark(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA2D37683855EA2FA6D025309845166CD768AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235294   (560373) от 11.07.2018
+
+Donna Summer - Summer: The Original Hits (2018) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Love 03:46
+02. Love To Love You Baby 03:21
+03. I Remember Yesterday 04:42
+04. On My Honor 03:31(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BC717A6E37D8D16F3F303D12F1A748EF38DF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304912   (560063) от 28.05.2019
 
 VA - Fox Giganten (Die besten Discofox Schlager Hits 2019 fur deine Tanz Party) (2019) [MP3|320 Kbps] <Schlager, Pop>
@@ -629,122 +745,6 @@ VA - Discofox 2019 (Die besten Fox Schlager Hits zu deiner Sommer Tanz Party) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CEE6C60302D56D7B337ADECBEC1F1FC533F3189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308615   (553730) от 15.06.2019
-
-VA - Megahits Sommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553730.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Robin Schulz feat. Harloe - All This Love
-02. Ava Max - So Am I(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1295D7159AF87782DBA83E8E5CF7DC476B8C1A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308491   (553710) от 15.06.2019
-
-Madonna - Madame X (2019) (Japanese Edition) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna & Maluma - Medellín
-02. Madonna - Dark Ballet
-03. Madonna - God Control
-04. Madonna & Quavo - Future(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC255EEAE21C756BA7E2CE9D4768E2F876E1741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308759   (553537) от 16.06.2019
-
-VA - 30 Spaß Party Hits (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553537.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Andy Bar - Ballermann - Mein Herz Schlägt Für Den Ballermann
-02. Willi Herren - Was Kann Uns Keiner Nehmen(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351EE2819F32DD072576A804F41D0E3453E24B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308756   (553533) от 16.06.2019
-
-VA - Fun Radio le Son Dancefloor Summer 2019 (2019) 3CD [MP3|320 Kbps] <Electropop, Future House, Basssline, Tropical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553533.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Calvin Harris - Giant
-02. Armin van Buuren - Turn It Up(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D48E09D4A22131472B528E0059941D129AD62F
 ```
 
 https://mybot314.ru/tekegram_catalog/

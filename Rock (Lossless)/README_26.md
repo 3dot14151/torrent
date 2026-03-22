@@ -1,3 +1,119 @@
+###  Публикация: 259270   (913884) от 27.01.2017
+
+Syd Barrett - An Introduction to Syd Barrett (2010) Compilation, Remastered [FLAC|Lossless|image + .cue]<Progressive, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Floyd - Arnold Layne (2:56)
+02. Pink Floyd - See Emily Play (2:55)
+03. Pink Floyd - Apples and Oranges (3:07)
+04. Pink Floyd - Matilda Mother (3:58)(   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAE2E8A56E1D550788226960BBC002AD1835F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989969   (913609) от 24.02.2016
+
+Junius - Reports from the Threshold of Death (2011) [FLAC|Lossless|tracks + .cue] <Epic Post Rock, Progressive Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй и на данный момент последний LP бостонской epic post/art rock группы.01. Betray the Grave
+02. All Shall Float
+03. Dance on Blood
+04. A Universe Without Stars(   Читать дальше...   )Жанр: Epic Post Rock, Progressive Rock, Space RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EFC4E4F29AF147A31D7A91E621E7485DAA554D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491307   (912394) от 24.08.2021
+
+Barock Project - Skyline (2015) 2xCD, Japanese Edition, Reissue, 2021, Belle Antique [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912394.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Overture
+02. Tired
+03. Skyline(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Rock, Art RockПродолжительность: 01:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4237FDDE5AF3756D4D58EF1097B5A6A6F70A2A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491288   (912388) от 24.08.2021
+
+Saga - Symmetry (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitchman
+02. The Perfect Time To Feel Better:
+- Time To Go
+- The Perfectionist(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080DCB813D7CEE12B2B2F43021BC2CB8591230DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990365   (912007) от 25.02.2016
 
 *shels - Plains of the Purple Buffalo (2011) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Post Rock, Post Metal>
@@ -626,122 +742,6 @@ Shocking Blue - The Best Of Shocking Blue (1987) [FLAC|Lossless|image + .cue]<Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B69A68F9E2E8BF54850D9A2C6707DDAFC40455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992052   (904163) от 29.02.2016
-
-Planet P Project - Planet P (1983) Remastered, 2008, Renaissance Records [FLAC|Lossless|image + .cue]<Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Static 04:04
-02. King For A Day 03:57
-03. Won't Wake Up 03:46
-04. Top Of The World 04:34(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75372E5B733BF7C105EE002A21B3DB7F47575DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991827   (904098) от 29.02.2016
-
-Suzi Quatro - All the Best (2012) 2CD, Compilation [FLAC|Lossless|tracks] <Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can The Can (03:35)
-02. 48 Crash (03:54)
-03. Glycerine Queen (03:50)
-04. Rolling Stone (02:47)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 02:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0408C9DEC4954A5BCCDE943A05A48C9E171FF8D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492450   (904044) от 29.08.2021
-
-Mythopoeic Mind - Hatchling (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Canterbury Scene>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear Fiesta (07:51)
-02. Winter of '73 (06:57)
-03. Fog Vision (08:27)
-04. Cottage of Lost Play (08:32)(   Читать дальше...   )Жанр: Progressive Rock, Canterbury SceneПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB93A47F93934F4383A47CFF9D87D53C878E144D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991920   (903968) от 29.02.2016
-
-Dire Straits - Sultans Of Swing (The Very Best Of Dire Straits) (1998) Compilation, 2012, Vertigo [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultan Of Swing  05:50
-02. Lady Writer  03:49
-03. Romeo & Juliet  06:05
-04. Tunnel Of Love  08:14(   Читать дальше...   )Жанр: Rock, Classic Rock, Pop RockПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31D921FA99F9A20A91E7A0B7D37EB188253A5EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

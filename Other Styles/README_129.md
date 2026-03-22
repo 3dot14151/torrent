@@ -1,3 +1,152 @@
+###  Публикация: 956041   (331148) от 13.11.2015
+
+Saulius Petreikis & The Unit 7 Allstars - Lowlands (2014) [OGG| 405-493 кб/с]<World, Folk, African, Celtic, Persian Classical, Relax>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lowlands
+02. Breaking The Ice
+03. Ei Vaka
+04. Duduk(   Читать дальше...   )Жанр: World, Folk, African, Celtic, Persian Classical, RelaxПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1ACD7FB917919EF4C247B2E0E4AEEE00C87056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259553   (330580) от 20.11.2010
+
+OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Hold on I'm Comin' - Sam & Dave
+2.People Are Crazy- Billy Currington
+3.The White Room - Cream
+4.New Moon Rising - Wolfmother
+5.Mykonos - Fleet Foxes
+6.This Is Why I'm Hot - Mims
+7.Old Man (Live At Massey Hall) - Neil Young
+8.Hey You - Pink Floyd
+9.Sweet Jane - Cowboy Junkies
+10.Is There a Ghost - Band of Horses(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6843319372380D85D329F561A502996DCE3BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579355   (329913) от 02.10.2022
+
+Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind
+02. Cathedral
+03. November
+04. Premonition(   Читать дальше...   )Жанр: Electronic, Vocal, New AgeПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828746BD924514CD224EDA4FA64313ABBB58ECBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841743   (329886) от 16.11.2014
+
+Hans Zimmer - Interstellar (2014) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreaming of the Crash  (3:56)
+02. Cornfield Chase  (2:07)
+03. Dust  (5:41)
+04. Day One  (3:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC4254D9FB8107224681A958CFE44C6A3515F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261483   (329021) от 22.11.2010
+
+VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Asleep
+02. Stay Asleep/Wake Up RejuvenatedЖанр: New age, RelaxПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBB954691C58C7957847830E5A10C03BD17505C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956721   (328966) от 15.11.2015
 
 Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edition [MP3|320 кб/с]<World, New Age>
@@ -606,150 +755,6 @@ Yiruma - Blind Film (2014) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8590F544FA17B52E6641F8318FA2D0FF3B15B4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181188   (323507) от 07.11.2017
-
-David Bowie, Reeves Gabrels, Xavier Despas - Omikron: The Dreamers (Omikron: The Nomad Soul OST) (2000) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. Omikron
-03. Anekbah
-04. Ganhar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5C499B112B75489064C01F4C97D2DFD25313EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181062   (323498) от 07.11.2017
-
-Olga Stankevich (Ольга Станкевич) - Dreamway (2011) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contiguity (Соприкосновение)
-02. Path Towards the Dream (Путь к мечте)
-03. Downtown Ballet (Городской балет)
-04. Etude (Этюд)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B191176DA43508DC0F0CE5044A1E28236E23CD35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074988   (323446) от 21.11.2016
-
-VA - Скалолазка и Последний из Седьмой колыбели (2007) [MP3|128 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ёлка - Три пути
-02. Мурат Насыров - Алена (Восточная мелодия)
-03. Bond
-04. Военная(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473264FAC93E1C2400FCC231A32DF5D6CF73BABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075029   (323436) от 21.11.2016
-
-Loretta Lynn - White Christmas Blue (2016) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Christmas Blue (02:48)
-02. Country Christmas (02:25)
-03. Winter Wonderland  (02:25)
-04. Away in a Manger (02:51)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F32076F80DE26CCAED3720F6CDB768DF8B91A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181345   (323363) от 07.11.2017
-
-Olga Stankevich (Ольга Станкевич) - Дискография (2010-2014) [MP3|320 Kbps] <Instrumental Pop, Piano, Experimental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inspiration (3:39)
-02. Inspiration (Justin Fry Radio Edit) (4:00)
-03. Inspiration (Justin Fry Extended Mix) (6:13)Жанр: Instrumental Pop, Piano, ExperimentalПродолжительность: 02:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3496A52A2067D956E2CB0F691CC45392B27885
 ```
 
 https://mybot314.ru/tekegram_catalog/

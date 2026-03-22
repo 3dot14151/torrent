@@ -1,3 +1,162 @@
+###  Публикация: 1139766   (658038) от 04.06.2017
+
+Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Lie To Me (3:04)
+02 - One's You Love The Most (3:54)
+03 - I Believe (3:31)
+04 - Night Before The Dawn (3:08)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84190B82C8971BE759E975753B9C30434227B68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514455   (657968) от 24.06.2012
+
+Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibert - Entr'acte [03:16]
+02. Villa-Lobos - Bachianas brasieleiras No. 5  - Aria [05:57]
+03. Desportes - Ronde [02:04]
+04. Ovalle - Azulco [01:31]
+05. Chopin - Prelude in E minor, Op. 28 No. 4 [02:18]
+06. Almeida - O Cacador [01:51]
+07. Desportes - Pastorale joyeuse [02:41]
+08. Ovalle - Tres pontos de santo [04:10]
+09. Gossec - Tambourin [01:31]
+10. Henrique - Boi-Bumba [01:39](   Читать дальше...   )1990Жанр: ClassicalФормат: CDПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514682   (657745) от 24.06.2012
+
+VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657745.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Allegro - Pepe Romero, Celin Romero, San Antonio Symphony Orchestra, Victor Alessandro, Antonio Vivaldi [03:44]
+2. Adagio in G minor - Dominic Miller, Budapest Film Orchestra, Nick Ingman, Tomaso Albinoni [05:08]
+3. Questa Notte - Craig Ogden, Ludovico Einaudi [05:07]
+4. Canario (Allegro ma non troppo) - Pepe Romero, The Academy of St. Martin in the Fields, Neville Marriner, Joaquin Rodrigo [04:42]
+5. Canarios - Heinz Wildhagen, Narciso Yepes, Guenther Dieckmann, Gaspar Sanz [03:10]
+6. Berceuse from Dolly Suite - Gabriel Faur? [03:17]
+7. Farewell to Stromness - Los Angeles Guitar Quartet, Peter Maxwell Davies [04:19]
+8. Spanish Dance, Op.37, No.10 - "Danza triste" - Pepe Romero, Celin Romero, Enrique Granados "[03:48]
+9. Romance No. 1 - Craig Ogden, John Brunning [02:57]
+10. Melodie - Pepe Romero, Robert Schumann [01:48](   Читать дальше...   )Жанр: Classical GuitarПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903490   (657375) от 31.05.2015
+
+Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) [FLAC|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trail - [02:50]
+02. Geralt of Rivia - [02:22]
+03. Eredin, King of the Hunt - [02:28]
+04. Wake Up, Ciri - [01:35](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CBBCCAC60E9B0D31DB8521A1E87CFC8C40FD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515110   (656816) от 25.06.2012
+
+Шедевры Этнической Музыки - Африканские барабаны (2007) [MP3|224 кб/с]<Ethnic Africa>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01- African Tales. 11:36
+02- Boho. 09:54
+03- Lion Huter. 09:56
+04- Savannah beat. 06:37
+05- Southern Night. 07:55
+06- Taimba. 08:16Жанр: Ethnic AfricaПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755178FFC244F255C296C4471D3F4488A8E61235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514085   (656621) от 25.06.2012
 
 Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (2012) [MP3|320 кб/с]<OST>
@@ -624,151 +783,6 @@ Kamal - 17 Альбомов (1987 - 2010) [FLAC|Lossless|tracks] <New Age, Medit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0D85E8D29D2241B7D5DCBCC96036524D0FAD814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031486   (651378) от 04.07.2016
-
-Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Demon (03:23)
-02. Mine (by Sweet Tempest) (03:43)
-03. The Demon Dance (by Julian Winding) (06:00)
-04. What Are You (01:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2CD6FE48A53E55BBF92DF8C4F5F1A8858DB47D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227222   (650391) от 24.05.2018
-
-Raw Silk - Raw Silk (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Argonaut I
- 02 – Argonaut II
- 03 – Malpresentations
- 04 – Commie Baby(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B2A6501CA55A2E59D0ECFF0C6E206606AA2B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031843   (649827) от 05.07.2016
-
-Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bandole!    05:41
-02.  Summer Rain    05:23
-03.  Kinana's Lullaby    05:32
-04.  Talkin' Stories    04:06(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2AE16F223494509FF51E029F5A7F2A5B7E45F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031673   (649824) от 05.07.2016
-
-Andre Gagnon - Comme Dans Un Film (1986) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'eternel Retour (Endless Return) [05:24]
-02. Violetta [03:50]
-03. Comme Dans Un Film (Like In A Movie) [04:02]
-04. Chanson Pour Liona (Song For Liona) [03:44](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC9BF0955A9FD32D73C3545A25752C8AF732FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031899   (649677) от 05.07.2016
-
-Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste [00:05:39]
-02. Always Perfect [00:06:02]
-03. Celtic Blessing [00:06:18]
-04. Into Your Hands [00:08:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6414683AF6430A962E6C1D1B7EA9335DEC77CF78
 ```
 
 https://mybot314.ru/tekegram_catalog/

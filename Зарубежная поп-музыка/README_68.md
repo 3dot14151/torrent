@@ -1,3 +1,119 @@
+###  Публикация: 1620821   (245826) от 22.03.2023
+
+VA - Italo Dance Classics Volume 4 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Righeira - Vamos A La Playa
+02. P. Lion - Happy Children
+03. Valerie Dore - The Night
+04. Tullio De Piscopo - Stop Bajon(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BC84AC414282C5E93C233F94DA0356AC5D60F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608743   (245534) от 31.01.2023
+
+Gerard Joling - No More Boleros (1989) [MP3|320 Kbps] <Рор>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. The Tears Inside
+02. Lovin' You Is Easy
+03. Let This Night Last Forever(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30675E517B00B6C04A5B2F09C87C42D1B7F1CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631026   (245162) от 04.05.2023
+
+VA - Mellow Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster)
+02. Simply Red - Holding Back the Years
+03. Gerry Rafferty - Right Down the Line
+04. Carly Simon - You're So Vain(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275AF1AD4B24E59384BB8EFA03298F63A37BD2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266150   (245056) от 01.12.2018
+
+VA - Megahits 2019 - Die Erste (2018) 2CD [MP3|320 Kbps] <Pop, Indie, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245056.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Robin Schulz Feat. Erika Sirola - Speechless
+02. Calvin Harris And Sam Smith - Promises
+03. Alle Farben - Fading(   Читать дальше...   )Жанр: Pop, Indie, AlternativeПродолжительность: 02:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E08CAA7FBF6B32429887F0F8193E1A1E087ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266159   (245027) от 01.12.2018
 
 VA - W9 Hits 2019 (2018) 4CD Multipack [MP3|320 Kbps] <Pop, Dance, Rap>
@@ -629,122 +745,6 @@ VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78E25960509CC2223B7904AC7BF6D69199D7ED4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635377   (241880) от 25.05.2023
-
-VA - NOW: 80s Alternative (2023) 4CD, Compilation, Special Edition [MP3|320 Kbps] <New Wave, Synth-pop, Alternative, Britpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241880.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. New Order - Thieves like Us
-02. Eurythmics - Beethoven (I Love To Listen)
-03. Joy Division - Love Will Tear Us Apart(   Читать дальше...   )Жанр: New Wave, Synth-pop, Alternative, BritpopПродолжительность: 01:19:17 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C8A629766C3AE4237CE43C8AC17F5195DD1F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546501   (241686) от 24.04.2022
-
-VA - DMC Dance Mixes 291 Ibiza (2021) [MP3|320 Kbps] <House, Dance-pop, Tech House, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alessio Viggiano - Flowerchild (Sakros Deepverse Remix)
-02. Ben Gerrans - Burn (Extended)
-03. Craig & Grant Gordon - Drums & The Bass (Original)
-04. Dan Savidge & Byron Stingily - Summer Nights (Extended)(   Читать дальше...   )Жанр: House, Dance-pop, Tech House, Nu-DiscoПродолжительность: 01:19:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91379929DE0F22F9DF4CF1323C48B86C15AC69E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546492   (241669) от 24.04.2022
-
-VA - DMC Dance Mixes 291 (2021) [MP3|320 Kbps] <House, Dance-pop, Tech House, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack X Lucas & Steve & Dubvision - Anywhere With You (Extended)
-02. Alesso X Marshmello & James Bay - Chasing Stars (Vip Mix)
-03. D.N.A - Deja Vu (Extended)
-04. Diplo X Paul Woolford & Kareen Lomax - Promises (Extended)(   Читать дальше...   )Жанр: House, Dance-pop, Tech House, Nu-DiscoПродолжительность: 01:19:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0486DC9D3B56C6141BE515067CA808B8320202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625524   (241552) от 10.04.2023
-
-VA - 80s Gold (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaka Khan - Ain't Nobody
-02. Michael McDonald - I Keep Forgettin (Every Time You're Near)
-03. Tina Turner - The Best
-04. Fleetwood Mac - Little Lies (2018 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19710803C75B29A3B15F4B57381214A41427CB69
 ```
 
 https://mybot314.ru/tekegram_catalog/

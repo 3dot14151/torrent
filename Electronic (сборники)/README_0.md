@@ -1,3 +1,61 @@
+###  Публикация: 1842755   (1048893) от 16.12.2025
+
+VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fade Away
+02 - Ocean Eyes
+03 - Falling Apart
+04 - One(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A365BE6C31D76A66B68E6ECE085968648AD9C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842753   (1048892) от 16.12.2025
+
+VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Stay Close
+02 - Umideep - Ra-Ta-Ta Love
+03 - Kasimoff - Je Tombe Sans Bruit
+04 - Delih - Dreamlover(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842365   (1048702) от 15.12.2025
 
 VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
@@ -687,64 +745,6 @@ Parov Stelar - Assorted compilation (2023) [MP3|320 Kbps] <Electro Swing, House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C152C49C6C0DC4DF2D0534DAA9B42E5B3B2387C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610017   (1042866) от 05.02.2023
-
-VA - Deep House & Groove Mixed (2023) [MP3|320 Kbps] <Deep-House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Aedidias - L'aquitaine
-002. Bobby Smile - Get Up
-003. Jordan Brando - Marz
-004. Groove Republic - Garden Grooves(   Читать дальше...   )Жанр: Deep-House, ElectroПродолжительность: 11:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914AE0F0F18C1B44301E28CAA3FA6777B0F8BC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610054   (1042851) от 05.02.2023
-
-VA - Record Super Chart 04.02.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady GaGa - Bloody Mary (Clinton Sparks Remix) (4:02)
-02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
-03. Alok feat. Sigala & Ellie Goulding - All By Myself (2:51)
-04. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC4D01B8F7CF19056CBD52C8FA052A1FB0ABAC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

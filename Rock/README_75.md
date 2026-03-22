@@ -1,3 +1,148 @@
+###  Публикация: 1538256   (243420) от 20.03.2022
+
+Make Mama Proud - Make Mama Proud II (2022) [MP3|320 Kbps] <Stoner Rock, Heavy Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Sun 05:16
+02. Camel Rider 06:30
+03. Blinded By The Fire 05:00
+04. T.U.A. 01:29(   Читать дальше...   )Жанр: Stoner Rock, Heavy PsychedelicПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4780421F802AD50BCB39F490C7B8BB602B7B65F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626665   (243385) от 17.04.2023
+
+Ten Jinn - Ardis (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegy I [00:01:29]
+02. Brotherhood Of Man [00:04:02]
+03. Slaves Of The Machine [00:05:47]
+04. Say Aye - Bishop's Vision [00:06:50](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B42271119CC9223D9C874396B5C8070EB98183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079869   (243147) от 04.12.2016
+
+Kevin M. Thomas - Generation Rock (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Generation Rock
+02.Rock My Song
+03.She's My Little Punk Rocker
+04.She's Rock(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A8C41D3E8CA37F54562A735C3F299D7FB8DE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626744   (243145) от 18.04.2023
+
+Modern Man - Modern Man (1987) [MP3|320 Kbps] <Pop Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Don't Die (04:11)
+02. Time (04:03)
+03. Damn Love (04:19)
+04. Cage in My Head (04:13)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD99C01054A2DC1082038252C363F55BB0B8A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614766   (243030) от 23.02.2023
+
+Eddie B - I'm Holding On (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_243030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leading Me 03:56
+02. Watching Me 03:37
+03. Amazing Grace 03:48
+04. Play Church 03:02(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0DDBBBFD3931B1DFD2EE2CCB746497214D0CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627541   (242981) от 19.04.2023
 
 Riverside - Riverside 20 The Shorts & The Longs (2021) 2xCD [MP3|320 Kbps] <Progressive Rock>
@@ -602,154 +747,6 @@ Lord Loud - Timid Beast (2020) [MP3|320 Kbps] <Stoner Rock, Heavy Psych>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC5AD621F339425A585FAA4C665C8BF708BA0BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636612   (240458) от 01.06.2023
-
-Chords Of Chaos - Collection (2010-2017) 25 CD  [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательная группа которая играет каверы известных групп, советую послушать..
-
-
-Список альбомов:2010. Chords Of Chaos - Rock Of Ages
-2010. Chords Of Chaos - Southern Rock Revival
-2011. Chords Of Chaos - Another Brick In The Wall - Rock Anthems
-2011. Chords Of Chaos - Drinking Songs Rock!Жанр: Rock, Hard Rock, MetalПродолжительность: 34:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66E0352FAFF1A00B0D46CBB2441D868F5103EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565144   (239867) от 23.07.2022
-
-Vandhali - Fever Dream (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 River Styx
-02 Magic Helmet
-03 Stone in the Lake
-04 Taken(   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748F8A70535D5392C6AA00D1C8273BE40B331B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565413   (239820) от 23.07.2022
-
-Indian Handcrafts - Empress in Decline (2022) [MP3|320 Kbps] <Stoner Rock, Punk Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bait And Switch [00:04:03]
-02 - Criminal [00:02:46]
-03 - Crisis Breeder [00:04:40]
-04 - Empress In Decline [00:04:03](   Читать дальше...   )Жанр: Stoner Rock, Punk Rock, PsychedelicПродолжительность: 00:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07BC3799917B40502F0E03CA211C8835C655E142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565232   (239814) от 23.07.2022
-
-Fatal Vision - Once (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning / Heartbreaker
-02. Burning For You
-03. Open Your Eyes
-04. Into The Twilight(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F70DDAF9C96722C5352EDA56A276D6D141A05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467324   (239812) от 03.05.2021
-
-Howling Giant - 8 Albums (2015-2021) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Understudy [00:05:36]
-02. Luring Alluring Rings [00:06:56]
-03. Enemy Of My Anemone [00:05:11]
-04. Farmer Maggot's Crop (ft. Mike T. Kerr) [00:02:41]Жанр: Stoner Rock, Doom MetalПродолжительность: 8CD, 03:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7E79D80B28AA1BBAB5332BBF814081EECDC223
 ```
 
 https://mybot314.ru/tekegram_catalog/

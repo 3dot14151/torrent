@@ -1,3 +1,322 @@
+###  Публикация: 1672123   (170384) от 27.10.2023
+
+The Kills - God Games (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New York (4:04)
+02. Going To Heaven (3:48)
+03. LA Hex (3:15)
+04. Love And Tenderness (2:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EC1F7CD73398821565731851F806DE6EF3C6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672088   (170341) от 27.10.2023
+
+Journey - Frontiers (1983) Remastered, 2023, Columbia [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate Ways (Worlds Apart) (5:23)
+02. Send Her My Love (3:54)
+03. Chain Reaction (4:19)
+04. After the Fall (5:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAD7894368219E83D9AECB235B4521AD065029F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672096   (170313) от 27.10.2023
+
+DJ Shadow - Action Adventure (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Bass, Beats, Breakbeat, Trip-hop, Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozone Scraper [00:03:31]
+02. All My [00:02:43]
+03. Time and Space [00:08:21]
+04. Craig, Ingels, & Wrightson [00:03:09](   Читать дальше...   )Жанр: Electronic, Bass, Beats, Breakbeat, Trip-hop, Hip-HopПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D7CB3367B7BD6DAF56FDF7149D2C0C7A20CCB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672160   (170304) от 27.10.2023
+
+Simple Minds - New Gold Dream (Live From Paisley Abbey) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Somewhere In Summertime (Live From Paisley Abbey) [00:04:56]
+02. Colours Fly and Catherine Wheel (Live From Paisley Abbey) [00:04:53]
+03. Promised You A Miracle (Live From Paisley Abbey) [00:04:20]
+04. Big Sleep (Live From Paisley Abbey) [00:05:05](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B620D8AF499CF8C63B712D5834B35D9EA3119104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672165   (170211) от 27.10.2023
+
+Barbra Streisand - Evergreens - Celebrating Six Decades on Columbia Records (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Tell The Man In The Street [00:03:10]
+02. Bewitched (Bothered and Bewildered) [00:02:54]
+03. Absent Minded Me [00:03:09]
+04. The Shadow Of Your Smile [00:02:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E86F8D3AFC1757A32295685EEA6F968BC86130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672030   (170186) от 27.10.2023
+
+Sorcerer - Reign of the Reaper (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star (6:34)
+02. Reign of the Reaper (6:30)
+03. Thy Kingdom Will Come (5:02)
+04. Eternal Sleep (6:35)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5E11216FA6BEF0DE631771BE9ABDCC509B3CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672139   (170154) от 27.10.2023
+
+Death - Scream Bloody Gore (1987) Reissue, 2001, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernal Death (02:54)
+02. Zombie Ritual (04:35)
+03. Denial Of Life (03:36)
+04. Sacrificial (03:43)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B402F6EDBEF9690352F641D849EA0611D83AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672038   (170133) от 27.10.2023
+
+Red Reign - Don't Look Back (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Peace No Love (2:53)
+02. Don't Look Back (3:41)
+03. Here I Am (4:04)
+04. Follow Your Heart (3:49)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96A15ED571ADDE2038E849F7444F47C70F7B1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672180   (170113) от 27.10.2023
+
+Prince & The New Power Generation - Diamonds and Pearls (Super Deluxe Edition) (1991/2023) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170113.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+01. Thunder (2023 Remaster) (5:45)
+02. Daddy Pop (2023 Remaster) (5:16)
+03. Diamonds and Pearls (2023 Remaster) (4:43)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F069045280CF4113CDFEAF1F8CA4026B1C19B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672222   (170101) от 27.10.2023
+
+Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To New York (Taylor's Version) (3:33)
+02. Blank Space (Taylor's Version) (3:52)
+03. Style (Taylor's Version) (3:51)
+04. Out Of The Woods (Taylor's Version) (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91058873D3E08C97169FD0AD3F4EFC9CA869ECE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672089   (169929) от 27.10.2023
+
+ДДТ (DDT) - Сборник песен №2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169929.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2020 (Сингл, 2020)
+2. Звезда-старуха («Галя ходи», 2018)
+3. Ты не один (Live, 2022)
+4. Где мы летим («Иначе. PS», 2011)(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EAC9A4E5C334D7E99248E2191AEFB7DAEB7241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672384   (169546) от 28.10.2023
 
 Prospective - Reasons To Leave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
@@ -426,326 +745,6 @@ Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B040AA3EDB20D562A9BB694C32B233F42913F468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672667   (167985) от 29.10.2023
-
-Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scavenger Of Human Sorrow (06:57)
-02. Bite The Pain (04:29)
-03. Spirit Crusher (06:47)
-04. Story To Tell (06:36)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672719   (167966) от 29.10.2023
-
-Bolt Thrower - Studio Albums (8 releases) (1988-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bolt Thrower — британская дэт-метал-группа, образовавшаяся в 1986 году в Бирмингеме, Англия, и ставшая (согласно Allmusic) «самой последовательной и стойкой дэт-метал-группой Британии, сумевшей через все взлёты и падения сохранить звучание и не поддаться на коммерческие соблазны»1988 - In Battle There Is No Law
-1989 - Realm Of Chaos
-1991 - War Master
-1992 - The IVth CrusadeЖанр: Death MetalПродолжительность: 06:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672709   (167811) от 29.10.2023
-
-Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed King  (2018 Remaster) [00:05:51]
-02. Bloodsucker  (2018 Remaster) [00:04:12]
-03. Child in Time  (2018 Remaster) [00:10:17]
-04. Flight of the Rat  (2018 Remaster) [00:07:53](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479D1CEDC6633D138878ED1A1577BE57F4FA56E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672620   (167741) от 29.10.2023
-
-Мираж - Неизданное (1989-1991) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167741.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 (34:04)
-
-[4:53] 1. Я жду тебя
-[4:05] 2. Эхо(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515939   (166749) от 10.12.2021
-
-VA - Танец На Барабане. Поют Н. Гнатюк, Е. Головин, А. Ефремов (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166749.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Николай Гнатюк - Танец На Барабане
-Р. Паулс – А. Вознесенский
-A2 Евгений Головин - Если Снится
-Т. Карки – Ю. Вайнио, русский текст Л. Дербенев(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7D22189496E1CCE8E36D661D60FE6C3C44E893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597443   (166735) от 14.12.2022
-
-Fozzy - Studio Albums (8 releases) (2000 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fozzy — американская хэви-метал группа.
-В 1999 году рестлер Крис Джерико и гитарист группы "Stuck Mojo" Рич Уорд создали кавер-группу "Fozzy Osbourne". Вскоре название сократилось до "Fozzy", а в 2000 году на лейбле "Megaforce Records" вышел одноименный дебютный альбом.2000 - Fozzy
-2002 - Happenstance
-2005 - All That Remains
-2009 - Chasing The GrailЖанр: Heavy Metal, Hard RockПродолжительность: 06:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596628   (166534) от 14.12.2022
-
-Маленький Принц - Мы встретимся снова (1989) [WavPack 2.0|192/32|tracks|MB-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166534.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:06] 1. Я не знаю, зачем мне ты
-[4:01] 2. Голос в ночи
-[5:17] 3. Прощай
-[4:46] 4. Не знаю я тебя(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A3741CAC7E106A729D2B12BDF7660BD6A8663F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646491   (166089) от 31.10.2023
-
-Dernesch, Kollo, Wiener Philharmoniker, Georg Solti - Wagner: Tannhäuser (1971) 2018, Remastered [FLAC|24/96|tracks|WEB-DL] <Classical, Opera>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Richard Wagner (1813 - 1883): Tannhäuser, WWV 70 - Paris version / Act 1:
-1  Overture . . . "Naht euch dem Strande"
-2  "Geliebter, sag', wo weilt dein Sinn?"
-3  "Dir töne Lob! Die Wunder sei'n gepriesen"(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 03:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D657D83388519FD0D42246E56D67DDEDEF28A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431813   (165887) от 15.12.2020
-
-Урия Хип - Ансамбль «Урия Хип» | Uriah Heep - Innocent Victim (1980) 1977 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Hard Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165887.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Keep On Ridin' = Я Снова В Пути
-A2 Flyin' High = Летаю Высоко
-A3 Roller = Легкомысленная
-A4 Free N' Easy = Свободно И Легко(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673232   (165484) от 01.11.2023
-
-Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/Occult>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satan's War [00:04:03]
-02. Demon [00:03:30]
-03. Burning Water [00:03:15]
-04. When You Were Dead [00:03:23](   Читать дальше...   )Жанр: Psych, Stoner, Doom, OccultПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C249F250338993B7BF692C0AC3140C9CA75576E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673497   (165417) от 01.11.2023
-
-DGM - Tragic Separation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165417.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Flesh And Blood
-A2. Surrender
-B1. Fate
-B2. Hope(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584311E08528C64FED8854D83F3CC5B28E56DACE
 ```
 
 https://mybot314.ru/tekegram_catalog/

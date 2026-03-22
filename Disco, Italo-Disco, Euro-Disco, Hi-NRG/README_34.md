@@ -1,3 +1,32 @@
+###  Публикация: 954779   (339246) от 08.11.2015
+
+Boney M - Greatest Hits (2008) [MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339246.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Nightflight to Venus (04:47)
+02. Rasputin (05:51)
+03. Sunny (04:02)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 02:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6C526FDF9A6488B7174EF0A37B7B3B7DF3FE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180942   (337893) от 05.11.2017
 
 Soraya - Soraya (1978) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -721,35 +750,6 @@ Boris Zhivago - Memories (2016) [MP3|320 Kbps] <Euro Disco, Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A4CDB70E7646ADFFD55CB9F00F51BB295BB47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837929   (314635) от 11.11.2017
-
-VA - Sunlover Records Compilation Vol. 1-3 (2014-2017) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Dreamwave, Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VHS Dreams - Space Race (5:34)
-02. RetroSynther - Technocity (6:05)
-03. Les Chic Voltage - Disco Gallo 84 (3:21)
-04. Apollo Zapp feat Reo - Hula Hoop! (3:03)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Dreamwave, SynthwaveПродолжительность: 03:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F226FF653E974D9F1187C74F58C61D656DFFEB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

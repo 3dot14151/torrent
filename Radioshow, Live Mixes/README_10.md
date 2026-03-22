@@ -1,3 +1,96 @@
+###  Публикация: 1549901   (592931) от 08.05.2022
+
+Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattia Saviolo - Twilight Of The Idols
+02. Psyk - First Trail
+03. Wlderz - Algo
+04. Alex Lentini & Stomp Boxx - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9BFD9E240F9087DADF84F3F36D625355B5DADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551165   (590740) от 14.05.2022
+
+Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2022-05-12) [MP3|320 Kbps] <Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimitri Vegas & Like Mike & Azteck & Hayley May - Heaven
+02. Dimitri Vegas & Like Mike vs. Sander van Doorn - Project T
+03. Dimitri Vegas & Like Mike - Chattahoochee (Tomorrowland 2013 Anthem)
+04. Dimitri Vegas & Like Mike & Wolfpack - Ocarina (TomorrowWorld Anthem) (Bassjackers Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2C0BCEBE5DA61E26BFB4A850BD627B474F0B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358256   (585898) от 02.07.2011
+
+DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х) (2.07.2011) [MP3|320 kbps]<Club,Dance,Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Opus - Life Is Life (DJ Fisun Remix)
+ 2 DJ Smash vs Lyube feat. Mc Shayon - Atas
+ 3 Virus - Ty menya ne ischi (Free Dj's Rework)
+ 4 Ruki Vverh - Ya Ne Otdam Tebya Nikomu (Insomnia Radio Mix)
+ 5 Platinum Monkey & D.Tarasyuk vs Evgeniy Osin - Plachet Devushka v avtomate
+ 6 Arash - Boro Boro (Dj Kirill Clash & Dj Dmitriy Nema Mash-Up)
+ 7 Irina Saltykova - Serye Glaza 2011 (Aleksey Kraft Remix Radio Edit)
+ 8 Dirty Impact vs. Royal XTC - Tom's Diner (PH Electro Remix)
+ 9 Leprikonsy - Haligali (DJ Skafelnikof & DJ BooF Disco House Remix)
+ 10 Yura Shatunov - Metel' v bol'shom gorode (MusicKey 2011 Edit Version)(   Читать дальше...)Жанр: Club,Dance,PopПродолжительность: 01:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E788646090BBB51417F368D338E2AFCA3F51C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297280   (582203) от 14.05.2019
 
 VA - Live @ Synergy (Alte Kaserne Zurich, Switzerland) 2019-04-06 [MP3|320 Kbps] <Trance>
@@ -656,93 +749,6 @@ Ed Lynam - Live @ Infected, Odense, Denmark 2019-06-22 [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E63E4CBA4623138432713A2C90CB2F784D90072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312596   (530957) от 05.07.2019
-
-Daniel Lesden - Live @ Night Terrace, Aglomerat Moscow, Russia 2019-06-28 [MP3|320 Kbps] <Trance, Progressive House. Psy Trance>>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Cell – Mute The Silence (Pacco & Rudy B Remix)
-02. Ewan Rill, K Loveski – Elau (Subandrio Remix)
-03. Ivanshee – Serpantine (Luciano Scheffer Remix)
-04. San – Ultima Thule (Matan Caspi Remix)(   Читать дальше...   )Жанр: Trance, Progressive House. Psy TranceПродолжительность: 02:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5E02588A8DE4E3F6A5D7D316E60457D818AFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558658   (530184) от 21.06.2022
-
-39 Kingdom - Live @ Curonian Spit, Russia (2022-05-29) [MP3|320 Kbps] <Progressive House, Deep House, Indie Dance, Nu Disco>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goom Gum - Aposch
-02. Anturage & DJ Skif & Ira Ange - La Cassette
-03. Anturage & Alar - Singapore
-04. Airsand & TuraniQa - Take You Home(   Читать дальше...   )Жанр: Progressive House, Deep House, Indie Dance, Nu DiscoПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EEFD7E8A9B052F304525CC88BDA21BD530702B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558482   (530081) от 21.06.2022
-
-David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2022-06-12) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix) (Intro Edit)
-02. Shouse - Love Tonight (David Guetta Remix)
-03. Eurythmics - Sweet Dreams (David Guetta Remix)
-04. David Guetta ft. Ne-Yo & Akon - Play Hard (David Guetta & MORTEN Future Rave Remix) w/ Tiësto - The Business (Acappella)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD227A3CFEAF8AF069A07CDA5057820AA2611D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

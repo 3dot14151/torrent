@@ -1,3 +1,235 @@
+###  Публикация: 1208528   (1034040) от 11.03.2023
+
+VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claudio Baglioni - Un Giorno nuovo
+02. Lucio Battisti - E Penso A Te
+03. Edoardo Bennato - L'isola Che Non C'e
+04. Lucio Battisti - Ancora Tu(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618699   (1033680) от 13.03.2023
+
+Wisdom - Studio Albums (5 releases) (2004-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wisdom — венгерская пауэр-метал-группа из Будапешта.2004 - Wisdom (EP)
+2006 - Words Of Wisdom
+2011 - Judas
+2013 - Marching for Liberty(   Читать дальше...   )Жанр: Power MetalПродолжительность: 03:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6438FAD4E4516FEF1C2A0B2E0FA85EBFEECAB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446400   (1032997) от 08.02.2021
+
+VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tracks|Vinyl] <Deep House, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SPCE - Lightness (06:02)
+ 02. Maizena - The Future (05:55)
+ 03. Mandee & Central - If I Feel Like It (06:28)
+ 04. Hi Mount - U N Me (04:47)Жанр: Deep House, DowntempoПродолжительность: 00:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59D09A006049E5D5774A47C49853CC0D07A7951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619367   (1032970) от 16.03.2023
+
+MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032970.jpg" />
+</div>
+
+
+###  Подробнее
+
+MaYaN — нидерландская симфоник-дэт-метал-группа, образованная в 2011 году лидером группы "Epica" вокалистом Марком Янсеном, клавишником Яком Дриссеном и гитаристом Франком Схипхорстом. Название группы было выбрано Марком из-за его заинтересованности в культуре майя..
+2011 - Quarterpast
+2014 - Antagonise
+2018 - DhyanaЖанр: Symphonic Death MetalПродолжительность: 03:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118C5DB1E4923A9775AE82F07134C253BDD4BADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620890   (1031642) от 22.03.2023
+
+Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Life Is Just What You Make It • Ты хозяин своей судьбы
+A2. The Twelfth Of Never • Буду любить тебя вечно
+A3. Sunshine Rose • Солнечная роза
+A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621442   (1030764) от 26.03.2023
+
+Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
+1999 - Legends
+2001 - Middle Earth
+2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622220   (1030295) от 28.03.2023
+
+Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
+1998 - The Electric Sleep
+2000 - Celestial Hi-Fi
+2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623730   (1029090) от 03.04.2023
+
+Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029090.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Doctor For My Heart (12" Version) 5:18
+A2. Wings Of Love (12" Version) 5:21
+A3. Colder Than Ice (12" Version) 5:38
+A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450767   (1028846) от 27.02.2021
 
 Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock>
@@ -505,254 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600384   (998771) от 08.01.2013
-
-The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image + .cue, tracks (Vinyl-Rip)]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600155   (998741) от 08.01.2013
-
-The Prodigy - The Fat Of The Land (1997) [FLAC 2.0 24/96 |tracks(VinylRip)]<Breakbeat, Big Beat, Dubstep>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998741.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Smack My Bitch Up (05:43)
-L. Howlett, M. Smith,
-N. Miller, K. Thorton,
-T. Randolph
-A2. Breathe (05:36)
-L. Howlett, Keith Flint,
-MaximЖанр: Breakbeat, Big Beat, DubstepПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99E88650870CE602217B3F436EF4FB6FB9DFCA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600690   (998549) от 09.01.2013
-
-Ария - Магнитоальбом (1989) [FLAC 2.0 24/96|image+.cue (MBRip)]<Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Что вы сделали с вашей мечтой? 5:18
-02. Раскачаем этот мир 5:54
-03. Раб страха 4:33
-04. Искушение 3:58
-05. Игра с огнём 9:02
-06. Бой продолжается 6:03
-07. Дай жару! 4:24
-08. Улица роз 5:53Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E47BB3F14C7D20D010F20289394098C533FAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600618   (998545) от 09.01.2013
-
-Янка Дягилева - Не Положено (1992) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Acoustic, Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы по колено [01:49]
-02. Только дождь вселенский [00:53]
-03. Под руки в степь [02:09]
-04. Фальшивый крест [01:16]
-05. Деклассированные элементы [03:19]
-06. Особый резон [02:30]
-07. Неволя рукам (регги) [01:53]
-08. На чёрный день [02:24]
-09. Берегись [02:19]
-10. Я повторяю 10 раз и снова [00:51](   Читать дальше...   )Жанр: Acoustic, PunkПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600699   (998462) от 09.01.2013
-
-Korn - 8 альбомов (1995-2010) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Nu MetalПродолжительность: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601413   (998297) от 10.01.2013
-
-Янка Дягилева - 4 кассеты (1988-1989) [APE 2.0 16/48|image+.cue (MC-Rip)]<Acoustic, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acoustic, Post-PunkПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FCC7D753A8217534AD6EB0310235F119E4555E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601463   (998265) от 10.01.2013
-
-Чайф - 25 лет выдержки (2012) [WavPack 2.0 24/192 |image (Vinyl-Rip)]<Blues Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998265.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1
-01. Шаляй-Валяй 2:58
-02. Кот 3:33
-03. Вольный Ветер 3:38
-04. Белая Ворона 3:04
-05. Оранжевое настроение 3:50
-06. Ой-Йо 4:26
-07. Всему Свое Время 3:37
-08. Давай Вернемся 5:29
-09. Поплачь О Нем 5:17Жанр: Blues Rock, AcousticПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601499   (997997) от 11.01.2013
-
-Ольга Кормухина - За гранью слов (1991) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангел 3:10
-02. Ночь 3:34
-03. Желтая Дорога 3:47
-04. Плывущее Кафе 4:01
-05. Мне Уже Легко 3:13
-06. Алена 4:01
-07. Прощай 3:45
-08. Будь Со Мной 3:37
-09. Эпилог 3:23
-10. Корабль 3:25Жанр: RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
 ```
 
 https://mybot314.ru/tekegram_catalog/

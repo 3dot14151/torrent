@@ -1,3 +1,61 @@
+###  Публикация: 1366962   (920717) от 13.03.2020
+
+Four Tet - Sixteen Oceans (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Ambient, IDM, Electronic, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. School (04:02)
+02. Baby (04:24)
+03. Harpsichord (02:53)
+04. Teenage Birdsong (03:25)(   Читать дальше...   )Жанр: House, Ambient, IDM, Electronic, ExperimentalПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8365144E35581D1F52F38B4F252A243CC0827AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490183   (920688) от 19.08.2021
+
+Shingo Nakamura - Glow (The Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darling Midnight (BT Remix) (3:56)
+ 02. Before You Go (Matt Fax Remix) (3:14)
+ 03. Phenomena (Julian Gray Remix) (4:32)
+ 04. Darling Midnight (BT Extended Remix) (5:26)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB1BBE5AFDCADE2677096A4CF43F04E3BD63C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366834   (920583) от 13.03.2020
 
 Fritz Kalkbrenner - True Colours (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Tech House>
@@ -668,64 +726,6 @@ VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23976FCC2A27E61CB5EDCEF7AF1753C09480DC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368478   (909253) от 20.03.2020
-
-Four Tet - Sixteen Oceans (2020) Text Records [FLAC|Lossless|tracks+.cue] <House, Ambient, Tech House, Downtempo, IDM, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. School (04:02)
- 02. Baby (04:24)
- 03. Harpsichord (02:54)
- 04. Teenage Birdsong (03:25)(   Читать дальше...   )Жанр: House, Ambient, Tech House, Downtempo, IDM, MinimalПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5342A3F42D185FD2DBA9554B69256DCCC6F2AC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246925   (908845) от 20.03.2020
-
-SHXCXCHCXSH | HSXCHCXCXHS - Discography 15 Releases (2012-2020) Avian, Rösten [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Industrial, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VOOO (05:35)
- 02. OPPP (06:02)
- 03. POPP (05:52)
- 04. VVOV (05:58)Жанр: Techno/IndustrialПродолжительность: 08:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6C891FBA24505BAF78347ED91579CB08AAACCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

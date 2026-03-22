@@ -1,3 +1,119 @@
+###  Публикация: 1176590   (369846) от 22.10.2017
+
+Carl Douglas - Kung Fu Fighting (1994) The Best Of Carl Douglas [MP3|320 Kbps] <Electronic, Pop-Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kung Fu Fighting (3:16)
+02. When You Got Love (3:30)
+03. I Want To Give You My Everything (2:37)
+04. Run Back (3:23)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, DiscoПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B5546A60B3F9B61352246490B7C009CE164C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576250   (368609) от 13.09.2022
+
+Cliff Richard - Love Songs (1981) Remaster, 1987, Parlophone[MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Miss You Nights (1987 Remaster) [00:03:57]
+02 - Constantly (1987 Remaster) [00:02:38]
+03 - Up in the World (1987 Remaster) [00:02:40]
+04 - Carrie (1987 Remaster) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC8660E9A82150F8A05D0B25F39CF107511B523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576241   (368496) от 13.09.2022
+
+Julio Iglesias - Love Songs (2007) [MP3|320 Kbps] <Pop Latino>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To All the Girls I've Loved Before [00:03:32]
+02 - Crazy [00:03:16]
+03 - When I Need You [00:04:15]
+04 - Vincent (Starry Starry Night) [00:04:15](   Читать дальше...   )Жанр: Pop LatinoПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88485BCE3BD17922A12C48D259820361CFDF957A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576246   (368392) от 13.09.2022
+
+Chris Norman - Rediscovered Love Songs (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need You Now [00:04:11]
+02. To Love Somebody [00:03:35]
+03. Wonderful Tonight [00:03:42]
+04. I Drove All Night [00:04:11](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29145F65E2BE9ED9B20A49B10B23200E199B8ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575180   (368276) от 15.11.2012
 
 Eros Ramazzotti - Somos (2012) [MP3|320 кб/с]<Pop>
@@ -659,122 +775,6 @@ Thomas Anders - Christmas For You (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6710466A0990D08EEAEA4AF100D5274F4D4256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179068   (351520) от 30.10.2017
-
-Steps - Tears On The Dancefloor (Crying At The Disco Deluxe Edition) (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing With a Broken Heart 03:29
-02. Scared of the Dark 03:46
-03. September Sun 04:19
-04. Neon Blue 03:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9360852BD6AE095EC10CB84A7AE0F3D6C48F39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953176   (351421) от 03.11.2015
-
-Kylie Minogue - Kylie Christmas (2015) [MP3|320 кб/с]<Pop, Christmas>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s the Most Wonderful Time of the Year
-02. Santa Claus Is Coming to Town (with Frank Sinatra)
-03. Winter Wonderland
-04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74021EA244979EA2A25DF67C4412D3FF8DAC137B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953128   (351294) от 03.11.2015
-
-Eros Ramazzotti - 30 (2014) 3CD BoxSet [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terra promessa
-02. Una storia importante
-03. Adesso tu
-04. Musica è(   Читать дальше...   )Жанр: PopПродолжительность: 03:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454571D997337FFC514B2D781A6537B6FF33550B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179225   (350955) от 30.10.2017
-
-Charles Aznavour - Greatest Hits (All Tracks Remastered) (2017) [MP3|320 Kbps] <Pop, Variete Francaise>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Poker (Remastered 2016)
-02 Je m'voyais deja (Remastered 2016)
-03 Plus bleu que tes yeux (Remastered 2016)
-04 Il faut savoir (Remastered)(   Читать дальше...   )Жанр: Pop, Variete FrancaiseПродолжительность: 01:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D58DB080BE877FC8FDC2A5F7FF1EC88F26D54D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1627577   (237193) от 20.04.2023
+
+Beyond The Touch - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakdown [00:04:28]
+02. Money [00:04:15]
+03. Into the Night [00:05:12]
+04. Here I Go Again [00:04:58](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FA07E4A2739B0DEC0BC782B7BC8E969DBCE99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452006   (237050) от 05.03.2021
+
+White Lion - Fight to Survive (1985) Japan [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Heart (03:33)
+02. Cherokee (04:57)
+03. Fight to Survive (05:14)
+04. Where Do We Run (03:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8067981FF1AE89185EEDB2A9E513B2EC75D38BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628112   (236943) от 21.04.2023
+
+Mecca - Everlasting (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And Now The Magic Is Gone
+02. The Rules Of The Heart
+03. I Won't Walk Away
+04. The Mistakes We Make(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D043D8F662035EFDBCCAA25AF25AC001A363F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628071   (236906) от 21.04.2023
+
+Revolution Saints - Eagle Flight (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle Flight
+02. Talking Like Strangers
+03. Need Each Other
+04. Kids Will Be Kids(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C12EFB4CF782D6115AAA68965833C2D61D2616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639586   (236892) от 14.06.2023
+
+Black Drop - Octopus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Octopus [00:05:29]
+02. Burn the Sun [00:06:38]
+03. Artie Fufkin [00:04:25]
+04. Leviathan [00:03:07](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875CB0D2C86A3EB01BA76D8EF3A2B2CDD16348CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 398853   (236871) от 07.05.2022
+
+Reckless Love - 5 альбомов (2010 - 2022) [FLAC|Lossless|image + .cue, tracks + .cue]<Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо финских парней сколотили свой первый бэнд в 2001, и после небольших кадровых изменений, укоренились текущим составом в 2004. Они взяли свои псевдонимы из песен Guns’n’Roses и первоначально их репертуар состоял из кавер-версий GN’R. Оглушительный успех пришел к ним с выпуском первого одноименного альбома Reckless Love - 2010. Эта энергичная группа заслужила (   Читать дальше...   )Список альбомов:
+2010 - Reckless Love
+2011 - Animal Attraction
+2013 - Spirit (Japanese Edition)Жанр: Hard Rock, Glam RockПродолжительность: 03:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5828A12A077B02EDF2D60F2957385ECE53447060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608208   (236841) от 29.01.2023
 
 Toychild - This Won’t Hurt At All (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -572,180 +746,6 @@ Black Spiders - This Savage Land (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F8A298C8A993C0F795BD6BF680790F0F5F9BE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618649   (235463) от 12.03.2023
-
-Sunroad - Sunesthesia (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed Warning #1 (feat. Ronnie Romero) (4:49)
-02. Long Ago (5:15)
-03. Scanning Skies (4:23)
-04. Drown (3:58)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FE49A7A886FA08A0857D2F27B31ACA618EBB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636885   (235447) от 01.06.2023
-
-sPoonman - Silent Psalm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Immigrant Song (3:32)
-02. Rolf Paulsen -- Grown Up Dead (3:51)
-03. Whispers from Tellus (3:22)
-04. War of the Wind (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C653B53E8607DA8F30D50FFC888F708C1CECEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618652   (235444) от 12.03.2023
-
-Preachers Of Distortion - Fight Or Flight (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Railway Dude (01:58)
-02. Too Lazy to Be Rich (03:29)
-03. Pretty Wise (05:41)
-04. Dead Men's Trip (04:57)(   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40433AF0B86E858CDE01704205B3F5C3D61B900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636899   (235441) от 01.06.2023
-
-The Unresolved - Convalescence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christine (1:17)
-02. Doctor Breakthrough (3:48)
-03. Escape Reality (3:45)
-04. Manifesto (4:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF091C1F9153731E1580ACE077958A71638862E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636890   (235436) от 01.06.2023
-
-The Dimitri Keiski Band - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frisco Vibes (3:42)
-02. Have a Nice Day (5:08)
-03. What I'm Tryin' to Say (4:26)
-04. Favorite Son (3:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8ABFA2D353D3F46FA39E522234288F8E3843C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636903   (235407) от 01.06.2023
-
-This Is Falling - TIFwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The First Wave (0:44)
-02. Spin Dash (3:50)
-03. Future Tense (5:00)
-04. The Hunt (5:24)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280147D85E10B93B5A2D1D869E1CDC090C927BCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1320146   (475063) от 16.08.2019
+
+Звуковые библиотеки - Cinesamples - VOXOS 2 Epic Choirs [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй том библиотеки Cinesamples - Voxos: Epic Virtual Choir.
+VOXOS: Epic Virtual Choirs - виртуальный хоровой инструмент для профессионалов, содержащий полный хор, хор мальчиков, солистов, инновационный фразовый строитель, и наиболее реалистичный и мощный двигатель истинного легато.
+VOXOS содержит всемирно известные хоры и солистов с более чем 15-летним опытом (   Читать дальше...   )Формат: Kontakt: NICNT, NKI, NKC, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9372B634F08BAFCDE1272BB9AEBF695D8848408F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320452   (471235) от 18.08.2019
 
 Звуковые библиотеки - Organic Samples - Majestic Horn v1.1 [Kontakt, WAV]
@@ -656,32 +684,6 @@ ProjectSam - Symphobia 3 Lumina v1.5 [Kontakt]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0A62A2CAFDD9D501C80C2D62AE7C2B270D609D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324297   (427261) от 08.09.2019
-
-NNM-Club Sound Cleaner Collection - andgelo12 - Album 5 [MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция музыкальных треков без голосовых вставок ("watermark").Формат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD36A1CF2CB3E16431853EBB3E0A7C7AA7A123C
 ```
 
 https://mybot314.ru/tekegram_catalog/

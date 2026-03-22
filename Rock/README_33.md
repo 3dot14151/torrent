@@ -1,3 +1,148 @@
+###  Публикация: 1136779   (666769) от 27.05.2017
+
+Man Made - Man Made (1971) Reissue, 2010, Mandala [MP3|320 Kbps] <Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Man Made
+2. Carnival
+3. Reflections
+4. Evolution(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3152D6AAA3F343EDA15B4E47D8AFDC87B6CCC512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537202   (666760) от 17.03.2022
+
+The Delines - The Sea Drift (2022) Deluxe Edition [MP3|320 Kbps] <Blues Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Earl
+02. Kid Codeine
+03. Drowning In Plain Sight
+04. All Along The Ride(   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB90AE7C264CC490914A0EB635B67996F6EB3CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537395   (666566) от 17.03.2022
+
+VA - Classic Rock Hits 2022 [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - Have You Ever Seen The Rain (2:40)
+02. Bon Jovi - Livin' On A Prayer (4:08)
+03. BØRNS - Electric Love (3:38)
+04. The Verve - Bitter Sweet Symphony - Remastered 2016 (4:35)(   Читать дальше...   )Жанр: RockПродолжительность: 01:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB83E228C10DB529EE1ECCDCE219B59A357FA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224390   (666056) от 10.05.2018
+
+Angel - White Hot (1977) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666056.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Don't Leave Me Lonely
+2. Ain't Gonna Eat Out My Heart Anymore
+3. Hold Me, Squeeze Me
+4. Over And Over(   Читать дальше...   )Жанр: Rock, Hard Rock, GlamПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDBBCC8A020C6EC5472952FADA0E9EEA15C5315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224376   (666054) от 10.05.2018
+
+Voltaire - The Very Best of Aurelio Voltaire, Vol. 2 (2017) 2CD [MP3|320 Kbps] <Dark Cabaret, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Innocent
+2. Sacrifice
+3. The Mechanical Girl
+4. The Devil and Mr. Jones(   Читать дальше...   )Жанр: Dark Cabaret, Gothic RockПродолжительность: 01:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207BB3FF9866ADCCD59F3F93BD360E9059C0267F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538324   (663275) от 20.03.2022
 
 VA - Soft Rock Love (2022) [MP3|320 Kbps] <Rock>
@@ -603,151 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52595FE27775DF074275786C610AD083C74F25D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903721   (656991) от 01.06.2015
-
-Breaking Orbit - Transcension (2015) [MP3|320 кб/с]<Alternative / Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transcension Pt II
-02. When Isis Starts to Cry
-03. Become the Light
-04. Song of the Sea(   Читать дальше...   )Жанр: Alternative / Progressive RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C1ABBDD26A49D5884935EB312F7FCAD6965755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226248   (656961) от 19.05.2018
-
-It's a Beautiful Day - It's a Beautiful Day (1969) Reissue [MP3|320 Kbps] <Psych-Prog, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656961.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. White Bird
-2. Hot Summer Day
-3. Wasted Union Blues
-4. Girl With No Eyes(   Читать дальше...   )Жанр: Psych-Prog, Folk RockПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1C148A6BDF6830C3BA543020069F83CFA7240A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140173   (656922) от 05.06.2017
-
-Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records [MP3|320 Kbps] <Rock, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ghost Story
-2. Remember The Good Times
-3. Arabella (Oh Tell Me)
-4. Silas & Jerome(   Читать дальше...   )Жанр: Rock, Rhythm & BluesПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE53B58898FFE5E5840E37E699AEF847687C14F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903731   (656787) от 01.06.2015
-
-The Flies - Complete Collection 1965-1968 (2001) [FLAC|Lossless]<Garage Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (I'm Not Your) Stepping Stone (Boyce, Hart) - 2:40
-02. The Magic Train (Dunton) - 2:22
-03. House Of Love (Jones, Grainger) - 2:17
-04. Turning Back The Page (Dunton) - 3:47(   Читать дальше...   )Жанр: Garage Rock, Psychedelic RockПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89310CDDF6AE3CCBF3036BD4EF63722E9A60EC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903749   (656671) от 01.06.2015
-
-Sting - Digitally Remastered (1998) Promo CD [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Love Somebody (Set Them Free) (4:16)
- 02. Englishman In New York (4:29)
- 03. One World (Not Three) / Love Is The Seventh Wave (11:10)
- 04. All This Time (4:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C2226B21B635683FEC5D343DEADF20B973C898
 ```
 
 https://mybot314.ru/tekegram_catalog/

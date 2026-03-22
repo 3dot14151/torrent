@@ -1,3 +1,32 @@
+###  Публикация: 1341216   (262615) от 27.11.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.M. Samurai - Secret Entrance (4:42)
+02. Marco Rochowski - Voyage Of Discovery (5:46)
+03. Synthesis - Strange Land (6:51)
+04. Rygar - Illusion In C Minor (6:37)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341559   (262314) от 28.11.2019
 
 VA - ZYX Italo Disco Spacesynth Collection 3 (2017) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
@@ -726,35 +755,6 @@ Stars On 45 - The Very Best Of... (2010) Compilation [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7F6252719DC3AFBF6A7358956CDDE7FA945BDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425306   (222475) от 20.11.2020
-
-Savage - Love And Rain (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Second Of My Life (Ouverture) (0:41)
- 02. Don't Say You Leave Me (3:02)
- 03. I Love You (3:17)
- 04. Italodisco (3:07)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2678FC0BAB4135F7E2AEB4D3CC0FB2C02F47C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

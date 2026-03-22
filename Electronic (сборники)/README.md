@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1859215   (1061001) от 
+
+VA - 60 minutes. Old School Dance Music vol.34 (mixed by Dj V) (2025) [MP3|320 Kbps] <Progressive Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Solid Sessions - Janeiro (Armin van Buuren Mix)
+02-BT - Flaming June (BT & Paul van Dyk Remix)
+03-Pascal Device - Azure (Jane T. Extended Remix)
+04-Aly & Fila - Eye of Horus (Ronski Speed Remix)(   Читать дальше...   )Жанр: Progressive Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC30DC9FD39F30AE29D5D79938BF73F787890C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859024   (1060960) от 13.03.2026
+
+VA - REDISCOVER Classic Trance (2026) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - Adagio For Strings (Radio Edit) (3:25)
+02. Workout Music - Heaven (Running Mix 150 BPM) (4:07)
+03. Robert Miles - Children (4:02)
+04. DJ Jean - The Launch (Radio Edit) (3:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA7586A3C49DDCEDF8AB151761FAE5936A63211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858524   (1060421) от 11.03.2026
 
 VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
@@ -688,64 +746,6 @@ VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E6B756B1FE1A86B0805252099E9C2C74A7EF54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842755   (1048893) от 16.12.2025
-
-VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fade Away
-02 - Ocean Eyes
-03 - Falling Apart
-04 - One(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A365BE6C31D76A66B68E6ECE085968648AD9C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842753   (1048892) от 16.12.2025
-
-VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Stay Close
-02 - Umideep - Ra-Ta-Ta Love
-03 - Kasimoff - Je Tombe Sans Bruit
-04 - Delih - Dreamlover(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

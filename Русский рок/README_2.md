@@ -1,3 +1,119 @@
+###  Публикация: 1606365   (1044548) от 21.01.2023
+
+Действуй! - Грустно и пусто (2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Разрыдается заря
+2. Снегом нас укутает зима (feat. Мёртвые Осы)
+3. Тёмная улица
+4. Ты больше не моя (feat. EVO)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F856EA1DB3817A699CE3AEF3792AA49CFE679C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590426   (1044428) от 22.01.2023
+
+Включай Микрофон! - 8 Albums (2012-2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Василеостровские пляски
+2012 - Цинично и весело
+2015 - Приступы гуманизма(   Читать дальше...   )Жанр: Punk RockПродолжительность: 8 CD, 03:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE853ABEA8B18BE3A2E42108A1C7BE6B4EE8C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606844   (1044330) от 23.01.2023
+
+Встретимся завтра? - Wдоль стен (2022) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Александра [00:04:16]
+02 - Long _ Shot [00:03:20]
+03 - И о тебе [00:03:18]
+04 - Малыш [00:04:27](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274568A875FF7B396CB76AE8BF6D6F9B3E8600EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606732   (1044326) от 23.01.2023
+
+Kiberspassk - 2 Albums (2021-2023) [MP3|320 Kbps] <Industrial Rock, Breakcore, EDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Коза Рогатая (03:54)
+02. Смородина (04:03)
+03. Голытьба (04:15)
+04. Вий (05:27)(   Читать дальше...   )Жанр: Industrial Rock, Breakcore, EDMПродолжительность: 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9047E34E10CA3112A94CCEC5FCE87122C035844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606841   (1044320) от 23.01.2023
 
 Комната Возле Окна - Возврату не подлежит (2023) [MP3|320 Kbps] <Alternative>
@@ -636,122 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38AE03AC2275CAAC44B8E54AA8B9687C76004EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437306   (1042307) от 04.01.2021
-
-Crrombid Traxorm - Anamnesis Morbi (2020) [MP3|320 Kbps] <Progressive Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro-Rising Reanimation (06:26)
- 02. Mortalgramma (03:08)
- 03. New Vaccine (07:28)
- 04. Stomatologic Operation (08:10)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E4897A08C23ED8AF565F4E9B6430240D777AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437393   (1042302) от 04.01.2021
-
-Compassionizer - Caress of Compassion (2020) [MP3|320 Kbps] <Progressive Rock, RIO, Avant-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Whole Creation Travaileth in Pain Together (07:16)
- 02. Street out of Sleep (03:22)
- 03. How Poems Lose Relevance (04:16)
- 04. Caress of Compassion (Part 1) (03:22)(   Читать дальше...   )Жанр: Progressive Rock, RIO, Avant-ProgПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07E5CA01401D81A34E976B086BB64D429C0A3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437336   (1042299) от 04.01.2021
-
-Crimson Caravan - Big Big Bang (2020) [MP3|320 Kbps] <Stoner Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Big Big Bang [00:05:45]
-02 - Satisfied Cremation [00:03:35]
-03 - Heap of Junk [00:04:14]
-04 - Fire Geckos Dance [00:04:38](   Читать дальше...   )Жанр: Stoner Desert RockПродолжительность: 00:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D535BD5CC7D2FF34A46A63F2B5F49B2CD52519B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437230   (1042298) от 04.01.2021
-
-Echelon - Поехали (2020) [MP3|320 Kbps] <Modern Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - На взлёт [00:01:49]
-02 - Поехали [00:04:16]
-03 - Особенный путь (feat. Alena Meta) [00:04:11]
-04 - Течение времени [00:03:54](   Читать дальше...   )Жанр: Modern Industrial Nu MetalПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0231EFA05C5F10B8CE2C094E808720BAE57994
 ```
 
 https://mybot314.ru/tekegram_catalog/

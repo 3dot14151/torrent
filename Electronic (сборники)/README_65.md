@@ -1,3 +1,90 @@
+###  Публикация: 1212488   (775824) от 12.03.2018
+
+VA - Immersion Of Progressive House (2018) [MP3|320 Kbps] <Progressive House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775824.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nesta Tonik - Moon Shadows (Original Mix)
+002. Sendoo - Siren (Original Mix)
+003. Martin Dhamen & Nola feat. Mick Roxx - Wont Let Go
+004. NitroKIDD - Parallax (Original Mix)(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 09:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E308622AE766CD77F90AF18782BC26497B593FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015027   (775795) от 09.05.2016
+
+VA - Record Super Chart № 435 (07.05.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystal Lake - Say Goodbye (Headhunterz Edit) 4:02
+02. KSHMR feat. Sidnie Tipton - Wild Card (Original Mix) 3:18
+03. Sander van Doorn & MOTi - Lost (Extended Mix) 4:25
+04. DJ KUBA & NE!TAN - Party On! (Original Mix) 3:35(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D55A19963470640D48101609D75B1E6A7D6AAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015034   (775770) от 09.05.2016
+
+VA - Ночной Мегахит - 100 Хитов в Тачку (2016) [MP3|320 кб/с] <House, Club House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dynamic Illusion - Massive (Original Mix)
+02. Tobz - Asa Dachi (Miles Dyson & Tobz Remix)
+03. Direkt - Grounded
+04. Playa Guitarra - Walk Along The Road - Ibiza Beach Mix(   Читать дальше...   )Жанр: House, Club House, Progressive HouseПродолжительность: 10:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FECC3F4F07B340170AAD9AB9BD8028A8156305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212677   (775191) от 13.03.2018
 
 VA - Morning Coffe Chillout Original Party (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -662,99 +749,6 @@ VA - CLUBная Жара vol.6 (2011) [MP3|256-320 kbps]<Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B32EB0761FA3F1E204E1C68EEBBCFB17EC36E9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318389   (772582) от 06.04.2011
-
-VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix) [08:10]
-02. Armin Van Buuren Feat. Christian Burns - This Light Between Us [05:09]
-03. Tony Igy - Astronomia (Original Mix) [05:58]
-04. Far East Movement Ft. The Cataracs & Dev - Like A G6 (Chew Fu Remix) [04:37]
-05. Avicii - Malo [07:14]
-06. Laurent Wery feat. Swiftkid - Hey Hey Hey [05:29]
-07. Black Eyed Peas - The Time [05:09]
-08. Nero feat. Alana - Me & You [04:31]
-09. DJ Feel, Matisse & Sadko - A Day To Remember [04:14]
-10. David Guetta & Snoop Dogg - Wet [05:42](   Читать дальше...   )Жанр: House, Electro, Trance, DanceПродолжительность: 02:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7658C8E7F8010790CAEAF7A586A30D778669CDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125368   (772101) от 14.04.2017
-
-VA - The Quest For Beauty Progressive Party House (2017) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772101.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Airwave - The Quest For Beauty (Jam El Mar Remix)
-002. Vintage & Morelli - Desire (Dezza Remix)
-003. Set Collins - Strangers
-004. Stan Kolev - Forsaken (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4776F4484F3E59EFAEA7CB047324AC6341E0DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213342   (772006) от 16.03.2018
-
-VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synasthesie - Lotus (Clawz Sg Remix) [07:19]
-02. Nick Devon - Skyline (Mallone's City Lights Remix) [07:25]
-03. Frankye Lova, Stephan Seddel - Unstable [08:15]
-04. Jos & Eli, Sean Doron, Jenia Tarsol - Amore [08:27](   Читать дальше...   )Жанр: NeotranceПродолжительность: 04:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

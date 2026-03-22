@@ -1,3 +1,90 @@
+###  Публикация: 1278646   (768534) от 26.01.2019
+
+VA - A State Of Deep V [Compiled by ZeByte] (2019) [MP3|320 Kbps] <Progressive House, Melodic Techno, Neotrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rustboy - Infinity Artifact [06:45]
+02. Alessandro Diga - End Of This Road (Marc Poppcke Remix) [07:20]
+03. Dahu - Hesia [06:20]
+04. Luis Sole - Green [07:41](   Читать дальше...   )Жанр: Progressive House, Melodic Techno, NeotranceПродолжительность: 05:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A14A2BCFB6DF48174BB706DF09F2E85B65A2D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278576   (768472) от 26.01.2019
+
+VA - Extreme Deep House Project (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Capitan - Renacimientos (Original Mix)
+002. Don Danny - Saturday
+003. Numedian - Balearic Winter (Original Mix)
+004. Gagoled - Sunbath(   Читать дальше...   )Жанр: Deep, Chill House, ElectroПродолжительность: 10:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB23348FDA04D893C4CDB669798BBA0A221276F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125256   (768450) от 14.04.2017
+
+VA - Музыка в Авто от LORDEGRAF (2017) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eminem & 50 Cent feat. My Digital Enemy - You Don't Know (Artemy Love & A.Sattar)  5:37
+02.  Narcotic Thrust - I Like It (Just AMI Remix)  5:17
+03.  Sash! - Adelante (Ice Dmitriy Rs Remix)  4:47
+04.  DJ Sava feat. Irina Rimes - I Loved You (Extended Mix)  4:33(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 08:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FA22B520435B5836130D8D39C836AFBB9D3F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125585   (768096) от 15.04.2017
 
 VA - Visual Image: Extended Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -658,93 +745,6 @@ VA - LUXEmusic - Dance Super Chart Vol.114 (2017) [MP3|320 Kbps] <Club House, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F1DA963657103A09D45CA04967E16948D9F94F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279591   (765394) от 30.01.2019
-
-VA - Paints Of The Soul: Pure Deep House (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765394.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tchilla - Gentleman Drivers
-002. Tantsui - Beautiful Day
-003. Tevo Howard - Make It Right
-004. The 5Th Galaxy Orchestra - A Place Between Us(   Читать дальше...   )Жанр: Deep, Chill House, ElectroПродолжительность: 11:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437652CFBF9A99895ED5AE5CBAAD14A4BA96D287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279579   (765317) от 30.01.2019
-
-VA - Empire Records - Fake 3 (2018) [MP3|320 Kbps] <Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765317.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nathia Kate - The Mission (Original Mix)
-002. Luke Terry, Paul Gibson - Achelous (Radio Edit)
-003. Talla 2XLC - It Makes Me Wonder (Steve Allen Remix)
-004. Sunset, Jess Morgan - The Gift of Giving (Original Mix)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 10:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40B92174164549C4907680CD9865995E3EF1780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521464   (765170) от 02.01.2022
-
-VA - Beatport Psychedelic Trance: Sound Pack #388 (2021) [MP3|320 Kbps] <Psychedelic Trance, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Является ли Psy Trance музыка танцевальной? Ответ один, без сомнения это танцевальная музыка. Некоторые почему-то относятся к танцевальным стилям достаточно легкомысленно и настойчиво ассоциируют их только с развлекательными и увеселительными мероприятиями. Не отрицая этого, все же стоит заметить, что танец является одной из самых древнейших техник, которую использовали (   Читать дальше...   )001. Galactic Cowboy - Supersonic Fly
-002. Neutro - Hypnosis
-003. N3xu5 & Gu - 5th Dimension
-004. E-Mov - Mystic(   Читать дальше...   )Жанр: Psychedelic Trance, GoaПродолжительность: 12:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A45A6AF5E9D9A48DA1D424877744AFF755EA80C
 ```
 
 https://mybot314.ru/tekegram_catalog/

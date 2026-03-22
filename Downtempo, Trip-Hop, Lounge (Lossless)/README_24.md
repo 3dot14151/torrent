@@ -1,3 +1,61 @@
+###  Публикация: 1588823   (191072) от 06.11.2022
+
+V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 21 (Special Selection) (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eve St. Jones – All Night Long (all Night)
+02. Lizette – Dance Hall Days
+03. Nenei – Peaches
+04. Eve St. Jones – Simple Song(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433ED76964DB39FBE779EEF3F8B31ECF5DA7A0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589498   (189739) от 11.11.2022
+
+VA - Chillout Autumn Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake and True - Seas of Passion (5:04)
+02. Beamy - Rising Sun (4:18)
+03. Martin Hiska - Remember (4:44)
+04. V-Sta - Slum of Dream (Original Mix) (4:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6BD6A22D491D3378CFCB3C2D5CAE5A3F8F2FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590155   (189410) от 12.11.2022
 
 Jay-Jay Johanson - Labyrinth (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Trip-Hop, Downtempo>
@@ -687,64 +745,6 @@ VA - Musical Landscape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:966F58FC31767BB967023E21584A4F41E1CAED11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344273   (170556) от 10.12.2019
-
-DJ Shadow - Our Pathetic Age (2019) 2CD [FLAC|Lossless|tracks + .cue] <Trip Hop, Bass Music, Abstract Hip-Hop, Instrumental, D'n'B, Rock>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drone Warfare (feat. Nas & Pharoahe Monch) (3:43)
-02. Rain On Snow (feat. Ghostface Killah, Inspectah Deck & Raekwon) (3:39)
-03. Rocket Fuel (feat. De La Soul) (3:16)
-04. C.O.N.F.O.R.M. (feat. Infamous Taz, Lateef The Truth Speaker & Gift Of Gab) (2:52)(   Читать дальше...   )Производство: Mass Appeal, Liquid Amber – MSAP0088Жанр: Trip Hop, Bass Music, Abstract Hip-Hop, Instrumental, D'n'B, RockПродолжительность: 01:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0B2B96B816BC82FB8E989CF98418DB5488C315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671928   (170330) от 27.10.2023
-
-VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Soul Crusaders - A Fading Memory (6:00)
-02. Clelia Felix - Fleurs Du Desert (Original Mix) (4:17)
-03. Marie Therese - Soul Talk (Original Mix) (4:33)
-04. Marco Moli - Flashpoint (Original Mix) (3:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22B18548C6840F99FE79DFC826328D8CB1A44BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1252246   (411313) от 04.10.2018
+
+Donny McCaslin - Fast Future (2015) Greenleaf Music [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Future [5:54]
+02. No Eyes [5:56]
+03. Love and Living [9:30]
+04. Midnight Light [6:39](   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EDD6E7174351CE3D73A3E80C94E88E1F4DA333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252241   (411311) от 04.10.2018
+
+European Jazz Trio - An Afternoon In Amsterdam (2009) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mazurka No.1 [3:39]
+02. Libertango [5:57]
+03. Scarborough Fair [5:25]
+04. Fantasista [5:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117677A3A84721F21B509D292C0D61554AFD01BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168015   (410686) от 23.09.2017
+
+Jimmy Forrest - Most Much! (1961) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matilda [04:51]
+02. Annie Laurie [07:47]
+03. Autumn Leaves [04:29]
+04. My Buddy [02:45](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17577B3E176C20973E5C7815073FBEB6108EDC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168237   (410685) от 23.09.2017
+
+Booker Ervin - Groovin' High (1964) 1996, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second #2 [06:37]
+02. Groovin' High [09:54]
+03. Bass-IX [11:46]
+04. Stella by Starlight [02:50]Жанр: Hard BopПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310AC64B1CD8A2E2BDF71C0D7D597FE2CDFBADFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168024   (410684) от 23.09.2017
+
+Andrew Hill - Eternal Spirit (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinnacle [09:58]
+02. Golden Sunset [10:25]
+03. Samba Rasta [04:54]
+04. Tail Feather [06:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35446D12043A067197F49E5C11E439FA13EB50DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168268   (410683) от 23.09.2017
+
+Eddy Louiss - Recit Proche (2001) Dreyfus Jazz [WavPack|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pour toi [04:26]
+02. Incertitudes [05:56]
+03. Marilyn et Bronsky [04:46]
+04. Au soleil avec toi [05:20](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B61566BEE90CB07ED8E2D1646A1B5A028C9B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168241   (410682) от 23.09.2017
 
 Bob Rockwell Quartet - Shades of Blue (1996) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -571,180 +745,6 @@ CD1 - Playland-at-the-Beach:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA1C5D3595F897AEF14265881EAC704FC65A6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573853   (408867) от 02.09.2022
-
-Harry James - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eli-Eli [3:00]
-02. The Flight of the Bumble Bee [1:58]
-03. The Carnival of Venice [2:33]
-04. Trumpet Rhapsody - Part 1 [3:08](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC04326A8227168B493276B6B82B0F304D1CA4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573851   (408815) от 02.09.2022
-
-Ella Fitzgerald - Ella At The Hollywood Bowl: The Irving Berlin Songbook (2022) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song Is Ended [2:15]
-02. You're Laughing at Me [3:26]
-03. How Deep Is the Ocean? [3:07]
-04. Heat Wave [2:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE8552331E9B30553F2A82610BCAC1F2F5F1380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325891   (408770) от 17.09.2019
-
-Enrico Pieranunzi - Originals (2012) Jazzit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Forget the Poet [7:10]
-02. From E. to C. [6:16]
-03. Seaward [4:38]
-04. Fermati a guardare il giorno [4:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C824635DA8CF33862E18EB8D75151E24FE12081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325885   (408711) от 17.09.2019
-
-Jackie McLean - Four Classic Albums (1957 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408711.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Filide [7:28]
-02. Millie's Pad [8:42]
-03. Two Sons [7:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D8C49BFE0A16B8B183FE81A1707DC9D0C9AF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325919   (408699) от 17.09.2019
-
-Nicki Parrott - Papa Loves Mambo (2019) [FLAC|Lossless|image + .cue] <Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Loves Mambo
-02. Somos Novios
-03. Perfidia
-04. Kiss Of Fire(   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33CF8418CD81CC4F751DEA04FF1DE85E52188DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413494   (408544) от 04.10.2020
-
-Mal Waldron - Soul Eyes (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judy [3:41]
-02. Soul Eyes [7:22]
-03. Fire Waltz [5:02]
-04. Spaces [6:57](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Vocal JazzПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F9E52DEE7D0C11562ABBD3566D2A3E6A7705DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

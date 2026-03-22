@@ -1,3 +1,61 @@
+###  Публикация: 1821194   (41017) от 01.10.2025
+
+VA - Slow Down Sessions: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_41017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - Andiamo (4:42)
+02. Gary B - Rainy Day in the City (1:51)
+03. Ljay - Let Me Chill (3:58)
+04. Supira - Beautiful You (5:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E37DF3C1A9044D7E0945F2B9A4B4D246C2F4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821229   (40957) от 01.10.2025
+
+VA - Poolside Grooves Chillout Hits Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_40957.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. The Echo of Koenigssee - Slow-Melt Whisperz (4:29)
+• 02. Von Gauss - Neon Wind Down (4:11)
+• 03. Sigrun II - Meadow Mindset (4:16)
+• 04. Quadra Montres - Barefoot Bliss (4:28)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, DowntempoПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D0C27199E4D2046DF0B0B74EC4D3F55B94D33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755051   (40531) от 13.10.2024
 
 VA - Lounge Empire (25 Afterwork Anthems) Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -687,64 +745,6 @@ VA - Winter Chillout Lounge 2024 - Smooth Lounge Sounds for the Cold Season [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D043590DF910D82DD9741B7A8945B3B013544590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764847   (34697) от 09.12.2024
-
-VA - Lounge Philosophy Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Music Of The Earth - Slow Jam (Original Mix) (02:31)
- 02 - Charly'n Black - Today (Original Mix) (03:10)
- 03 - Abraxas - Just a Warm Feeling (Original Mix) (05:43)
- 04 - Peter Pearson - Cool as a Mountain Stream (Original Mix) (04:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1C073D196C5AC17BD5AD2F9FB85B1E973EF59A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765262   (34553) от 11.12.2024
-
-VA - Love Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Calmabohain - Underwater World (04:13)
- 02 - Living Room - Like an Old Jazz Record (03:07)
- 03 - Emergency Kisses - Take Me Back (03:57)
- 04 - Weber & Weber - Fly on Wings (Original Mix) (04:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332DA6CB506E3D4748D36D249154555022A3ECDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

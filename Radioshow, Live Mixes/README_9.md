@@ -1,3 +1,88 @@
+###  Публикация: 1226198   (657073) от 19.05.2018
+
+VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. DT8 Project - ClimbЖанр: Trance,Progressive TranceПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08BB4C255A2EC360A8B4134D78EC849128027DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226222   (657072) от 19.05.2018
+
+VA - Aly & Fila - Future Sound of Egypt 548 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amari & Nico Morano feat. Jinadu - Desire (Eelke Kleijn Extended Remix)
+02. Darin Epsilon - Niflheim (Original Mix)
+03. Matter - Star. Rock. (Lanvary Remix)
+04. SEQU3L - Jelly Bell (Paul Angelo & Don Argento Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58500E38A0E48EA2F73FD052C5BD124BF61C5897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226252   (655847) от 20.05.2018
+
+VA - Ori Uplift & DJ Ruby - Uplifting Only 275 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeitam Osheen - Anck Su Namun (Intro Mix)
+02. PRE-RELEASE PICK: Roman Messer & Betsie Larkin - Unite (Steve Allen Extended Remix)
+03. Orla Feeney feat. Susan McDaid - Can't Give Up (Estigma & Pinkque present Hybrid Theory Remix)
+04. Christopher Corrigan - Sleepless Nights (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D5F90B9D025B5B1932319737D0395B198F4310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140663   (654878) от 07.06.2017
 
 Aly & Fila - Future Sound Of Egypt 499 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -655,99 +740,6 @@ VA - Ultra Music Festival Miami (2022) [MP3|320 Kbps, (V0)] <House, Trance, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F80FB0344DEE58F8AA9130111CA8D068A31F19DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549901   (592931) от 08.05.2022
-
-Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattia Saviolo - Twilight Of The Idols
-02. Psyk - First Trail
-03. Wlderz - Algo
-04. Alex Lentini & Stomp Boxx - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9BFD9E240F9087DADF84F3F36D625355B5DADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551165   (590740) от 14.05.2022
-
-Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2022-05-12) [MP3|320 Kbps] <Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimitri Vegas & Like Mike & Azteck & Hayley May - Heaven
-02. Dimitri Vegas & Like Mike vs. Sander van Doorn - Project T
-03. Dimitri Vegas & Like Mike - Chattahoochee (Tomorrowland 2013 Anthem)
-04. Dimitri Vegas & Like Mike & Wolfpack - Ocarina (TomorrowWorld Anthem) (Bassjackers Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2C0BCEBE5DA61E26BFB4A850BD627B474F0B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358256   (585898) от 02.07.2011
-
-DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х) (2.07.2011) [MP3|320 kbps]<Club,Dance,Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585898.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Opus - Life Is Life (DJ Fisun Remix)
- 2 DJ Smash vs Lyube feat. Mc Shayon - Atas
- 3 Virus - Ty menya ne ischi (Free Dj's Rework)
- 4 Ruki Vverh - Ya Ne Otdam Tebya Nikomu (Insomnia Radio Mix)
- 5 Platinum Monkey & D.Tarasyuk vs Evgeniy Osin - Plachet Devushka v avtomate
- 6 Arash - Boro Boro (Dj Kirill Clash & Dj Dmitriy Nema Mash-Up)
- 7 Irina Saltykova - Serye Glaza 2011 (Aleksey Kraft Remix Radio Edit)
- 8 Dirty Impact vs. Royal XTC - Tom's Diner (PH Electro Remix)
- 9 Leprikonsy - Haligali (DJ Skafelnikof & DJ BooF Disco House Remix)
- 10 Yura Shatunov - Metel' v bol'shom gorode (MusicKey 2011 Edit Version)(   Читать дальше...)Жанр: Club,Dance,PopПродолжительность: 01:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E788646090BBB51417F368D338E2AFCA3F51C33
 ```
 
 https://mybot314.ru/tekegram_catalog/

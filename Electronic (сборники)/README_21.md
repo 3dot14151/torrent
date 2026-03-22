@@ -1,3 +1,61 @@
+###  Публикация: 979378   (959959) от 26.01.2016
+
+VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Moore - In the Sunshine - Original Mix
+02. Scott Navarro - Tell Me Why - Original Mix
+03. Nigel Scott - Disco Salsa - Original Mix
+04. Peter Cox - White Star - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEDBFFE075FF31C76803724EDB39476461892A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979918   (957459) от 28.01.2016
+
+VA - Colibri Trance Pack (2016) [MP3|320 кб/с] <Progressive, Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957459.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Waas Van Siem - Cold Sun
+002. Blue Dolphin - Dreams
+003. Black Pulsar - Searching 4 Love
+004. ViDs - Passion Spills (DJ Brush vs Darren Tech Remix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Vocal TranceПродолжительность: 11:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63193418FA958C1AD09C9B2935351C4105511C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980133   (957411) от 28.01.2016
 
 VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
@@ -699,64 +757,6 @@ VA - Empire Records - Chill Out 6 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DAAC3FFEBF00BBD9E1D68D333E544379F599CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089302   (951924) от 03.01.2017
-
-VA - Fun Disco House: Gross Funk Party (2017) [MP3|320 Kbps] <Nu Disco, Funky House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mazelo Nostra - Boogie Nights 5:03
-002. Off Da Hook - Journey To Paradise (Johan S Vocal Mix) 8:10
-003. The Boogeyman - All Music To Me (Original Mix) 8:32
-004. Drone In Ibiza - Back In That Days - Original Mix 6:09(   Читать дальше...   )Жанр: Nu Disco, Funky House, ElectroПродолжительность: 11:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314EA4B6E6DDFE7DBB86622EF015603A550BBB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981482   (951739) от 01.02.2016
-
-VA - Exquisite Deephouse (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronogramm - Plexus
-02. Sixteenth Pulse - Crossing Thoughts
-03. Christian Hornbostel - Elective Affinities
-04. Self Explanatory - Voice Recognition(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF1EF57BCF229672BF1CB4FCD44B1135A56F433
 ```
 
 https://mybot314.ru/tekegram_catalog/

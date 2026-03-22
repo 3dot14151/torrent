@@ -1,3 +1,55 @@
+###  Публикация: 1623480   (243674) от 01.04.2023
+
+Bulwark Studios | Артбук по игре IXION / The Art of IXION (2022) [PDF] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре IXION.Жанр: АртбукЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5B54673336F7A513C0DC4F14A2774200EF0FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623445   (243664) от 01.04.2023
+
+Arkane Studios | Артбук по играм студии Arkane / The Art of Arkane (2020) [PDF] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук посвящён 20-ти летию студий Arkane, содержит эскизы и концепт-арты по играм: "Dishonored 2" и "Prey".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45420F2C67C1797319706CACD6197DEBE9A7CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622934   (243512) от 30.03.2023
 
 Gearbox Software | Артбук по игре Borderlands 2 / The Art of Borderlands 2 (2012) [CBR] [EN]
@@ -618,58 +670,6 @@ Marvel | Артбук художника Marko Djurdjevic / The Marvel Art of Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB6D3DF16104B3731F5E67D2BF6E20D8322C656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341735   (228530) от 29.11.2019
-
-Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Lingerie № 1 (2019) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки из комикса "Lady Death"Жанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D510ABB97933405B846996C931CB1DBA23E324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341940   (225235) от 01.12.2019
-
-Simon Bisley | Артбук Библия / La Biblia (2005) [CBR] [ES]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки художника Simon Bisley на библейские темыЖанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EB70B5E42B950C18795778F8B767967E108293
 ```
 
 https://mybot314.ru/tekegram_catalog/

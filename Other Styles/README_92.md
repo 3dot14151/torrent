@@ -1,3 +1,145 @@
+###  Публикация: 337396   (560585) от 02.08.2015
+
+Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_560585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Indie Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152996   (560078) от 26.07.2017
+
+Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolving [05:50]
+02. Angels Among Demons [04:40]
+03. Become a Legend [03:41]
+04. Lost Cause [01:44](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88417EF5E80CA0E30A0CC34F00E7428C889274B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152994   (560076) от 26.07.2017
+
+Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Galaxy [04:56]
+02. A First Star [02:24]
+03. Mankind [04:26]
+04. Other Worlds [04:37](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A49A6E7A1BE07F092FE933D3F02D689B958A344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153342   (559844) от 26.07.2017
+
+VA - Latin Hits 2017 The Best (Reggaeton  Bachata  Kizomba) [MP3|320 Kbps] <Latin Music, Reggaeton, Bachata>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SOLYMAR - Despacito (Bachata)
+02. Alegria - Me Emborrachiare (Bachata)
+03. SOLYMAR - Andas en Mi Cabeza (Reggaeton)
+04. Alegria - La Bicicleta (Reggaeton)(   Читать дальше...   )Жанр: Latin Music, Reggaeton, BachataПродолжительность: 01:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6C5D88B2F388F76D75A3AE9EFFF3E479649A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153258   (559836) от 26.07.2017
+
+VA - Latino 2017 - Essential Summer Hits  [MP3|320 Kbps] <Latin Music, Salsa, Merengue>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boricua Boys – Bailar
+02. Grupo Super Bailongo – Chantaje
+03. Boricua Boys – Hasta El Amanecer
+04. Los Reggaetronics – Subeme La Radio(   Читать дальше...   )Жанр: Latin Music, Salsa, MerengueПродолжительность: 01:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D7D74C78C0712C405FDB620D5CAFB38FB38081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153073   (559710) от 26.07.2017
 
 VA - 40 Latin Hits 2017 (Reggaeton, Electro Latino & Mambo) [MP3|320 Kbps] <Latin Music>
@@ -593,151 +735,6 @@ Piano Peace - Piano Study Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:946453C9449BFE77D8F890CF7BFFA1F8D7E0E2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236151   (556262) от 15.07.2018
-
-Piano Peace - Relaxing Piano Lullabies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Dreams 02:47
-02. Moonlight Music 02:56
-03. The Shape of Water 02:53
-04. Lullaby Waltz 02:35(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F09307DDD8AD1A37DCE6C56BD9D982C39B6E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305718   (556144) от 01.06.2019
-
-Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kitty Wells Dresses  (3:26)
-02 - I Don't Claim To Be An Angel  (3:04)
-03 - Poison In Your Heart  (2:31)
-04 - One By One  (2:58)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305571   (556142) от 01.06.2019
-
-Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Silver Lining  (3:51)
-02 - My House  (2:42)
-03 - Merry Go 'Round  (3:29)
-04 - Dandelion  (3:04)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58ED960956602402404E7D8F13AC34CD57599F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305638   (556132) от 01.06.2019
-
-Kacey Musgraves - Golden Hour (2018) [FLAC|Lossless|tracks] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slow Burn  (4:06)
-02 - Lonely Weekend  (3:45)
-03 - Butterflies  (3:39)
-04 - Oh, What A World  (4:00)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B037988A89D19AFA02A7ABD57B7914D535A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305873   (556087) от 01.06.2019
-
-Yulia Monastyrenko - 140 Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 140 Piano
-02 The Soul of My Youth
-03 Way to Myself
-04 Back to Spain(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762CBFABE617176DC99673E9E06C1CA71F504586
 ```
 
 https://mybot314.ru/tekegram_catalog/

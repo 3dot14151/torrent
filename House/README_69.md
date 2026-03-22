@@ -1,3 +1,148 @@
+###  Публикация: 1591476   (187194) от 18.11.2022
+
+VA - Club Charts 2023 (2022) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack & R3HAB feat. AuRa - Worlds On Fire (Extended Mix) (3:54)
+02. Don Diablo x Dominica - Gotta Let U Go (Extended Mix) (4:06)
+03. Farruko - Pepas (Original Mix) (4:47)
+04. David Guetta x Dimitri Vegas vs. Nicole Sherzinger x Azteck - The Drop (Extended Mix) (3:33)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF90B6187073F5D8A609E9C2D4288AB39A97F86C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240914   (186403) от 23.09.2023
+
+VA - We Love Funky by Miguel Vizcaino (2016) [MP3|320 kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_186403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zo! - We Are On The Move (Joey Negro & Dave Lee Remix) (04:56)
+02. Corduroy Mavericks feat. Soledrifter - True Love (Soledrifter Remix) (04:02)
+03. Dr Packer - Bizarre Love (04:47)
+04. Paul Mad - Believe in Love (Deep Beep Records) (06:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CC8A8B7B221E8475D73A06C243082EE6BECAA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592507   (183837) от 22.11.2022
+
+VA - Deep-House World Vol. 3 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, Soulful, Deep Groove, Beach House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hector Cassanova - My Religion Is... (Dyba's Club Sexy Mix)
+02. The Soul lovers - Relaxed
+03. Mondial Groove - Summer Vibes
+04. Yovann Bleu - Antiflex(   Читать дальше...   )Жанр: Deep-House, Soulful, Deep Groove, Beach HouseПродолжительность: 01:22:02 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD85C644D9F57291EA526FD75AA143300C7D79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665263   (183226) от 29.09.2023
+
+VA - Ibiza Autumn Mix 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echo Boy - Get Do It (Original Mix) [04:58]
+02. Mike Carry - Disco Luv (Original Mix) [04:44]
+03. Brian Forster - I Like It (Original Mix) [02:40]
+04. Adam Gordon - Lonely Nights (Original Mix) [02:44](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A94F6A3F23D7990ABB6EC9EBAE62C98FE0F84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592624   (183101) от 23.11.2022
+
+VA - SFR Best Remixes 2022 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Mason - Forever Is Now (Michael Kortenhaus Remix) (6:51)
+02. Zy Khan - Attack Mode (Guy Augustin Remix) (6:24)
+03. Leandro Murua - Vispera (Yonsh Remix) (6:56)
+04. Zy Khan - Attack Mode (Bookash Remix) (6:30)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4C09EBE8E6A0DE17D343C067C933A9C558A631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665439   (182396) от 30.09.2023
 
 VA - Dancing Services, Vol. 2 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -600,151 +745,6 @@ VA - EDM Anthems 2020: Top 40 Club Beats For DJs (2019) [MP3|320 Kbps] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B5BCDA1783E7B12AA9279C4D9B03FEC7A56164F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596729   (169222) от 11.12.2022
-
-VA - Deep Christmas Vibes (2022) [MP3|320 Kbps] <Deep-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supernova - Lovely Summer Dreams (Extended Mix) (6:58)
-02. Private One - Mio Plus Mia (Extended Mix) (8:07)
-03. Audiowhores & Stee Downes - Facts (Deep Vibe) (7:00)
-04. Supernova feat. Ann Saunderson - R.L.H. (Shur-i-kan Vocal) (6:19)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 02:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF9326A3BCAE8384A57B35530B86AC4DC35B414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596728   (169113) от 11.12.2022
-
-VA - House 2023 (2022) [MP3|320 Kbps] <Deep-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conwell Minolta - Big Hero (8:05)
-02. Dim Day - Mafia Funk (7:01)
-03. Colosamson - Panic (3:39)
-04. Psychoz - In Da House (2:58)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 02:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35523F8C98036C9A94C8632DF6A5260572BE55CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344845   (168266) от 13.12.2019
-
-VA - House 2020 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chart10 - The House (Original Mix) 7:31
-02. Klasher - Me And My Personal Stereo (Original Mix) 6:35
-03. Sixsense & Rammix - Summer Vibe (Original Mix) 4:36
-04. Camblom Subaria - Lonely (Original Mix) 6:14(   Читать дальше...   )Жанр: HouseПродолжительность: 03:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C3A5F9BD3D751EB8EBE4837634DF4D59627D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431385   (167729) от 13.12.2020
-
-VA - Milk & Sugar Winter Sessions 2021 (2020) [MP3|320 Kbps] <House, Funky House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Delay - Freedom (Sebb Junior Extended Remix) [6:09]
-02. Ucha - Yellow Jello Slugs (Superlover Extended Remix) [4:59]
-03. The Goodfellas - Soul Heaven (David Penn Remix) [6:12]
-04. DirtyDisco - No Sunshine (Original Mix) [6:27](   Читать дальше...   )Жанр: House, Funky House, Afro House, ElectronicПродолжительность: 03:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCBEA12640F52053173F9779D3ABC8C19912701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431676   (166905) от 14.12.2020
-
-Leama & Moor - Distance Between Us (2006) Single [MP3|320 Kbps] <Progressive House, Trance, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166905.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Distance Between Us (Jody Wisternoff Mix) [07:02]
-2. Distance Between Us (Streetlife DJs Mix) [07:13]
-3. Distance Between Us (Original Mix) [09:45]
-4. Distance Between Us (Gill Norris Mix) [11:48](   Читать дальше...   )Жанр: Progressive House, Trance, Progressive TranceПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610DF7148388FEB36BCD69C05A690F0AC61620C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1073202   (347274) от 15.11.2016
+
+Проекты - VideoHive - Colorful Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colorful Slideshow - яркая и позитивная слайд-шоу открывалка.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DFB1CC3F7F7DF5E46573490F37EEDB2B8CDBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257181   (347192) от 25.10.2018
+
+Проекты - VideoHive - Lost in Thoughts - Slow Minimal Slideshow - 12041061 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lost in Thoughts - Slow Minimal Slideshow - медленное, простое слайд-шоу, идеально подходящее для вашего меланхолического настроения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED11D2756A093C0602897C0DC6C549C5122C328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953765   (346230) от 05.11.2015
 
 Проекты - VideoHive - Old Memories Album Gallery [AEP]
@@ -634,60 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FDDD42D286F97362D0D52BE8015BB446E815440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954593   (338935) от 08.11.2015
-
-Проекты - GOLDEN DREAMS for Sony Vegas Pro [VEG]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в SVP Pro 11,12,13.Формат: VEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FAEBB83B1CEE7EEC060433EC300E697546BE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954977   (337037) от 09.11.2015
-
-Проекты - Heavenly Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE6BF5A0F579D7D76308CB25695F00E7EC020DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

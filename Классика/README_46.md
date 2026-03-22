@@ -1,3 +1,119 @@
+###  Публикация: 1649317   (195092) от 27.07.2023
+
+Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_195092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 5 in D minor, Op. 47
+1. I. Moderato, Allegro non troppo, Moderato (13:38)
+2. II. Allegretto (5:17)
+3. III. Largo (12:09)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C94E9B0E138D068B7EA9C76C1C27A12AEACC844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655108   (193917) от 24.08.2023
+
+Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Hands (2022) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193917.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Sonata for keyboard 4-hands Op.4 in F
+1. I. Allegro molto
+2. II. Adagio(   Читать дальше...   )Жанр: Classical, FortepianoПродолжительность: 01:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5463252875C3D8EA62F7C0721E7052CC7A9DA15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001555   (193881) от 23.08.2023
+
+Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, Disc Set [APE|Lossless|image + .cue] <Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polovtsian march: 'The army returnes home'
+02. Song of Khan Konchak: 'Our swords gave us victory'
+03. Recitative, chorus and scene: 'Blow your horns!'
+04. Scene: 'It is possible that the Khan seized our city?(   Читать дальше...   )Жанр: OperaПродолжительность: 03:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA090324A8504E5BD6A30E7021A9C5C0C663CBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655323   (193811) от 26.08.2023
+
+André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voilà (5:10)
+02. Con te partirò (4:18)
+03. Memory (Live) (3:50)
+04. The Second Waltz, Op. 99a (3:42)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECBAB9316B1DDC665DCCF53CCE9E3DDBCED46E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588856   (191020) от 06.11.2022
 
 VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -630,120 +746,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE8A0DEC3C65141DA66BF3571D30D980E492B67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599665   (159618) от 24.12.2022
-
-Peter Jablonski - Chopin: Complete Mazurkas, Vol.1 (2022) [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 Mazurkas, Op. 6, B. 60: No. 1 in F-Sharp Minor (02:52)
-02. 4 Mazurkas, Op. 6, B. 60: No. 2 in C-Sharp Minor (02:34)
-03. 4 Mazurkas, Op. 6, B. 60: No. 3 in E Major (01:50)
-04. 4 Mazurkas, Op. 6, B. 60: No. 4 in E-Flat Minor (00:51)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418B61C5B92A62BD2DDCAE3423EDC89B64D6CE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676012   (158915) от 12.11.2023
-
-Serj Tankian - Invocations (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Classical, Modern>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Mountain (feat. Azam Ali, Brian Thorsett, Charles Elliott & Francesca Genco) (Live) [4:46]
-02. Free The Piano (feat. Azam Ali, Brian Thorsett, Charles Elliott & Francesca Genco) (Live) [3:50]
-03. Der Voghormia (feat. Azam Ali) (Live) [4:09]
-04. Aurora's Dream (feat. Azam Ali) (Live) [6:55](   Читать дальше...   )Жанр: Classical, ModernПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC58E86A251BC8826288F48F2E58824AADB57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270650   (155097) от 20.12.2018
-
-Andre Rieu And His Johann Strauss Orchestra - The Christmas I Love (2011) [FLAC|Lossless|tracks + .cue] <Classical, Stage & Screen>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155097.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. O Daughter Of Zion [02:20]
-2. From Heaven High I Come To You (Medley) [03:57]
-3. Ave Maria [02:46]
-4. Transeamus [02:32](   Читать дальше...   )Жанр: Classical, Stage & ScreenПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2553C48ACE0B2F232D2F66E828C6FD11D90100A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 40361   (154844) от 14.11.2023
-
-Corelli - The Complete Works
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Composer: Arcangelo Corelli
-Performer: Albert Bruggen, Frank Wakelkamp, Jaap ter Linden, Richte van der Meer, Musica Amphion, et al.Жанр: Классическая музыкаПродолжительность: 10:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864EA2FD208310E5BDF55099EC85862050DC3348
 ```
 
 https://mybot314.ru/tekegram_catalog/

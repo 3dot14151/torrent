@@ -1,3 +1,131 @@
+###  Публикация: 1268076   (229812) от 09.12.2018
+
+VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travie McCoy - We'll Be Alright
+02. All Saints - Pure Shores
+03. CeeLo Green - F**K You
+04. Eliza Doolittle - Pack Up(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0541750C0F18ABA1D8F9CDCBC7F948A2CD3D81BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586139   (229423) от 08.12.2012
+
+Cascada - It's Christmas Time (iTunes Version) (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Snow (1:50)
+02. Have Yourself a Merry Little Christmas (2:39)
+03. Last Christmas (3:52)
+04. Jingle Bell Rock (2:45)
+05. Santa Clause Is Coming to Town (2:55)
+06. I'll Be Home for Christmas (2:56)
+07. Away in a Manger (3:29)
+08. Somewhere At Christmas Time (3:33)
+09. Winter Wonderland (3:05)
+10. Christmas Song (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A12E9C80632E41673AC4A4C50526E30CB886F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586394   (229246) от 08.12.2012
+
+Amanda Lear - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Desire
+ 02. - L'Ecole D'Amour
+ 03. - The Sphinx
+ 04. - Ragazzino
+ 05. - Aphrodisiac
+ 06. - This Man (Dali's Song Remix)
+ 07. - Fashion Pack (Studio 54)
+ 08. - Blue Tango
+ 09. - Queen Of Chinatown
+ 10. - Love Me, Love Me Blue(   Читать дальше...   )Жанр: Pop,DiscoПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44994C52EA6A52E69753C8112A38C8BCF587D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423676   (229009) от 16.11.2020
+
+VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229009.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 GIMS - YOLO
+02 OBOY - Cabeza
+03 PLK Feat. Niska - On Sait Jamais(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF989FED423BE9C0E61E709FC7CCE78E2401BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341679   (228645) от 29.11.2019
 
 MARUV - Hellcat Story (2019) EP [MP3|320 Kbps] <Dance, Pop, Electronic>
@@ -640,122 +768,6 @@ VA - 90's Running Songs (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5098310A4EF064537127C7C18C41C15FE7804212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269019   (223210) от 13.12.2018
-
-VA - Driven By The 70s (2018) 5CD [MP3|320 Kbps] <Pop, New Wave, Indie, Hard Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223210.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Lynyrd Skynyrd - Sweet Home Alabama
-02. Don McLean - American Pie
-03. Thunderclap Newman - Something In The Air(   Читать дальше...   )Жанр: Pop, New Wave, Indie, Hard RockПродолжительность: 05:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC68D1A3215ACB53C2A58FF40CCAD0B53F259BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651264   (223104) от 05.08.2023
-
-VA - NOW That's What I Call Music! Vol. 86 (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop, Post-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metro Boomin feat. The Weeknd & 21 Savage - Creepin’
-02. Sam Smith, Calvin Harris & Jessie Reyez - I’m Not Here to Make Friends
-03. Miguel - Sure Thing (Sped Up version)
-04. P!nk - Never Gonna Not Dance Again(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, Post-DiscoПродолжительность: 01:05:48 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6915DA5C9F9EE097C82C55FF7FB445F143E950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585256   (222832) от 21.10.2022
-
-Anastacia - Anastacia (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seasons Change
-02. Left Outside Alone
-03. Time
-04. Sick and Tired(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE909E9CD59B3D4BDA6CE4F0100C7501624F98D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585124   (222780) от 21.10.2022
-
-Belinda Carlisle - Wilder Shores (2017) [OGG Vorbis|480 Kbps] <Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adi Shakti
-02. Ek Ong Kar Sat Gur Prasad
-03. Light Of My Soul
-04. Rakhe Rakhan Har(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3B172DE94EE6A643F3681BCEBF68E953093FCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

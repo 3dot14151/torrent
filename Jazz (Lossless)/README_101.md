@@ -1,3 +1,177 @@
+###  Публикация: 1219628   (711981) от 15.04.2018
+
+Ed Jones - For Your Ears Only (2018) Impossible Ark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nomadology [07:36]
+02. Pandoras Box [04:57]
+03. Starbright (for Wayne Shorter) [07:46]
+04. Marielyst [12:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C349092A9E59F431329EA160264384D9F8438CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219626   (711841) от 15.04.2018
+
+Dave Brubeck - His Greatest Hits: Take Five (1990) 1995, Sony Music [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Five [05:26]
+02. I'm In A Dancing Mood [03:00]
+03. In Your Own Sweet Way [04:59]
+04. Trolley Song [03:04](   Читать дальше...   )Жанр: CoolПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A4FAE95E8D0849A1063B8A912346AC891ECE51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286576   (711361) от 03.03.2019
+
+Jan Johansson - Spelar Musik Pa Sitt Eget Vis (1964 - 1966) 1995, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm gonna go fishin' [2:49]
+02. Joshua fit the battle of Jericho [3:35]
+03. Django [4:47]
+04. Arap Kapero och Nanda mundani [4:05](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAA67409F1ED5175CD9369F5CF62F8D2A688452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286573   (711355) от 03.03.2019
+
+Jan Johansson - 300.000 (1967, 1968) 1994, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Free Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visa fran Jarna [4:21]
+02. Kiswahili [6:22]
+03. Willow weep for me [6:56]
+04. Staden mellan broarna [11:18](   Читать дальше...   )Жанр: Hard Bop, Free Jazz, Piano JazzПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E4436B20D5ED2E3AD62644CF835D535938F5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130579   (710828) от 04.05.2017
+
+Actis Dato Quartet - Swingin' Hanoi (2003) Splasc(H) Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perestroika [05:49]
+02. Companero [07:17]
+03. Cocodi [10:05]
+04. Josephine Baker [04:47](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB02875A06292DFEA8BD70A8C2F45278FAF06CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130819   (710824) от 04.05.2017
+
+Jimmy Cobb's Mob - Cobb's Groove (2003) Universal [APE|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cobb's Groove [07:05]
+02. I Miss You, My Love [05:30]
+03. Willow Tree [05:29]
+04. Sweet and Lovely [06:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670D1C714188806CBD21D66DD41937DBAF59FE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130574   (710822) от 04.05.2017
 
 Don Byas - Complete 1946-1951 European Small Group Master Takes (2001) 3CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Swing>
@@ -571,180 +745,6 @@ Phil Woods - Voyage (2001) Chiaroscuro Records[FLAC|Lossless|image + .cue] <Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54D681E6AFF06EE226AA6724A11EB51218E37467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220105   (708246) от 17.04.2018
-
-Sonny Stitt & Hank Jones - The Complete Original Quartet Recordings (1955, 1957, 1962) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterwards [03:18]
-02. If I Should Lose You [04:19]
-03. Blues for Bobby [04:52]
-04. My Melancholy Baby [05:43](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9F2D329A5C795E7DD5DC8D2B9AB49DFD572661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220113   (708245) от 17.04.2018
-
-Fredrik Kronkvist - Afro-Cuban Supreme (2017) Connective Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Tierra Africana part 1 [02:33]
-02. A Love Supreme - Acknowledgement [05:31]
-03. A Night in Tunisia [05:49]
-04. Caravan [07:11](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39BA119C4F07BEBC38B721E1FCADC0254F26F829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220165   (708244) от 17.04.2018
-
-Dusko Gojkovic - Belgrade Blues (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Campimania
-02. You're Too Beautiful
-03. Lullaby Of The Leaves
-04. Doo-Doosh(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90525482C49557F74A14ACEDAB13ECDCBA3BA852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025875   (708215) от 13.06.2016
-
-Phil Sheeran - Orchid (1998) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orchid
-02. Ste. Tropez
-03. The Look of Love
-04. Riding the Wind(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5A67032D2DDF619E52B7C04523F061858BA68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025985   (708212) от 13.06.2016
-
-The Cannonball Adderley Quintet - Mercy, Mercy, Mercy!: Live At “The Club” (1966) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction / Fun [08:29]
- 02.Games [07:27]
- 03.Mercy, Mercy, Mercy [05:00]
- 04.Sticks [03:56](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03C808B2EDF17B87630A0200A22D5A896420616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025802   (708017) от 13.06.2016
-
-Frank Sinatra, Dean Martin, Sammy Davis Jr. - The Clan In Chicago (1994) Live At Villa Venice Chicago 1962, Unofficial Release [APE|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Dean Martin	- Parody On: When You're Smiling, The Lady Is A Tramp
-02.	Dean Martin	- I Left My Heart In San Francisco
-03.	Dean Martin	- I'm Gonna Sit Right Down And Write Myself A Letter
-04.	Dean Martin	- Medley: Volare / On An Evening In Roma(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5455F78F7C782FF135F0149FFD4CFCCE243188FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

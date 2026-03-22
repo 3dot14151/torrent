@@ -1,3 +1,177 @@
+###  Публикация: 961138   (300932) от 01.12.2015
+
+AC/DC - Highway To Hell (1979) Japanese Edition, 1989, Atlantic [FLAC|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway To Hell (3:28)
+02. Girls Got Rhythm (3:24)
+03. Walk All Over You (5:10)
+04. Touch Too Much (4:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD955ECD48E4B527F9491C1C0054586898940EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334042   (299127) от 27.10.2019
+
+Hartmann - Home (2007) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home To You (4:04)
+02. The Sun's Still Rising (4:29)
+03. My Everything (3:20)
+04. Somewhere Someday (4:46)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EADAD96868A0269E9A6F04A687A129B995E17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961515   (299082) от 02.12.2015
+
+Bangalore Choir - Metaphor (2012) [FLAC|image+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Damage Done 3:49
+02. Trojan Horse 3:35
+03. Silhouettes on the Shade 3:32
+04. Metaphor 3:33(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D72F2F7CAD57EC2A36C8F79473AF74232EEB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334071   (298945) от 27.10.2019
+
+Blacktop Mojo - Under the Sun (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay It on Me (04:23)
+02. Set It Free (03:27)
+03. Come Get Your Coat (04:28)
+04. Keep (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C7DD2B847E055BACC1AC23DE386627CBDEE66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961704   (298719) от 02.12.2015
+
+Def Leppard - Def Leppard (2015) Japanese Edition [FLAC|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Go [05:02]
+02. Dangerous [03:26]
+03. Man Enough [03:54]
+04. We Belong [05:06](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFDE0018A3E61EEC9EC8C3AE16746163FC84BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423697   (298070) от 14.11.2020
+
+Phil Campbell And The Bastard Sons - The Age Of Absurdity (2018) 2xCD, Jараn Еditiоn [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298070.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Ringleader
+02. Freak Show
+03. Skin and Bones(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877B8C5FDFEE43E62F8428CF7CDA092694913897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303484   (297048) от 14.11.2020
 
 AC/DC - 29 albums, 4 Box sets, 122 CD (1974-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, Rock'n'Roll>
@@ -572,177 +746,6 @@ Rainbow - 10 SHM-CD (Japanese Press 2008)[Limited Release] (1975-1986/2008) [FLA
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188520   (272372) от 04.12.2017
-
-Kadavar - Kadavar (2012) [FLAC|Lossless|image + .cue] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Our Thoughts
-	02. Black Sun
-	03. Forgotten Past
-	04. Goddess Of Dawn(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EC8FA122F5F37C68E66D628B60D07D2C2D05C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188523   (272371) от 04.12.2017
-
-Kadavar - Berlin (2015) [FLAC|Lossless|image + .cue] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord Of The Sky
-	02. Last Living Dinosaur
-	03. Thousand Miles Away From Home
-	04. Filthy Illusion(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3D3DE473DC2833CA77874A4D74F7C17DFAFEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266293   (269989) от 02.12.2018
-
-Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Stoner Rock, Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269989.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Clutch» — cтоунер-рокеры из города Джермантаун, штат Мэриленд. За двадцатилетнюю историю группа имеет в своем багаже более десятка студийных альбомов, более 2000 сыгранных концертов, преданное фанатское сообщество и собственный лейбл «Weathermaker». Плотный гитарный звук, монструозный драмминг, ревущий блюзовый вокал - эту музыку определённо стоит слушать на большой (   Читать дальше...   )Список альбомов:
-1993 | Transnational Speedway League: Anthems, Anecdotes And Undeniable Truths
-1995 | Clutch
-1997 | Impetus (EP)(   Читать дальше...   )Жанр: Stoner Rock, Hard Rock, Southern Rock |Продолжительность: 15:18:18 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7BB3C11E9A44C2DF0D311598CED1E0E15432E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192152   (269307) от 15.11.2019
-
-The Doors - 20 albums, 10 Box Sets, 102 CD (1966-2019) Discography [FLAC|Lossless|image + .cue | tracks +.cue] <Psychedelic Rock, Acid Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269307.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Doors («Двери») — американская рок-группа, созданная в 1965 году в Лос-Анджелесе, оказавшая сильное влияние на культуру и искусство 60-х годов. Загадочные, мистические, иносказательные тексты песен и яркий образ вокалиста группы, Джима Моррисона, сделали её едва ли не самой знаменитой и равно же противоречивой группой своего времени. После смерти в 1971 году (   Читать дальше...   )--------------------------
-
-01. Back Door Man (7:22)
-02. Adolf Hitler (2:21)(   Читать дальше...   )Жанр: Psychedelic Rock, Classic Rock, Acid Rock, Blues |Продолжительность: 67:08:43 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69756418FA3D57B3251B5C2EBB4C7D8FA7D711D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264128   (268333) от 04.12.2018
-
-Empyray - Discography (2007-2009) [FLAC|Lossless] <Hard'n'Heavy, Oriental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок-гуппа Эмпирей сегодня очень популярна и любима в Армении. Широкий географический и возрастной диапазон слушателей Empyray объясняется просто: исполнительское мастерство вокалиста Саркиса Манукяна, неожиданные переходы в мелодике произведений, автором большинства которых является гитарист Карен Арзуманян, содержательные тексты на армянском и английском языках, (   Читать дальше...   )Производство: EmpyrayЖанр: Hard'n'Heavy, Oriental RockПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F41EA3DA568EB5FA308CFB8DE9E8B984DCE349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337854   (268218) от 17.11.2019
-
-Crash - Crash (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dance Dirty - 2:57
-02. Close At Hand - 4:22
-03. Eyes Don't Lie - 4:51
-04. The World - 4:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C80226D868EEFECF05CC9B3E199841457E7048E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1208186   (780119) от 21.02.2018
+
+The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope (11:02)
+ 02. Disfigured Phantasy (05:53)
+ 03. Levitation (08:16)
+ 04. Psycho Kinesis (05:23)(   Читать дальше...   )Жанр: Techno, Ambient, IDMПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F75A81FC8F8707077B79FFFDA466F31B8822E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208301   (780116) от 21.02.2018
+
+VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blake Baxter - Where Is The Love (05:42)
+ 02. Santonio Echols - Sources (05:01)
+ 03. Eddie 'Flashin' Fowlkes - T.M.F.61 (05:59)
+ 04. Thomas Barnett - Operation-10 (05:05)(   Читать дальше...   )Тип издания: CD •Жанр: Techno, Detroit Techno •Продолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12557AE82B0B714A70BCA091AA511E8114685B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208516   (779821) от 23.02.2018
 
 FUCT TAPE - FUCT TAPE (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -681,64 +739,6 @@ Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F422EBDA6B92EB4CDB655C4F8A25771D4C1B3C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212944   (773348) от 15.03.2018
-
-VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camelphat & Elderbrook - Cola (3:49)
-02. MK - 17 (In The Air dub) (5:22)
-03. Marshmello & Khalid - Silence (Blonde remix) (3:45)
-04. Disciples - On My Mind (Deepend remix) (3:10)(   Читать дальше...   )Жанр: Club House |Продолжительность: 02:40:01 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E889E9A09A15BF4B336849DDC716831C80E59DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278156   (773293) от 24.01.2019
-
-VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, ElectroHouse, BigRoom>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Maximus - We Rave (Original Mix) 3:47
-02. Raffee - Society (Original Mix) 3:45
-03. Angelo Adinolfi - Wet (Original Mix) 4:59
-04. Axel & Jeizer - You Ready (Original Mix) 4:38(   Читать дальше...   )Жанр: House, ElectroHouse, BigRoomПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3270826F581064A62430447A2CACE41FDB1676A
 ```
 
 https://mybot314.ru/tekegram_catalog/

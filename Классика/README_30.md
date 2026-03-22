@@ -1,3 +1,127 @@
+###  Публикация: 1317440   (500411) от 01.08.2019
+
+Adiemus - Songs Of Sanctuary (1995) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этого композитора вполне справедливо относят к «классической» школе, его произведения ставились даже в Петербургской консерватории, но в то же время в России он мало известен даже среди музыкантов-профессионалов. Карл Дженкинс (род. в 1944 г.) получил музыкальное образование в университете Кардиффа, затем продолжил обучение в Королевской Академии музыки.
+
+Первый (   Читать дальше...   )01. Adiemus (4:01)
+02. Tintinnabulum (11:01)
+03. Cantus Inaequalis (3:16)
+04. Cantus Insolitus (5:38)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD40768FBEC3C3216633DE6EC4952EE34C08568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317355   (500355) от 01.08.2019
+
+Adiemus - Songs Of Sanctuary (1995) [MP3|320 Kbps] <Modern Classical, Ambient>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adiemus (4:01)
+02. Tintinnabulum (11:01)
+03. Cantus Inaequalis (3:16)
+04. Cantus Insolitus (5:38)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5472E79FDD977FA596E200842447C10193F6A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235152   (498606) от 11.09.2010
+
+Муслим Магомаев - Арии из опер (2002) [FLAC|Lossless]<Вокал>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ария Фигаро [03:50]
+02. Ариозо Дон Жуана [01:57]
+03. Кавантина Фигаро [04:39]
+04. Сцена Амонасро [03:17]
+05. Монолог Яго [04:56]
+06. Ария Риголетто [04:40]
+07. Пролог к опере 'Паяцы' [05:54]
+08. Ария Каскара [02:05]
+09. Романс Каскара [02:50]
+10. Куплеты Эскамилио [04:04](   Читать дальше...   )Жанр: ВокалПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935959   (497263) от 10.09.2015
+
+Brahms - Works for solo piano (Julius Katchen) (1997) (6CDs)[FLAC|image +.cue]<Classical, Romantic Period>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intermezzo Op.117
+01. No.1 in Eb - Andante moderato (05:14)
+02. No.2 in Bb minor - Andante non troppo e con molto espressione (04:33)
+03. No.3 in C# minor - Andante con moto (05:29)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, Fantasy, Variations, Waltz, Fugue, Rhapsody, Scherzo, Intermezzo, BalladeПродолжительность: 06:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEFA28FE5E5A65B1EE29B3D9640617881EEE598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 172670   (495450) от 25.08.2018
 
 Мужской вокальный ансамбль "Благовест" - Хвалите Господа с небес [MP3|320 kbps]<духовная музыка>
@@ -671,119 +795,6 @@ VA - Иисус Христос Суперзвезда (русская верси
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937723   (479691) от 19.09.2015
-
-Beethoven - Symphonies and Overtures (Jos Van Immerseel & Anima Eterna Orchestra)(6CDs) (2008) [FLAC|image +.cue]<Classical, Orchestral, Romantic Period, Symphony, Overture>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphonie 9 Op.125 d min
-01. Allegro ma non troppo, un poco maestoso (15:21)
-02. Molto vivace (13:32)
-03. Adagio molto e cantabile (12:32)(   Читать дальше...   )Жанр: Classical, Orchestral, Romantic Period, Symphony, OvertureПродолжительность: 06:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9A0DAAFC79A02C2AD240582E0858544EA4D5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545491   (477934) от 13.09.2012
-
-VA - Мировая Классика в современной обработке Vol.3 (2012) [MP3|320 кб/с]<Classic, Blues>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic, Blues ||Формат: MP3 ||Продолжительность: 04:25:30 ||
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE49DB440A9AF51CD8192B7537A90F78981442F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160061   (477841) от 23.08.2017
-
-VA - The Musicals Album (2017) [MP3|320 Kbps] <Classical, Soundtrack>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Michael Ball & Alfie Boe - Somewhere (West Side Story)
-2. Michael Crawford - The Music Of The Night (The Phantom of the Opera)
-3. Julie Andrews, London Musicians Orchestra, Ian Fraser - The Sound of Music (The Sound Of Music)
-4. Anne Hathaway - I Dreamed A Dream (Les Misérables)(   Читать дальше...   )Жанр: Classical, SoundtrackПродолжительность: 03:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA365EDA26B1DE018DD4C3A4806A1B3F4A625D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320022   (475074) от 16.08.2019
-
-Biber - Missa Bruxellensis (Jordi Savall) (1999) [FLAC|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Missa Bruxellensis XXIII vocum
-1 Kyrie 5:00
-2 Gloria 17:01
-3 Credo 15:38(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6B49CA62D2679F754381D2A4FA6432760A7D12
 ```
 
 https://mybot314.ru/tekegram_catalog/

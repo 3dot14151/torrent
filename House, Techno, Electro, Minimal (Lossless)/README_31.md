@@ -1,3 +1,142 @@
+###  Публикация: 1224107   (668189) от 08.05.2018
+
+VA - Electrosounds Vol. 1 (1998) Globe [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Breakbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Bug & Acid Maria - Electro Sex (06:09)
+ 02. Dr. Mottes & Euphorhythm - Patrik (DJ Hell Rmx) (05:33)
+ 03. Genlog - More Music (07:19)
+ 04. Electro Nation - Fist-Man (06:02)(   Читать дальше...   )Жанр: Techno, IDM, Electro, BreakbeatПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CDB562A443DE221808DF187F70F4C33A4C50EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224064   (668112) от 08.05.2018
+
+Carl Craig - Versus & Remixes Vol. 1 & Vol. 2 (2017-2018) Infiné | Beat Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Neo-Classical, Experimental, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Melody (Henrik Schwarz Remix) (07:42)
+ 02. The Melody (Ishmael Ensemble Remix) (06:25)
+ 03. At Les (Abul Mogard Remix) (10:26)
+ 04. Desire (Secret Of Elements Remix) (09:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Tech House/Ambient/Techno/Deep HouseПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D55956C2264C5800B87F53829AC584A7B28409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339069   (667412) от 20.05.2011
+
+Class B Band - Movie T (2011) /WRL005CD/ [FLAC|Lossless]<Tech House, Nu-Disco, Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_667412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Nu-Disco, Techno, ElectronicПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224324   (667184) от 09.05.2018
+
+VA - The Sound Of NYLO, Vol. 2 (Compiled & Mixed By Vicent Ballester & The Nurk) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Vicent Ballester - The Sound Of Nylo (Non Stop DJ Mix) [01:07:55]
+02 Studio Deep - Happy End (ft. Oli Head) (Original Mix) [04:57]
+03 DJ Ixsxi - Chasing Sunrise (Misharev Remix) [03:30]
+04 Medsound - I Dont Wanna Be In Love (Original Mix) [05:03](   Читать дальше...   )Жанр: Deep House, Nu Disco, DowntempoПродолжительность: 05:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79592B2F750F7A69E57AEAC92DC9D5128BE7244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512028   (665857) от 17.06.2012
+
+Eric Prydz Presents Pryda ‎ - Pryda (2012) [FLAC|Lossless]<House , Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_665857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 01:15:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138051   (665708) от 28.05.2017
 
 VA - Seven Stories: Voyage & Return (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
@@ -603,151 +742,6 @@ VA - Deep House Invasion (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:718921FE5434507D94D5DE0A20B8754A7A653680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031536   (651800) от 04.07.2016
-
-VA - Chill House Ibiza 2016 (Finest Chill House Music) (2016) [FLAC|Lossless|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guilhem Mariposa - Hijos del Sur (Extended Mix) {5:28}
-02. Adonai - She's Gone {4:53}
-03. Max TenRom - Planet (Extended Mix) {5:11}
-04. Adonai - Salut {4:41}(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAC1B243523D838AD99D0BDC703A88F8513B6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227189   (650490) от 24.05.2018
-
-Answer Code Request - Gens (2018) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Breakbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gens (04:08)
- 02. Sphera (06:17)
- 03. Ab Intus (05:05)
- 04. Sensa (07:54)(   Читать дальше...   )Жанр: Ambient, Techno, BreakbeatПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3DE9CE711D94D723048CC6E397EB07D2A803D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031919   (649830) от 05.07.2016
-
-VA - Dezza Pres. Best of Progressive House, Vol. 07 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dezza - Silk Selections 07 (Continuous DJ Mix) [57:54]
-02. Vintage & Morelli - Daydream (Original Mix) [08:51]
-03. Sound Quelle - Allarg (Original Mix) [06:34]
-04. LTN & Roni Joni - In Between (eleven.five Remix) [06:57](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E08BB2904EEF7A0BF6BD0D4163A7BDCC42AD0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292058   (648750) от 28.03.2019
-
-Leon Vynehall - DJ-Kicks (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leon Vynehall – Who Loved Before (02:02)
-02. Kemikal – Genie (02:59)
-03. Tomaga – Giant Bitmap (05:11)
-04. De Fabriek – Loopy (02:15)(   Читать дальше...   )Жанр: Electronic, Techno, HouseПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854888A76EEE672CCCCA459140DF84707E6E4E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141865   (648692) от 11.06.2017
-
-VA - Blue Marlin Ibiza-Bruce Hill & Valentin Huedo (unmixed tracks) (2017) [FLAC|Lossless|tracks + .cue] <Deep House, Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thodoris Triantafillou & CJ Jeff - Not Only U [06:53]
-02. B.I.G. - A Promise [09:13]
-03. Beatamines - Groove Symphony [06:53]
-04. Milton Jackson - M.L.A. (Shur-i-kan remix) [07:12](   Читать дальше...   )Жанр: Deep House, Techno, ElectronicПродолжительность: 05:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1FBFF39DF6740FE00EE92CEE09072A1335EFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

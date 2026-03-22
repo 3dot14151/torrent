@@ -1,3 +1,119 @@
+###  Публикация: 1798651   (66498) от 26.05.2025
+
+Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystical Plosives (0:56)
+ 02. Aerial Troubles (3:21)
+ 03. Melodie Is A Wound (7:37)
+ 04. Immortal Hands (6:25)(   Читать дальше...   )Жанр: Indie Rock, Experimental, Post RockПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EDC78F3C6257EA404819A76A4A8D55D3B3F81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799843   (66362) от 30.05.2025
+
+Garbage - Let All That We Imagine Be The Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's No Future In Optimism
+02. Chinese Fire Horse
+03. Hold
+04. Have We Met (The Void)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2C1C6681B4643295C0C47F4EC5926095A9573B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801013   (66267) от 07.06.2025
+
+The B-52's - Cosmic Thing (1989) CD, Album, Club Edition, Columbia House [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Thing    [0:03:52.57]
+02. Dry County    [0:04:54.63]
+03. Deadbeat Club    [0:04:47.42]
+04. Love Shack    [0:05:21.43](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Indie RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735CB2DF2E724D82C10CD4168CF9532AB2120BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801149   (66239) от 08.06.2025
+
+Pretenders - The Singles (1987) [FLAC|Lossless|tracks + .cue] <Rock, New Wave, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Your Sobbing    [0:02:38.30]
+02. Kid    [0:03:04.37]
+03. Brass in Pocket    [0:03:05.50]
+04. Talk of the Town    [0:03:13.60](   Читать дальше...   )Жанр: Rock, New Wave, Pop RockПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AAAF3480D38FC1C69AA84A2B962035848B11A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801764   (66174) от 12.06.2025
 
 The Exies - Head for the Door (2004) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
@@ -629,121 +745,6 @@ blink-182 - One More Time... Part-2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Pu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B21A74F39CB1BAE3BD6B934FD984CF31C06191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749817   (43350) от 16.09.2024
-
-Seether - Seether Workout (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post Grunge, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Remedy [3:29]
-02 - Stoke The Fire [3:45]
-03 - See You At The Bottom [3:39]
-04 - Bruised And Bloodied [3:38](   Читать дальше...   )Жанр: Alternative Rock, Post Grunge, Nu MetalПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80209AAA49EA474ED1357B74D4B026F3C29CB7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751528   (42407) от 25.09.2024
-
-Star Anna - Love and Sex and Fear of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood and Bubblegum [00:04:37]
-02. Crash Site [00:04:24]
-03. Follow My Instincts [00:04:20]
-04. In The Dark [00:04:08](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474717E4019274679E67163B9ED5F7A758FFBD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751530   (42402) от 25.09.2024
-
-Electric Callboy ( ex Eskimo Callboy) - Crystals (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pitch Blease [00:03:18]
-02. Baby (T.U.M.H.) [00:03:13]
-03. My Own Summer [00:03:41]
-04. Kill Your Idols [00:03:53](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50840308FB99365FB3DF6BFEBA23A88FB5F074B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752129   (41974) от 29.09.2024
-
-Marilyn Manson - Sacrilegious (2024) EP [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sacrilegious
-02 - Raise The Red Flag
-03 - As Sick As The Secrets WithinЖанр: Alternative RockПродолжительность: 00:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FD50342768ABB68651694C55FB25832AE2010C
 ```
 
 https://mybot314.ru/tekegram_catalog/

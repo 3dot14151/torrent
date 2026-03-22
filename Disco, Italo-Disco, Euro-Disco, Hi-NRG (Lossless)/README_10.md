@@ -1,3 +1,32 @@
+###  Публикация: 1540189   (654950) от 28.03.2022
+
+VA - Turbo Disco International - Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gibson Brothers - Cue Sera Mi Vida
+02. Jairo Pereira - Pais Tropical
+03. Supermax - African Blood
+04. Ricchi & Poveri - Acapulco(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCD33F6E0FAEDFCC450553A9AD6407647264F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226481   (654780) от 21.05.2018
 
 Tonschatz - DAO - Follow Your Heart (2018) [FLAC|Lossless|image + .cue] <Euro-Disco, Europop, Synth-pop>
@@ -722,35 +751,6 @@ Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E160B51DCF3DF6410736CCCF53FDDDCEBE5A303D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294861   (625794) от 09.04.2019
-
-Sabrina - Boys: The Best Of Sabrina (2013) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Boys (Summertime Love) (Maxi Version) (5:47)
-02 Hot Girl (New Version) (3:29)
-03 All Of Me (Maxi Version) (5:16)
-04 Afraid To Love (4:46)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E6EF7DBB80548C11BC813DD196CE7536E21212
 ```
 
 https://mybot314.ru/tekegram_catalog/

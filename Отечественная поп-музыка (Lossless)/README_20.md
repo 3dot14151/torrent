@@ -1,3 +1,32 @@
+###  Публикация: 116959   (128990) от 14.10.2025
+
+Богдан Титомир - Высокая Энергия (1992) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Делай Как Я
+02 Instrumental 1
+03 Секс-Машина
+04 Кайф(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45FAC31FEC7D7B87ABD71DA1312463A2C93F345C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824018   (128659) от 13.10.2025
 
 Аркадиас - Ищу тебя (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -692,32 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A7105ED8D63F61CC60C39B0019B8C167A89D2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699969   (117190) от 16.02.2024
-
-Кватро - Слишком Честно (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117190.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Слишком ЧестноЖанр: PopПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE4C1CBCDF7F21D622DCDF355D9F51CAEFC71DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

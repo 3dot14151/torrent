@@ -1,3 +1,55 @@
+###  Публикация: 1625372   (200177) от 09.04.2023
+
+Quantic Dream | Артбук по игре Detroit: Become Human / The Art of Detroit: Become Human (2018) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре "Detroit: Become Human".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B1D81198BD709B2B1C434421D464B573C12822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625818   (200004) от 11.04.2023
+
+Ubisoft Massive | Артбук по игре Tom Clancy's The Division / The Art of Tom Clancy's The Division (2016) [PDF] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре "Tom Clancy's The Division".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B57E34A98A5589ADE987A7377F93A864509821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625815   (199999) от 11.04.2023
 
 PlayFlock | Артбук по игре Insanity Clicker / The Art of Insanity Clicker (2016) [PDF] [EN]
@@ -618,58 +670,6 @@ Jorge Gutierrez | Артбук по мультсериалу Майя и три 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60224C56FB8580A43D62BB4D6FF4DB79DD212471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590208   (189288) от 12.11.2022
-
-Disney Television Animation | Артбук по мультсериалу Утиные истории / The Art of DuckTales (2022) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по мультсериалу "Утиные истории".Жанр: АртбукЯзык: АнглийскийФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB744E84FFD7FF530603E7D56AC694DF77D137CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592753   (182928) от 23.11.2022
-
-Arkane Studios | Артбук по игре Dishonored / Dishonored - The Dunwall Archives (2014) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Dishonored".Жанр: АртбукЯзык: АнглийскийФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C1341ED43539BC69B5CBCAEA311CD2080F19B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

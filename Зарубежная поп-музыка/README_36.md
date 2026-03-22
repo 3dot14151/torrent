@@ -1,3 +1,125 @@
+###  Публикация: 911335   (618027) от 22.06.2015
+
+VA - Dance Collection The Remixes 2010s (2015) [MP3|320 кб/с]<Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D' Mixmaster - Bad Romance (Bad Romance) (07:27)
+02. Kate Project - California Gurls (The Factory Team Remix) (05:05)
+03. All Stars Generation - Waka Waka (This Time for Africa) (Lysark & Simone Farina Remix) (05:52)
+04. MC Joe, The Vanillas - Love the Way You Lie (R.P. Remix) (05:19)(   Читать дальше...   )Производство: Dance FlavourЖанр: Euro Dance, Pop DanceПродолжительность: 02:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759EA753F705E5A11F8042439D6C13389FAE2E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523548   (616988) от 16.07.2012
+
+Bananarama - 30 Years of Bananarama (2012) [MP3|242-290 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aie A Mwana
+02 Really Saying Something
+03 Shy Boy
+04 Na Na Hey Hey Kiss Him Goodbye
+05 Cruel Summer
+06 Robert De Niro's Waiting
+07 Venus
+08 I Heard A Rumour
+09 Love In The First Degree
+10 I Can't Help It(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 1:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF35AE95401BF2EFCE19FEBD9CDE4192EF66F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295663   (616906) от 14.04.2019
+
+VA - 100 Greatest Number Ones (2019) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616906.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clean Bandit - Solo (feat. Demi Lovato) (3:42)
+002. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (3:31)
+003. Lukas Graham - 7 Years (3:57)
+004. Charlie Puth - Marvin Gaye (feat. Meghan Trainor) (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D04D46B248934E84592E570E03FCC48A8BD599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146186   (616586) от 28.06.2017
+
+VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ‘Die immer lacht’ – Die immer lacht 03:30
+02. Andy Luxx – Wir sind die Mallorca Familie 03:36
+03. Mallorca Cowboys – Eskalation 03:53
+04. Till Simon – Wenn sie tanzt 04:49(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4414320858767A6F335A74F2F9BBCD3F425608DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911599   (616429) от 23.06.2015
 
 Victor Manuelle - Que Suenen los Tambores (2015) [MP3|320 кб/с]<Latin, Salsa>
@@ -629,122 +751,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B88E39BF9C435FA5E1A17E5D4D1E5E1DF5A4589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296660   (610327) от 18.04.2019
-
-VA - Indie Country Folk (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Whitehorse – Old Oak Tree [03:20]
-02. David Lawrence – Night Calling [02:50]
-03. Harriet Whitehead – Breaking All the Ties [03:18]
-04. Tom Whitehorse – Lovers Tomb [03:25](   Читать дальше...   )Жанр: PopПродолжительность: 01:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00875467475188F10434567495AA40A1076ECA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296595   (610326) от 18.04.2019
-
-Nicklas Sahl - Planets (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Killed Your Night
-02. Cut Me Loose (feat. SKAAR) - Acoustic
-03. Planets
-04. New Eyes(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD5CAD7AF99C61A7C1C03D06E21956BAE029160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296585   (610256) от 18.04.2019
-
-Beyonce - Homecoming: The Live Album (2019) [MP3|320 Kbps] <Pop, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome (Homecoming Live)
-02. Crazy In Love (Homecoming Live)
-03. Freedom (Homecoming Live)
-04. Lift Every Voice and Sing (Homecoming Live)(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 01:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F110A99FDCA7EC4FF9DF0E5F4671E9BB293BC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296728   (610243) от 18.04.2019
-
-VA - NOW Thats What I Call Music! 2 (2019) [MP3|320 Kbps] <Synthpop, Reggae, Dancehall>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610243.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Queen - Radio Ga Ga
-02. Nik Kershaw - Wouldn't It Be Good(   Читать дальше...   )Жанр: Synthpop, Reggae, DancehallПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4A1A7AD7EE6004D90C2BCDA587EC4F8DD116E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 522222   (622856) от 13.07.2012
+
+Казачий народный ансамбль Eрмаковы Лебеди - За Байкалом-морем (2005) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. За Байкалом-морем (2:47)
+ 2. Ревела буря (5:29)
+ 3. Хороша наша станица (1:36)
+ 4. Эта Родина Сибирь (2:04)
+ 5. Ягодиночка (3:42)
+ 6. Во поле, было поле (1:44)
+ 7. Над Тереком буйным (3:00)
+ 8. Командир у нас - Серов (3:47)
+ 9. Едут солдатики домой (4:12)
+ 10. Пуля (3:37)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7010CB4D2B0A2A14F64CEDBE87BB91C0410B382C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035962   (622811) от 19.07.2016
+
+Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating [00:10:22]
+02. Images [00:10:03]
+03. Deeper [00:10:01]
+04. Drift Away [00:10:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0659F225BADC950321FC635A61CFA0AAA8CEABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522232   (622801) от 13.07.2012
+
+Семья Жемчужных - Застольные песни по-цыгански (2005) [MP3|320 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. За дружеской беседою (2:00)
+ 2. Кай енэ (2:54)
+ 3. Солнышко (3:37)
+ 4. Хоп-Хоп (1:31)
+ 5. Дану-данай (2:02)
+ 6. Аленушка (3:20)
+ 7. Очи черные (2:46)
+ 8. Мар Дяндя (3:02)
+ 9. Нанэ цоха (2:15)
+ 10. Упряжка вороного (1:36)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC8D08FB05C60E865C03BE2BB4DFB39CC057937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036218   (622744) от 19.07.2016
+
+VA - Spice (2016) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wychazel - Behind the Veil
+02. Wychazel - The Magic Lamp
+03. Jon Richards - Sunrise Over Ganden
+04. Medwyn Goodall - The Lost Pharoah(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1A1FA412B44AAC7CB4B149E2F655BFB74233F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229858   (622704) от 08.06.2018
+
+Сергей Гримальский - West (2003) [MP3|320 Kbps] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер времени (3:52)
+02. Колыбельная (3:35)
+03. Цветные сны (5:53)
+04. Золотой ангел (5:11)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D28A06DAC6C2C675C6CBD6CDD13C96699F804A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035935   (622654) от 19.07.2016
 
 California Guitar Trio - Masterworks (2012) [MP3|213~253 Kbps (V0)] <Instrumental, Acoustic, Classical>
@@ -612,151 +769,6 @@ Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295503   (618797) от 13.04.2019
-
-Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lincoln (3:09)
-02. Newspaper Gown (2:55)
-03. Oh Weather (1:07)
-04. South (3:07)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295528   (618606) от 13.04.2019
-
-Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoo Town Zydeco (4:32)
-02. En haut de la montagne (4:30)
-03. Chère Aline (5:02)
-04. Bureaucrates (4:29)(   Читать дальше...   )Жанр: Zydeco, Cajun, FolkПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEDB9AB40C6ED42276642AF727443233CC649AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144577   (618093) от 27.06.2017
-
-Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abundant Harvest 06:58
-02. Bubble of Peace 06:35
-03. Frequency of Clouds 06:53
-04. Cave Painting 05:38(   Читать дальше...   )Жанр: Psychedelic, Meditative, AmbientПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ACF4AA24FBF0C9B7EF0149399531867FE2D9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911115   (618037) от 22.06.2015
-
-Bill Justis - More Instrumental Hits By Bill Justis (1965) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Roses For A Blue Lady
-02. Lazy River
-03. Three O'Clock In The Morning
-04. Tequila(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F543AE8B3CAF6FB17A2ADC0339CA6C339FA1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145791   (617747) от 27.06.2017
-
-Steve Jablonsky - Transformers: The Last Knight / Трансформеры: Последний рыцарь (Music from the Motion Picture) (2017) [FLAC|Lossless|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrifice (06:47)
-02. The Coming of Cybertron (04:59)
-03. Merlin's Staff (05:49)
-04. No-Go Zone (03:29)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1CDB51E3DEDFA29E6B16E0C7285E3A0FD535FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

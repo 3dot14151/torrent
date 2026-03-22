@@ -1,3 +1,148 @@
+###  Публикация: 1181324   (335072) от 06.11.2017
+
+VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Byers - INTRO - Will Singing the Clash (00:27)
+02. The Police - Every Breath You Take (04:12)
+03. The Clash - Should I Stay or Should I Go (Remastered) (03:06)
+04. Jim Hopper - 'Coffee and contemplation' (00:09)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C026A8852CE0BFD1AE20CB03036996162C0CE864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181081   (335067) от 06.11.2017
+
+Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Spirits 03:30
+02. Dusk 04:19
+03. Wolf's Heart 03:25
+04. Indian Fire 03:28(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E319F6CAFD913AA2189951FF43B43A7B43025C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331076   (334984) от 13.10.2019
+
+Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Dawn (2:35)
+2.Pianissimo (3:26)
+3.Alpine Meadow (3:20)
+4.Peaceful Stream (2:52)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331088   (334664) от 13.10.2019
+
+VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Franz Lambert - Time Is Tight (3:13)
+2.Karl Ratzer - Moonlight Shadow (3:41)
+3.Fred Adams - One Way Wind (3:44)
+4.Marius - I Am Sailing (4:20)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB87A785EAFE0A1F02E77CFF0B07F61F2991FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 160792   (334385) от 18.11.2011
+
+Various Artists - The Pianist OST (2002) [MP3|320 kbps]<Classical>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_334385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chopin - Nocturne In C-Sharp Minor (1830) (4:04)
+2. Chopin - Nocturne In E Minor, Op. 72, No. 1 (4:22)
+3. Chopin - Nocturne In C Minor, Op. 48 No. 1 (5:49)
+4. Chopin - Ballade No. 2 In F Major, Op. 38 (7:32)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 412131   (334071) от 18.11.2011
 
 Михаил Турецкий представляет - Арт-группа Сопрано 10 (2010) [MP3|320 kbps] <Vocal, A Capella, Pop, Other>
@@ -594,155 +739,6 @@ VA - Идеальный голос / Ultimate Pitch Perfect OST (2015) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDDFEF10540172BD2168F92AFE9B6090DD7E6176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956041   (331148) от 13.11.2015
-
-Saulius Petreikis & The Unit 7 Allstars - Lowlands (2014) [OGG| 405-493 кб/с]<World, Folk, African, Celtic, Persian Classical, Relax>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lowlands
-02. Breaking The Ice
-03. Ei Vaka
-04. Duduk(   Читать дальше...   )Жанр: World, Folk, African, Celtic, Persian Classical, RelaxПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1ACD7FB917919EF4C247B2E0E4AEEE00C87056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259553   (330580) от 20.11.2010
-
-OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Hold on I'm Comin' - Sam & Dave
-2.People Are Crazy- Billy Currington
-3.The White Room - Cream
-4.New Moon Rising - Wolfmother
-5.Mykonos - Fleet Foxes
-6.This Is Why I'm Hot - Mims
-7.Old Man (Live At Massey Hall) - Neil Young
-8.Hey You - Pink Floyd
-9.Sweet Jane - Cowboy Junkies
-10.Is There a Ghost - Band of Horses(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6843319372380D85D329F561A502996DCE3BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579355   (329913) от 02.10.2022
-
-Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind
-02. Cathedral
-03. November
-04. Premonition(   Читать дальше...   )Жанр: Electronic, Vocal, New AgeПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828746BD924514CD224EDA4FA64313ABBB58ECBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841743   (329886) от 16.11.2014
-
-Hans Zimmer - Interstellar (2014) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming of the Crash  (3:56)
-02. Cornfield Chase  (2:07)
-03. Dust  (5:41)
-04. Day One  (3:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC4254D9FB8107224681A958CFE44C6A3515F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261483   (329021) от 22.11.2010
-
-VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Asleep
-02. Stay Asleep/Wake Up RejuvenatedЖанр: New age, RelaxПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBB954691C58C7957847830E5A10C03BD17505C
 ```
 
 https://mybot314.ru/tekegram_catalog/

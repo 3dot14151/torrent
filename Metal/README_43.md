@@ -1,3 +1,127 @@
+###  Публикация: 508373   (673169) от 13.06.2012
+
+Kasan - Drown (2012) [MP3|320 кб/с]<Instrumental Post Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drown 01:48
+ 02. The Battling Eels Of Antibes 08:57
+ 03. An Emerald Dream 10:39
+ 04. Mindshelter 11:48
+ 05. Hydroman Vs That Sea 09:26
+ 06. Float 02:472012Жанр: Instrumental Post SludgeПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED2B3DC02AA4FD193912A0AD67FDFCAE483985C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291284   (672234) от 23.03.2019
+
+Aephanemer - Prokopton (2019) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prokopton
+2. The Sovereign
+3. Dissonance Within
+4. Snowblind(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91181B906218E4F3826318576FE4A799B9FC12B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030784   (672058) от 01.07.2016
+
+Wolf Hoffmann (Accept) - Headbangers Symphony (2016) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, Neo-Classic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scherzo (L. v. Beethoven)
+02. Night On Bald Mountain (M. Mussorgsky)
+03. Je Crois Entendre Encore (G. Bizet)
+04. Double Cello Concerto In G Minor (A. Vivaldi)(   Читать дальше...   )Жанр: Progressive Metal, Heavy Metal, Neo-ClassicПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40D2BBB5A7B22F81E99C4EE6CBEAF45E8834F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510307   (670654) от 14.06.2012
+
+Children of Bodom - Holiday at Lake Bodom: 15 Years of Wasted Youth (2012) Compilation [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hate Crew Deathroll (3:36)
+ 02. Shovel Knockout (4:04)
+ 03. Hate Me (4:45)
+ 04. Eveyrtime I Die (4:01)
+ 05. Needled (4:09)
+ 06. I'm Shipping Out To Boston (Dropkick Murphy's Cover) (2:50)
+ 07. Sixpounder (3:24)
+ 08. Warheart (4:01)
+ 09. Roundtrip To Hell And Back (3:48)
+ 10. Trashed, Lost & Strungout (4:02)(   Читать дальше...   )2012Жанр: Melodic Death MetalПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2C35D1B719DF98CF28B95E9FA0E90B35EA3FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482787   (670202) от 14.06.2012
 
 Paradise Lost - 1 Album + 1 Compilation (2012) [MP3|320 кб/с]<Gothic/Doom/Death Metal>
@@ -644,134 +768,6 @@ Helloween - My God-Given Right (2015) Mailorder Edition [MP3|320 кб/с]<Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830A56DE6E3A70FC06177A295CB7B356B785B6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902733   (659734) от 29.05.2015
-
-Lindemann - Praise Abort (2015) Single & EP [MP3|320 кб/с]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659734.jpg" />
-</div>
-
-
-###  Подробнее
-
-EP к новому альбому фронтмена RAMMSTEIN Тилля Линдеманна и шведского легендарного метал-продюсера и музыканта Петера Тагтгрена (HYPOCRISY, PAIN).1. Praise Abort
-2. Praise Abort (Clemens Wijers Remix)
-3. Praise Abort (Ostblockschlampen Remix)
-4. Praise Abort (Hedberg & Larsson Remix)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17C5E1A3C8CAF79919740C1DA6AC4EE01CE48CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514290   (659359) от 23.06.2012
-
-Cripper - Antagonist (2012) [MP3|320 кб/с]<Thrash Metal / Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659359.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. New Shadow (3:38)
-2. Not Dead Yet (3:31)
-3. Animal of Prey (2:51)
-4. Totmann (4:39)
-5. Hegemony (3:04)
-6. Clean (4:00)
-7. General Routine (4:06)
-8. Dogbite (4:20)
-9. Another Lesson in Pain (3:18)
-10. Damocles (3:56)(   Читать дальше...   )Жанр: Thrash Metal / Female VocalПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F70DA3702DCE6D2AA0817C55EA59F42E781EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514323   (659351) от 23.06.2012
-
-Luca Turilli`s Dreamquest - Lost Horizons (2006) [MP3|320 кб/с]<Electro-Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introspection
- 02. Virus
- 03. Dreamquest
- 04. Black Rose
- 05. Lost Horizons
- 06. Sospiro Divino
- 07. Shades Of Eternity
- 08. Energy
- 09. Frozen Star
- 10. Kyoto`s Romance(   Читать дальше...   )2006Жанр: Electro-Symphonic Power MetalПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB7000D10ED4466DEE0E7B20C303B9DB134BF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903256   (659316) от 30.05.2015
-
-Nekrogoblikon - Heavy Meta (2015) [MP3|~275 кб/с]<Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The End Of Infinity
-2. We've Had Enough
-3. Bring Us More
-4. Snax & Violence(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AB19A4AE6328B807DA8814A21684A651174F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

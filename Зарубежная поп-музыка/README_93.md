@@ -1,3 +1,119 @@
+###  Публикация: 1751397   (42297) от 26.09.2024
+
+Brenda Lee - Greatest Hits of Brenda Lee (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42297.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - I Want to Be Wanted [00:03:04]
+002 - I'm Sorry [00:02:40]
+003 - Some of These Days [00:02:20]
+004 - Pennies from Heaven [00:02:23](   Читать дальше...   )Жанр: PopПродолжительность: 04:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373451FCDA225EDCD4BA1663DA89EDEF39AF30AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423930   (42168) от 28.09.2024
+
+Mylene Farmer - 138 Realeases (1984-2024) [MP3|320 Kbps] <Pop>
+
+>>След.
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французская певица, композитор, актриса и поэтесса. Одна из самых известных современных французских исполнительниц популярной музыки не только во Франции, но и во всём мире. Редко появляясь в СМИ и избегая обсуждения своей личной жизни, она построила долговременный творческий союз с Лораном Бутонна, плодами которого явились многие видеоклипы, живые выступления, напоминающие (   Читать дальше...   )1986 - Cendres de lune
+1988 - Ainsi soit je...
+1991 - L'autre
+1995 - AnamorphoseeЖанр: PopПродолжительность: 106:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19849F473C8B9970CA56D077D75FD0D3E3E6EF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752908   (41641) от 03.10.2024
+
+VA - Суперхиты Дискотеки 90-х Vol.1 (2010) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace of Base - All That She Wants
+02. The Beloved - Sweet Harmony
+03. Captain Hollywood - More & More
+04. Haddaway - What Is Love(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECC5DB203A63245E33C8D1BAA67DC41B6A3BD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753147   (41615) от 03.10.2024
+
+VA - Суперхиты Дискотеки 90-х Vol.2 (2011) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East 17 - It's Alright
+02. E-Type - Set The World On Fire
+03. Captain Hollywood - Over And Over
+04. DJ Bobo - Take Control(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A8981DF9ED13D1369BF1E82888C0C55B86AEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753473   (41391) от 05.10.2024
 
 VA - Суперхиты Дискотеки 90-х Vol.3 (2011) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
@@ -626,122 +742,6 @@ VA - Greatest Love Songs (2024) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8CD607354B947056F2ED30CDC99755BB87AB34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764356   (35010) от 06.12.2024
-
-Roxette - Crash! Boom! Bang! (1994) 30th Anniversary Edition, Reissue, 2024, Warner Music Sweden [MP3|320 Kbps] <Pop, Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harleys & Indians (T&A Demo Aug 10, 1993) [00:03:26]
-02. Crash! Boom! Bang! (T&A Demo May 6, 1993) [00:04:14]
-03. Fireworks (T&A Demo Jan 30, 1993) [00:03:30]
-04. Run To You (T&A Demo Dec 12, 1992) [00:03:44](   Читать дальше...   )Жанр: Pop, Rock, Pop RockПродолжительность: 2 CD, 02:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E1E3F78581621C6D7FD0B0951841989B1EDA05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765318   (34403) от 12.12.2024
-
-VA - BRAVO - The Hits 2024 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Birds Of A Feather (3:30)
-02. Chappell Roan - Good Luck, Babe! (3:36)
-03. Djo - End Of Beginning (2:39)
-04. Hozier - Too Sweet (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862BC665E5B83EE92793FDA8D0D086A9C7AF4CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766230   (33871) от 17.12.2024
-
-VA - 10's Nostalgia Best from the Tens (2024) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Thinking Out Loud - (04:42)
- 02. Dua Lipa - Don’t Start Now - (03:03)
- 03. Jason DeRulo - Want to Want Me - (03:26)
- 04. Coldplay - A Sky Full of Stars - (04:28)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D657B4EF033C2C575704833A549E6D1E7848614B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766303   (33865) от 17.12.2024
-
-VA - 10s Hits - Best 10s Music (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Locked Out of Heaven - (03:54)
- 02. Ed Sheeran - Shape of You - (03:54)
- 03. Coldplay - A Sky Full of Stars - (04:28)
- 04. Lil Wayne - Sucker for Pain (feat. Logic, Ty Dolla sign & X Ambassadors) - (04:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47AB2DCDA4FF638C225D0450B04BA8BE24C3A6B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

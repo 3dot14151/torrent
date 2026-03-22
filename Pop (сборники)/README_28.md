@@ -1,3 +1,32 @@
+###  Публикация: 1121171   (800545) от 02.04.2017
+
+VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran – Shape of You
+002. Burak Yeter – Tuesday (feat. Danelle Sandoval)
+003. Kygo Selena Gomez – It Ain’t Me
+004. Jax Jones – You Don’t Know Me (feat. Raye)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3F069607124EF6445328D864B97B8CBE76561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121290   (800502) от 02.04.2017
 
 VA - Весенняя 100-ка популярных треков выпуск № 2 (2017) [MP3|320 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386180   (795230) от 28.05.2020
-
-VA - Europop Music Sound: Nonstop FM Radio (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795230.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. All Saints - Never Ever
-002. David Delabrosse - Burn Out
-003. Liza Sherdom - My Style
-004. Countdown Singers - If I Can't Have You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29DAD479DC97E4CAF8971C2CE602A879BB73506
 ```
 
 https://mybot314.ru/tekegram_catalog/

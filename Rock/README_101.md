@@ -1,3 +1,148 @@
+###  Публикация: 1795407   (19368) от 04.05.2025
+
+Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (1972) Mix, Remaster, 2025, Legacy Recordings [MP3|320 Kbps] <Progresive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pompeii Intro [00:03:30]
+02. Echoes - Part 1 [00:11:55]
+03. Careful with That Axe, Eugene [00:06:37]
+04. A Saucerful of Secrets [00:10:10](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657528A038C31F4C9C843C8A56B5FA7B5613DF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799105   (16814) от 26.05.2025
+
+Sweet - Hannover Sessions (2025) [4CD Box-Set] [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Ray Specs (Non Album Track) [04:07]
+02. Marshall Stack (Version 1) [04:18]
+03. Red Tape [05:17]
+04. Mind [04:26](   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 02:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A673D8293417FA1C65CD2DD23AF63BE554A8385F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800748   (15572) от 05.06.2025
+
+Олександр Положинський - 2 Albums + 3 Single`s (2023-2025) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15572.jpg" />
+</div>
+
+
+###  Подробнее
+
+2023 - Попри Все
+2023 - Вогники (feat. Анна Добриднєва, Tonia Matviienko, Arsen Mirzoian & Ivan Marunych)
+2024 - Морська піхота (feat. Ot Vinta)
+2025 - ЗСУВЖанр: RockПродолжительность: 02:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CED7EFC35D7841D6D3CAF4D5CB80B9F6BB4DBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801418   (15030) от 10.06.2025
+
+Jimi Hendrix - BBC Sessions 1967 (2025) Remastered, Live On Broadcasting [MP3|320 Kbps] <Rock, Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Joe (Live) [04:03]
+02. Stone Free (Live) [03:26]
+03. Foxy Lady (Live) [02:58]
+04. Love or Confusion (Live) [02:58](   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Blues RockПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAB90877564DF154E055347EFD2E969F486F7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801801   (14713) от 13.06.2025
+
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [MP3|320 Kbps] <Blues Rock, Folk Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804107   (13282) от 27.06.2025
 
 Bruce Springsteen - Tracks II: The Lost Albums (2025) [MP3|320 Kbps] <Rock, Folk Rock, Pop Rock>

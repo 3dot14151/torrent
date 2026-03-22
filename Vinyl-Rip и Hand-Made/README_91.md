@@ -1,3 +1,351 @@
+###  Публикация: 1708539   (62215) от 21.03.2024
+
+Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A.
+01 - Homage To The Mountain.
+02 - Rubberbandman.
+03 - Jungle Bill.(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6FE613E3F711AC15D1E03EE2F017462ABF5828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709113   (62012) от 23.03.2024
+
+Электроклуб - Электроклуб-2 (Песни Давида Тухманова) (1989) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Темная лошадка (Л. Рубальская) — 3.15
+02. Схожу с ума — 4.40
+03. Дай мне слово — 3.35(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A889E1EFE95B4890D5CB31FF2B550A7EE1133F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709110   (62006) от 23.03.2024
+
+VA - Наутилус Помпилиус / Бригада С (1988) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62006.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Наутилус Помпилиус»
+Сторона 1
+01. Эта музыка будет вечной — 4.04
+02. Взгляд с экрана — 4.21(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62A8EED23D096428E6EE369398C2FCF4B6AE4F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709398   (61904) от 24.03.2024
+
+Олег Даль - Песни из кинофильмов (1988) [FLAC 24/192|Lossless|tracks] <Pop, Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорожная, из к/ф "Старая, старая сказка" (А.Петров - А.Галич)
+02. Шагал дурачок, из к/ф "Как Иванушка-дурачок за чудом ходил" (М.Вайнберг- М.Вольпин)
+03. Величальная, из к/ф "Как Иванушка-дурачок за чудом ходил" (М.Вайнберг- М.Вольпин)
+04. Балдадама, из т/ф "Расмус-бродяга" (Б.Чайковский - Д.Самойлов)(   Читать дальше...   )Жанр: Pop, Retro, SoundtrackПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF94E3593AFB45B618AE55713D87BFC336B77DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709620   (61832) от 25.03.2024
+
+Пикник - Родом ниоткуда (1989) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Я невидим
+02. Интересно
+03. Нет берегов(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD2332778A4AB5E8BD3B0F71CBEAD52FA1C7AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709696   (61817) от 25.03.2024
+
+VA - Пульс 1 - Музыкальный компьютер. (Серия "Спорт и музыка") (1985) [FLAC 24/192|Lossless|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+А.Родионов. "Современное пятиборье" (сюита)
+01-Догоняй, компьютер (кросс)
+02-Электронный наездник (скачки)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB504B5680808F2FAAD2A2D0BB3228310996858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709678   (61806) от 25.03.2024
+
+VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/192|Lossless|tracks] <Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Если петь нам о Родине (В. Семернин)
+02. Песня о первом пионерском отряде (С. Рунге)
+03. До чего же хорошо кругом (Л. Некрасова)
+04. В добрый путь (В. Харитонов)(   Читать дальше...   )Жанр: RetroПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FB9A54D834AB8B67BC708814D9E09BDCA6BBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709614   (61799) от 25.03.2024
+
+James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24/192|Lossless|tracks] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ликование / Jubilation (P. Anka / J. Harris)
+02. Колыбельная / Summertime (G. Gershwin / D. Heyward)
+03. Я не могу двигать горы / I Can’t Move No Mountain (M. Gately/ R. John)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5141EAF3474509EA5721B0489B5836D9067FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709617   (61795) от 25.03.2024
+
+Пикник - Иероглиф (1987) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Остров
+02. Иероглиф
+03. Праздник(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C024F4716C42DAA660D4396DD7B863641B3088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603099   (61626) от 27.03.2024
+
+Гран-КуражЪ - Студийные альбомы (13 изданий) (2006-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-КуражЪ (с 1999 по 2007 «КуражЪ») — российская хеви-пауэр-метал группа, основанная в 1999 году в городе Бронницы Московской области гитаристом Михаилом Бугаевым. Изначально коллектив не имел широкой известности и выступал исключительно в родном городе. Набирать обороты группа стала в 2004 году, когда образовался так называемый «золотой» состав, сохранявшийся (   Читать дальше...   )2006 - Вечная Игра
+2008 - Новой Надежды Свет
+2012 - Сердца В Атлантиде
+2016 - Жить как никто другойЖанр: Heavy/Power MetalПродолжительность: 07:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BF2149C4B1A82CACB8BE44CF7BDC1AF8FF0F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619837   (61093) от 01.04.2024
+
+Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sum 41 — канадская рок-группа из города Эйджакс, Онтарио. Была образована в 1996 году2000 - Half Hour Of Power (EP)
+2001 - All Killer, No Filler
+2002 - Does This Look Infected
+2004 - ChuckЖанр: Punk RockПродолжительность: 07:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556221   (60749) от 04.04.2024
+
+Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Djent, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bad Wolves — американская супер-группа, играющая в стиле грув-метал. Группа образована в 2017 году и стала наиболее известна исполнением кавер-версии хита The Cranberries 1994 года «Zombie». По мнению самих участников, их стиль, это рок при пониженном строе гитар с элементами джента.2018 - Disobey
+2019 - N.A.T.I.O.N.
+2021 - Dear Monsters
+2023 - Die About It(   Читать дальше...   )Жанр: Groove Metal, Djent, MetalcoreПродолжительность: 04:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498E04B8F6D9FED231EC3F098F4041C010A18544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709650   (60368) от 08.04.2024
 
 Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Nu Metal, Funk Metal>
@@ -400,354 +748,6 @@ Saul Hudson, более известный по сценическому псе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE5A2BCB7155BAAA65E36CEE3460440045CC738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642533   (54664) от 01.06.2024
-
-Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eternal Tears of Sorrow — финская группа, исполняющая музыку в стиле симфонический дэт-метал.1997 - Sinner's Serenade
-1998 - Vilda Mannu
-2000 - Chaotic Beauty
-2001 - A Virgin And A WhoreЖанр: Melodic/Symphonic Death MetalПродолжительность: 05:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481279DD7028C9857300A7DD62000F5BE49EB494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728219   (54145) от 06.06.2024
-
-Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1965, 1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54145.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Great Manolete (La Virgen De La Macarena)
-(Calero, Montede)
-A2 Spanish Harlem
-(Leiber, Spector)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E59A8B7739AFA6FE44B74958BA9A31E33F60376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728152   (54141) от 06.06.2024
-
-The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54141.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Arcane Order - датская метал-группа из Колдинга. Первоначально сформирована в 2000 году под названием Scavenger.2006 - The Machinery Of Oblivion
-2008 - In The Wake Of Collisions
-2015 - Cult Of None
-2023 - Distortions From CosmogonyЖанр: Melodic Death/Thrash MetalПродолжительность: 03:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7404F672808400922D24EFE8BCFD5B94FD99B84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558264   (54117) от 07.06.2024
-
-Godsmack (& Sully Erna) - Studio Albums (11 releases) (1998 - 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, hard rock, nu metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Godsmack — американская рок-группа, образованная в 1995 году в городе Лоуренс (Массачусетс). В состав группы входят вокалист и гитарист Салли Эрна, гитарист Тони Ромбола, бас-гитарист Робби Меррилл и барабанщик Шеннон Ларкин.1998 - Godsmack
-2000 - Awake
-2003 - Faceless
-2006 - IVЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 09:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530EACE44110B1C828F8491AE2D00E902917651B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584439   (54090) от 07.06.2024
-
-Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye) - Studio Albums (28 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Rock, ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oasis — британская рок-группа. Одна из самых влиятельных и коммерчески успешных групп 90-х. Группа входит в «большую четвёрку» брит-попа вместе с Blur, Suede и Pulp.
-Группа основана в 1991 году в Манчестере братьями Ноэлом и Лиамом Галлахерами. Ноэл — гитарист, вокалист, автор песен, продюсер и идеолог группы. Его младший брат Лиам — основной вокалист и автор нескольких (   Читать дальше...   )1994 - Definitely Maybe
-1995 - (What's The Story) Morning Glory
-1997 - Be Here Now
-1998 - Masterplan (Compilation album)Жанр: Rock, BritpopПродолжительность: 27:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA0CDB3EAFB95DAB16F84DC6E0006B623C1BEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529435   (54075) от 07.06.2024
-
-Evergrey - Studio Albums (14 releases) (1998-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evergrey — шведская прогрессив-метал-группа, созданная в 1995 году в городе Гётеборг.1998 - The Dark Discovery
-1999 - Solitude • Dominance • Tragedy
-2001 - In Search of Truth
-2003 - Recreation DayЖанр: Progressive/Power MetalПродолжительность: 14:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4048EDFED7983F3696888FFFD7F38C4842B70DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845295   (53891) от 09.06.2024
-
-Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip)]<Pop (Sound-Alike)>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Not In Love
-Gouldman - Stewart
-02. Sailing
-Sutherland(   Читать дальше...   )Жанр: Pop (Sound-Alike)Продолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5665089D88FE813DF5D0F2F029F397A72983C990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729153   (53723) от 10.06.2024
-
-Dying Fetus - Reign Supreme (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Brutal Death Metal, Grindcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53723.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Invert The Idols
-A2 Subjected To A Beating
-A3 Second Skin
-A4 From Womb To Waste(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A05C117D3C3086A4E3F4E531719CFF8481F4461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729372   (53614) от 11.06.2024
-
-Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ablaze My Sorrow — мелодик-дэт-метал группа из Фалькенберга, Швеция. Группа образовалась в 1993 году, выпустила три полноформатных альбома после нескольких смен состава и получила широкую известность в металлической прессе, прежде чем распалась в августе 2006 года.
-В январе 2013 года группа воссоединилась.1996 - If Emotions Still Burns
-1998 - The Plague
-2002 - Anger, Hate And Fury
-2016 - Black(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 04:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59AA77849FFF45C7283D0505CBB9C992CFFF1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659088   (53554) от 12.06.2024
-
-Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bon Jovi — американская рок-группа из Нью-Джерси, образованная в 1983 году в Сейревилле, штат Нью-Джерси.
-После того, как одно из первых демо Джона Бонджови, «Runaway», стало хитом на радио Джерси, молодой музыкант в 1983 году сформировал группу Bon Jovi. Группа впоследствии стала одной из самых успешных рок-групп десятилетия, заработав огромное количество поклонников (   Читать дальше...   )1984 - Bon Jovi
-1985 - 7800° Fahrenheit
-1986 - Slippery When Wet
-1988 - New JerseyЖанр: Glam Metal, Hard RockПродолжительность: 29:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A801F54B7F65AE6063232A073EE2C9295F3481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730670   (53004) от 17.06.2024
-
-Звёздный Ансамбль Бардов России - Песни Нашего Века. Части I - III (1998 - 2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ChansonПродолжительность: 02:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDB51CE020A0A9C1B548DE2E7148EDC658A2C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730867   (52920) от 18.06.2024
-
-VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Красные маки - Скажи мне правду
-02. Синяя птица - Клён
-03. Пламя - Снег кружится(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C2317F97E53DA0E87C14AF53A851A6A6D6D4EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

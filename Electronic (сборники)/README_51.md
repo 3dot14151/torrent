@@ -1,3 +1,61 @@
+###  Публикация: 1199292   (801775) от 15.01.2018
+
+VA - Chillout - Ocean sounds (2018) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bachot Muna - Do It
+02. Darin Epsilon - Endless Sands Of Time
+03. Projekt Phoenix - Lighthouse
+04. Down Under - Guess(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 05:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62A3025F8E72ACEFC2CF7E2D611FA2BB0636109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199315   (801688) от 15.01.2018
+
+VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House, Techno, Dark Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2nd Phase - Propel The Light (Original Mix)
+02. Above & Beyond, Zoe Johnston - No One On Earth (Gabriel & Dresden Remix)
+03. Acidbro - Yeah, Bosh! (Nopopstar Remix)
+04. Alex ll Martinenko - Eruption (Original Mix)(   Читать дальше...   )Жанр: Tech House, G-House, Bass House, Techno, Dark ProgressiveПродолжительность: 27:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE11A9425C3D5AE84497C5B68C80379DB2B0C32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506086   (801651) от 29.10.2021
 
 VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
@@ -684,64 +742,6 @@ VA - The Gulf Of Pleasure (2017) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C495E38F34E5478199A355C4C6C6329788D20223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121874   (799682) от 03.04.2017
-
-VA - Through The Clouds: April Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799682.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Markus Schulz - The Lost Oracle (Transmission 2016 Theme) (Extended Mix) 07:45
-002. Purenrg - Secret Of The Sahara (Radio Edit) 03:54
-003. Mellari - Sputnik (Original Mix) 08:59
-004. Solomon08 - Lavatella (Original Mix) 07:07(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 12:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01377A2A124CB87C6A053DE05B6369AF3A28BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121570   (799681) от 03.04.2017
-
-VA - Beatport Trance  Pack (03.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sam Laxton - Local Anaesthetic (Extended Mix)  6:13
-02.  Type 41 - Aquis (Plutian pres. Astrion Remix)  8:38
-03.  Ozo Effy - Deep Reality (Ultimate Extended Remix)  6:55
-04.  Alexander Dyomin - Sunset On Green Street (Original Mix)  7:41(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 04:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AC48583812CC2E6D8439FF27E128144B6B01DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

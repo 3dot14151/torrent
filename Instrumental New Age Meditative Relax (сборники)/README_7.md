@@ -1,3 +1,61 @@
+###  Публикация: 1537883   (663132) от 20.03.2022
+
+Ernesto Cortazar - Compilation part 3 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories of the Fall
+02. Delirio
+03. Mournful Seaside
+04. Cid(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 06:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFC6B744A68612502B720020CDAD95556CD50FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538640   (662198) от 21.03.2022
+
+Ernesto Cortazar - Compilation part 2 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I See the Sky
+02. Eternamente (Eternally)
+03. Y Volvere - El Triste - La Nave Del Olvido - Orfeo Negro
+04. One Voice Concerto(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 06:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AF151D6C85AB777C70B14A7A1B20C8C5881F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538643   (662194) от 21.03.2022
 
 Ernesto Cortazar - Compilation part 4 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
@@ -691,64 +749,6 @@ Amethystium - Odonata (2001):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE9AE8CF0F0F6156D3140D83C44B31C2B155EA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543914   (625532) от 13.04.2022
-
-VA - Floating Pyramids: Ambient Meditation (2022) [MP3|320 Kbps] <Ambient, Meditation, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые вашему вниманию музыкальные треки для медитации это кладезь целительной энергии. Их прослушивание может оказать вам реальную помощь в восстановлении жизненных сил организма. Эта музыка помогает потокам энергии свободно протекать по ментальным каналам, изначально определенным в организме человека природой. Она снимает напряжение, что позволяет восстановить (   Читать дальше...   )001. Innesti - Recurring Dream
-002. Kaya Project - Zheng '21
-003. Pjs - Daydream
-004. Vangelis - Inside Our Perspectives(   Читать дальше...   )Жанр: Ambient, Meditation, RelaxПродолжительность: 10:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D83893CA18861A756F812BD54AAA0ED757D49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144745   (625527) от 23.06.2017
-
-VA - Ambient Compilation (2017) [MP3|320 Kbps] <Ambient, New Age, Chillout, Dream>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Schiller - Sonne  5:17
-02.  Conjure One - Endless Dream  4:30
-03.  Amethystium - Hymnody  4:20
-04.  Jesper Kyd - Venice Rooftops  3:20(   Читать дальше...   )Жанр: Ambient, New Age, Chillout, DreamПродолжительность: 04:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6542F8C61BE2000CE1F09BFA2A5AD590D0A5B416
 ```
 
 https://mybot314.ru/tekegram_catalog/

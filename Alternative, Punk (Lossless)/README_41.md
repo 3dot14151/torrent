@@ -1,3 +1,119 @@
+###  Публикация: 1575031   (379337) от 08.09.2022
+
+See Through You - Hollowed Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:31]
+02. Behold [00:03:57]
+03. In Our Blood [00:03:09]
+04. When the Sun Goes Down [00:02:50](   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFF65DFE8F56061F97B54FA1BFC1F2A99D59FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415311   (379114) от 11.10.2020
+
+Psychostasy - Unworthy Grave (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:21]
+02. Burned at the Stake [00:03:03]
+03. Eternal Recurrence [00:03:56]
+04. Game of Man and Earth [00:03:00](   Читать дальше...   )Жанр: Progressive DeathcoreПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F91CD5BB018B268C7B6A7E72739BF279C2ED23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415218   (379112) от 11.10.2020
+
+Every Hour Kills - Reawaken (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veiled Aurora (feat. Dayshell & Bloodshot Dawn) [00:04:18]
+02. Anthelion (feat. Threat Signal) [00:04:26]
+03. Re:awaken [00:04:12]
+04. Time (feat. Rick Graham) [00:05:04]Жанр: Modern Metal, Metalcore, ElectronicПродолжительность: 00:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4871D99445EF3B0DEF6B797796FFD1860BFC37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415111   (379108) от 11.10.2020
+
+Bootblacks - Thin Skies (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traveling Light [00:03:40]
+02. The Jealous Star [00:04:12]
+03. Thin Skies [00:03:22]
+04. Hidden Things [00:03:40](   Читать дальше...   )Жанр: Indie Rock, Post-Punk, DarkwaveПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BF1DF9599DAACC48BF0831EFE19D9632D256BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415130   (379106) от 11.10.2020
 
 DeadRise - DeadRise (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Post-Hardcore>
@@ -629,122 +745,6 @@ Adrenaline
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A91B86BE8BC4B659778E8EB779A86B7820E41520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950587   (369892) от 26.10.2015
-
-Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|image+.cue]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine
-02. You Owe Me
-03. Tempted
-04. All of This and Nothing(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A29B0B0E0AA07FD4828B74BD5D1FB402C3A5156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950276   (367897) от 27.10.2015
-
-The Stranglers - Aural Sculpture (1984) [FLAC|Lossless]<Punk, Post-punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367897.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ice Queen 4:02
-2.Skin Deep 3:53
-3.Let Me Down Easy 4:13
-4.No Mercy 3:39(   Читать дальше...   )Жанр: Punk, Post-punkПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0210F5E8D6AED8F85789EB7576C7F7506D520C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416113   (367836) от 16.10.2020
-
-XURL - Deity (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oversight [00:03:28]
-02. Vivid Recollections [00:04:25]
-03. Hypnos [00:02:32]
-04. Senseless [00:04:28](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BA25047454FE5B2A9321BC5C3F91C2319D05C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255397   (366246) от 17.10.2018
-
-Collective Soul - Collective Soul (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome All Again (3:55)
- 02. Fuzzy (4:00)
- 03. Dig (3:18)
- 04. You (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C838790A491DB628387D92F02B5AB54EF6B9037D
 ```
 
 https://mybot314.ru/tekegram_catalog/

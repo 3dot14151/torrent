@@ -1,3 +1,180 @@
+###  Публикация: 1037063   (615668) от 23.07.2016
+
+Melanie De Biasio - Blackened Cities (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615668.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blackened CitiesЖанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03ACB0DA8B60E1ED95A3B9FA88D80AFA4EC1837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523801   (615408) от 17.07.2012
+
+Bob Leaper Big Band - Big Band, Beatle Songs (2005) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_615408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Be Your Man (2:36)
+02. It Won't Be Long (2:52)
+03. This Boy (4:25)
+04. Don't Bother Me (2:26)
+05. She Loves You (2:51)
+06. A Hard Day's Night (2:41)
+07. Love Me Do (3:31)
+08. Please Please Me (3:15)
+09. All My Loving (4:57)
+10. There's A Place (3:11)(   Читать дальше...   )Жанр: Big BandПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296054   (615240) от 15.04.2019
+
+Branford Marsalis Quartet - The Secret Between The Shadow And The Soul (2019) Marsalis Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance of the Evil Toys [8:23]
+02. Conversation Among the Ruins [8:46]
+03. Snake Hip Waltz [5:52]
+04. Cianna [7:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1E4A2D6EF43E964DA36D6FB1EC9C6CF0D0AF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296086   (615142) от 15.04.2019
+
+VA - Smooth Jazz Dinner Party (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Levine - Through The Fire
+02. Leif Shires - Human Nature
+03. Mark Douthit - You Can't Hide Love
+04. Pat Coil - One More Night(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4C53A82367C18441979DF7B558AE680D55F0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146591   (614773) от 29.06.2017
+
+Milt Jackson - Mostly Duke (1982) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Little Words [04:52]
+02. Used To Be Jackson [05:09]
+03. The Summer Knows [07:59]
+04. Main Stem [02:28](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D9647F2A1C53528B339F0C0AFE01EB16307D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146621   (614772) от 29.06.2017
+
+Members Of The Duke Ellington Orchestra - A Tribute To Duke Ellington (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The A Train [03:00]
+02. Cotton Tail [03:07]
+03. Solitude [03:16]
+04. Jeeps Blues [04:37](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D115C0E43245FC09BF2203351F6291D91B463F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146545   (614771) от 29.06.2017
 
 Apollo Saxophone Orchestra - Perpetual Motion (2012) Nimbus [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Classical>
@@ -571,186 +748,6 @@ Illinois Jacquet - The King! (1968) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mai
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE85354555968941DB3492217CCC502C5EF6F420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230773   (612343) от 14.06.2018
-
-Jimmie Lunceford - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillun, Get Up [3:13]
-02. Solitude [3:15]
-03. Rain [3:17]
-04. Since My Best Gal Turned Me Down [3:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DF4AA943C59D231F2BA63D7FA911F05BD84D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037765   (612231) от 25.07.2016
-
-Blue Mitchell - Blue Soul (1959) Remaster, 2006, JVC[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Minor Vamp [03:44]
- 02.The Head [04:30]
- 03.The Way You Look Tonight [03:23]
- 04.Park Avenue Petite [03:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917DF8818256B361599B4AF21225C09765319A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037772   (612224) от 25.07.2016
-
-Nat Adderley - Sayin' Somethin' (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Manchild [02:49]
- 02.Call Me [03:09]
- 03.Walls Of Jericho [06:57]
- 04.Gospelette [03:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057BD5559F4B647BFC817AF45048D04AF15E9AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804854   (612085) от 14.07.2014
-
-Chris Standring - Don't Talk, Dance (2014) [FLAC|Lossless]<Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky High
-02. Inside Outside
-03. Sneakin' Out The Front Door
-04. Voices In My Head(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4AF36A8191E74C09329431B4102ACE9632EC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296432   (611852) от 17.04.2019
-
-Benny Carter - Waltzing The Blues (1930 - 1957) 2007, Basics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dee Blues [3:01]
-02. Swing It [3:17]
-03. Symphony In Riffs [3:08]
-04. Liza [2:44](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5364197F0DC85AF039BA56DDD6892879B992AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524661   (611805) от 19.07.2012
-
-Bob Mamet Trio - Impromptu (2010) [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impromptu
-02. Cats On The Roof
-03. Venice Waltz
-04. At Play
-05. Until Morning
-06. Danzon Allegretto
-07. Bob's Blues
-08. Illinois Road
-09. Keziah
-10. Impromptu (Reprise)Жанр: Post-BopПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

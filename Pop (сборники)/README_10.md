@@ -1,3 +1,32 @@
+###  Публикация: 1091090   (943142) от 09.01.2017
+
+VA - Singles Chart Hot 100 Billboard (31 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943142.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002. The Weeknd feat. Daft Punk - Starboy 3:51
+003. The Chainsmokers feat. Halsey - Closer 4:06
+004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D5504CD4F7FF0091EE5990DEAEB9B18F63A3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091569   (943110) от 09.01.2017
 
 VA - New Year Jelly (2016) [MP3|320 Kbps] <Dance, Technodance, Euro-House>
@@ -713,35 +742,6 @@ VA - Evolution of Disco - CD2 (1964-2015) [MP3|192-320 кб/с] <Funk,Disco,Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13015E19BE7429459EFF76FF6D6C88ABFF54FDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985004   (937036) от 10.02.2016
-
-VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coldplay - Adventure of a Lifetime
-002. Sido - Astronaut (feat. Andreas Bourani)
-003. K.I.Z. - Hurra die Welt geht unter
-004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
 ```
 
 https://mybot314.ru/tekegram_catalog/

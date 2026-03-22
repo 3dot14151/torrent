@@ -1,3 +1,180 @@
+###  Публикация: 425798   (12094) от 09.07.2025
+
+VA - The Perfect Jazz Collection: 25 Original Albums (2010) Box Set, 25 CD [FLAC (image+.cue)|Lossless] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об изданном Sony бокссете можно сказать, что в нем собрали самых-самых классиков джаза. Большая часть CD ремастирована с дополнительными треками. Каждый альбом упакован в картонный обложку в формате факсимильного винила. Если вам нужна история джаза, то эта раздача для Вас.01 Louis Armstrong - Louis Armstrong plays W. C. Handy (1954)
+02 Sarah Vaughan - Sarah Vaughan In Hi-Fi (1955)
+03 Art Blakey - The Jazz Messengers (1956)
+04 Billie Holiday - Lady in Satin (1958)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 22:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE1815AE93A08BAF0357BC08C5BB3F7DFB00AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299621   (12092) от 09.07.2025
+
+VA - Membran Music’s Jazz Ballads Series (2004) 20 x 2CD boxset [FLAC|Lossless]<Jazz, Bop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаю Вашему вниманию отличную подборку джазовых баллад в исполнении множества легендарных музыкантов после повторной реставрации.
+В жизни каждого человека бывают моменты, когда хочется отдохнуть от этого безумного ритма жизни, присесть у камина, прилечь на диване (тут каждый выбирает то, что ему ближе, как в духовном, так и в финансовом смысле), заварить чашку-другую (   Читать дальше...   )Список альбомов:
+Jazz Ballads 1: Chet Baker & Gerry Mulligan
+Jazz Ballads 2: Ben Webster
+Jazz Ballads 3: Lester Young(   Читать дальше...   )Тип издания: 20 x 2CD boxsetРелиз состоялся: 26 июля 2004Жанр: Jazz, Bop, VocalПродолжительность: 41:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838DCB9AB5586B99148952FFA3163D3A83159BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771450   (12056) от 09.07.2025
+
+VA - Verve Jazzclub - 154 Albums + Box Set (2006-2013) [FLAC|Lossless|image + .cue, tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серии:
+- Verve Jazzclub | Moods
+- Verve Jazzclub | Legends
+- Verve Jazzclub | Highlights(   Читать дальше...   )Жанр: JazzПродолжительность: 165:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E3DCD0FA54C6735BFC2D0F842CE79367EF298A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805886   (12029) от 09.07.2025
+
+Mark Murphy - Four Classic Albums (1956 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firefly [2:28]
+02. Lonesome Town [2:25]
+03. Kansas City [2:41]
+04. Come To Me [2:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8953ADEFD92D4FF38CD40EE19FFAF759983871C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805987   (12024) от 09.07.2025
+
+John William Gordon - John William Gordon (2005) CD, Album [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Fusion, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harm Alarm    [0:06:46.16]
+02. Distillery    [0:04:18.53]
+03. Quidnunc Mo    [0:04:10.08]
+04. Folly Stroll    [0:04:00.42](   Читать дальше...   )Жанр: Jazz-Rock, Fusion, JazzПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B1498BE27E3F2C1D48600884AFA795B5689027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652018   (11973) от 10.07.2025
+
+3rd Force - 7 Альбомов (1994-2016) [FLAC|Lossless|tracks + .cue] <Сontemporary Jazz, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11973.jpg" />
+</div>
+
+
+###  Подробнее
+
+3rd Force – инструментальная cоntemporary jazz-группа, основу которой составляют три человека - William Aura, Craig Dobbin и Alain Eskinasi.
+Особенностью музыкального почерка 3rd Force является своеобразное сочетание разных направлений - к мягкому саунду smooth jazz добавляются оттенки acid jazz, new age, танцевальной и этнической музыки.
+В записи альбомов 3rd Force (   Читать дальше...   )Список альбомов:
+1994 - 3rd Force
+1995 - Force Of Nature
+1997 - Vital Force(   Читать дальше...   )Жанр: Сontemporary Jazz, New AgeПродолжительность: 05:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A78702DFCD5B612B00525FE4505FD8D0C43C991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806793   (11491) от 14.07.2025
 
 VA - The Black Lodge (David Lynch's Tribute) (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Noir Jazz>
@@ -571,180 +748,6 @@ Gil Evans - The Complete Pacific Jazz Sessions (1958, 1959) 2006, Blue Note [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF7BB3F8DF758C6D2FAB2881F9E3A780C0E7EE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813820   (6416) от 22.08.2025
-
-Scott LaFaro - Deep In A Dream: Live In 1958 (2012) Pacific Delights [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rehearsal Blues [9:37]
-02. There's No Greater Love [3:09]
-03. BeBop [2:46]
-04. Flamingo [3:11](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AE875989B45A189A29B10BDF52262289DAF0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814565   (5984) от 25.08.2025
-
-VA - Chill Magic Summer (Beach-Wind Down Jazzy & Relaxed House vibes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anduze - Goddess Of War (4:36)
-02.  David Florio - Third Eye (3:10)
-03.  Billy Bogus - Another Day (4:27)
-04.  Visnadi - Melody (Original) (3:43)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 01:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F2EADA2B3588FD4A4E1C6335DA8D468D3031F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814568   (5949) от 25.08.2025
-
-VA - Soul Summer On The Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mario Biondi - Back Together Again (3:57)
-02.  Tamashi Pigiama - Golden Frame (3:28)
-03.  Anduze - Sour (3:57)
-04.  Wendy D. Lewis - Good Times (3:20)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 01:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2835478A97B882DED27805451CEC634F423CB8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814564   (5932) от 25.08.2025
-
-Dj Moy - Funk Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Play The Cool Hand (3:43)
-02.  Retro Funk (4:18)
-03.  Psiche Funk (4:20)
-04.  Party In The Jungle (4:00)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5213A3FFA3EB018D3F36509C21D2166EA54201AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815249   (5332) от 29.08.2025
-
-Sadao Watanabe - Peace (2024) Victor [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace [3:37]
-02. I Fall In Love Too Easily [6:10]
-03. Last Night When We Were Young [5:02]
-04. Deep In A Dream [6:52](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5BA974ECF305C8F2B15D845065198A1CBDC278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815746   (4928) от 31.08.2025
-
-Leroy Vinnegar Quintet - Leroy Walks Again!! (1962, 1963) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard to Find [6:48]
-02. Down Under [4:35]
-03. I'll String Along with You [4:08]
-04. Subway Grate [5:39](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5578893A1A506EF18F51F8FC0A0F69A2281D11D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

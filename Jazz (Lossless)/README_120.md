@@ -1,3 +1,177 @@
+###  Публикация: 1140942   (652648) от 09.06.2017
+
+Albert Vila - The Unquiet Sky (2016) Fresh Sound New Talent [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therefore [04:29]
+02. Epilogue [01:17]
+03. New Deal [05:14]
+04. Air [06:04](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F31827ECF078B310DFCABC914FC23ACDB90415C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540476   (652637) от 30.03.2022
+
+VA - Jazz Vibes: Milestones Of Legends (1949 - 1962) 10CD, 2017, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652637.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Lionel Hampton - Quartet:
+01. The Nearness Of You [10:43]
+02. Stompin' At The Savoy [10:52]
+03. 'S Wonderful [7:27](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, SwingПродолжительность: 11:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1468922E5BA077B7D297DDB47535A7D6FA5C061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141215   (652566) от 09.06.2017
+
+Dave McKenna - Blues Up: Piano Solo (1955, 1963) 2007, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Was I Born? [02:17]
+02. Smoke Gets In Your Eyes [03:18]
+03. Blues Up [02:28]
+04. Walking By The River [03:05](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B62D6B5B14593A3101A780E7F2D9C625E24F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140946   (652565) от 09.06.2017
+
+Marco Mezquida Trio + Bill McHenry - Cantabile (2015) Fresh Sound New Talent [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gira [03:14]
+02. Joni Style [05:39]
+03. Armando Rampas [05:03]
+04. Radiohead Montsant Elevation [13:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A271EBD874F367D9D4323A913ACAA9279B71A1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141204   (652564) от 09.06.2017
+
+Maynard Ferguson - Birdland Dream Band, vol.1  (1956) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wailing Boat [03:10]
+02. Somebody Wants Me Down There  [04:06]
+03. Maynard the Fox [02:50]
+04. Blue Birdland  [04:13](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0CFB293A818A6A142B327D4005D42F382A84C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141294   (652563) от 09.06.2017
+
+Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday And Sunday [10:31]
+02. Saturday And Sunday (alternate take) [09:26]
+03. Frankenstein [07:32]
+04. Blue Rondo [04:53](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D54CF8F2DF6A9F411140F3C92BA4D0014943F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141225   (652562) от 09.06.2017
 
 Billy Strayhorn with Duke Ellington - Rare Strayhorn (1941 - 1965) 2015, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ Rickey Woodard - The Silver Strut (1996) Concord Jazz [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50744230357A01EAA529C7CA14BC087CA8C45DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227133   (650519) от 24.05.2018
-
-Earl Anderza - Outa Sight (1962) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [5:16]
-02. Blues Baroque [4:58]
-03. You'd Be So Nice to Come Home To [6:46]
-04. Freeway [2:28](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E650BAC6F11E3D287669D10ADF20C377801F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227138   (650518) от 24.05.2018
-
-Wycliffe Gordon - The Joyride (2000) 2003, Nagel Heyer Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Impromptus [5:33]
-02. The Island Boy [5:12]
-03. Bad Time [6:32]
-04. Let's Call This [5:17](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82462E60565ABED74691C6E868C20E17CFC2F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227129   (650513) от 24.05.2018
-
-Dorothy Donegan - Dorothy Romps: A Piano Retrospective 1953-1979 (1991) Rosetta Records [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donegan Walk [1:43]
-02. Just in Time [3:03]
-03. Dorothy Rocks [2:32]
-04. Put Your Arms Around Me [3:12](   Читать дальше...   )Жанр: Boogie-Woogie, Bop, Piano JazzПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD5BBAF48BD4CAD79391B025055AC416C6C4F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227137   (650495) от 24.05.2018
-
-Wycliffe Gordon - The Search (2000) Nagel Heyer Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheeky [6:37]
-02. What Is This Thing Called Love [5:53]
-03. He Looked Beyond My Fault (Danny Boy) [3:25]
-04. Frantic Flight [5:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66D8DDC33A432B35FB8DF91EF58FC3C229380A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227025   (650401) от 24.05.2018
-
-Djabe - Flow (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Flow
-02 - Return To Somewhere
-03 - Another Dive
-04 - Free Fallin'(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA6CB6568DFD7CF78E407B6921065FC890C5184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905531   (649156) от 06.06.2015
-
-VA - 25 Legendary vocal jazz ballads (2015) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tony Bennett -  (Where Do I Begin) Love Story  (3:56)
-02.  Perry Como -  Feelings  (3:33)
-03.  Matt Monro -  Love Is A Many Splendored Thing  (2:50)
-04.  Frank Sinatra -  My Way  (4:36)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC74B1D2CE41205883A12D4F452168240229637E
 ```
 
 https://mybot314.ru/tekegram_catalog/

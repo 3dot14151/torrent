@@ -1,3 +1,119 @@
+###  Публикация: 1336469   (279165) от 07.11.2019
+
+Villagers - The Art of Pretending to Swim (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Again (04:28)
+02. A Trick of the Light (04:08)
+03. Sweet Saviour (04:36)
+04. Long Time Waiting (05:09)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394E14284919211973852A7EF3262236B2270D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336731   (277428) от 08.11.2019
+
+Royal Coda - Compassion (2019) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruby Leaf (04:23)
+02. All in Question (03:56)
+03. Numbing Agent (03:59)
+04. The Innocence Of (04:08)(   Читать дальше...   )Жанр: Post-Hardcore, Experimental RockПродолжительность: 00:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1690D506199E0F96E103E8DC015FE3997477AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361780   (276760) от 30.11.2017
+
+Silversun Pickups - 5 альбомов, 2 EP (2005 - 2017) [FLAC|Lossless|tracks + .cue]<Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silversun Pickups (ещё известная как SSPU) - американская альтернативная рок-группа из Лос-Анджелеса. Лидером группы является Brian Aubert. Начинали Silversun Pickups, играя в разнообразных клубах Лос-Анджелеса. В 2006 году группа уже играла на разогреве у австралийских хард-рокеров Wolfmother, а также были в турах с OK Go и Snow Patrol. Весной 2010 отправились в (   Читать дальше...   )Список альбомов:
+2005 - Pikul
+2006 - Carnavas
+2009 - Swoon(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 05:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DB4E50D76715B09593831851B19D9D54C4299E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264940   (276584) от 26.11.2018
+
+VA - Alternative Nation (1985-1994) [FLAC|Lossless|image + .cue] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beck - Loser [3:58]
+02. Candlebox - Cover Me [4:46]
+03. Kristin Hersh - Your Ghost [3:16]
+04. Therapy? - Opal Mantra [2:30](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22D45C3D4B204725557DECC36D3EF001C1B8597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337119   (276368) от 09.11.2019
 
 Snow Patrol - Reworked (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock>
@@ -629,123 +745,6 @@ My Vitriol - 2 Albums (2001-2016) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDCAB63582FFEF5CEC6239648E0D56BD16FDCD90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340678   (263297) от 25.11.2019
-
-Pere Ubu - The Long Goodbye (2019) 2 CD [FLAC|Lossless|tracks + .cue] <Post-Punk, Avantgarde, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:13)
-02. Heart Of Darkness (04:26)
-03. Flicking Cigarettes At The Sun (03:44)
-04. Marlowe (06:09)(   Читать дальше...   )Жанр: Post-Punk, Avantgarde, ExperimentalПродолжительность: 01:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C53E98693577259BD70F1ABD19AE9B87CB23D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341086   (262633) от 27.11.2019
-
-Brazzaville - Welcome to Brazzaville 2 (2012) [FLAC|Lossless|tracks + .cue] <Chamber pop, Indie rock, Bossa Nova>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clouds In Camarillo
-02. Jesse James
-03. Anabel2
-04. Bosphorus(   Читать дальше...   )Жанр: Chamber pop, Indie rock, Bossa NovaПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22386971346F49897BDDCF1C37016B6E46C7DBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503620   (259974) от 31.05.2012
-
-Regina Spektor - What We Saw From The Cheap Seats (2012) [FLAC (tracks+cue)|Lossless]<Indie, Piano, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Small Town Moon
-02. Oh Marchello
-03. Don't Leave Me (Ne Me Quitte Pas)
-04. Firewood(   Читать дальше...   )Жанр: Indie, Piano, AlternativeПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838215   (259858) от 21.11.2025
-
-Papa Roach - Сollection (1997 - 2022) 17 CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Papa Roach — американская рок-группа из города Вакавилль, штат Калифорния, образованная в 1993 году.
-Обрела мировую известность благодаря своему второму альбому Infest (2000).Альбомы:
-1997 - Old Friends From Young Years
-2000 - Infest
-2002 - Lovehatetragedy(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 13:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCB0EA693B91F02D89CBB24867D635730A2D732
 ```
 
 https://mybot314.ru/tekegram_catalog/

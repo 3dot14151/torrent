@@ -1,3 +1,120 @@
+###  Публикация: 925028   (542990) от 05.08.2015
+
+VA - Top 40 Club Beats for Dj's 2015.6 (2015) [MP3|320 кб/с]<Club, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damon Paul Feat. Simone Mangiapane - Rhythm Is A Dancer (Festival Mix )
+02. Amen B & Miroslav Vrlik - 2 Faced People (Martin Cloud Remix)
+03. Bermuda Twins - The Sun (Beach Club Mix)
+04. Prince Ringo - Disco Star (Discohouse Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 03:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD3ECDEEAE78BAA738EADDFDBC3EEC5D71AE27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154262   (542888) от 29.07.2017
+
+VC-People - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542888.jpg" />
+</div>
+
+
+###  Подробнее
+
+VC-People - один из студийный проектов от Klaus Netzle. Известен как немецкий композитор, аранжировщик, клавишник, программист, музыкант, вокалист, звукорежиссер, продюсер, фотограф и дизайнер.
+Родился 26 апреля 1926 года в Мюнхене, Германия.01. Gipsy Dance (3:37)
+02. Disco Rigoletto (3:13)
+03. E-l-i-z-a (4:04)
+04. Mr. Boccherini's Minuetto (3:25)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59919613E40E4D6DD4B0D46EDC37E4D0704CE266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049870   (542015) от 06.09.2016
+
+Thanks - No Mercy in the Mountain (2016) [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Dark Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Magic
+02. No Diamond
+03. Warm Hands
+04. I'll Try(   Читать дальше...   )Жанр: Alternative Pop, Alternative Rock, Dark SoulПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F92D0E6762D563FE41009B4416BE0DAE33C897A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311446   (541974) от 29.06.2019
+
+Q - Dancin' Man (1977) LP [MP3|320 Kbps] <Pop, Disco, Funk Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancin' Man (2:41)
+02. Do I Love You? (3:08)
+03. Knee Deep In Love (3:08)
+04. Feel It In Your Backbone, Got It In Your Feet (4:03)(   Читать дальше...   )Жанр: Pop, Disco, Funk SoulПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533BD5C77202A4245E1EA1936722DD3DB1081FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311339   (541908) от 29.06.2019
 
 VA - Sternstunden der Volksmusik (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -623,128 +740,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F61B128AAEE990B39B1265C4C85A2FCF41E990AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533480   (530655) от 11.08.2012
-
-Mr. Zivago - Tell By Your Eyes (2002) [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell By Your Eyes (6:24)
-02. Say Yes (4:24)
-03. Alive (4:17)
-04. Show The Love (4:55)
-05. Welcome To The Edge (4:17)
-06. Just For You To Be There (5:00)
-07. Sadness Is Like Snow (5:21)
-08. I Will (4:35)
-09. You're The Only (5:03)
-10. Gloria (4:36)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558883   (528859) от 22.06.2022
-
-One-T - The One-T ODC (2003) 20th Anniversary Remastered, 2022, Minority [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528859.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Magic Key Theme (2022)
-2. Music Is The One-T ODC (2022 Remaster)
-3. One-T's Army (2022 Remaster)
-4. Bein A Star (2022 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207E4BA33995DC6AB4F6613C16B517F7A2227E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156233   (528550) от 06.08.2017
-
-Roland Bocquet - 3 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Experimental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Roland Bocquet с 1969 по 1977 был лидером французской инструментальной рок-группы Catharsis. Далее, сменив стиль, продолжил свое творчество в качестве исполнителя и композитора. Выпустил три предлагаемых альбома и начал писать саундтреки к фильмам.Список альбомов:
-1977 - Paradia
-1982 - Robot Rose (Claviers Synthetiseur)
-1983 - Robot Bleu(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, ExperimentalПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E16FE16100746C820D4DD48F3D0E37CD98B0619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156145   (528484) от 06.08.2017
-
-Eighth Wonder - 2 Albums (1987, 1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская поп-группа 80-х годов. Образовались в 1983 году и пользовались большим успехом в Японии и Италии между 1985 и 1987 годом, до того как серия хит-синглов не прокатилась по Великобритании и далее по всей Европе в 1988 году. Безусловно "изюминкой" группы стала актриса Пэтси Кенсит (Patsy Kensit).01. When The Phone Stops Ringing (3:41)
-02. Loser In Love (3:23)
-03. Open Your Mind (3:58)
-04. Stay With Me (3:19)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997F71EE3DB5CB6C215A7B0538816DD099C77F3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1336021   (282579) от 05.11.2019
+
+VA - Paradise Island: Cruise Musical (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282579.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ray & Snyder - I Want You Back
+002. Aerotique And Glaceo - Lose It
+003. Ashle.K - Give Me Your Love
+004. Axel Blaze - My Summer Starts Tonight(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E879FB7F4251B923923137AEB1D36A5A7B41EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187006   (282029) от 27.11.2017
+
+VA - ЕвроХит Топ 40 Europa Plus 24.11.2017 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zayn Malik feat. Sia - Dusk Till Dawn
+02. Katy Perry - Roulette
+03. Post Malone feat. 21 Savage - Rockstar
+04. Imagine Dragons - Whatever It Takes(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D45474642181A0994DDB68CFA25CE77FD2A832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264383   (281152) от 23.11.2018
+
+VA - Звёздные фабриканты: Лучшее (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Влад Соколовский - Катя (4:04)
+02. Дмитрий Колдун - Дай мне силу (3:08)
+03. Доминик Джокер - Плачут небеса (4:35)
+04. Зара - Любовь-красавица (4:04)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E8BE899E255CE6DE5EA19A34866F3AA59C75A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264332   (281148) от 23.11.2018
+
+Таисия Повалий - Золотая коллекция (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Верю тебе (3:09)
+02. Два крыла (3:25)
+03. Люблю тебя (3:30)
+04. Солнышко моё (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20D99BC85276DBA0008D57146B1428D0E41EBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336236   (280667) от 06.11.2019
+
+VA - Ballad About Love Vol. 02 (2019) [MP3|320 Kbps] <Pop, Lyric, Romantic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marlon Roudette - Come Along
+002. Lea Michele - Gone Tonight
+003. Cheryl Cole - Only Human
+004. Sebastian Wijk - Just Say(   Читать дальше...   )Жанр: Pop, Lyric, RomanticПродолжительность: 09:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0898281C9A533F1EC10407589E3BF184F00DEEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336292   (280509) от 06.11.2019
+
+VA - Hit Music (вторая осень 2019) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dua Lipa - Don't Start Now
+002. Christophe Mae - La Fin De L'ete
+003. Burito - Дети Закатов
+004. Martin Van Lectro & Chris Willis - Last Man Standing(   Читать дальше...   )Жанр: PopПродолжительность: 07:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EACA03E73036790ACF4060FBE93D422932E317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264320   (280494) от 23.11.2018
 
 VA - Christmas Hits (2018) [MP3|320 Kbps] <Pop>
@@ -562,171 +736,6 @@ VA - Созвездие хитов. Суперсборник попмузыки 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFCC87498AF2EA6879F676ED9121CF744B36841F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273060   (277437) от 20.12.2010
-
-VA - Модные Новогодние Хиты from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop/Dance/Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/Dance/ClubПродолжительность: 06:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEBB4181C56B57700E3813E192CF9BEF24E6ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273044   (277436) от 20.12.2010
-
-VA - Новогодние DFM танцы до утра 50/50 (2010) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BC4E4EE11609BEB8D16E9CE5DDB300FB3B9ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082580   (277374) от 13.12.2016
-
-VA - Взрывной хит-парад. Часть 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Герои - Доживем До Пятницы 3:33
-002.Mila Wonder - Лишь С Тобой 3:08
-003.Интонация - Приходи 3:10
-004.Steven Tyler - I Make My Own Sunshine 3:02(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B15F5EEDD51D1EB29C5ABEDAF872E25CD3A6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273052   (277323) от 20.12.2010
-
-VA - Лучшие песни зимы (2010) [MP3|256 kbps]<Pop/Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/ClubПродолжительность: 06:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A09B4828E028B1CE82BC103E9B4179E16B30212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082570   (277255) от 13.12.2016
-
-VA - Снегопад новинок (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277255.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.John Legend - What You Do To Me 3:22
-002.Craig David - Louder Than Words 4:06
-003.Mainstream One - Сойти От Тебя С Ума 3:19
-004.Clean Bandit Feat. Sean Paul & Anne-Marie - Rockabye 4:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FF3E935C49D813016BAF6B14AA652D61CAA649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187884   (277158) от 30.11.2017
-
-VA - German Top 100 Single Charts 01.12.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Camila Cabello - Havana (feat. Young Thug)
-003. Ed Sheeran - Perfect
-004. Post Malone - rockstar (feat. 21 Savage)(   Читать дальше...   )Жанр: PopПродолжительность: 05:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE5DAB4368092CAA41CEAFD8616853FCB3DA78C
 ```
 
 https://mybot314.ru/tekegram_catalog/

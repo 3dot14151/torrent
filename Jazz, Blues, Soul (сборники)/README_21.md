@@ -1,3 +1,32 @@
+###  Публикация: 1603685   (209761) от 17.01.2023
+
+VA - The Charming Blues (2022) [MP3|320 Kbps] <Blues, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209761.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jimmy Hall - Jumpin’ For Joy [03:47]
+002. Ben Harper - Bad Habits [03:45]
+003. Blind Blake - Southern Rag [02:53]
+004. Blind Boy Fuller - Homesick Blues [03:12](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 08:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6135E8C2577934EEEE2949467CCDC3012458FBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645748   (209094) от 12.07.2023
 
 VA - Blues In The Garden (2023) [MP3|320 Kbps] <Blues, Country Blues>
@@ -716,35 +745,6 @@ VA - Jazz Improvisational Collection (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCF8B8361F957225EEB8B09EE6EE5F032FC6D440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430760   (169469) от 11.12.2020
-
-VA - Love Blues (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Bonamassa - Reconsider Baby
-02. Gary Moore - Drowning In Tears
-03. Julian Sas - Anything
-04. Tubescreamers - Cold Day(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89C3896567F367C8A1DAE0D6E2B4022DB6732E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

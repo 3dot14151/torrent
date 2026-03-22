@@ -1,3 +1,61 @@
+###  Публикация: 970399   (141517) от 30.12.2015
+
+VA - Christmas piano collection (2015) [MP3|320 кб/с] <Piano, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Moonlight - Bee Free
+02 Serenity Piano - Emmanuele Landini
+03 The Last Emotion - Emmanuele Landini
+04 Natural World - Will Lewis(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7620B287C67DD70F04AF7F538760E8345CCB3940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088257   (140385) от 30.12.2016
+
+VA - Plaisir D'Amour (Sexy Sax) (2016) [MP3|320 Kbps] <Instrumental, Pop, Easy Listening>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Exotic Sounds - Nightingale (Intro) (00:50)
+02. Fausto Papetti - Sorry Seems To Be The Hardest Word (03:20)
+03. Kenny G - Songbird (04:49)
+04. Morris Albert - Feelings (03:40)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8701CB2DDCD98ED5FE53361262722C227CB535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520696   (139184) от 30.12.2021
 
 Blonker - Compilation (2021) [MP3|320 Kbps] <Instrumental>
@@ -690,58 +748,6 @@ VA - Инструментальная музыка (2012) vol. № 25 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2A6172B88BE5F3148D4456C25D3EDC120DAF54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486120   (90674) от 25.04.2012
-
-VA - Инструментальная музыка (2012) vol. № 18 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5288B7B0FF39ACC4784210430FDCBF26D8BE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486936   (90654) от 25.04.2012
-
-VA - Инструментальная музыка (2012) vol. № 20 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACA435AF88B743695AAA4195580EF44DC326B17
 ```
 
 https://mybot314.ru/tekegram_catalog/

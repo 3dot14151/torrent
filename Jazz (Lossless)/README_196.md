@@ -1,3 +1,183 @@
+###  Публикация: 1171132   (397799) от 03.10.2017
+
+Jackie McLean - Jackie's Bag (1959, 1960) 2010, Analogue Productions [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quadrangle [04:45]
+02. Blues Inn [09:07]
+03. Fidel [07:12]
+04. Appointment in Ghana [07:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438F423ED34E4C6CEC8E51A03A90FB6B876E9EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171127   (397797) от 03.10.2017
+
+Hank Mobley - A Caddy for Daddy (1965) 2009, Analogue Productions [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Caddy for Daddy [09:24]
+02. The Morning After [09:43]
+03. Venus di Mildew [07:13]
+04. Ace Deuce Trey [07:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5993121C3C84E7222F57B9270EBFC934F589C1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171121   (397695) от 03.10.2017
+
+Nicki Parrott - Dear Blossom (2017) Arbor Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish You Love  [04:37]
+02. Everything I Got Belongs To You  [03:32]
+03. I Walk A Little Faster  [03:54]
+04. Peel Me A Grape  [04:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27C0F47C8EF24C910C615D0D2F82F32F5FB4DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567074   (397182) от 29.10.2012
+
+Cordovan - Highway 10 Blues (2006) [FLAC|Lossless]<Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway 10 Blues
+02. Mesa
+03. Gwen
+04. La Nevada (Gil Evans)
+05. Jackpot
+06. Trouble
+07. Pretend Gems
+08. Equator
+09. Motel Coffee
+10. Another Soft ShoulderЖанр: Nu JazzПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171126   (396788) от 04.10.2017
+
+Charles Sullivan - Re-Entry (1976) 2010, Whynot [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re-Entry [12:16]
+02. Body & Soul [09:53]
+03. Carefree [08:23]
+04. Waltz for Cricket [07:40](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE1BF375E851BE1E93734992A3A962BB421A11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171319   (396783) от 04.10.2017
+
+Miroslav Vitous - Infinite Search (1969) 1998, EastWest [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom Jazz Dance [10:54]
+02. Mountain In The Clouds [01:51]
+03. Epilogue [07:04]
+04. Cerecka [02:48](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B166F142857B173A24005E6E3CD1E2A6AA4EAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171627   (395821) от 05.10.2017
 
 John Handy - Mosaic Select 35 (1965 - 1968) 3CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
@@ -589,179 +769,6 @@ Kuh Ledesma - Unforgettable (1986) Universal [FLAC|Lossless|tracks + .cue] <Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7998FC6C56576B702BB33392AE3E8187928FDB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173298   (390621) от 11.10.2017
-
-Quincy Jones - Complete Recordings 1960-1962 (2014) 4CD, Enlightenment Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390621.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pleasingly Plump [02:18]
-02. G'Wan Train [06:22]
-03. Moonglow [02:50](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Pop, Big BandПродолжительность: 04:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8FADC3FC07E3217750831C36CAF4AF10FFE417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 151048   (390544) от 07.11.2009
-
-Paul Brown - The City (2005) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Monkey 04:37
-02. Hello Again 03:58
-03. Side Steppin' 03:35
-04. The City 05:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173583   (389783) от 12.10.2017
-
-Eddie Heywood - 1944-1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just You, Just Me [03:14]
-02. Save Your Sorrow [01:43]
-03. Begin The Beguine [03:24]
-04. Blue Lou [03:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A9FD435C96F4AE803701CE75C0E670BC29CAF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173589   (389781) от 12.10.2017
-
-James Carter - Gardenias for Lady Day (2003) Columbia [WavPack|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria [06:02]
-02. Sunset [05:25]
-03.Жанр: Post-BopПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B726404DEE5710D55CDAC84A498DB866CFC78D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173899   (389056) от 13.10.2017
-
-Toshiko Akiyoshi Trio - Four Seasons (1990) 1999, Nippon Crown [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Is Here [06:57]
-02. Suddenly It Is Spring [06:21]
-03. Summer Time [05:01]
-04. Indian Summer [06:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B630814041B9C075A16D8814ACA02350A6EE5212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173912   (389054) от 13.10.2017
-
-New York Unit - Tribute To George Adams (1993) King Record [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus [06:22]
-02. A Nightingale Sang In Berkeley Square [07:14]
-03. Fly Me To The Moon [05:59]
-04. Moritat [06:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71852B1A0092C2489C40021373874DEAA1950658
 ```
 
 https://mybot314.ru/tekegram_catalog/

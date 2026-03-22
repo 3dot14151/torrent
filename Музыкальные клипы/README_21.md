@@ -1,3 +1,142 @@
+###  Публикация: 937969   (483720) от 17.09.2015
+
+VA - Осенний марафон № 190 / Видеоклипы (Осенний Листопад Русских Хитов) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (16.09.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Lori! Lori - Брось меня (ПРЕМЬЕРА!) (00:04:47)
+2. Romadi - Я не играю в любовь (ПРЕМЬЕРА!) (00:04:10)
+3. Stereopulse - Любовь не дура (ПРЕМЬЕРА!) (00:03:35)
+4. Александр Марцинкевич - Королева (ПРЕМЬЕРА!) (00:04:24)(   Читать дальше...   )Жанр: Pop, Chanson, Hip-HopПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35647FE76DECA5FE50BB7779152701410FEB58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822218   (479770) от 18.09.2014
+
+I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Cat's Parade
+02. Thank you Great Spirit
+03. Adult Swim - Neon Indian
+04. Marie-Louise - Skinny Dip(   Читать дальше...   )Жанр: Ambient, Chillout, New Age, Pop, Instrumental, RockПродолжительность: 02:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC44BD0B6883AE4028F1C9F212324DD7392877E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938637   (479676) от 19.09.2015
+
+VA - Осенний марафон № 191 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (18.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A Great Big World  ft. Futuristiс - Hold Each Other (Official Video) (00:03:40)
+2. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
+3. Anda Adam - Save Me Tonight (Official Video) (00:03:06)
+4. Anja Nissen - Triumph (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, IndieПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F766EF1ADE20D825EBB23C9EF71C9F367230D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 140808   (479593) от 16.09.2009
+
+The Beatles - документальные ролики из ремастерированного бокс сета / The Beatles - The Mini Documentaries - Box Set Remastered (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка / RockСубтитры: English - French - German - Spanish - Italian - Brazilian Portuguese - DutchФормат: NTSCПродолжительность: ~00:50:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546313   (478713) от 13.09.2012
+
+Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD31AF4D92BB77CF39A254A5CFF1A920F092E46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546179   (478696) от 13.09.2012
 
 Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
@@ -576,139 +715,6 @@ Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAE55149788FE0D04E75C285B380754338948578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703774   (461254) от 25.09.2013
-
-Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin' Blues - Livin' Blues Boogie
-02. Nazareth - Morning Dew
-03. Atomic Rooster - Break Through
-04. Guru Guru - Oxymoron(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E41BC1703639272C2EA8432A6C724A804B70D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549841   (460735) от 21.09.2012
-
-Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R'n'bПродолжительность: 00:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BF24A3B0B5456E3AF542827DEFF31F06B2E43E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550362   (460733) от 21.09.2012
-
-Sika - Love Kills (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BBE52770AD5858BE2EE0BAF78E76675997EB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549839   (460729) от 21.09.2012
-
-Antonia - Jameia (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A240E1535DB1AE0D46D7D4D37CF23BC686A40D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549837   (460572) от 21.09.2012
-
-Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Female Vocal / Hard Rock / Post-GrungeПродолжительность: 00:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3C545DA3FD8DB2005585ECFF7D458E5B63ABE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

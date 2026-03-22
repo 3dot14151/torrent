@@ -1,3 +1,116 @@
+###  Публикация: 1271167   (148738) от 24.12.2018
+
+VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148738.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Frank Sinatra - White Christmas                         [03:26]
+2. Dean Martin - Let It Snow! Let It Snow! Let It Snow!    [01:53]
+3. Sammy Davis Jr. - A Man With A Dream                    [02:48]
+4. Frank Sinatra - Silent Night, Holy Night                [03:12](   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D56494D672B2EE90DAF0DE0C0CB9847F06EDC63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519436   (148709) от 24.12.2021
+
+VA - Morning Motivation Pop (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears For Fears - Everybody Wants To Rule The World (4:13)
+02. NEIKED, Mae Muller, Polo G - Better Days (2:40)
+03. Maroon 5, Christina Aguilera - Moves Like Jagger (Studio Recording From The Voice Performance) (3:22)
+04. SERA - Take A Chance (2:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0619CDC5C3390A54F430F139E635197843C4AEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589291   (147978) от 15.12.2012
+
+Adriano Celentano - 20 Greatest Hits (2005) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D310AD234FBEAFF498FCE20183D4680F7CD8DC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271944   (147638) от 25.12.2018
+
+VA - Tasty Recordings: Best Of 2018 (2018) [MP3|320 Kbps] <Funk, Soul, Diisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147638.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Discotron - Last Night A DJ Saved My Life (Original Mix) (06:35)
+02. Audio Jacker - Turn Up The Muzik (Original Mix) (07:13)
+03. Disko Junkie - House Is A Feeling (Original Mix) (05:11)(   Читать дальше...   )Жанр: Funk, Soul, DiiscoПродолжительность: 02:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D0CA91E2BE52B92AE94ECB58F22316462E50B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968631   (147610) от 27.12.2015
 
 Артем Пивоваров - Океан (2015) [MP3|192-320 кб/с] <Pop>
@@ -626,123 +739,6 @@ VA - 100 Greatest 00s The Best Songs from the Decade (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD9507EFE19A0BFFB7730A1B0A5A478CBD8218A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348602   (143330) от 28.12.2019
-
-Helene Fischer - Best Of  (Shop24direct 2019 Edition) 4CD (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143330.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Atemlos durch die Nacht
-02. Die Holle morgen fruh
-03. Mit keinem Andern(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4038963EC72324604EF14C494864AB76E59C85FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348630   (143110) от 28.12.2019
-
-VA - 100 Greatest 10s: The Best Songs of Last Decade (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143110.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coldplay - A Sky Full of Stars
-002. Dua Lipa - Be the One
-003. Tones and I - Dance Monkey
-004. Jason Derulo - Want to Want Me(   Читать дальше...   )Жанр: PopПродолжительность: 08:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBD909CF57B9836519C1CEFBF535E5376162BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272484   (143015) от 28.12.2018
-
-VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Wow
-02. All Saints - Lady Marmalade (Remix)
-03. Donna Lewis - I Love You Always Forever
-04. Hard-Fi - Hard To Beat (Radio Edit)(   Читать дальше...   )Жанр: Pop, RnB, Alternative, IndieПродолжительность: 01:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B034BEC12706C71BF9CDEFCE178E95C45866456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087632   (142737) от 29.12.2016
-
-Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stamp Your Feet 3:37
-02. Mr. Music 	3:14
-03. Crayons 3:20
-04. The Queen Is Back 3:30(   Читать дальше...   )Жанр: Soul, PopФормат: CD, Album, Reissue
-2хCD, Compilation, RemasteredПродолжительность: 03:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F31CCF6C1464D4EC7C74EE22619D40BB9E5418A
 ```
 
 https://mybot314.ru/tekegram_catalog/

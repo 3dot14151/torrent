@@ -1,3 +1,32 @@
+###  Публикация: 1215894   (753066) от 29.03.2018
+
+Edmond Hall, James P. Johnson, Vic Dickenson, Sidney De Paris - The Complete Blue Note Sessions (1943 - 1952) 4CD, 1985, Mosaic Records [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Stride, S ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753066.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jammin' In Four [04:23]
+02. Edmond Hall Blues [04:20]
+03. Profoundly Blue [04:11](   Читать дальше...   )Жанр: New Orleans Jazz, Stride, SwingПродолжительность: 04:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF48B293E81B4FEC9540C8D0E1F27E8593D40FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216178   (753065) от 29.03.2018
 
 Art Pepper - Live At The Village Vanguard (1977) 4CD, 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -310,6 +339,64 @@ Charlie Ventura - East Of Suez (1945, 1947) 2000, Savoy [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA4239E0A9D1719CF69668CBD30352C40E6D21D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216498   (749573) от 31.03.2018
+
+Bob Stewart - Then And Now (1996) Postcards [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Third Stream, Tuba Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_749573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hambone [07:11]
+02. Big Kneed Gal [05:23]
+03. King Porter Stomp [03:10]
+04. You Don't Know What Love Is [07:40](   Читать дальше...   )Жанр: Mainstream Jazz, Third Stream, Tuba JazzПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2796468026BE6301DF3D98762CE067A8D7EF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216501   (749568) от 31.03.2018
+
+The Chick Corea + Steve Gadd Band - Chinese Butterfly (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_749568.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Chick's Chums [09:24]
+02. Serenity [06:40]
+03. Like I Was Sayin' [06:45](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837E3AFC641EBAD14B883FD8E09D32A98380E203
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,93 +743,6 @@ Stan Getz presents Jimmy Rowles - The Peacocks (1975) 2016, Sony Music [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88BB7134A675F64CA5BC5BB96821592F161C436D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216715   (747920) от 01.04.2018
-
-Anita O'Day - Eight Classic Albums (1956 - 1961) 4CD, 2011, Real Gone Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747920.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You're The Top [02:26]
-02. Honeysuckle Rose [03:15]
-03. A Nightingale Sang In Berkeley Square [04:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149D24D97E259D6AD692D2EBF0E07B7D7D56A035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396462   (746972) от 15.07.2020
-
-Wes Montgomery - Willow Weep For Me 1965 (2018) Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willow Weep for Me [7:45]
-02. Impressions [5:07]
-03. Portrait of Jennie [2:49]
-04. Surrey with the Fringe on Top [5:26](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC89EC943BFC0C18ADBA78362B6B74EED10F8F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396464   (746971) от 15.07.2020
-
-The Buddy Rich Big Band - The New One! 1967 (1998) Pacific Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Away We Go [3:14]
-02. Machine [3:40]
-03. The Rotten Kid [5:14]
-04. New Blues [4:57](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604C3FCAAF710E752DD952E81D791CFF5044DB72
 ```
 
 https://mybot314.ru/tekegram_catalog/

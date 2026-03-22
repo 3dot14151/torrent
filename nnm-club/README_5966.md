@@ -1,25 +1,25 @@
-###  Публикация: 1009725   (808361) от 22.04.2016
+###  Публикация: 1504534   (810427) от 24.10.2021
 
-Joanne Brackeen - Aft (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Not My God (ex-Marilyn Manson, Psyclon 9) - Simulacra (2021) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Dark Electro, Electro Industrial>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808361.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Haiti B [07:38]
- 02.Charlotte's Dream [05:07]
- 03.Dreamers [05:33]
- 04.Aft [06:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:27
+01 IN SERVICE OF THE WOLF [00:03:14]
+02 CRISIS [00:03:20]
+03 ASHES [00:04:06]
+04 THE UNDERNEATH [00:04:03](   Читать дальше...   )Жанр: Dark Electro, Electro IndustrialПродолжительность: 00:37:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AAFEE9D3D67B87007BEB2E0BA2F82568843518C
+magnet:?xt=urn:btih:8B6F91B32B1055B2E57B0D994DFB3BA022373669
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009581   (808360) от 22.04.2016
+###  Публикация: 1504535   (810426) от 24.10.2021
 
-VA - Trance Line Vol.5 (2016) [MP3|320 кб/с] <Trance>
+Creux Lies - Goodbye Divine (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Punk, Synthpop, New Wave>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808360.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Paranoid - Come Fly With Me (Original Mix) 03:15
-02. Andrew Kn - Criminal (Original Mix) 06:20
-03. Cj S.a.y. - Exorcism (Original Mix) 05:21
-04. Dimitri Kudinov - Nothing To Lose (Original Mix) 03:16(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:08
+01. Jungle (5:29)
+ 02. Misunderstanding (3:52)
+ 03. Becoming (5:10)
+ 04. PS Goodnight (4:21)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, Synthpop, New WaveПродолжительность: 00:35:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45ABFBBF948AA3D2A02C30910254786AD07A8E5A
+magnet:?xt=urn:btih:5B31431B5A6898B0E641C053442240D5518C55BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009685   (808359) от 22.04.2016
+###  Публикация: 1504286   (810425) от 24.10.2021
 
-Art Farmer - Homecoming (1971/1972) Remaster, 2006, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+VA - Season of the Halloween Witch (2021) 3CD[MP3|320 Kbps] <Rock, Pop>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808359.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Homecoming [04:13]
- 02.Cascavelo [08:52]
- 03.Some Other Time [06:01]
- 04.Blue Bossa [06:58](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:32:37
+01. Nina Simone - I Put A Spell On You
+02. Michael Jackson - Thriller (Single Version)
+03. Ray Parker Jr. - Ghostbusters
+04. The Cranberries - Zombie(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 09:25:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D33775D75A716A2F1A952384CA0935D086F65F80
+magnet:?xt=urn:btih:CCEE120A36E36908FCF5C7A5F62E8AFE2C9E4BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009680   (808358) от 22.04.2016
+###  Публикация: 1504735   (810424) от 24.10.2021
 
-The Ray Bryant Trio - Little Susie (1959/1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+Tokyo Dawn Records - Molot GE 1.0.4 VST, VST3, AAX Retail [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808358.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Little Susie [04:50]
- 02.By Myself [03:26]
- 03.Blues For Norine [04:40]
- 04.Moon-Faced, Starry-Eyed [03:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:41:50
+Tokyo Dawn Labs объявила о выпуске своего нового плагина динамического компрессора Molot GE, который отличается модернизированной концепцией, расширенной гибкостью и щедрой дозой рок-н-ролла.
+«Molot» - это название популярного динамического компрессора, выпущенного в 2011 году Владиславом Гончаровым.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D25BE0BB6E352E69B6A3CD4381C300D808EB4CF
+magnet:?xt=urn:btih:67A5A099B04F486FD83056422E1AC03028A839E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +112,195 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009658   (808357) от 22.04.2016
+###  Публикация: 1504841   (810423) от 24.10.2021
 
-VA - Sound Of Tomorrow (Mixed By DJ Flybeat) (2016) [MP3|320 кб/с] <House, Progressive House, Future House>
+Жизнь в большом городе. Барселона / The Life-Sized City. Barcelona (2020) HDTV [H.264/1080i] (сезон 3, серия 3 из 6)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждут большие города со своими маленькими особенностями! Открывайте новые города и окунитесь в бурлящую жизнь мегаполисов по всему миру.
+Урбанист Майкл Колвилл-Андерсен покажет жизнь в большом городе крупным планом. Он расскажет какими были города много лет назад, и как они выглядят сейчас. Промышленные гиганты и экологичные агломерации - за каждым современным (   Читать дальше...   )Производство: Канада, DBCom MediaЖанр: Документальный, история, путешествияРежиссер: Мириам Бертеле, Николя БушеПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2ACF0DFBB59EAB8D5E68A235B1D1CEA811F720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504813   (810422) от 24.10.2021
+
+Electric Light Orchestra - Vocoder (2021) [AAC|~338 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Blue Sky (2012 Version) (3:42)
+02. Steppin' Out (4:40)
+03. Sweet Talkin' Woman (3:50)
+04. Confusion (3:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAF90672F987791E3D339D36B1B3FC70B0FE801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504742   (810421) от 24.10.2021
+
+Александр Емельянов - В одиночке ''Над Тихим Доном'' (2004) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Заколюченные дни
+02. В одиночке
+03. Над Тихим Доном
+04. Уходят поезда(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0F176303985DB9B8DAE785221CBF28F61DB245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504572   (810420) от 24.10.2021
+
+VA - Music News vol.142 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danna Paola - A Un Beso (03:37)
+ 002. Abreu feat. Evelina & Nelli Matula - Levoton Tytto (03:25)
+ 003. Aiwa - Больше Не Напишу (02:48)
+ 004. ALE - Spune Tu (03:11)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F399FF3EE00D34748789BCF732C1BBE3CDA05279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504781   (810419) от 24.10.2021
+
+Александр Троицкий | Успевай. Как управлять временем, если ты еще не взрослый, но уже не ребенок (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь — самый главный проект. Кем вы хотите стать? Чего добиться? А главное, как успеть подготовиться к своему будущему и не отказываться от маленьких радостей жизни? Заявляем, что в графике подростка должно быть время на ВКонтакте, Instagram и TikTok!
+В этой книге вы найдете советы и лайфхаки, как не утонуть в потоке задач, достигать целей и наслаждаться жизнью. (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40887CE54FADCD04C6618502A31EB35A5AB63C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504856   (810418) от 24.10.2021
+
+Легендарные рок-промоутеры / Watch Mavericks: The Legendary Promoters of Rock (2020) WEB-DL [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возрождая в памяти незабываемые живые концерты 1960-1970-х годов, этот фильм рассказывает историю промоутеров и агентов, положивших начало индустрии мировых рок-турне, раскрывая перед зрителем эту незаслуженно забытую, но немаловажную часть музыкальной индустрии. Картина повествует о двух основоположниках индустрии - Фрэнке Барзалоне, основателе агентства Premier (   Читать дальше...   )Производство: Великобритания, США, Mavericks, White LightЖанр: Документальный, история, музыкаРежиссер: Молли Бернштейн, Филип ДолинПеревод: Многоголосый профессиональный (Эй Би Видео)Субтитры: отсутствуютПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4201B004CB767F8F7A7F8B0D7DA2A3EACEB59D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504681   (810417) от 24.10.2021
+
+VA - The Stars Align: EDM October Mixtape (2021) [MP3|320 Kbps] <Electro, Dance, Clubbing, House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808357.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Klaas & Mazza - Why (Original Edit) 02:42
-02. Picco - You Know Why (Original Edit) 03:04
-03. CJ Stone - Lost (Original Edit) (feat. Lyck) 03:26
-04. Ghost - Not Alone (Stefan Rio Remix Edit) 03:25(   Читать дальше...   )Жанр: House, Progressive House, Future HouseПродолжительность: 04:05:39
+001. Nana K. - Old's Cool
+002. Davide Squillace - Smart Dance Stupid Floor
+003. Andaro - Sick & Tired
+004. Beatfreak - Our Dying Outcry(   Читать дальше...   )Жанр: Electro, Dance, Clubbing, HouseПродолжительность: 07:45:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3B57EA20F8A5D44C0794ADDA57FE6B256A6419C
+magnet:?xt=urn:btih:0513745C061BFC6182143B2DB7C7BBAABF4BEF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +308,360 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009760   (808356) от 22.04.2016
+###  Публикация: 1504551   (810416) от 24.10.2021
 
-VA - House Progressive Resistant (2016) [MP3|320 кб/с] <House, Progressive House>
+Not My God (ex-Marilyn Manson, Psyclon 9) - Not my God (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Electro, Electro Industrial>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810416.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fiction
+2. Until the Pain Is Gone
+3. Sowing Discord
+4. Murder Suicide(   Читать дальше...   )Жанр: Dark Electro, Electro IndustrialПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F6D1C08A0C134C5C2BEE1B8D2C0282AA23FFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504822   (810415) от 24.10.2021
+
+Следствие вели... (24.10.2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810415.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Черный доктор». Казань, 1985 год. В одной из квартир был убит всемирно известный казанский хирург — Григорий Михайлов. В этой истории удивительным образом переплелись зависть и месть, любовь и ненависть, а делом занимались лучшие сыщики, но преступника оказалось поймать гораздо сложнее, чем думали. Так почему же убили всемирно известного хирурга и что скрывала вдова (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A396FE834A948F273FB2547710DE54431DDA8691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657853   (810406) от 18.05.2013
+
+Журнал | Elle Decor (US) №6 [июнь 2013] [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810406.jpg" />
+</div>
+
+
+###  Подробнее
+
+ELLE Decor - самый красивый и полезный журнал о современном интерьере. В журнале представлены: последние тенденции мебельного дизайна и декорирования, эксклюзивные интервью с известными архитекторами, дизайнерами и фотографии лучших домов США и всего мира.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E921C39013E7389142EEE5C9D432CA685124B1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657542   (810396) от 18.05.2013
+
+Эллери Куин (Квин) | Четвертая сторона треугольника [2013] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810396.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе "Четвертая сторона треугольника" убита молодая очаровательная женщина-знаменитость в мире высокой моды. Кому она могла стать помехой? Конкурентам? Или это сугубо частная драма? Э.Квин берется за дело и, как всегда, с блеском вычисляет преступника...
+
+Эллери Квин — псевдоним двух кузенов: Фредерика Дэнни (1905–1982) и Манфреда Ли (1905–1971). Их (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47746295344B54650CFD8CBD55335D96C071F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657837   (810395) от 18.05.2013
+
+Журнал | Computerworld [Россия] №11 (796) (май 2013) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810395.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Computerworld» - ведущий международный еженедельник, посвященный информационным технологиям. В журнале вы найдете обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технология.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944B9A4100DF342BB54B1C3FB11B555C1C03A6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 777689   (810377) от 16.04.2014
+
+ЗАО "Аксель Шпрингер Раша" | DVD-приложение к журналу Computer Bild № 08 Апрель (2014) [ISO]
+
+>>Мультимедийные материалы
+>>Приложения к журналам
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810377.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD приложение к журналу «Computer Bild» – крупнейшему европейскому изданию с уникальной концепцией предназначенной для людей, которые интересуются компьютерами, Интернетом, средствами телекоммуникаций, аудио-, видео- и фототехникой. Каждые две недели читателям предлагаются новости индустрии, тесты оборудования и программ, обучающие курсы и практические советы.Жанр: DVD-приложение к журналуФормат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4581C1754E8A08E427A7210F3FC2668449A5C570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198174   (810374) от 10.01.2018
+
+Горные лыжи. Кубок мира 2017–2018. Аделбоден (Швейцария). Мужчины. Гигантский слалом (06.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810374.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 января 2018 года, суббота. 12:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Аделбоден (Швейцария).
+Мужчины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A761AE152989D3B0DC52A76935D26F15728823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198210   (810373) от 10.01.2018
+
+Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. 6 Выпуск (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 07.01.2018
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106F6A0991AE02B691B73053598690260525B1C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198202   (810372) от 10.01.2018
+
+Биатлон. Кубок Мира 2017-2018. 4-й Этап. Оберхоф (Германия). Мужчины. Эстафета (07.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810372.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 января 2018 года, воскресенье. 16:30 МСК
+4-й этап Кубка Мира по биатлону 2017-2018. Оберхоф (Германия)
+Мужчины. Эстафета 4x7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A6A88017FEA8E8DB2D2F48B447EF02EA83D7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198171   (810371) от 10.01.2018
+
+Горные лыжи. Кубок мира 2017–2018. Краньска Гора (Словения). Женщины. Гигантский слалом (06.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810371.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 января 2018 года, суббота. 11:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Краньска Гора (Словения).
+Женщины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDC2D5B7CB1414F03281FF7ACEA61E2E4DA0703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198059   (810370) от 10.01.2018
+
+Лыжные гонки. Кубок мира 17-18. «Тур де Ски». Валь-ди-Фьемме (Италия). Мужчины. Масс-старт. Классический стиль (06.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810370.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 января 2018 года, суббота. 17:45 МСК
+5 Этап Кубока Мира по лыжным гонкам 2017-2018.
+«Тур де Ски». Валь-ди-Фьемме (Италия).
+Мужчины. Масс-старт 15 км. Классический стильТелекомпания: Матч ТВ HD, Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B666D60415970621FFDEB7A6E7DC22B351C6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198054   (810369) от 10.01.2018
+
+Лыжные гонки. Кубок мира 17-18. «Тур де Ски». Валь-ди-Фьемме (Италия). Женщины. Масс-старт. Классический стиль (06.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810369.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 января 2018 года, суббота. 16:15 МСК
+5 Этап Кубока Мира по лыжным гонкам 2017-2018.
+«Тур де Ски». Валь-ди-Фьемме (Италия).
+Женщины. Масс-старт 10 км. Классический стильТелекомпания: Матч ТВ HD, Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDD6294863C096A5488581AEE822673B97F8EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197996   (810368) от 10.01.2018
+
+VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808356.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luciano Delgado - Caballito Vibra 07:19
-02. Falko Niestolik - The Groove (Radio Mix) 03:18
-03. Following Light - Dell 08:40
-04. Elkana Paz - 2Me (Eran Hersh Radio Edit) 03:15(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:30:37
+01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
+02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
+03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
+04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2EAE4DD564EBBCEAA0B3BCD585FD6186D462A0B
+magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,57 +669,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009672   (808355) от 22.04.2016
+###  Публикация: 1198005   (810367) от 10.01.2018
 
-VA - Electrotastic Vol.21 (Everyone Wants Electro) (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Elan - Everlasting Love (feat. Steve Edwards) (Diego Miranda Remix) 05:20
-02. Dave Till, Edu Barboza, G.Oliver - Nocturnal 05:25
-03. Dirty Rush - Titans 04:27
-04. Clubbusters - Fuckin' Beat 05:48(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E5E16CD37738A0BC2FDD0B6386D73FE9152170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009659   (808354) от 22.04.2016
-
-VA - Best Of First 50 (Compiled & Mixed by Stephane Badey & Arrakeen) (2015) [MP3|320 кб/с] <Trance>
+Хоккей. Молодёжный Чемпионат мира 2018. Плей-офф. 1/2 финала. Швеция — США (04.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808354.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stephane Badey - Best of First 50 (Continuous DJ Mix Part 1) (78:55)
-02. Arrakeen - Best of First 50 (Continuous DJ Mix Part 2) (78:16)
-03. Aeden - Piano Sonata (Stephane Badey Remix) (8:11)
-04. Balearicwave - Island Life (Neo Kekkonen Deep Mix) (8:00)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:20:37
+05 января 2018 года, пятница. 00:00 МСК
+42-й  Чемпионат мира по хоккею с шайбой среди молодёжных команд 2018 года
+Плей-офф. 1/2 финала.
+Швеция — США(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB6CEBE6EC7FC5F901DC008CED25317603DB67D4
+magnet:?xt=urn:btih:862B26393F82A23F9BC62B5CA5A97EAAAFE05690
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,497 +698,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009570   (808353) от 22.04.2016
+###  Публикация: 1198183   (810366) от 10.01.2018
 
-VA - We Are Trance Vol. 2 (Mixed by Pierre Pienaar) (2016) [MP3|320 кб/с] <Trance>
+Биатлон. Кубок Мира 2017-2018. 4-й Этап. Оберхоф (Германия). Женщины. Эстафета (07.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808353.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Klingle and Linnea Schossow - I Run To You [03:21]
-02. Honour Kode - Unicorpse (Pierre Pienaar Remix) [06:39]
-03. Wrechiski - Signus [03:42]
-04. Jeremy Vancaulart feat. Amy Kirkpatrick - The Fall [06:21](   Читать дальше...   )Жанр: TranceПродолжительность: 03:11:22
+07 января 2018 года, воскресенье. 13:30 МСК
+4-й этап Кубка Мира по биатлону 2017-2018. Оберхоф (Германия)
+Женщины. Эстафета 4x6 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F93931FB636770F79784F3F255AB2ACC70D3823D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009824   (808352) от 22.04.2016
-
-Bazzookas - Ska.World (2016) [FLAC|Lossless|WEB-DL|tracks] <Ska, Altertative>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro    00:23
-02. Winwin    03:00
-03. Torn    03:35
-04. Wrong Train    03:04(   Читать дальше...   )Жанр: Ska, AltertativeПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B9C9B675823AE99652BE1E12998724E30A23AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505114   (808351) от 25.10.2021
-
-PowerPhotos 1.9.10 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808351.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AB52059696A75BF22B4DDD97F57FE5E22A55C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505048   (808350) от 25.10.2021
-
-Affinity Designer 1.10.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное приложение для графического дизайна для Mac.
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E644C1B13051B32FA99A2235F00A3749AF26F365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504872   (808349) от 25.10.2021
-
-Pink Floyd - Relics (1996 Remastered Version) (1996) [AAC|~340 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arnold Layne (1996 Remastered Version) (2:56)
-02. Interstellar Overdrive (1996 Remastered Version) (9:42)
-03. See Emily Play (1996 Remastered Version) (2:54)
-04. Remember A Day (1996 Remastered Version) (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FEDEA2ECFF25958D8A5D78E6696BA14E764A840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505079   (808348) от 25.10.2021
-
-Клоун Коко. Это кошки / It's the Cats (1926) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коко открывает свой театр-варьете и расклеивает по всему городу афиши. Правда расклеивает их на высоте не более полутора-двух футов. Ну и кто после этого придет на шоу? Ясно-дело со всего района собрались котейки. Шоу было довольно дурацким, но котики воспринимали все довольно благосклонно. Пока в финале клоун не придумал ничего умнее чем номер с дрессированными (   Читать дальше...   )Производство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв Флейшер, Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA4D07E3BB440B32F4D4245C0C64D0DE3BD07CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505102   (808347) от 25.10.2021
-
-Blocs 4.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
-Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0740C05E9189DEC8087DB1DDB11466F86BA6DD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504944   (808346) от 25.10.2021
-
-Kfir Ochaion - V (2019) [AAC|~333 Kbps] <Instrumental Guitar Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Numb (3:08)
-02. Still Loving You (4:49)
-03. Don't Cry (4:47)
-04. Sweet Child O' Mine (6:01)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E37D1028E01BE3047693FCADEBFF8743730FBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504984   (808345) от 25.10.2021
-
-Kfir Ochaion - IX (2020) [AAC|~343 Kbps] <Instrumental Guitar Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotel California (6:14)
-02. Titanic (5:00)
-03. Careless Whisper (Metal) (5:22)
-04. Bella Ciao (3:02)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA26CABDE1351CDBF439CC07B7BEC2E8D9E208A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504916   (808344) от 25.10.2021
-
-Kfir Ochaion - II (2017) [AAC|~325 Kbps] <Instrumental Guitar Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heathens (3:15)
-02. Animals (3:49)
-03. Boulevard of Broken Dreams (4:20)
-04. Billie Jean (3:42)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0958C9043C1FA935F7391CD79472DAD875548B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504940   (808343) от 25.10.2021
-
-Kfir Ochaion - IV (2018) [AAC|~294 Kbps] <Instrumental Guitar Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believer (3:23)
-02. Rockstar (3:39)
-03. Perfect (3:36)
-04. In the End (3:52)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A3DFBFDCFB2B434831DCD4093377BD42252D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504951   (808342) от 25.10.2021
-
-Kfir Ochaion - VI (2020) [AAC|~328 Kbps] <Instrumental Guitar Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Jungle (4:32)
-02. Bohemian Rhapsody (6:00)
-03. Sultans of Swing (4:12)
-04. Sultans of Metal (4:33)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A86A07F7F4F4D542627F634A88B493FB0F0829E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504920   (808341) от 25.10.2021
-
-Kfir Ochaion - III (2017) [AAC|~323 Kbps] <Instrumental Guitar Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radioactive (3:08)
-02. Centuries (3:46)
-03. Bring Me to Life (4:02)
-04. Careless Whisper (5:10)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB2B2AA7BA848DD89AB67EBC9181CF03AC21540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505008   (808340) от 25.10.2021
-
-Александр Мазин | Сказка о принцессе Белой Лилии и Серебряном Пламени (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном маленьком, но уютном королевстве, в небольшом прекрасном замке жили король и королева. Король был щедр и справедлив, а королева очень добра и была у них дочь-принцесса, которую звали Белая Лилия... И однажды принцесса полюбила — но не рыцаря (который оказался совсем не таким, как положено в сказках), она полюбила... дракона.
-Как вы думаете, дракон и принцесса (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DC3E9DDA7BFBFFE947AA50C61A13AA621AA2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504986   (808339) от 25.10.2021
-
-Timeline 3D 5.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляйте исторические события с помощью Timeline 3D, чтобы выявить связи и прояснить отношения. Составьте графики всемирной истории, генеалогических деревьев, вымышленных историй или предельных сроков ведения дел. Хронология поможет вам понять и представить историю с новой точки зрения.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2021Разработчик: BEEDOCSПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E40A276EC794E50CC655C1C268F242E9D08969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504979   (808338) от 25.10.2021
-
-Notability 4.4.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярнейшее приложение для создания заметок на iPhone и iPad теперь на Mac. Notability – мощное средство для ведения заметок, комментированию документов, созданию набросков, записи лекций и много другого. Вы можете делать записи от руки, набирать на клавиатуре, делать аудиозаписи и фотографии. Благодаря iCloud ваши заметки всегда доступны на iPhone, iPad и Mac. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.03.2021Разработчик: © Ginger Labs, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F41447B2EBF5855C81A551F28AE735B7A55945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505021   (808337) от 25.10.2021
-
-Анна Старобинец | Котлантида (2021) [MP3, Алексей Багдасаров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете, говорят, что у котов девять жизней? Это чистая правда! Точнее, было правдой в незапамятные времена… Давным-давно был в океане прекрасный остров Котлантида. Вечное лето стояло на Котлантиде, а населяли ее красивые и могущественные котланты. Но однажды там начались кото-клизмы, а затем и вовсе случилась страшная кото-строфа – остров ушел под воду! Немногие (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 03:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B92CAC25A2D0EDE82A567DC184AE7FCD2A51AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505111   (808336) от 25.10.2021
-
-Reeder 5 v5.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения для чтения новостей на Mac с поддержкой различных сервисов синхронизации.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2021Разработчик: © Silvio RizziПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1414E6713D6E5F68D50A80AD0C916155ECB066D4
+magnet:?xt=urn:btih:50D7D08597BEF1B2D3BFBD5777CAC6E66841C082
 ```
 
 https://mybot314.ru/tekegram_catalog/

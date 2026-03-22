@@ -1,3 +1,177 @@
+###  Публикация: 1804654   (65577) от 01.07.2025
+
+VA - Sunset Jazz Mood (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Flower Buds - Flower Buds (3:25)
+02.  A Warm Summer Evening - A Warm Summer Evening (5:14)
+03.  Keep the Soul Alive - Keep the Soul Alive (6:58)
+04.  Relaxed Sunset - Relaxed Sunset (6:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7E1DA0F48A68900010633AC579F10168651331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804653   (65574) от 01.07.2025
+
+VA - Cool Jazz Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jazzy Restaurant Background - Jazzy Restaurant Background (5:01)
+02.  Don't Hesitate - Don't Hesitate (5:00)
+03.  Dinner Jazz - Dinner Jazz (4:41)
+04.  Have A Break - Have a Break (5:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5B41B7966CE66553DAC3B03202345C8AC699DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804710   (65562) от 01.07.2025
+
+Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paper Moon [5:35]
+02. When You Wish Upon A Star [6:42]
+03. One For Amos [5:12]
+04. Take Five [6:42](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6E69A301E8991B7A2654D0241C7B82BB3E6D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804649   (65561) от 01.07.2025
+
+Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Funk In The Jungle (Dub Mix) (3:35)
+02.  Free In The Jungle (3:58)
+03.  Energizer (3:14)
+04.  Esotick (4:20)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF37D8D4985453E47EE1F780CE1F3B13A00903A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804652   (65556) от 01.07.2025
+
+VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Mister Funk - Beat Stuff (3:24)
+02.  Afro Dub - 7 Free To Travel (3:20)
+03.  Afro Dub - Afro Funk Beach (3:12)
+04.  Afro Dub - First Night (3:30)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805037   (65543) от 03.07.2025
+
+VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lo Greco Bros - Folk Song Bass (4:46)
+02.  Joe Allotta - Leave Me Alone (2:43)
+03.  Tallulah Rose - Friends (4:16)
+04.  Pomante - Dancing Feet (3:54)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805034   (65541) от 03.07.2025
 
 VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
@@ -571,180 +745,6 @@ Joe Gordon - Lookin' Good! (1961) 2009, Original Jazz Classics [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D721EA7C9A8B112D012CBC3293AE89669032AA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808009   (65037) от 22.07.2025
-
-Grant Green - Four Classic Albums (1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Folks [4:13]
-02. Miss Ann's Tempo [5:41]
-03. Lullaby Of The Leaves [7:43]
-04. Blues For Willarene [7:09](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Guitar JazzПродолжительность: 02:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB1E3CA0499C4BD5FB7E9FEFFC740B35F5D56E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808433   (64996) от 24.07.2025
-
-Mekiel Reuben - Something Like That (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gloria Est (3:41)
-02.  Going Places (3:02)
-03.  Equal 3 (4:11)
-04.  Something Like That (3:32)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D236E7867A9A76E920F9232AB5B2842BC03CBC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808434   (64979) от 24.07.2025
-
-Roberto Restuccia - Hand 2 Heart (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hit It (4:28)
-02.  De Nada (4:08)
-03.  What Goes Around (3:37)
-04.  Runnin' Ronny (4:17)(   Читать дальше...   )Жанр: Smooth Jazz, BluesПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023B96A7CF4A047754C5F4BD5DBE4764E83C4E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808367   (64937) от 25.07.2025
-
-Anita O'Day - The Lady Is A Tramp (1952, 1957) 1991, Polygram [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock 'n' Roll Blues [3:20]
-02. Love for Sale [3:39]
-03. Lullaby of the Leaves [3:12]
-04. Lover, Come Back to Me [2:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD65F2AEECF9F4455ACD5D4E7574C217157514D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808598   (64926) от 25.07.2025
-
-Jerome Richardson - Midnight Oil (1961) 2009, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minorally [6:59]
-02. Way In Blues [5:14]
-03. Delerious Trimmings [5:17]
-04. Caravan [10:48](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B925F29F17B4B3ACCD4533C305D3F8FA41BEE241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808871   (64757) от 29.07.2025
-
-Charlie Haden Quartet West - In Angel City (1988) Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday at the Hillcrest [6:25]
-02. First Song (For Ruth) [7:01]
-03. The Red Wind [4:59]
-04. Blue in Green [7:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2AF48D20B1E088BD21F11BF1A9D6D2987A2826
 ```
 
 https://mybot314.ru/tekegram_catalog/

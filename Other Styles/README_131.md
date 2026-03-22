@@ -1,3 +1,142 @@
+###  Публикация: 1259748   (316632) от 05.11.2018
+
+Monica Williams - Journey of Tears (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raining Tears (5:05)
+02. Conversations Within (3:54)
+03. New Horizons (3:45)
+04. Unconditional Love (2:36)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9E3D8DC90CF9DC24C143DBC7593264343FC387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259967   (316589) от 05.11.2018
+
+Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethnic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Sky (03:39)
+02. Lakota Lullaby (05:52)
+03. Before Dawn (05:24)
+04. Sanjuan Wayanay (04:28)(   Читать дальше...   )Жанр: Native american, Ethnic, WorldПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28B3B077F85FE63E4EE42BA55CB1D0E929EAA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264787   (315882) от 01.12.2010
+
+Ennio Morricone - Deluxe Edition 2CD (2006) [APE|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:19:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 265016   (315727) от 01.12.2010
+
+VA - Ocean Music Love. Best Relax And Sex Music (2010) [MP3|128-256 kbps]<Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RelaxПродолжительность: 08:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B327FEEB3CB5E0963A8B1B52317E39ECC0D4E2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421981   (315126) от 06.11.2020
+
+Ennio Morricone - Morricone Segreto (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание, охватывает творческий период конца 60-х – начала 80-х годов. В основе сборника - малоизвестные экспериментальные и новаторские работы Мастера написанные для кино, в числе которых семь ранее никогда не издававшихся произведений.01. Vie-Ni (From «Quando l’amore è sensualità»)
+02. Fantasmi grotteschi (From «Stark System»)
+03. Vita e malavita (From «Storie di vita e malavita»)
+04. Tette e antenne, tetti e gonne (From «La smagliatura»)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EEACDFF4142686D8F7872873AD1B08B6E7A326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182177   (314993) от 11.11.2017
 
 Jamie Christopherson - Stranglehold (Complete Video Game Score) (2007) [MP3|192-320 Kbps] <Soundtrack>
@@ -612,157 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC5D49E151CECA6A3A3548A6E7DB854390D0412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584448   (310400) от 03.12.2012
-
-Ансамбль БЛАГОВЕСТ - Славянский глас (2012) [FLAC|Lossless]<Folklore>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добрий вечiр тобi
-02. Баллада о 12 Разбойниках
-03. Вниз по матушке, по Волге
-04. Вдоль по Питерской
-05. Ах ты, степь широкая
-06. Дед Пахом, во кузнице
-07. Ой, горе, горе
-08. Вдоль да по речке
-09. Ой, сiвы конь бяжыць
-10. Черный ворон(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470B13173163BCF560CF1D8624075AB51C002311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183489   (310209) от 13.11.2017
-
-Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aq Awakening (04:35)
-02. Not Cranky (03:40)
-03. Sirus Bound (05:27)
-04. Blue Float (05:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C60FE44C31E2E8B9D78F6AF7F770182B511E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960029   (310196) от 27.11.2015
-
-Wayne Gratz - Spring Rain / Piano and Rainfall (2005) [FLAC|tracks+.cue]<New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain On the Pond 05:43
- 02. Glasses Of the Sun 03:56
- 03. Good Question 02:41
- 04. As I Fall 04:08(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73DD0AF8060FC869C2410E5B9F7C3CFBC2A0E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183291   (310088) от 13.11.2017
-
-Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310088.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - If I Could Make You My Own (3:22)
-2 - Just Say It Now (2:37)
-3 - Lovers On The Run (2:54)
-4 - Cold Waves (3:32)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D58347AC9BCF3C80A1D332D890E28F8CADDC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183283   (309958) от 13.11.2017
-
-Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - All the Trouble (5:41)
-02 - The Lonely, The Lonesome & The Gone (3:50)
-03 - He Called Me Baby (4:41)
-04 - Hollywood (4:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7D169093A6E1897F39FBECAAC8F81E637CBAA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

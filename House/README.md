@@ -1,5 +1,150 @@
 https://t.me/izofen
-###  Публикация: 1858921   (1060751) от 
+###  Публикация: 1860115   (1061506) от 
+
+VA - A-Mase - Deep Relax (2026) [MP3|320 Kbps] <Deep House, Organic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase & Natune - I'll Find You (New Version) [5:36]
+02. A-Mase - Crazy (Original Mix) [5:11]
+03. Alysia Sun - No Rules (Original Mix) [2:50]
+04. A-Mase & Alysia Sun - Drift Away (Radio Mix) [3:39](   Читать дальше...   )Жанр: Deep House, Organic House, Progressive HouseПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC205E89A272047693ACD6008ACD64424C7A87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859224   (1061085) от 
+
+VA - Chill & Deep House Anthems 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Martyn - Choosing Motion 02:13
+02. KTB - I Know There's Something Going On 02:26
+03. Matt Cruise - Bakerman 02:44
+04. Tin Liquid - Just a few Lights 02:48(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F08E7C60D798293FD99B4295AE1653469F2FD7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859387   (1061039) от 
+
+VA - The Sound of 2026, Chapter 2: Barcelona (Night Mix) (2026) [MP3|320 Kbps] <Melodic House & Techno, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bay Skies feat. KIMERA V - The Call (UNWA Remix - Mixed) [6:59]
+02. Emir Guven - Sailing With You (BAIRES Remix - Mixed) [5:01]
+03. Risen - Go Fast (Katoff Remix - Mixed) [4:01]
+04. Ancient Umbra - Critical Thinking (Original Mix - Mixed) [4:12](   Читать дальше...   )Жанр: Melodic House & Techno, TranceПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57148DB1089E92ECC111A3D420077812F3EA63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859383   (1061038) от 
+
+VA - The Sound of 2026, Chapter 2: Barcelona (Day Mix) (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F4T4L3RR0R - Some Calls Should Remain Unanswered (Intro - Mixed) [1:48]
+02. Martin Cantrill - Tilt Resurrection (Original Mix - Mixed) [6:40]
+03. Ale De Nova - How Can I Get You (Original Mix - Mixed) [2:53]
+04. Arni - Confession (Original Mix - Mixed) [4:44](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, TranceПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F950F893B9D17945EF4E654E082BD5200F94CB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858814   (1060889) от 14.03.2026
+
+VA - Afro Beats 2026 Hits (2026) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1060889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - Careless Whisper [00:03:21]
+02. Cristian Ferrer - Alright [00:05:58]
+03. Elegant Ape - Rhythm is a Dancer [00:04:47]
+04. Elegant Ape - Desert Bloom [00:03:09](   Читать дальше...   )Жанр: HouseПродолжительность: 01:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56EC47C9C520E96EF52373C090A2C62DFDDDEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858921   (1060751) от 13.03.2026
 
 VA - Black Hole House Music 03-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
 
@@ -601,151 +746,6 @@ VA - Best Of EDM Party 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:430DDFA4FA8254853683928D57D1F890FF915D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849596   (1053626) от 24.01.2026
-
-VA - Planeta Mix Hits 2026: Winter Edition (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dani Corbalan - Where Are We Going 02:36
-02. JLUIS - Breathe You In 03:02
-03. DJ Helder Cunha, R.I.O & Tony T - Body Love 03:40
-04. Deep Emotion - Follow You 02:28(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C420DEC7F00AB5B70B4002677A463BBA1EDA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849048   (1053329) от 20.01.2026
-
-VA - Deep House Diamonds (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ikki (ITA) - Destination X 06:40
-02. Gianmarco Staccone DJ - Into Paradise (Extended Mix) 05:26
-03. Most People - Let You Know 03:44
-04. Leftdeck - Climax 05:41(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 01:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127B445896BB021B06669CD875DBFE4B8757BC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848419   (1052663) от 17.01.2026
-
-VA - Black Hole House Music 01-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milkwish & Solange Uk - Citadel (Extended Mix) 06:16
-02. Kryder - Time (Extended Mix) 05:23
-03. Ferry Corsten & Matt Fax - Blueprint (Matt Fax Extended Reprint) 07:48
-04. P.O.U, Stone Van Brooken & Susie Ledge - Missing Piece (Extended Mix) 05:49(   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 01:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A91BD795A80A7C078A17B6DF36872C8658B296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845927   (1051100) от 04.01.2026
-
-VA - Christmas Deep House: Best for the Year 2026 (2025) [MP3|320 Kbps] <Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sharapov & The Bestseller - All Day And Night (Original Mix) 03:56
-02. VetLOVE - Dream Of The Sea (Original Mix) 04:36
-03. Maha Apaya - Shanti (Original Mix) 05:00
-04. Sharapov - Space Moving (St.Ego Remix) 06:33(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 02:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37FFB320107397C357F88F2F590E8C67450CF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845950   (1051084) от 04.01.2026
-
-VA - Summer Melody - Best of 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bvgsy Del Mar - Ineffable (Mixed) 04:26
-02. Codema - Down The Road (Hagen Hdm Remix / Mixed) 04:40
-03. Sunset Vision - Meant To Be (Mixed) 03:36
-04. Kirill Maxsimoff - Loneliness (Mixed) 05:08(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E266D991B95A7E812747C350B0DDD399F6DD5018
 ```
 
 https://mybot314.ru/tekegram_catalog/

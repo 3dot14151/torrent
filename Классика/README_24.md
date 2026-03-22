@@ -1,3 +1,125 @@
+###  Публикация: 522220   (622861) от 13.07.2012
+
+Johann Sebastian Bach - The 6 Motets: Nikolaus Harnoncourt (1989) [FLAC|Lossless]<Classical, Choral>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singet dem Herrn ein neues Lied, BWV 225 (12:51)
+02. Der Geist hilft unser Schwachheit auf, BWV 226 (07:48)
+03. Komm, Jesu, komm, BWV 229 (07:54)
+04. Jesu, meine Freude, BWV 227 (20:10)
+05. Furchte dich nicht, ich bin bei dir, BWV 228 (08:09)
+06. Lobet den Herrn, alle Heiden, BWV 230 (05:44)Жанр: Classical, ChoralПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D5CF54A45E9AA7714777040B2767BFE4F92E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600441   (622681) от 08.07.2014
+
+Wolfgang Amadeus Mozart–Violin concertos 1-5 Bath Festival Chamber Orchestra Yehudi Menuhin 2CD (1962-1964)/1990 EMI Classics/[WavPack (iso.wv)|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622681.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1997 году Иегуди Менухин прислал приветствие Международному Дельфийскому совету с такими словами:
+Я не могу представить себе более ценной модели духа соревнований друг с другом, чем модель греков. Они помещали утонченность тела, разума и духа на неделимый алтарь жизни...
+(   Читать дальше...   )Описание:
+Concerto No. 1 en si bemol majeur/in B fiat major/B-dur, KV.207 1964
+1. I Allegro moderato	[07:48]
+2. II Adagio	[08:42]
+3. III Presto	[05:48]
+(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB527F9908C4A0676AEEDB68DAC2C41B231AB285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035957   (622440) от 19.07.2016
+
+Hughes De Courson - Mozart In Egypt 2 (2005) [FLAC|Lossless|image + .cue] <Classical, Folk, World>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Al Bedaya    01:48
+02.  Mozart in Egypt    06:51
+03.  Al Sahm Al Taйh    04:58
+04.  Alatul Concerto for/pour Kaval & Flыte    06:24(   Читать дальше...   )Жанр: Classical, Folk, WorldПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD37B17D388F46773A3F41B070575DA298D8D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036370   (620850) от 20.07.2016
+
+Steven Osborne - Beethoven: Bagatelles (2012) [FLAC|Lossless|image + .cue] <Classical, Keyboard>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seven Bagatelles, Op. 33
+01.  Op. 33 - #1 in E flat major: Andante grazioso, quasi allegretto    03:46
+02.  Op. 33 - #2 in C major: Scherzo - Trio    03:11
+03.  Op. 33 - #3 in F major: Allegretto    01:48(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC0A2B5F33C09957FC3CFDE453CD5BFE5B8F601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036602   (618836) от 21.07.2016
 
 Peter Szuts, Alfredo Bernardini, Paolo Grazzi, Concerto Armonico - Tomaso Albinoni: Concerti A Cinque Op.9 (Libro I) (1722) 1995 [FLAC|Lossless|tracks] <Classical>
@@ -651,120 +773,6 @@ Piano Concerto No.1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE40494F8537E9FDB07649AB11009DB03F4DDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913241   (607004) от 28.06.2015
-
-Mahler - Symphony no.4 in G Major (Vaclav Neuman & Czech Philharmonic Orchestra) (1988) [FLAC|Lossless]<Classical. Romantic Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No.4 in G major
-01. Bedchtig, nicht eilen  (16:03)
-02. In gemchlicher Bewegung. Ohne Hast (09:20)
-03. Ruhevoll. Poco adagio (20:57)(   Читать дальше...   )Жанр: Classical. Romantic Period, SymphonyПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23EF3BB27E1ADCE50DD28FC1F1671FBA9CE4EDFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231387   (606781) от 17.06.2018
-
-Vanessa Benelli Mosell & Henri Demarquette - Echoes - Philip Glass & Сергей Рахманинов (2018) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Philip Glass:
-01. OpeningЖанр: ClassicalПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0A7E21D21CE8E6AD6259896BA46CE0081371C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147713   (605550) от 04.07.2017
-
-The Third group - Ушедшие (2017) [MP3|320 Kbps] <Classical, Neo-classical, Poetry>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иванов Г. Стихотворение 673 - 0:35
-02. Соната 1 - Неправильная (на с. Иванова Г. Судьба одних была страшна...) - 0:58
-03. С. Прокофьев. Менуэт - 2:38
-04. Романс на с. Иванова Г. - 1:00(   Читать дальше...   )Жанр: Classical, Neo-classical, PoetryПродолжительность: 00:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF9B2B62038E1FABD2EA7A039BEB61783C29426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913466   (605014) от 29.06.2015
-
-Brahms - Piano Concertos Nos. 1&2 (Ivan Moravec & Czech Philharmonic Orchestra) (2CDs) (2006) [FLAC|Image+.cue]<Classical, Romantic Period, Recitals, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto For Piano And Orchestra No. 2 In B Flat Major Op. 83
-01. Allegro non troppo (17:59)
-02. Allegro appassionato (09:14)
-03. Andante (13:45)(   Читать дальше...   )Жанр: Classical, Romantic Period, Recitals, ConcertoПродолжительность: 01:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB69A240887365F2CCFFF913A0A8EE55F04BD5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

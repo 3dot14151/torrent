@@ -1,3 +1,145 @@
+###  Публикация: 1417701   (355894) от 21.10.2020
+
+Lachy Doley - Double Figures (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme Some Lovin' (05:51)
+ 02. Fire to Save (04:01)
+ 03. Conviction (05:29)
+ 04. Make It Up (04:39)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893373F70D15786D5758A906571D7B61E945E73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577832   (354858) от 20.11.2012
+
+The Rolling Stones - Grrr! (2012) [MP3|~190 кб/с (V2)]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 03:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97031C33EFEEA088C85373621DEEE42904B7FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178804   (353965) от 29.10.2017
+
+Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Production [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural Man
+02. Louisiana Lady
+03. Shot In The Head
+04. Can't Stand The Heat(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E5E34EBC634D6061CA5561AF6506C8B251B88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953235   (351787) от 03.11.2015
+
+Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psychedelic, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawlin' Kingsnake
+02. Underground River
+03. Bow'd Up
+04. For Suki(   Читать дальше...   )Жанр: Psychedelic, Blues RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34AEC2EC9F3D05B63DA7ABF846730F474091322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953004   (351693) от 03.11.2015
+
+Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Night’s Makeup
+02. Broken Heart
+03. Highway
+04. Whiskey & Whitley(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578051   (350402) от 21.09.2022
 
 High Grind - The Loud Bong Chronicles (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
@@ -607,148 +749,6 @@ Freedom to Glide - 3 альбома (2012-2016) [MP3|320 Kbps] <Progressive rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F11EE60DA1B14508958E17820D5E44D50FF6E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418682   (346932) от 25.10.2020
-
-Zeus - Attack Time (1981) LP [MP3|320 Kbps] <Electronic, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клавишник из Германии. Выпустил несколько сольных альбомом. Играл в Birth Control (1973-78), Sound Edge, Prontosaurus, The G. Men, Nagarock... В этом же, как и альбом, 1981 году был в составе исполнителей известного проекта Visitors.01. Enfant Terrible  (4:49)
-02. Cowboy On The Beach  (3:43)
-03. Transportable Music  (4:01)
-04. Daily News  (3:14)(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9125606F3157F88E7F20872223528030478097C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838647   (346521) от 07.11.2014
-
-Pink Floyd - The Endless River (2014) [MP3|320 кб/с]<Progressive Rock , Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Rock , AmbientПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C974E1D0D0B8960F7DF22360E6A371BF4145D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578501   (345939) от 23.09.2022
-
-Stratovarius - Eternal (2015) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Eternal Dream
-02. Shine In The Dark
-03. Rise Above It
-04. Lost Without A Trace(   Читать дальше...   )Жанр: Rock, Power Metal, AmbientПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22CA09B5A1025FECC6DD00D9181D59D6DAB8CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578520   (345938) от 23.09.2022
-
-Stratovarius - Nemesis (2013) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandon
-02. Unbreakable
-03. Stand My Ground
-04. Halcyon Days(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D70AC6FA8078E7B11864E6BD9C5F10EC5541B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725469   (343677) от 23.11.2013
-
-Blues Power Band - Dark Room (2012) [MP3|320 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fr-Fr-Fr-Frustrated
-02. Insane
-03. That Will Be
-04. What You See Is What You Get(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36698DAE82FFBF26F249DC7295D6123C98C439C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1122297   (798863) от 05.04.2017
+
+VA - Deep House April 2017 Top 10 Best of Collections (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ RcM - My Love
+02. Macrolev - Deeper
+03. Anton Ishutin - Sunrise
+04. Muxxo - The Calm of the Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1CEBE83034D07958844625FE35C0D412012FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122327   (798829) от 05.04.2017
+
+VA - Ibiza Session 2017: For DJs Only (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
+02.  Wolkenlos - You Can (Vocal Deep House Mix)  7:35
+03.  Cheap Sunglasses - Till The End (Million Colours Remix)  4:55
+04.  Filtercut - Time Won't Wait (Club Mix)  6:52(   Читать дальше...   )Жанр: HouseПродолжительность: 05:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478703FA1A320890F7F6EFBB2C48D8F9A2F319CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273865   (798780) от 04.01.2019
+
+VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Adams, Sabrina Joy-Yourself (Sean McCabe Main Vocal Mix)
+02. Zepherin Saint, Miranda Nicole-Butterflies (Live Mix)
+03. Vanco, Zano-Ms Jailer (feat. Zano)
+04. Gino Brown, Nonny D - Time No Dey (feat. Nonny D)(   Читать дальше...   )Жанр: Soulful HouseПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011052   (797701) от 26.04.2016
+
+VA - Progressive Guide Vol.1 (2016) [MP3|320 кб/с] <House, Progressve House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darmon -  Reaper  6:00
+02. Leventina -  Cameltoe  5:23
+03. Marco V -  We Will Be (O.B Remix)  5:16
+04. Anero -  Gigeri  4:56(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D03CAEBF3F3A0B2308C1BEA3CA5DEC051650F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011007   (797660) от 26.04.2016
+
+VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Termite & Mikky Clap -  Insomnia (Alex Fresh Remix)  5:51
+02. Soulstatic -  Bang, Bang, Bang! (feat. Wendy Lewis) (Lypocodium & Helen Brown Remix)  7:36
+03. Pot4ss -  Get The Fuck (Original mix)  5:19
+04. Twosid3s -  Out Of The Ground (Original mix)  6:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB11C879F0AA78A7370F2A1F85C9039502ECD9CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385582   (797196) от 25.05.2020
 
 VA - HIIT Workout Mix (2020) [MP3|320 Kbps] <House, Dance, Club>
@@ -597,151 +742,6 @@ VA - Fitness Unlimited 2018: Made For Workout & Running (2018) [MP3|320 Kbps] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83FDEAF876C67EE94A84A43B8082563A494601D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274832   (792247) от 08.01.2019
-
-VA - Power Workout: Pump Up Music 2019 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Animal (Original Mix) 04:14
-02. FLGTT - Por Que No 2K19 (Radio Edit) 03:26
-03. Teknova - Rhythm Is A Dancer 2K19 (Melbourne Bounce Mix) 03:36
-04. MaxRiven - Welcome To The Jungle (Original Mix) 03:00(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3903320CA202ACA622A4719A6DF215769F32A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201530   (792169) от 25.01.2018
-
-VA - Ministry Of Sound: The Biggest Dance Hits Of All Time (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fatboy Slim  -  Right Here Right Now  3:56
-02.  Armand Van Helden  -  You Don't Know Me (feat. Duane Harden)  4:01
-03.  Fedde le Grand  -  Put Your Hands Up For Detroit  6:34
-04.  Benny Benassi & The Biz  -  Satisfaction  4:45(   Читать дальше...   )Жанр: HouseПродолжительность: 01:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63941DDA0BF9B26C8260B85E7C904674EEDC8179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510234   (792030) от 15.11.2021
-
-VA - Big Workout Hits 2022 - Remixed for Fitness! (2021) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan Baker - Bad Habits (Workout Mix 130 bpm) (04:16)
-02. Stephan Baker - Take My Breath (Workout Mix 130 bpm) (04:06)
-03. Chandler FX - Higher Power (Workout Mix 178 bpm) (03:34)
-04. Chandler FX - Peaches (Workout Mix 178 bpm) (03:40)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C289DDA8689DEA74D8689190D0CC6B196560130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387283   (791838) от 01.06.2020
-
-VA - EDM (2020) [MP3|320 Kbps] <House, Dance & Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed Master DJ - Indian (Radio Edit)
-02. M4RO and J'N'D - Sleepless
-03. Djschluetex - Hype the EDM
-04. Ras Martin - Stay with You(   Читать дальше...   )Жанр: House, Dance & ElectronicПродолжительность: 02:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4153AD1139D5D6538B95CB15191B9AD178396DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274991   (791710) от 09.01.2019
-
-VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
-02. Jay Frog & Amfree - Is This Love (Radio Edit)
-03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
-04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

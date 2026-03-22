@@ -1,3 +1,34 @@
+###  Публикация: 1457300   (1024510) от 25.03.2021
+
+Юрий Антонов - Лучшее (1973-1991) от DON Music (2021) [MP3|320 Kbps] <Pop, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неофициальный сборник.
+Только для ознакомления с самыми лучшими песнями
+Юрия Михайловичав авторском исполнении.01 У берез и сосен (1973)
+02 Нет, не я (1975)
+03 Несёт меня течение (1975)
+04 Отчего (1975)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 02:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9268E3CF43DAAF04FF7C0C5D9EB86D2938BB774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458326   (1023814) от 29.03.2021
 
 VA - National Pop Dance Music (Vol.14) (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -713,35 +744,6 @@ VA - Новички в попсе Vol 8 (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9908B8F8FEBD8D06E10C75533D0F65716ACCC5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469321   (1016531) от 11.05.2021
-
-VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016531.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam van Hammer - Self Control (Radio Edit) (3:10)
-002. Aurora feat. Lizzy Pattinson - Summer Son (Radio Edit) (3:28)
-003. Dirty Disco - I Feel Dirty (Space City Remix) (6:35)
-004. Eiffel 65 - Move Your Body (D.J.Gabry Ponte Original Radio Edit) (4:29)(   Читать дальше...   )Жанр: Disco, Dance, HouseПродолжительность: 08:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
 ```
 
 https://mybot314.ru/tekegram_catalog/

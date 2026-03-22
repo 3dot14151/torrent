@@ -1,3 +1,154 @@
+###  Публикация: 517897   (645708) от 02.07.2012
+
+Rod Stewart - Smiler (1974) [MP3|320 кб/с]<Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Little Rock`n`Roller
+02. Lochinvar
+03. Farewell
+04. Sallor
+05. Bring It On Home To MeYou Send Me
+06. Let Me Be Your Car
+07. (You Make Me Feel Like) A Natural Man
+08. Dixie Toot
+09. Hard Road
+10. I`ve Grown Accustomed To Her Face(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C45164D26BD533C0F328A6AA27730B3AD168557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906302   (645659) от 08.06.2015
+
+Brad Wilson - Blues Thunder (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is It Any Wonder (3:36)
+02. Change It Up (3:45)
+03. Blue Shadows (4:43)
+04. Step By Step (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278B887C823E393CA814C2F0E238E3ECAEDE8842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142137   (644720) от 13.06.2017
+
+Elton John - 17-11-70+ (1971) 2LP, Remastered, 2017, UMC [MP3|320 Kbps] <Country Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me to the Pilot
+02. Honky Tonk Women
+03. Sixty Years On
+04. Can I Put You On(   Читать дальше...   )Жанр: Country Rock, Classic RockПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1A33AB03EA3B0E776E0DC812FD10075A49DD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142223   (644717) от 13.06.2017
+
+Suzi Quatro - A's, B's & Rarities (2004) [MP3|320 Kbps] <Rock, Pop Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rolling Stone [02:49]
+02. Brain Confusion (For All The Lonely People) [03:12]
+03. Ain't Got No Home [02:19]
+04. Can The Can [03:37](   Читать дальше...   )Жанр: Rock, Pop Rock, Hard RockПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74E878A32746AB22E535CA39F7975FB6671F786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032615   (643914) от 08.07.2016
+
+Jani Lane - Catch A Falling Star (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You To Want Me (feat. Ryan Roxie, ALICE COOPER)
+02. Panama
+03. Photograph
+04. The Ocean(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C42CA430FA951A38539C4B6922C0A4534D9A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906493   (643819) от 09.06.2015
 
 Ancient Sky - Mosaic (2015) [MP3|320 кб/с]<Psychedelic Rock>
@@ -614,151 +765,6 @@ Mother's Cake - Love The Filth (2015) [MP3|320 кб/с]<Progressive / Psychedeli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A72519FF8DF4FDEF22B1736166BD2CD17E25AA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033336   (637937) от 11.07.2016
-
-Herman Rarebell & Friends - Herman's Scorpions Songs (2014) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Of You Like A Hurricane (Bobby Kimball of TOTO)    04:09
-02. Passion Rules The Game (John Parr)    03:48
-03. Loving You Sunday Morning (Michael Voss of MAD MAX)    03:34
-04. Is There Anybody There? (Alex Ligertwood of SANTANA)    04:06(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEDABB47CF55A9CBC0018C70DD09BE382AAFBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907752   (637626) от 12.06.2015
-
-Billy Joel - The Hits (2010) Remastered [MP3|320 кб/с]<Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Loves You Now
-02. Piano Man
-03. The Entertainer
-04. New York State of Mind(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B166F8886979B4983561A0DA3B78F7648F3FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541429   (637403) от 07.04.2022
-
-Stoned Apes - Monkey Sounds (2022) [MP3|320 Kbps] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sludge [00:03:52]
-02 Tune In [00:03:40]
-03 Underworld [00:03:08]
-04 Guru [00:04:24](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC09EC00EAE43B6D27B3EE4F6763718E141DB9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541433   (637389) от 07.04.2022
-
-The Basement Tribe - Path to the Temple (2022) [MP3|320 Kbps] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Nation of Wizards [00:09:00]
-02 Desert Shrine [00:05:14]
-03 Red Morning [00:06:08]
-04 Dune Walk [00:04:03](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34EDCB837FA2220D50F9E47A1BA286C144F591C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541378   (637386) от 07.04.2022
-
-Gggolddd - This Shame Should Not Be Mine (2022) [MP3|320 Kbps] <Gothic Rock, Trip-Hop, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Was a Wild Thing with a Simple Heart (2:43)
-02. Strawberry Supper (3:06)
-03. Like Magic (3:41)
-04. Spring (3:39)(   Читать дальше...   )Жанр: Post-Punk, Gothic Rock, Post-Metal, Trip-Hop, Female VocalПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220C94F6178867FAD7CDF4B16DC14856FCF17EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1211854   (776897) от 09.03.2018
+
+VA - Crystal Bass: DnB Line (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Block Control - Collaps
+002. Keeno - The Comet
+003. Fox Stevenson - Knowhow
+004. Danny Byrd - Devil's Drop(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 09:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A917A36BC90712C60EE55CB194A6E570233075E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014097   (776571) от 07.05.2016
+
+VA - Audio Safari Ibiza (2015) [MP3|320 кб/с] <Tech House, Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Booka & Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:37)
+02. Moe.ritz - A Go (06:05)
+03. Lenox (GER) - Don't Go (05:17)
+04. Heinrich & Heine - Like the Sun (Andree Wischnewski Remix) (05:47)(   Читать дальше...   )Жанр: Tech House, Deep House, Nu DiscoПродолжительность: : 03:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4166D9BAAF6EC29FCC32DDB51E825835EDAA8225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212164   (776551) от 10.03.2018
+
+VA - Music Generation: Big Room Electro House (2018) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Justin Point - Weekend Players (Original Mix) 05:32
+002. 5sta Family - Снова вместе (Vadim Adamov & Hardphol Radio Remix) 03:09
+003. Mark Bale & Bobby Rock feat. Roger Horton - The Bass (Ferdinands Feld Festival Anthem 2017) 04:03
+004. The Boogeyman - The Bass Poem (Radio Edit) 03:22(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 08:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DED95F801ED87035A1E103544414417BC682832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212153   (776539) от 10.03.2018
 
 VA - Deep House: Deep Calm (2018) [MP3|320 Kbps] <Deep House, Electro>
@@ -658,93 +745,6 @@ VA - 100 Miles Mix DJ - Dance Liga (2016) [MP3|320 кб/с] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B7A8B70C2F24EB3DC9AAB7FFFF4CB4718FB8CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212488   (775824) от 12.03.2018
-
-VA - Immersion Of Progressive House (2018) [MP3|320 Kbps] <Progressive House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775824.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nesta Tonik - Moon Shadows (Original Mix)
-002. Sendoo - Siren (Original Mix)
-003. Martin Dhamen & Nola feat. Mick Roxx - Wont Let Go
-004. NitroKIDD - Parallax (Original Mix)(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 09:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E308622AE766CD77F90AF18782BC26497B593FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015027   (775795) от 09.05.2016
-
-VA - Record Super Chart № 435 (07.05.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystal Lake - Say Goodbye (Headhunterz Edit) 4:02
-02. KSHMR feat. Sidnie Tipton - Wild Card (Original Mix) 3:18
-03. Sander van Doorn & MOTi - Lost (Extended Mix) 4:25
-04. DJ KUBA & NE!TAN - Party On! (Original Mix) 3:35(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D55A19963470640D48101609D75B1E6A7D6AAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015034   (775770) от 09.05.2016
-
-VA - Ночной Мегахит - 100 Хитов в Тачку (2016) [MP3|320 кб/с] <House, Club House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynamic Illusion - Massive (Original Mix)
-02. Tobz - Asa Dachi (Miles Dyson & Tobz Remix)
-03. Direkt - Grounded
-04. Playa Guitarra - Walk Along The Road - Ibiza Beach Mix(   Читать дальше...   )Жанр: House, Club House, Progressive HouseПродолжительность: 10:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02FECC3F4F07B340170AAD9AB9BD8028A8156305
 ```
 
 https://mybot314.ru/tekegram_catalog/

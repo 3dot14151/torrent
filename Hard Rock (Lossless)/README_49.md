@@ -1,3 +1,189 @@
+###  Публикация: 1569288   (451526) от 13.08.2022
+
+Restless Spirits - Second To None (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need A Lil' White Lie
+02. Hey You
+03. Dreams Of The Wild
+04. Until The End Of Time(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A011DFA8DEA4A2BBBF1B66153B25998D404AD556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569520   (451508) от 13.08.2022
+
+Radioactive - xXx (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkey On Our Backs (4:28)
+02. The Deed Is Done (3:41)
+03. Remember The Ghosts (3:54)
+04. Written In The Scars (4:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9676208A282A7A47BFDDEA21DAA28F8F8880219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061184   (450790) от 09.10.2016
+
+Joe Lynn Turner - The Sessions (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stone Cold (with Vivian Campbell) 04:58
+02. Lunatic Fringe 04:23
+03. Let The Music Do The Talking (with Al Pitrelli, Carmine Rojas & Pat Torpey) 04:26
+04. Mirror Mirror (with Icarus Witch) 04:11(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8291518883B9C7A64D82931C8396CD047FBD924F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552435   (447805) от 26.09.2012
+
+VA - Re-Machined: A Tribute To Deep Purple's Machine Head (2012) [FLAC|Lossless]<Hard Rock/Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacoby Shaddix/Carlos Santana - Smoke On the Water (5:05)
+02. Chickenfoot - Highway Star (7:05)
+03. Chad Smith/Glenn Hughes - Maybe I’M a Leo (4:59)
+04. Black Label Society - Pictures of Home (3:31)
+05. Kings of Chaos - Never Before (4:05)
+06. The Flaming Lips - Smoke On the Water (4:25)
+07. Jimmy Barnes/Joe Bonamassa - Lazy (8:53)
+08. Iron Maiden - Space Truckin' (3:27)
+09. Metallica - When a Blind Man Cries (4:37)
+10. Chad Smith/Glenn Hughes/Steve Vai - Highway Star (Bonus) (6:18)Жанр: Hard Rock/Heavy MetalПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552227   (447721) от 26.09.2012
+
+VA - WWE Raw Greatest Hits: The Music 15th Anniversary (2008) [FLAC|Lossless]<Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё просто - данная компиляция содержит треки, под которые выходят/бьются/уходят/побеждают/"восстают" из падших и т.д. лучшие гладиаторы World Wrestling Entertainment - арены. В настоящее время RAW (Monday Night Raw или WWE RAW Supershow) является одним из брендов WWE. Сборник приурочен к 15-и летнему юбилею World Wrestling Entertainment.01. John Cena - The Time Is Now :: 02:57
+02. Stone Cold Steve Austin - I Won't Do What You Tell Me :: 03:03
+03. The Rock - If You Smell :: 02:56
+04. Triple H - The Game :: 03:29
+05. Shawn Michaels - Sexy Boy :: 03:22
+06. Undertaker - Rest In Peace :: 03:16
+07. Mr. McMahon - No Chance In Hell :: 01:59
+08. Batista - I Walk Alone :: 04:08
+09. Evolution - Line In The Sand :: 03:40
+10. Chris Jericho - Break The Walls Down :: 02:03(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalФормат: CD, CompilationПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242884   (447629) от 07.10.2010
+
+Scorpions - 3 альбома (1972-1995) Japan Mini-LP SHM-CD /2010/ [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mini-LP SHM-CD лимитированные издания 2010 года. Ремастеры 2010 г. за исключением Lonesome Crow, ремастер 2005 г., издание 2010г.Альбомы:
+1972 Lonesome Crow
+1993 Face the Heat
+1995 Live BitesЖанр: RockПродолжительность: 02:41:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570057   (447297) от 15.08.2022
 
 The Brave - Gravedigger (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -577,180 +763,6 @@ Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:693B6D39FA0553257EFAEDA0E976A2BB19ACFABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063308   (435361) от 16.10.2016
-
-Tango Down - Bulletproof (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punching Bag
-02. Give Me A Reason
-03. Bulletproof
-04. Carry On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B752D5F1962E9C476E6872818DC78CFE6B0853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410652   (434054) от 22.09.2020
-
-Dokken - Return To The East Live (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s Another Day (New Studio Track) (4:16)
-02. Kiss of Death (5:18)
-03. The Hunter (4:03)
-04. Unchain the Night (5:33)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9E0537D18567F142D20732BA040D6E736D6856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571145   (434045) от 21.08.2022
-
-Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Killers (4:21)
-02. Rotten Romance (3:59)
-03. The Velvet (4:27)
-04. Distant Memory (3:47)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8BE59FE15ED23813F3DC0A704718CA060DB716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945293   (433915) от 10.10.2015
-
-Loverboy - Turn Me Loose (1999) [FLAC|image+.cue]<Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Me Loose 5:38
-02. Working For The Weekend 3:42
-03. Lucky Ones 3:52
-04. It's Your Life 4:03(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BE779671338F211DEB780D3141FCE7344490AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063669   (432681) от 17.10.2016
-
-The Quireboys - Twisted Love (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torn & Frayed 03:17
-02. Ghost Train 03:59
-03. Killing Time 03:54
-04. Twisted Love 04:58(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E2B087499609271969E442D1356E7B4873E394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063721   (432529) от 17.10.2016
-
-Tango Down - Damage Control (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emty Hole
-02. I Can't Wait
-03. All Fall Down
-04. I'm Done Lovin' You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D062DFC5CC25497234347F4D3F63450A07FAFCDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

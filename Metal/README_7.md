@@ -1,3 +1,31 @@
+###  Публикация: 1475281   (1012412) от 06.06.2021
+
+Till Lindemann - Ich hasse Kinder (2021) Single [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012412.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ich hasse Kinder
+2. Ich hasse Kinder (AlterBoyz Remix)
+3. Ich hasse Kinder (Ship Her Son Remix)Жанр: Industrial MetalПродолжительность: 00:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E2A76481B2A38FC714FB6DB573BACD3AB49C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475613   (1012139) от 08.06.2021
 
 Arkaza - The Seven Year Plan (2021) [MP3|320 Kbps] <Progressive Metal>
@@ -717,35 +745,6 @@ Paradise Lost - At the Mill (2021) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB263B66AFD44245AB6AA9655006A5E35F95C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484158   (1006293) от 18.07.2021
-
-Sinner Guard - Sinner Guard (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:00:33]
-02 - The Seventh Sin [00:03:34]
-03 - Edge of Tomorrow [00:04:20]
-04 - Babylon [00:04:43](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BD1229AC9861A314B41920DD3B3CCF69FE26A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

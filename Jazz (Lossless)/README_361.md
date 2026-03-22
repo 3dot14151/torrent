@@ -1,3 +1,177 @@
+###  Публикация: 1755547   (40168) от 16.10.2024
+
+VA - Travel and Leisure Vacations at Exotic Locations Smooth Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Home (5:42)
+02. Kool&Klean - I Smile (4:41)
+03. Chillaxonic - Iridescent (5:10)
+04. Chillaxing Jazz Kollektion - Return to Innocence (4:18)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F428EF90EF7D047D909B861D209959B7A7353F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755542   (40167) от 16.10.2024
+
+VA - Melodic and Harmonic Laid-Back Ambiance Smooth Intrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Aurora (5:13)
+02. Chillaxing Jazz Kollektion - It Dews (4:26)
+03. Kool&Klean - I Smile (4:41)
+04. Love Suggestions - Clarity (4:36)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA2B81E3FB253C69F7ED322250214E80B62A458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755550   (40166) от 16.10.2024
+
+VA - Vacation Travel and Leisure at Exotic Locations Lounge Sweet Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Desire (4:20)
+02. Chillaxonic - Iridescent (5:10)
+03. Chillaxing Jazz Kollektion - Home (5:42)
+04. Kool&Klean - I Smile (4:41)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C244FD32BB7D64B5327F4311F594AB84918D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755544   (40165) от 16.10.2024
+
+VA - Relaxed & Luxurious Sophisticated Atmosphere Smooth Chilly Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Lost (4:20)
+02. Chillaxing Jazz Kollektion - Touch (3:52)
+03. Chillaxonic - Mellifluous (4:27)
+04. Chillaxing Jazz Kollektion - Evening Sun (4:35)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C658CBC898C4F80634363C9C9BCEDB197918481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755545   (40164) от 16.10.2024
+
+VA - Soft and Soothing Jazzy Playlist to Unwind and Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Sail (4:49)
+02. eJazz Artistry - Come Share My Love (4:31)
+03. Love Suggestions - Counting Stars (5:09)
+04. Chillaxing Jazz Kollektion - Evening Sun (4:35)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A4FE5A01835C0155B356BA4516D42F3DE57C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755548   (40161) от 16.10.2024
+
+VA - Ultimate Chillout Ambient Lounge III (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Creation Sings (3:56)
+02. Kool&Klean - Kiss & Dance (4:44)
+03. Chillaxing Jazz Kollektion - New Sunrise Every Day (4:19)
+04. Love Suggestions - Clarity (4:36)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9FEB110125614643BB90E4333B4BB843AE9BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755539   (40158) от 16.10.2024
 
 VA - Classy Charming Luxury Light Jazz Chilly Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
@@ -571,180 +745,6 @@ Steps Ahead - Magnetic (1986) 2013, Elektra [FLAC|Lossless|tracks + .cue] <Jazz 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4F896A220E23BA525F92A7E9580F6A113D17DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298413   (39496) от 23.10.2024
-
-Sarah Vaughan & Friends - A Night Of Sass & Brass (1986) 2006, Immortal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watermelon Man [1:15]
-02. I Can't Give You Anything But Love [3:17]
-03. Just Friends [3:33]
-04. Send in the Clowns [6:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD101898C89140DF37B0561214E15C00150DA1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140463   (39495) от 23.10.2024
-
-Sarah Vaughan - Complete Musicraft Master Takes (2000) 2CD, Jazz Factory [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39495.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lover Man [03:26]
-02. Time and Again [03:19]
-03. A Hundred Years From Today [02:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449C7E6842D5CF72D3B863922057772A6A28BABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295187   (39492) от 23.10.2024
-
-Sarah Vaughan - A Time In My Life (1971) 1987, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine [4:41]
-02. On Thinking It Over [3:31]
-03. Inner City Blues (Make Me Wanna Holler) [4:13]
-04. Sweet Gingerbread Man [3:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E9568E192A840E6B8A965561392A879CB721C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756844   (39484) от 23.10.2024
-
-Papik & Stefy Gamboni - Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amoreunicoamore
-02. Vita
-03. Questione Di Feeling (feat. Stefy Gamboni)
-04. Portati Via(   Читать дальше...   )Жанр: Pop JazzПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB60883A152C93B1C7536F23B84779CBF04D0280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756822   (39482) от 23.10.2024
-
-Jazzamor - Reworks (20 Years of Jazzamor) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Jazz, Acid Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caminho
-02. For A While
-03. The Autumn Dismay
-04. Strange To Be In Paradise(   Читать дальше...   )Жанр: Nu-Jazz, Acid Jazz, PopПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFB2FA309097D44EC45050D3BC4895BCB0C49C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553520   (39475) от 23.10.2024
-
-Sarah Vaughan - The Jazz Collector Edition (1940-e) 1991, LaserLight [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September Song [3:04]
-02. Time After Time [3:03]
-03. Lover Man (Oh, Where Can You Be?) [3:24]
-04. What a Difference a Day Makes [2:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF4432A174B57E04F239A09D7CE0D77E279A6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

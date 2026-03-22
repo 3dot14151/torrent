@@ -1,3 +1,150 @@
+###  Публикация: 1173558   (389773) от 12.10.2017
+
+Brett Benowitz - Burn to Glow (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamb (04:36)
+02. Out of Sight (04:16)
+03. The Rider (02:31)
+04. Meet the Ground (04:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A694B171FB6D954BE6D2A2313B0F04C17555200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173739   (389627) от 12.10.2017
+
+Robert Plant - Carry Fire (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The May Queen
+02. New World...
+03. Season's Song
+04. Dance With You Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D686E2F7A4AF8BB1238D30CEA43B1CCDD4893A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173936   (388972) от 13.10.2017
+
+VA - Wish You Were Here (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IT - The Path Of Least Resistance (11:54)
+02. Lunatic Soul - Anymore (04:38)
+03. Koyo - Now I Understand (04:13)
+04. Galahad - Weightless (05:36)(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47A514F492EDF1A91588BAAA37B4F81B5687D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571886   (388187) от 07.11.2012
+
+Larry And His Flask  - Hobo's Lament(EP)(2012) [MP3|320 kbps] <Folk Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.closed doors (02:34)
+02.big ride (03:38)
+03.my name is cancer (02:14)
+04.hobo's lament (04:20)
+05.swing (03:01)
+06.so long(03:30)Жанр: Folk Rock, AlternativeПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C4D0CA87C929694AEC8247E01C65C27806CC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253114   (387904) от 07.10.2018
+
+Pulatova - Рой (2018) [MP3|320 Kbps] <Post-Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вокалистка Flёur Ольга Пулатова представила первый альбом своего сольного проекта Pulatova: "Рой".1. Падение
+2. Сердце покоя
+3. Норадреналин
+4. Ящер(   Читать дальше...   )Жанр: Post-Rock, Indie RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EDB0449AFAA802D02B0560D0FB03C1D488FC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414138   (387872) от 07.10.2020
 
 Molly Hatchet - Battleground (2019) 2xCD Live [MP3|320 Kbps] <Hard Rock, Southern Rock>
@@ -603,157 +750,6 @@ Rod Stewart - Another Country (2015) Deluxe Edition [MP3|320 кб/с]<Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:531AF1189176A409399EC704F5EC34B0EEFD30C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575142   (379347) от 08.09.2022
-
-Stratovarius - Episode (1996) Reissue, 2002, Victor [OGG Vorbis|485 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Father Time                         	5:01
-02. Will The Sun Rise?                   	5:07
-03. Eternity                             	6:56
-04. Episode                             	2:01(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04545999DFE5E4C4AA20819B214058C93EB2CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068701   (378450) от 02.11.2016
-
-Handwrist - Green Tourist (2016) [MP3|320 Kbps] <Psychedelic, Post-Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilo Runs The Voodoo Down 05:55
-02. Green Tourist 05:19
-03. Amusements Of The Western Capital 11:08
-04. Habitrot 07:23(   Читать дальше...   )Жанр: Psychedelic, Post-Rock, Progressive RockПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB441D899933E8E9E07FDA6FA7C22FCF403CED18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573821   (378423) от 11.11.2012
-
-Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinski Assassin (2:59)
-02. Is This the Best Spot? (1:47)
-03. Mature Themes (2:47)
-04. Only in My Dreams (3:12)
-05. Driftwood (4:22)
-06. Early Birds of Babylon (5:15)
-07. Schnitzel Boogie (4:35)
-08. Symphony of the Nymph (4:35)
-09. Pink Slime (2:11)
-10. Farewell American Primitive (2:55)(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C570A4DE9E892EB884D12A6A2D822CC073317FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949384   (377416) от 23.10.2015
-
-VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Grant - Two Of Us (Lennon/McCartney)
-02. Dennis Locorriere - Dig A Pony (Lennon/McCartney)
-03. Phosphorescent - Across The Universe (Lennon/McCartney)
-04. Beth Orton - I Me Mine (Harrison)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A7E95683263B973AB7534130578D9765D1D25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949553   (377338) от 23.10.2015
-
-VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]<Psychedelic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gallops - Speak To Me
-02. Our Broken Garden - Breathe
-03. The Oscillation - On The Run
-04. Wolf People - Time(   Читать дальше...   )Жанр: Psychedelic Rock, Space RockПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F1AFE78412B9D9022E81A75692E7128CCAAD40
 ```
 
 https://mybot314.ru/tekegram_catalog/

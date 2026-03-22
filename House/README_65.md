@@ -1,3 +1,148 @@
+###  Публикация: 1637082   (240087) от 03.06.2023
+
+VA - Ibiza Deep House Megamix (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - One Two Step [2:10]
+02. Hight & Basti M & Blaikz feat. Hannah Jane Lewis - I'm With You [2:56]
+03. Shaun Baker & NDEE & ROOMS feat. Jessica Jean - Do It All Night [2:29]
+04. El Mukuka feat. Mumba Yachi - The Harvest [2:35](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 03:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84650FA7D9B5FFD9B1AE79465EDE24DC2E319DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628018   (239027) от 21.04.2023
+
+VA - Total EDM Invasion 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filtercut - Feel Me Now (Driver Mix) [03:41]
+02. RFR - Alone (Audio Shiner Remix) [03:42]
+03. DIONYMUSIC - Your Eyes [02:39]
+04. John David - Break of Dawn [03:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58118AF1D8E0AC40F500A6CB7BE9B22BEB98495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622860   (239014) от 30.03.2023
+
+VA - Sola Presents: Miami (2023) [MP3|320 Kbps] <House, Funky House, Tech House, Soulful>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_239014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ki Creighton, Nico Balducci - Loose (Original Mix)
+02. Dmitri Saidi, Sinner & James - El Nacimiento (Extended Mix)
+03. Volaris - Purple Skies (Extended Mix)
+04. Bluey - Pressure (Original Mix)(   Читать дальше...   )Жанр: House, Funky House, Tech House, SoulfulПродолжительность: 03:04:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F680618A49D6D4B9036C0124AC6CB1D61B83D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638952   (238766) от 10.06.2023
+
+VA - Beach Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mant Deep - How Will I Know [05:14]
+02. Captain Junior - I Want to Forget [04:11]
+03. FLY - Call You [05:14]
+04. Trezz - Got You [02:58](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7517978189194052C3E81ABC673D29A1434DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628205   (238563) от 23.04.2023
+
+Tiesto - DRIVE (2023) EXPLICIT [MP3|320 Kbps] <House, Electropop, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - All Nighter (2:14)
+02. Tiesto, Ava Max - The Motto (2:44)
+03. Tiesto, Tate McRae - 1035 (2:52)
+04. Tiesto - The Business (2:44)(   Читать дальше...   )Жанр: House, Electropop, Progressive HouseПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242192C9527D7F9518F7FDD59B640DDEB7F94C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637108   (238363) от 03.06.2023
 
 VA - Deep Ibiza Opening Party (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -600,151 +745,6 @@ VA - EDM Deejay Compilation 2023 (Summer Edition) (2023) [MP3|320 Kbps] <Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D0CFCD8713CE1D1DEC1DF5157448D466B8F422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634049   (233824) от 18.05.2023
-
-VA - The Good Life 2023 (Best Deep House, Relax House, Chill House, Tropical House, Chillout, Study, Happy Music) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Profesor Esteban - Summer Off [05:41]
-02. Sam & Claude - Friday Feelings (Everyday) [05:00]
-03. Joshua Miller - Sun & Moon (Vintage Beach Mix) [06:08]
-04. Claude Ravin - What to Do? [06:03](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40849BE103587629A1025D0215C88EB34D40DE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642054   (233512) от 25.06.2023
-
-VA - Ibiza House Anthems (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disciple Sounds - Midnight (Radio Edit) [02:41]
-02. House Generator - Love Is The Way (Original Mix) [03:54]
-03. Funky Glow - Believe In House (Original Mix) [03:39]
-04. 95th Avenue - Meet Nobody (Dub Mix) [03:48](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5A484CB46DFCB2A432BF3D4CAB3A58D05CE6F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646660   (231777) от 17.07.2023
-
-VA - 40 Dance Summer Hits (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan F - Feel The Vibe [02:47]
-02. Dani Corbalan - Pray [02:44]
-03. Rob Helen - Beautiful Liar [03:02]
-04. Robert Lain - Get Together [02:24](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8F5771D1B38721869DE9B7347509A8DC90DF00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636469   (231590) от 30.05.2023
-
-VA - Armada Electronic Elements - Ibiza (2023) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kölsch feat. Troels Abrahamsen - All That Matters (ARTBAT Extended Remix) (8:49)
-02. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) (6:09)
-03. Yotto & Booka Shade - Encounters (Extended Mix) (6:23)
-04. AVIRA feat. Dan Soleil - Wildfire (Extended Mix) (5:42)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB23699856A884312F4F1CD1E9EFA8264F69161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646432   (231504) от 19.07.2023
-
-VA - Deep Melancholic Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Hosking - Falling Pictures (Original Mix) [02:46]
-02. Matt Woodford - Promises (Original Mix) [02:35]
-03. Alexandra Schwarz - Inside My Mind (Original Mix) [03:00]
-04. Basic Stuff - Movin (Original Mix) [02:52](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D3904291DBCF95E9832639B4C00E275DEE4F34
 ```
 
 https://mybot314.ru/tekegram_catalog/

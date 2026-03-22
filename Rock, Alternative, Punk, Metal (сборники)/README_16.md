@@ -1,3 +1,90 @@
+###  Публикация: 1393679   (766253) от 02.07.2020
+
+VA - Music for You vol.10 - Thrashers (2020) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heathen - The Blight (04:38)
+ 02. Alen Weaponry - Kai Tangata (06:35)
+ 03. Legion of the Damned - Legion of the Damned (03:12)
+ 04. Exhorder - My Time (03:53)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 04:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042E711BE007CBB58A2EB5FFFD77C2B677B466A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279404   (765958) от 29.01.2019
+
+VA - Rock & Metal Collection от ALEXnROCK часть 11 (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765958.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 11я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK001 Sunstorm - Gutters Of Gold
+002 Cinderella - Take Me Back
+003 Winger - Pull Me Under
+004 The Wallflowers - Heros(   Читать дальше...   )Жанр: RockПродолжительность: 04:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78FFF3E5017467FB8B960C066C749F987315779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214186   (765755) от 20.03.2018
+
+VA - Black Aphrodite (2018) [MP3|320 Kbps] <Heavy, Power, Death Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Absolva - Harsh Reality
+002. Horrified - Allure Of The Fallen
+003. Avantasia - Seduction Of Decay
+004. Cromonic - Prophecy(   Читать дальше...   )Жанр: Heavy, Power, Death MetallПродолжительность: 08:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27D87A3A59BA9BDBDF2DCF0659C4AB59A6990E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126467   (765375) от 18.04.2017
 
 VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
@@ -658,93 +745,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE3B06992971D17C9B9BC942CFE1CC3E9F34F175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280756   (758647) от 04.02.2019
-
-VA - Heavy Metal Collections Vol. 9 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758647.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. Painful Pride - Visions (2016)(4:08)
-02. Dee Snider - American Made (2018)(3:34)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D74C7FE2EDF3269F2D0D32329F98F124B88EAA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280753   (758644) от 04.02.2019
-
-VA - Heavy Metal Collections vol. 6 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758644.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. Nemesea - Time To Make It (2016) (3:16)
-02. Pentakill - Blade of the Ruined King (2017) (7:00)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E247FB065ED2D24B86B80D4C10C8DACA4F5E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280761   (758631) от 04.02.2019
-
-VA - Heavy Metal Collections Vol. 11 (3CD + 1CD LIVE) (2019) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758631.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. Beast In Black - Blood Of A Lion (2017) (5:04)
-02. Thobbe Englund - Sold My Soul (2017) (2:34)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 04:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6B71943DCAE6475A1692883D51C2828C7A33F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

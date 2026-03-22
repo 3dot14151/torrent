@@ -1,25 +1,24 @@
-###  Публикация: 1788081   (68642) от 28.03.2025
+###  Публикация: 1775427   (71457) от 26.01.2025
 
-Forlorn - Aether (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Ambient, Shoegaze, Female Vocal>
+Михаил Ланцов | Фрунзе (Книга 2). Великий перелом (2024) [MP3, Антон Макаров]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68642.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mother Of Moon [00:01:22]
-02. Creatress [00:03:31]
-03. The Wailing [00:05:17]
-04. Matrum Noctem [00:01:41](   Читать дальше...   )Жанр: Progressive Metal, Ambient, Shoegaze, Female VocalПродолжительность: 00:26:16
+Наш современник, попавший после смерти в тело Михаила Фрунзе, продолжает крутиться в 1920-х годах. Пытаясь выжить, удержать власть и, что намного важнее, развернуть Союз на новый, куда более гармоничный и сбалансированный путь.
+Но не все так просто.
+Врагов много. И многим из них он – как кость в горле. Причем врагов не только внешних, но и внутренних. Ведь в годы (   Читать дальше...   )Жанр: Альтернативная историяИздательство: ЛитРес: чтецПродолжительность: 13:21:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B76B856488190A072CA21213B8F1D5029C33D0C6
+magnet:?xt=urn:btih:3D2A64608E73DCBCC436B4E3314901E6D34246F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,285 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787940   (68641) от 28.03.2025
+###  Публикация: 1775449   (71456) от 26.01.2025
 
-Hermano - When The Moon Was High (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Desert Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Breathe [3:32]
-02 - Never Boulevard [4:12]
-03 - Brother Bjork (Live @ W2) [6:58]
-04 - Senor Moreno's Plan (Live @ Hellfest) [4:07](   Читать дальше...   )Жанр: Stoner Rock, Desert Rock, Hard RockПродолжительность: 00:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEC9D2B4CB2BBE0D550F23CE5D1EE8E2BC726C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787942   (68640) от 28.03.2025
-
-The Crown - Crown of Thorns (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Death Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Hunt with the Devil [4:56]
-02 - Churchburner [4:15]
-03 - Martyrian [4:50]
-04 - Gone to Hell [4:46](   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Melodic Death MetalПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BA0AF3268C1E436BD751E4FF2E351570939440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788073   (68639) от 28.03.2025
-
-Black & Damned - Resurrection (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence Breaker [00:04:05]
-02. Ruthless Wrath [00:04:26]
-03. Red Heavens [00:04:41]
-04. Bound By The Moon [00:04:27](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1735E5986D987CDA2827F3505E9B6A6B5F4BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788068   (68638) от 28.03.2025
-
-Bad Valentine - I Am A Mess (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Rock, Electronic, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Does Happiness Mean To You? [00:02:51]
-02. Don'T Think About It [00:03:28]
-03. Happy Never After [00:03:24]
-04. Sugar Water [00:03:09](   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Electronic, Female VocalПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA5164A7A493C7263247B727A87A7A1D8DB27F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788080   (68637) от 28.03.2025
-
-Пётр Ершов | Конёк-Горбунок (Инсценировка) (2023) [MP3, Сергей Лукьянов, Клара Лучко, Валентина Сперантова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям.
-«Конёк-горбунок» – знаменитая сказка в стихах Петра Павловича Ершова (1815–1869), не теряющая своей популярности и сегодня. Впервые сказка была опубликована в 1834 году. В ней высмеивается глупость царя и бояр, а Иван – крестьянский сын с помощью волшебного конька-горбунка побеждает своих врагов, потому что на его стороне правда, добро (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AE4D99DA2F70CE542133CA328FC24496D41EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788000   (68636) от 28.03.2025
-
-Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King's a Bitch  03:48
-02. The Prophecy  04:03
-03. Dying of the Light  03:47
-04. Don't You Ever Leave Me  03:37(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBAE8ABF745D22A6997F1F16189448D8D3E09DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788103   (68635) от 28.03.2025
-
-Nightwish - Century Child (2002) Released, 2007, Universal Music Group International [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bless the Child
-02. End of All Hope
-03. Dead to the World
-04. Ever Dream(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9376DFCB91C68CB9699D6C9108965E3EF48F444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788024   (68634) от 28.03.2025
-
-Woong San - Tomorrow (2012) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow [4:14]
-02. Am I Blue [4:18]
-03. The Boulevard Of Broken Dreams [5:16]
-04. This Masquerade [5:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8592BC9518CFDFFE48F791BC650089EC40027982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788084   (68633) от 28.03.2025
-
-Пётр Ершов | Конёк-Горбунок (Радиопостановка) (2021) [MP3, Иван Ярофеев, Владимир Зенёв и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детский остров.
-Искрометный народный юмор и литературный талант Петра Павловича Ершова (1815–1869) подарили нам сказку, которая уже два века входит в золотой фонд детского чтения.
-Пусть и ваш ребёнок послушает о том, как Иван-дурак перехитрил жадного царя, добыл Жар-птицу, а потом женился на первой красавице. И как его верный друг, неказистый Конёк-горбунок, (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D96DB1B704AFC80E7AB26A8BAB7988436B0867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788037   (68632) от 28.03.2025
-
-Шрифты - Creative Market - Gouffas - Retro Fun Font - 278616763 [OTF, TTF]
+Шрифты - Aquawax Pro Font Family [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68632.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Gouffas - Retro Fun Font — изящный, элегантный и плавный рукописный шрифт.
-
-Кириллица не поддерживается.Формат: OTF, TTF
+Aquawax, созданный в 2008 году Франческо Кановаро как фирменный шрифт, является одним из самых успешных шрифтов Zetafonts, выбранным, среди прочих, Warner Bros. для дизайна логотипа фильма «Аквамен». Корни дизайна логотипа очевидны в деталях дизайна: от лезвиеподобного хвоста Q и плавниковидной правой ноги K до намеренно перевернутой заглавной W, а также закругленных (   Читать дальше...   )Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70FD4F5C8E2AC0ADBC2BF5ABD4D424FBF8D1E021
+magnet:?xt=urn:btih:21437411B4E61C2D5DBBAD3B1C2A30B88ADE038B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,258 +52,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787930   (68631) от 28.03.2025
+###  Публикация: 1775333   (71455) от 26.01.2025
 
-Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Feeding the Fire [4:30]
-02 - Birth of the Sun [4:17]
-03 - Prisoner [5:34]
-04 - Whatever Comes [3:06](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 02:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30723485B9A92CB442F0FEAA15BB79A83C9EA519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787936   (68630) от 28.03.2025
-
-Frozen Crown - War Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - War Hearts [4:36]
-02 - Steel And Gold [4:08]
-03 - To Live To Die [3:42]
-04 - Night Of The Wolf [4:10](   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F68DB5AD88F3E3F56E7660CAA1CDDD43B4718C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788134   (68629) от 28.03.2025
-
-Vampyros Lesbos - Vi Per Sanguinem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Gothic, LGTM>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willst Du mal? [00:04:51]
-02. Schwarz und Weiss [00:03:40]
-03. Sklavin [00:04:08]
-04. Mausetot [00:05:08](   Читать дальше...   )Жанр: EBM, Gothic, LGTMПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267C617549053260E7DDC299E02B3365A5EFB1F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787629   (68628) от 28.03.2025
-
-Black Eyed Sons - Cowboys In Pinstriped Suits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lie To Me [00:03:48]
-02. Medicine [00:03:57]
-03. Foolin' Yourself [00:03:35]
-04. Autumn Reigns [00:04:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716FDD9280CBCA9EFBF05493949FEACEB418BFEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787907   (68627) от 28.03.2025
-
-Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Feeding the Fire (2022 Remaster) [4:30]
-02 - Birth of the Sun (2022 Remaster) [4:17]
-03 - Prisoner (2022 Remaster) [5:34]
-04 - Whatever Comes (2022 Remaster) [3:06](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 02:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93321D465296B5F0462C2579A4B4C55A32FF962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787628   (68626) от 28.03.2025
-
-Ryder - Menagerie (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Eye Open [00:04:46]
-02. Queen Viper's Kiss [00:04:01]
-03. Southbound [00:03:11]
-04. With Love [00:03:47](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F7970C3ECD30024326CCB6CED6CC75DFC3C4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787997   (68625) от 28.03.2025
-
-Шрифты - Creative Market - Rieches - Graffiti Urban Font - 197297289 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rieches - Graffiti Urban Font — изящный, элегантный и плавный рукописный шрифт.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E74779FC41DDDBC9BB4B8366C7814AA7F6AA758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788002   (68624) от 28.03.2025
-
-Шрифты - Creative Market - Khasioma - Japanese Texture Font - 217758340 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шрифт — изящный, элегантный и плавный рукописный шрифт.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DED7771A202E1C8BDA1B32B35DAA83353078165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787984   (68623) от 28.03.2025
-
-VA - Ibiza Beach Vibes (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+VA - 100 Greatest Workout Tracks (2025) [MP3|320 Kbps] <House, Dance>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68623.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Abee Sash - Feeling (03:18)
-02. N.E.O.N & Di Mora - Run To Me (03:30)
-03. Sandro Marini - Dingindaya (03:46)
-04. N.E.O.N & Di Mora - Where I Wanna Go (Radio Edit) (02:46)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:11:30
+001. Robin Schulz - World Gone Wild (feat. Sam Martin) (2:26)
+002. Charli XCX - Sympathy is a knife featuring ariana grande (2:34)
+003. Alle Farben - Drum (feat. Lena Sue) (2:49)
+004. Paradigm - Mr. Brightside (2:52)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 05:04:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49A0709AE8F20FD0ACA4EE302CDFDE3B930DB741
+magnet:?xt=urn:btih:535F37024C996E752D922A6E0140DBF98571C162
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,26 +81,214 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788066   (68622) от 28.03.2025
+###  Публикация: 1775321   (71454) от 26.01.2025
 
-НХЛ 2024-2025. Питтсбург Пингвинз - Баффало Сэйбрз (27.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Пресеты - PW Creative Pack [XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71454.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора "Этот пакет из 14 пресетов создан на основе моих принципов работы в цветокоррекции и состоит из тех пресетов, которые я использую в своей работе сейчас. Так как невозможно создать стопроцентно подходящий пресет для каждого снимка (мы снимаем в разных условиях освещенности, имеем разные цвета в кадре, разные сенсоры и разные предпочтения по обработке), (   Читать дальше...   )Формат: XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4CDF4EDBEC5F3E0FCCC74855F9C7E9C69D87ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775292   (71453) от 26.01.2025
+
+С.И. Новоселов | Специальный курс тригонометрии (1967) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга предназначается в качестве учебного пособия для физико-математических факультетов педагогических институтов по разделу «Тригонометрия» специального курса элементарной математики. ее следует рассматривать как продолжение книги «Специальный курс элементарной алгебры», поэтому вопросы (например, общие положения теории уравнений и неравенств), содержащиеся (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1236BDBF6A8B1E3417F2A9DE25D7F8AD3A0D3D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775335   (71452) от 26.01.2025
+
+Журнал | Российская Федерация сегодня №1 (январь 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71452.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Российская Федерация сегодня» — общественно-политический журнал Федерального Собрания Российской Федерации. Освещает деятельность как высших исполнительных и законодательных органов государственной власти, так и региональных, а также органов местного самоуправления.Жанр: общественно-политический журналИздательство: АНО "Парламентская газета"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18EBB55DD38B5A69BF3E4608B33650E910EF7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775331   (71451) от 26.01.2025
+
+VA - Musical kaleidoscope part 23 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Polkovnik - Мелодия Души
+02. Neuron - The Fall
+03. Сергей Грищук - Волшебство Мгновения
+04. Dj Polkovnik - Размышление(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA906D3B2C5ED822B369248A31106A17BA4E1FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775334   (71450) от 26.01.2025
+
+TuneIn Radio Pro v37.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71450.jpg" />
+</div>
+
+
+###  Подробнее
+
+TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении. Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на вас впечатление.Тип издания: Paid / Mod ExtraРелиз состоялся: 25.01.2025Разработчик: TuneIn IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E962EEBC563222A824523B1B47C8399077F04C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775346   (71449) от 26.01.2025
+
+VA - Compilation part 140 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delal Derin - Hard to Forget You
+02. Azimov - Autumn Fairy Tale
+03. Muvi - P a R I S
+04. Delal Derin - If Only(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4610490F2A5280E9325F284F6989210CFEC89F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775291   (71448) от 26.01.2025
+
+С.И. Новоселов | Специальный курс элементарной алгебры (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга предназначается в качестве учебника для физико-математических факультетов педагогических институтов по разделу «Алгебра» специального курса элементарной математики. Книга содержит весь учебный материал, предусмотренный программой указанного раздела.Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0838DF3C0F60EFB81D4D8493FCFD2B37964DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775380   (71447) от 26.01.2025
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Ванкувер Кэнакс (25.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68622.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28 марта 2025, пятница. 02:00 МСК. Стадион: Кибэнк-центр (Баффало, США), 16 418 зрителей (86% при вместимости 19 070)
-Главный судья: Джейк Бренк (Детройт Лейк, США); Главный судья: Стивен Хифф (Канада)Телекомпания: MSGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:49
+26 января 2025, воскресенье. 06:00 МСК. Стадион: Роджерс-Арена (Ванкувер, Канада), 18 876 зрителей (100% при вместимости 18 910)
+Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:35:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77BD99B57B9B6DD77423DF7032F954147CA23DD6
+magnet:?xt=urn:btih:F5E5A4A59983FBD16E4F9D9CDC5E3A06FB74B1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,26 +296,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788074   (68621) от 28.03.2025
+###  Публикация: 1775376   (71446) от 26.01.2025
 
-НХЛ 2024-2025. Вашингтон Кэпиталз - Миннесота Уайлд (27.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+НХЛ 2024-2025. Питтсбург Пингвинз - Сиэтл Кракен (25.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68621.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28 марта 2025, пятница. 02:30 МСК. Стадион: Эксел Энерджи-центр (Сент-Пол, США), 19 108 зрителей (93% при вместимости 20 554)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Джордан Самуэль-Томас (Вест Хартфорд, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:15
+26 января 2025, воскресенье. 00:00 МСК. Стадион: Клаймэт Пледж-Арена (Сиэтл, США), 17 151 зритель (100% при вместимости 17 151)
+Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8A0887F739D3602C733E043AD04CA15237D4DD8
+magnet:?xt=urn:btih:E5CD9F236762B33B30E273A6809642671A4C59F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +323,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788132   (68620) от 28.03.2025
+###  Публикация: 1775307   (71445) от 26.01.2025
 
-Judicator - Concord (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+VA - Dance Classics Gold 4 (1993) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68620.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Call Us Out of Slumber [00:06:37]
-02. Sawtooth [00:04:48]
-03. Johannah's Song [00:05:11]
-04. A Miracle of Life [00:05:17](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:53
+01. Donna Summer - Could It Be Magic
+02. Earth, Wind & Fire - September
+03. Anita Ward - Ring My Bell
+04. The Three Degrees - Dirty Ol'man(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:27:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B3D774C4E76FA7D15058763D326A3C9B42820B7
+magnet:?xt=urn:btih:0E8581698A71D8A2DAC8E01CA358E9F2871F3175
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +352,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787999   (68619) от 28.03.2025
+###  Публикация: 1775393   (71444) от 26.01.2025
 
-Solefald - Norron livskunst (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Post-Black Metal, Avant-garde>
+Чудо техники с Сергеем Малозёмовым (26.01.2025) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68619.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Song Til Stormen
-A2 - Hugferdi
-A3 - Tittentattenteksti
-B1 - Stridsljod / Blackabilly(   Читать дальше...   )Жанр: Post-Black Metal, Avant-gardeПродолжительность: 00:54:24
+Как стать кудрявым? Почему выпадают волосы у поклонниц американского кудрявого метода? И правда ли, что новая процедура в салонах — биозавивка — безопаснее старой жуткой химии?
+ Как устроены банкоматы, и можно ли обмануть сложную систему?
+ Способна ли ортопедическая подушка наладить сон?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DFBA7B32CA4FBFFD904673A99A77E8B834C8392
+magnet:?xt=urn:btih:8F4CCDB613C4713BD15CE6C90599FBA0252E0280
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,55 +380,334 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788105   (68618) от 28.03.2025
+###  Публикация: 1775434   (71443) от 26.01.2025
 
-Плохой Бак из Санта-Инеса / Bad Buck of Santa Ynez (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беглый преступник, печально известный в Санта-Инесе негодяй Бак, как оказалось, имеет в глубине своей темной души еще достаточно милосердия, чтобы рискнуть собой, ради спасения невинного ребенка. По завершении просмотра прослезился...
-Качество картинки далеко от идеала.Производство: США / Kay-Bee PicturesЖанр: короткометражный, вестерн, немое киноРежиссер: Уильям С. ХартАктеры: Уильям С. Харт, Фанни Миджли, Тельма Сэлтер, Боб КортманПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2889C920A2443A9A9CF247BC616E9C162BE71862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787974   (68617) от 28.03.2025
-
-VA - Ori Uplift - Uplifting Only Episode 633 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Joel Corry - Tomorrowland Friendship Mix (2025-01-23) [MP3|320 Kbps] <Tech House, Techno>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68617.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rowan Van Beckhoven - Conjunction (Intro Mix)
-
-Mhammed El Alami played:
-02. Maratone & Roxanne Emery - Learn To Fly (Mhammed El Alami Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:56
+01. Joel Corry - Tears On My Piano
+02. Joel Corry - Hey DJ
+03. Nathan Dawe & Joel Corry & Ella Henderson - 0800 HEAVEN (Joel Corry VIP Mix)
+04. Peggy Gou - (It Goes Like) Nanana (Maddix Remix)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:00:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30A9D5393D7DFEF3918C571415AE7787C9F84E43
+magnet:?xt=urn:btih:F1EF43EE225EE8FC90B30777B10E5F343DC55011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775355   (71442) от 26.01.2025
+
+Горячие головы (Hotheads) - 2 Albums (2003, 2005) Remastered, 2025, Creative Media [FLAC 24/48|Lossless|WEB-DL|tracks] <Russian pop, Euro House, Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вверх-вниз! (Remastered 2025) [00:03:32]
+02. Алла Пугачева (Remastered 2025) [00:03:46]
+03. Самая лучшая! (Remastered 2025) [00:03:46]
+04. Ням-ням-ням (Remastered 2025) [00:03:28](   Читать дальше...   )Жанр: Russian pop, Euro House, EuropopПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D5750D7AAA5F5118F9C1106C040A23EE268AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775251   (71441) от 26.01.2025
+
+Своя игра (25.01.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71441.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 января начался новый турнир "Своей игры" - Кубок "Контура", призовой фонд которого составит 5 миллионов рублей. Турнир будет состоять из 8 этапов по 10 игр в каждом.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B71461CEF2F9A9E7F96D0A011CA164AAA942B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775392   (71440) от 26.01.2025
+
+Первая передача на НТВ. Автомобильная передача (26.01.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европротокол разногласий: как страховая компания определяет виновника аварий и что важно указать в бланке извещения о ДТП.
+ Эмоциональный сосед обезобразил припаркованный у дома мотоцикл. Сумеет ли владелец получить возмещение?
+ Осторожно, мошенники в шиномонтажных мастерских! Как дурят автолюбителей и что непременно надо знать о колесных дисках.
+ «Ватрушки»: можно (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF2B369BF54DD1E3F4A1E71EE896D7840D5C4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775306   (71439) от 26.01.2025
+
+VA - Dance Classics Gold 4 (1993) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Could It Be Magic
+02. Earth, Wind & Fire - September
+03. Anita Ward - Ring My Bell
+04. The Three Degrees - Dirty Ol'man(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E849EFEA6976582A6BAD9A9D57B4864847F2D243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775368   (71438) от 26.01.2025
+
+Waldorf - Blofeld 1.1.0 VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генерация звука плагина Blofeld обеспечивает типичный насыщенный и богатый звуковой характер Waldorf, который так любят многие пользователи Waldorf по всему миру, когда они играют на своих Blofeld, Q, Q+, Microwave, Microwave II/XT или даже на флагмане Wave. Секрет его звука заключается в мощном движке волновой таблицы, который позволяет создавать эти интенсивные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6102C42A760733DB958116262C4EF614AB01581A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775284   (71437) от 26.01.2025
+
+Faith No More - Studio Albums (7 releases) (1985-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde/Alternative Rock/Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Faith No More — американская рок-группа из Сан-Франциско, Калифорния, образованная в 1979 году.1985 - We Care A Lot
+1987 - Introduce Yourself
+1989 - The Real Thing
+1992 - Angel Dust(   Читать дальше...   )Жанр: Avant-garde/Alternative Rock/MetalПродолжительность: 06:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68402504DA0E2A4CF3880C7D87C6A2254F97EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775297   (71436) от 26.01.2025
+
+Николай Пестов | Современная практика православного благочестия [2 тома] (2014) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данные книги являются итогом работы замечательного подвижника благочестия, глубокого религиозного мыслителя, ревностнейшего православного христианина Николая Евграфовича Пестова. Произведение цельное и, вместе с тем, всеохватное. Автор блестяще справился с, казалось бы, непосильной задачей: на основании церковного вероучения всесторонне, с наибольшей полнотой, описать (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF25ECA7BFD8BAFCC9B6AF922080B6EA867093C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775293   (71435) от 26.01.2025
+
+Тест-драйв JAC T9 2024 — Минтранс (25.01.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71435.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Замена прав. Нужно ли сообщать об этом в страховую компанию и вносить изменения в полис ОСАГО?
+🔸 Тест-драйв JAC T9 2024. Есть ли у «китайца» еще что-то, кроме размеров и привлекательного вида?
+🔸 Повреждение автомобиля на придомовой стоянке. Как возместить убытки?
+🔸 Все на выход! Что надо сделать перед тем, как покинуть салон автомобиля?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BECB283FFB0CA7F1887855464FF318C7A4360D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775308   (71434) от 26.01.2025
+
+VA - Dance Classics Gold 4 (1993) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Could It Be Magic
+02. Earth, Wind & Fire - September
+03. Anita Ward - Ring My Bell
+04. The Three Degrees - Dirty Ol'man(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BC2F7E94B336F898CB408BB71CCADF88F1B27D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775388   (71433) от 26.01.2025
+
+Смешанные единоборства. PFL 2025 - Road to Dubai Champions Series 1: Nurmagomedov vs. Hughes: Full Event (25.01.2025) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место проведения: Дубай, ОАЭ
+Дата проведения: 25 января 2025 годаТелекомпания: ОккоЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 05:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA420D609DF3F3EEC3C4372D087009F178327C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775443   (71432) от 26.01.2025
+
+Кара-Бугаз / Черная пасть (1935) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71432.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1920 году узников белогвардейской контрразведки высаживают на необитаемый остров в Каспийском море, где они должны погибнуть от голода и жажды. Четверым — большевикам Миллеру, Заноше, Нестеровой и ученому Шацкому удается спастись...
+В 30-х годах фильм "Кара-Бугаз" не был допущен в прокат.Производство: СССР / Ялтинская кинофабрикаЖанр: приключения, драмаРежиссер: Александр РазумныйАктеры: Заки Баязедский, Александр Чаусов, Александра Васильева, Николай Радищев, Виталий Пережогин, Дейтун, Хайри Эмир-заде, Ли. Герсу, Евгений Токмаков, А. ВасильеваСубтитры: отсутствуютПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65E5AF117DCF75E4F11F15DFD9ADBF88B2AB4B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1657509   (192757) от 03.09.2023
+
+Eve To Adam - Locked & Loaded (2013) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locked & Loaded
+02. Immortal
+03. Bender
+04. Straightjacket Supermodel(   Читать дальше...   )Жанр: Alt.Metal / Post-Grunge / Hard RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748D1BE0F3F1A4662D30992CAD4D9D058DE850AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657256   (192697) от 03.09.2023
+
+Various Artists - English Hard Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Darkness - Grief Hammer (Single Version) (3:12)
+02. C.C.S. - Whole Lotta Love (3:33)
+03. Cozy Powell - Na Na Na (3:27)
+04. Skin - Back Door Man (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1F7F71C4AB78EE1872272025D2B5265CE98675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587890   (192148) от 02.11.2022
+
+Biters - The Future Ain't What It Used To Be (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Roll
+02. Stone Cold Love
+03. Callin' You Home
+04. Don't Turn This Good Heart Bad(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663CB9B9CDDFB6C11DAF07592006DEC0F7AC4800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587844   (192081) от 02.11.2022
+
+amma'd'amma - rock stars obscured by... (2021) [FLAC|Lossless|tracks + .cue] <Mashup, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. rock stars obscured by pf clouds (26:28)
+02. hensley meets all (12:16)
+03. highwaystar-cut-mix (07:43)
+04. demons in paradise (heaven and hell uriah heep war suite) (18:06)Жанр: Mashup, Hard Rock, Classic RockПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CF58F4908F10A1E4C28EAE32DB68F3FFBE1504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198627   (191957) от 05.09.2023
+
+Suzi Quatro - 33 albums, 2 Box-set, 66 CD (1973-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Glam Rock, Classic Rock, Pop Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная бас-гитаристка нашей планеты – Сьюзи Кватро, участник и основатель одноименной рок-группы «Suzi Quatro», первая женщина-рокер, которая выбила дверь в мир рок-музыки для следующих поколений девушек. За короткое время Suzi Quatro стала популярной певицей с международным именем. Трудно сказать, какой считает себя блистательная Сьюзи: американской или британской. (   Читать дальше...   )--------------------------
+
+01. Shine A Light (3:24)
+02. Face To Face (3:38)(   Читать дальше...   )Жанр: Glam Rock, Classic Rock, Pop Rock |Продолжительность: 2d 12:41:21 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBA4B8F1620D478B77BADBDC300FFB3E75B23F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658103   (191951) от 06.09.2023
+
+Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:31]
+02. One In A Million [00:05:03]
+03. Rollin [00:04:09]
+04. Tutankhamun [00:05:41](   Читать дальше...   )Жанр: Hard Rock, Heavy, Thrash MetalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0260938A389AEC797B66C4D8782983564EB2B23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657793   (191832) от 06.09.2023
 
 Sabotage - See the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -570,180 +744,6 @@ Super Vintage - Guardians Of Tradition (2022) [FLAC|Lossless|image + .cue] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18EC0210F0012F991F0709874E2406240B75B2F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589957   (189465) от 12.11.2022
-
-Crime - Master Of Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Of Illusion
-02. Tears Are Falling Down
-03. From My Mind
-04. Shoot Shoot(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7632114228FB734EE52C1E5ACF925CD2B4ECD628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589951   (189437) от 12.11.2022
-
-Enuff Z'Nuff - Finer Than Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Check
-02. Catastrophe
-03. Steal The Light
-04. Lost And Out Of Control(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99374B90EFF962E80D7B4853EF40D8A28F412E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590237   (189193) от 13.11.2022
-
-Merryweather Stark Wackerman - Cosmic Affect (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinderman [00:06:43]
-02. Baby Put the Gun Down [00:05:19]
-03. Live Your Life [00:03:56]
-04. Gimme Good Lovin' [00:04:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233F322159390BF41B25C88F60BA8076E899F1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590226   (189165) от 13.11.2022
-
-Two Of A Kind - Two Of A Kind (2007) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light In The Dark
-02. The Longest Night
-03. Little By Little
-04. Give Me A Reason(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDD21ED5EB97F69715D06A27BD1FB451D3A25AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590375   (189162) от 13.11.2022
-
-Oslo - Don't Turn Your Back (1991) Remaster, 2022, Metallic Blue Records [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Turn Your Back (03:54)
-02. Stranger's Eyes (04:28)
-03. Every Time She Cries (04:46)
-04. Crossfire (03:53)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D91012CB93CB18B5B4E11C7C99B0FF59161EC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590372   (189159) от 13.11.2022
-
-Munroe's Thunder - The Black Watch (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Cry
-02. The Black Watch
-03. Awaken The Fire
-04. Gray Hall(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4A3171499991C4E8036C7CFC06EACB64A7D2F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

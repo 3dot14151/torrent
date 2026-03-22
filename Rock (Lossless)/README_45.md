@@ -1,3 +1,148 @@
+###  Публикация: 1275877   (789392) от 13.01.2019
+
+Toto - Old Is New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треки - 02, 03, 05, 06, 07, 08 и 10 ранее не издавались.01. Alone
+02. Devil's Tower (new song)
+03. Fearful Heart
+04. Spanish Sea(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4644ACD6F1A184A4A784ED7056B5010F1E6BE517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203036   (788670) от 01.02.2018
+
+Booth And The Bad Angel - Booth And The Bad Angel (1996) [FLAC|Lossless|tracks] <Alternative Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe (02:57)
+02. Dance Of The Bad Angels (04:34)
+03. Hit Parade (03:17
+04. Fall In Love With Me (04:19)(   Читать дальше...   )Жанр: Alternative Rock, Soft RockПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8DEE62511C44EB0F347B32EE6563CA0B4F7638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203141   (788635) от 01.02.2018
+
+The Cardigans - First Band On The Moon (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Your New Cuckoo (3:55)
+02 - Been It (4:05)
+03 - Heartbreaker (3:42)
+04 - Happy Meal II (2:36)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DC048F2258B1C2DBBFDE11A8F6A2D47E0927AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276381   (788585) от 15.01.2019
+
+Blackmore's Night - Secret Voyage (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Save the Keg (3:40)
+ 02. Locked Within the Crystal Ball (8:04)
+ 03. Gilded Cage (3:43)
+ 04. Toast to Tomorrow (3:50)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46C3154DE422B03CF894BFE1F5CCB2857C0CBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511759   (788414) от 22.11.2021
+
+Елена Войнаровская - Паломники (2021) [FLAC|Lossless|tracks + .cue] <Rock, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [01:01]
+02. Песня паломников [05:48]
+03. Танго-карантин [04:18]
+04. Вавилонская башня [05:29](   Читать дальше...   )Жанр: Rock, Dream PopПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5A30CB2A3EA8B9241FB88112D3E4EEF3F115AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203425   (788177) от 02.02.2018
 
 New Candys - Bleeding Magenta (2017) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
@@ -602,151 +747,6 @@ CD3 - Stack-O-Vocals(   Читать дальше...   )Жанр: Rock, Pop, Sur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B9C77A70FAF4198170BB37C088CB90E26266024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123498   (786322) от 08.04.2017
-
-Brian May & Kerry Ellis - Golden Days (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love In A Rainbow (4:30)
-02. Roll With You (3:55)
-03. Golden Days (4:22)
-04. It's Gonna Be All Right (The Panic Attack Song) (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989B87A8478F59C49E3847C55A439D3DE4CD6D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123860   (786114) от 09.04.2017
-
-Mike + The Mechanics - Let Me Fly (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из основателей Genesis бас-гитарист Майк Резерфорд и его группа MIKE + THE MECHANICS записали новый альбом, после семилетнего перерыва)))01. Let Me Fly (4:42)
-02. Are You Ready? (4:28)
-03. Wonder (4:37)
-04. The Best Is Yet To Come (4:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316FE088BFE7FE033E7931EDFEDB0F01DDCAC9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123858   (786100) от 09.04.2017
-
-Pentatonix - PTX, Vol. IV: Classics (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acapella, Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bohemian Rhapsody (5:56)
-02. Imagine (4:20)
-03. Boogie Woogie Bugle Boy (2:19)
-04. Over The Rainbow (3:54)(   Читать дальше...   )Жанр: Acapella, Rock, PopПродолжительность: 25:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F0071DA6FAEE4241ADC5D3461B589DEEC1264F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123970   (785951) от 10.04.2017
-
-Brian Setzer - Rockabilly Riot! All Original (2014) [FLAC|Lossless|image + .cue] <Rockabilly, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Shake  (03:29) 
-02. Rockabilly Blues  (03:43) 
-03. Vinyl Records  (03:22) 
-04. Lemme Slide  (02:04) (   Читать дальше...   )Жанр: Rockabilly, Rock & RollПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD1D91810C67F0B7212987030A079A8010725ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123987   (785929) от 10.04.2017
-
-Middle Of The Road - The Collection (1998) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soley Soley 3:05
-02. Queen Bee 2:57
-03. Sacramento (A Wonderful Town) 2:48
-04. Yellow River 2:52(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56204A5E2AAEDEFEF916F61F899C27690B9D9291
 ```
 
 https://mybot314.ru/tekegram_catalog/

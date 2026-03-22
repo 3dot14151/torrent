@@ -1,3 +1,148 @@
+###  Публикация: 1618727   (249908) от 12.03.2023
+
+Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop the Clock (3:10)
+02. Norfolk Blues (3:34)
+03. Wasted Youth (3:23)
+04. Above My Head (4:42)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760BCC75D56CDDABB4974C7AD8B5440E53100CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618620   (249642) от 16.03.2023
+
+VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregorian - Whatcha Gonna Do
+02. Oliver Shanti & Friends - Sangha's Love for Amitabha
+03. Osamu Kitajima - Blue Fire
+04. Ghostland - Guide me God(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F241346423613248E9BC1F9E896486735B30F27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619496   (249639) от 16.03.2023
+
+Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Back To You (feat. Mimi Page)
+02. Rain
+03. Coast To Coast (feat. Phildel)
+04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A3E8C4F8539D801564776801DF27867E8DD832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619138   (249519) от 18.03.2023
+
+VA - Enigma-Forest-Transit 12 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. eRa - Wind Love
+02. D-Emotion Project - Protourize Planinata
+03. Shiva feat. Magdalena - We'll be with the Stars Tonight
+04. Muse - Innocent Voices(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D007B7BA6DC55762F7EB72A90CC171888ED6E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834387   (249481) от 03.11.2025
+
+Fausto Papetti - Somethin' Saxy (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So In Love
+02. Sleepy Lagoon
+03. Le Grisbi
+04. Cape Town(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AD2B922D5C734D121982DF8ECC892047BA5B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834391   (249476) от 03.11.2025
 
 Fausto Papetti - I Remember (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
@@ -635,151 +780,6 @@ Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDB4666B1A660480C134C899FB351B0A0914EA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362592   (242458) от 24.02.2020
-
-Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242458.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:07| 01. Bad News
-|02:02| 02. Revelation
-|01:03| 03. SOS
-|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C375E76EEEA42984F6E8FA890591070FA2B07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624083   (242316) от 05.04.2023
-
-Country Western Band - Best Acoustic Country Music (2018) [MP3|320 Kbps] <Country, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acoustic Country Music [03:07]
-02. Country Chillout [04:33]
-03. Mellow Country [03:59]
-04. Heart of Country [03:54](   Читать дальше...   )Жанр: Country, InstrumentalПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A755E11C4DE7D56C531FB1EC0B20E4F7D2A574D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624346   (242233) от 05.04.2023
-
-Инна Желанная (Inna Zhelannaya, Альянс, Farlanders, Сергей Старостин, Mari Boine, Сергей Калачев, Malerия, Вилы) - 17 Альбомов (1991-2022) 19CD [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рябина ( свадебный обряд, Белгородская область )
-02. Недоля ( свадебный обряд, Псковская область )
-03. Свет моя улица ( хороводная, Смоленская область )
-04. Лужок ( хороводная, Пермская область )(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB15E28C07E3147104C2683DD1BDFC7F670E4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457767   (242214) от 28.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242214.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:52] 01. Themyscira
-[05:18] 02. Games
-[07:05] 03. 1984
-[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABA5CAC3F9E4E1627223D4756A759C4CCF8745B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457768   (242186) от 28.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242186.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:52] 01. Themyscira
-[05:18] 02. Games
-[07:05] 03. 1984
-[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D641B65ED503D43F073D2773567ED30E66B54FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

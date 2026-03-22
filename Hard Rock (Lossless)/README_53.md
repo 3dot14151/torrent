@@ -1,3 +1,177 @@
+###  Публикация: 1415810   (374311) от 13.10.2020
+
+Boy Hits Car - Worldwide Alive! (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Nu Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rebirth Of Consciousness (5:33)
+02. Move With Me (4:39)
+03. As I Watch The Sun Fuck The Ocean (4:32)
+04. Erifsievol (5:04)(   Читать дальше...   )Жанр: Hard Rock, Nu Metal, Alternative RockПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98DDBA5EBFCFF2C8064A6631BD25B5962643347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415502   (374297) от 13.10.2020
+
+Brother Firetribe - Feel The Burn (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Salute You (4:49)
+02. Arianne (3:58)
+03. Night Drive (4:01)
+04. Chariot of Fire (4:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E799C6AE10D277506B403B2C03C8ADF63E9EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415686   (373902) от 13.10.2020
+
+Slade - Cum On Feel The Hitz - The Best Of Slade (2020) 2xCD [FLAC|Lossless|image + .cue] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373902.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Cum On Feel The Noize (4:23)
+02. Skweeze Me, Pleeze Me (4:28)
+03. Mama Weer All Crazee Now (3:43)(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 02:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66472696FB185841C56DFB1D2FDBB891A552C550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253914   (373783) от 13.10.2020
+
+Mad Max - 13 Albums, 14CD (1982-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Melodic Rock, AOR, Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mad Max («Безумный Макс») — немецкая рок-группа, играющая в стиле от хэви-метал до мелодик-рок, АОР. Названа в честь полицейского Макса Рокатански, более известного как Безумный Макс, история которого легла в основу 4 культовых фильмов в жанре антиутопия. Группа существует с 1981 года, всего группой было выпущено 12 студийных альбомов и 1 сингл. Культовая группа (   Читать дальше...   )--------------------------
+
+01. Hurricaned (3:30)
+02. Talk To The Moon (4:13)(   Читать дальше...   )Жанр: Melodic Rock, AOR, Hard 'n' Heavy |Продолжительность: 10:24:00 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407608DCAD95FD0D9D113CABEE418005362F268C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575818   (373365) от 11.09.2022
+
+Crosson - 5 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United [00:04:14]
+02. Stop Pretending That You Love Me [00:03:53]
+03. Fallen From Grace [00:04:05]
+04. One Way Love Affair [00:04:14](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 5 CD, 03:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C97C69AC48671056EDD2C3557E500146DC5FAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575856   (373258) от 11.09.2022
+
+SirGibson - Elder Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illusions
+02. String Break
+03. Claire
+04. All I Wanna Do(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D8EDE2E16E0ADD2303466F635BC8BB5FB3EEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949577   (372876) от 25.10.2015
 
 Clutch - Psychic Warfare (2015) [FLAC|tracks+.cue]<Southern Rock /Hard Rock /Stoner>
@@ -577,180 +751,6 @@ Rocky MTN Roller - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Psyc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6BEAEFF9B0FB63B81F34054059C4C91FB2FB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708744   (364037) от 08.11.2016
-
-Black Sabbath - Best Ballads (1996) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364037.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Won't Cry For You
-2. Solitude
-3. Children Of The Sea
-4. Born Again(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A2D2D12BD1888DB5D2BC4249ACCB01A4DF2765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951574   (363069) от 29.10.2015
-
-Def Leppard - Def Leppard (2015) [FLAC|tracks|WEB-DL]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Go
-02. Dangerous
-03. Man Enough
-04. We Belong(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14B0009A9CF6783736811E248FFDEA97737C6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417010   (363010) от 18.10.2020
-
-Gary Barden - 9 albums, 10CD (1986-2014) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gary John Barden - английский певец и автор песен, ветеран хард-рока, наиболее известный по своей работе с Michael Schenker Group. Так же Barden работал с Гэри Муром, группой Statetrooper с братьями Steve and Paul Johnson, группой Praying Mantis, проектом S.i.l.v.e.r, и еще успевал выпускать сольные альбомы. Настоящий брутальный британский рок–вокалист не без харизматичности, (   Читать дальше...   )--------------------------
-
-01. Shape Of Things To Come (4:15)
-02. Set Fire To The Night (3:31)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Melodic Rock |Продолжительность: 08:28:15 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4A7FC1ED1DB066208268A3D9FF649A30DF9DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070908   (361951) от 09.11.2016
-
-Bulletrain - What You Fear The Most (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory Lane
-02. Love Lies
-03. Can't Get Away
-04. Fight With Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1F41FBDB427EFBC35CF2EF01E4612C9B742B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071284   (361879) от 09.11.2016
-
-Overland - Contagious (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor My Heart 05:12
-02. Easy On Me 04:20
-03. Edge of the Universe 04:36
-04. Every Lonely Night 04:08(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7AF6C8AB4CAA58FDCE6C10E854C4ACA0602FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255877   (361640) от 19.10.2018
-
-Stage Dolls - Stage Dolls (1988) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still In Love (4:17)
- 02. Wings Of Steel (3:34)
- 03. Lorraine (3:20)
- 04. Waitin' For You (3:51)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCB2A6007F122A38D232D4C899F1E53823A15E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

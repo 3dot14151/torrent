@@ -1,3 +1,119 @@
+###  Публикация: 1611060   (236164) от 11.02.2023
+
+Veilcaste - Precipice (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asunder Skies
+02. Dust & Bone
+03. Drag Me Down
+04. For Us(   Читать дальше...   )Жанр: Doom, Sludge MetalПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B9830E6B0F9A0552E3E363370DD08B442100AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611329   (236156) от 11.02.2023
+
+Pe Roto - 2 Albums (2016-2023) [MP3|320 Kbps] <Sludge, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mordaça [00:05:23]
+02. A Besta [00:06:57]
+03. Sangue [00:08:10]
+04. Máquina de Morte [00:01:50](   Читать дальше...   )Жанр: Sludge, Stoner, DoomПродолжительность: 2 CD, 01:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43391F0407A5506CA16954AA40FFBF286F0E227B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640817   (236052) от 19.06.2023
+
+Fifth Angel - When Angels Kill (2023) [MP3|320 Kbps] <Heavy, Power Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Descent into Darkness (00:59)
+02. When Angels Kill (04:00)
+03. Resist the Tyrant (04:48)
+04. On Wings of Steel (04:42)(   Читать дальше...   )Жанр: Heavy, Power Metal, Hard RockПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FA87DA9B92218B49D09D9BAE6A54AF271CF22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615300   (235827) от 25.02.2023
+
+Otu - Moonic Of A Down (2022) [MP3|320 kbps] <Sludge, Drone, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toxic [00:02:22]
+02. My Little Pony [00:02:04]
+03. Scatman [00:02:34]
+04. Aserejé [00:03:14](   Читать дальше...   )Жанр: Sludge, Drone, Doom MetalПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31593DFAADE308D9124623DDB3C366B6BDD75C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457965   (235796) от 28.03.2021
 
 Sunborn - Imperishable (2021) [MP3|320 Kbps] <Melodic Death, Groove Metal>
@@ -628,122 +744,6 @@ Crypta - Echoes of the Soul (2021) [MP3|320 Kbps] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B711CE4FE94DF2BB2DCA3FE07AE67359D1723A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643730   (234227) от 04.07.2023
-
-Iratus Vir - Under a Midnight Sun (2023) [MP3|320 Kbps] <Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thy Strength Applied
-02. Adam's Penitence
-03. Treacherous Eve
-04. Under A Midnight Sun(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DA622F76634214E108D5B2FFC95C19E306B218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643794   (234209) от 04.07.2023
-
-Jag Panzer - The Hallowed (2023) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bound As One (03:44)
-02. Prey! (03:27)
-03. Ties That Bind (04:10)
-04. Stronger Than You Know (05:05)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA28DDB3CA10DB8CA058C4A9690D2D6471626865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644082   (234202) от 04.07.2023
-
-Levith - Around the Impulse (2023) [MP3|320 Kbps] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Me(n)tal Trap
-02 - Uncycled
-03 - New Skin
-04 - Hypnotics(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1ACE94F5D874D73CA639CF57AA4D47159528EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643402   (234182) от 04.07.2023
-
-Dead Shape Figure - The Sworn Book (2023) [MP3|320 Kbps] <Melodic Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dark Encounter
-02 - A Labyrinth Chain
-03 - Antigone
-04 - Honour's Godlike Zest(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B996588E8CF6C57A12C31428AF4A5980E91F91D
 ```
 
 https://mybot314.ru/tekegram_catalog/

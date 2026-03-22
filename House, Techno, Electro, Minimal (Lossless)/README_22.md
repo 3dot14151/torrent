@@ -1,3 +1,61 @@
+###  Публикация: 1205242   (783787) от 09.02.2018
+
+VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax – Landside (Original Mix) (6:07)
+02. Arty – Twilight Tonight (Steve Brian Remix) (2:57)
+03. Johan Vilborg – Bside Me (Original Mix) (3:21)
+04. Clameres – Mocsa (Original Mix) (3:38)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE641DDDAD3F0EE9776F968EFB9D60ACD0A60085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204921   (783781) от 09.02.2018
+
+VA - Defected Presents Classics In The House (2009) [FLAC|Lossless|tracks] <House, Disco, Hip-House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blaze; Ultra Nate  - Free (Mood II Swing Extended Vocal Mix) (4:43)
+02.Barbara Tucker - Most Precious Love (DF Future 3000 Mix) (5:50)
+03.Palmer Brown; Patrice Rushen - Haven't You Heard (4:04)
+04.Jon Cutler - It's Yours (Original Distant Music Mix) (3:25)(   Читать дальше...   )Жанр: House, Disco, Hip-HouseПродолжительность: 03:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1167E73609D457E9F5AF14DD965484636050A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390012   (783649) от 13.06.2020
 
 Boris Brejcha - Chameleon (Live Stream Part 1) (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
@@ -684,64 +742,6 @@ John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208186   (780119) от 21.02.2018
-
-The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope (11:02)
- 02. Disfigured Phantasy (05:53)
- 03. Levitation (08:16)
- 04. Psycho Kinesis (05:23)(   Читать дальше...   )Жанр: Techno, Ambient, IDMПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F75A81FC8F8707077B79FFFDA466F31B8822E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208301   (780116) от 21.02.2018
-
-VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blake Baxter - Where Is The Love (05:42)
- 02. Santonio Echols - Sources (05:01)
- 03. Eddie 'Flashin' Fowlkes - T.M.F.61 (05:59)
- 04. Thomas Barnett - Operation-10 (05:05)(   Читать дальше...   )Тип издания: CD •Жанр: Techno, Detroit Techno •Продолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12557AE82B0B714A70BCA091AA511E8114685B11
 ```
 
 https://mybot314.ru/tekegram_catalog/

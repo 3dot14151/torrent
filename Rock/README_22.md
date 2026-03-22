@@ -491,6 +491,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123968   (786178) от 09.04.2017
+
+The J. Geils Band - "Live" Full House (1972) Reissue, Atlantic, Rhino Records[MP3|320 Kbps] <Blues Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_786178.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. First I Look At The Purse
+2. Homework
+3. Pack Fair And Square
+4. Whammer Jammer(   Читать дальше...   )Жанр: Blues Rock, Rock'n'RollПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F9CE5F66E3E24FCC71319B48C8F53AFC045D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124346   (785961) от 10.04.2017
 
 Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
@@ -716,35 +745,6 @@ Think Floyd - 2 альбома (1997-2013) [MP3|320 Kbps] <Progressive rock, Art
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0144440A12825379A9D4B3201B2F8E550239FFE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389170   (784492) от 10.06.2020
-
-Mary Magdelena and the Crimes of Passion - Set the Controls - A Unique Tribute to Pink Floyd (2014) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak To Me / Breathe
-02. On the Run
-03. Time
-04. The Great Gig In the Sky(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD5D4CEFC1FEC49252EE9AFEA7FF5410C38156D
 ```
 
 https://mybot314.ru/tekegram_catalog/

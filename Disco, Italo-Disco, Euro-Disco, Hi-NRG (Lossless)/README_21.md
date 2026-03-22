@@ -1,3 +1,32 @@
+###  Публикация: 1425306   (222475) от 20.11.2020
+
+Savage - Love And Rain (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Second Of My Life (Ouverture) (0:41)
+ 02. Don't Say You Leave Me (3:02)
+ 03. I Love You (3:17)
+ 04. Italodisco (3:07)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2678FC0BAB4135F7E2AEB4D3CC0FB2C02F47C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425183   (222186) от 20.11.2020
 
 Savage - Love And Rain (Remixes) (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
@@ -710,35 +739,6 @@ Linda Jo Rizzo - Passion (The Original Maxi-Singles Collection) (2023) Compilati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A91580579590AD87DA61198E2B54C1029363DC2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591588   (187116) от 18.11.2022
-
-D.White & DimaD. - The Butterfly Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Have Fun Tonight (Album Version)
-02. 600 Km (Album Version)
-03. Verone (Album Version)
-04. You Are My Love(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E71520147202A36FA249EB66F9E4EF97D5D965
 ```
 
 https://mybot314.ru/tekegram_catalog/

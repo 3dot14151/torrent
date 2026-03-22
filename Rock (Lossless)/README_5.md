@@ -1,3 +1,119 @@
+###  Публикация: 1615514   (1037592) от 26.02.2023
+
+Richard Stepp - Richard Stepp (1981) Japanese Edition, Reissue, 2015, Creole Stream Music [FLAC|Lossless|image + .cue] <AOR, Westcoast>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037592.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Summer Love (3:56)
+2. Imagination (3:33)
+3. Beautiful Melody (3:16)
+4. Sooner Or Later (3:19)(   Читать дальше...   )Жанр: AOR, WestcoastПродолжительность: 00:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4816427F159D66DBE97FDCE649858801FADAAD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615496   (1037587) от 26.02.2023
+
+Arc Of Life - Don't Look Down (2022) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Real Time World (9:05)
+2. Don't Look Down (6:21)
+3. All Things Considered (5:16)
+4. Colors Come Alive (7:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4089493AFD46A367461A9A8FADAF7CD933FAE5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615500   (1037582) от 26.02.2023
+
+Nevena - Nevena (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bulletproof (3:01)
+02. Bad Sun Rising (3:55)
+03. Straight Into Madness (3:49)
+04. Too Late (3:52)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C826590A65802BA1858E1CC269D45394A9864DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615582   (1037541) от 26.02.2023
+
+Sound Of Smoke - Phases (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner Rock, Blues Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows [00:05:12]
+02. Ocean Drive [00:04:15]
+03. Phases [00:05:18]
+04. Chasing The light [00:04:19](   Читать дальше...   )Жанр: Psychedelic Stoner Rock, Blues Rock, Female VocalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D5BABFCDD4C986177548C10C70EFA74816EBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615455   (1037537) от 26.02.2023
 
 Harlem Lake - Volition Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern-Rock, Blues, Psychedelic>
@@ -629,122 +745,6 @@ Stoned Jesus - Father Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBE13C1FC41B0CE3B5F70C671254988EA89E1786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617130   (1035552) от 05.03.2023
-
-The J.Geils Band - Hotline  (1975) [FLAC|Lossless|tracks + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035552.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love-Itis 4:37
-2. Easy Way Out 4:04
-3. Think It Over 4:40
-4. Be Careful ( What You Do ) 4:04(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5581B3CEF3E79B61CD4457B9A51B2723BE90DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617026   (1035549) от 05.03.2023
-
-Astral Magic - The Last Survivors on Planet Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Survivors on Planet Earth [00:06:50]
-02. Monsters from the Id [00:05:20]
-03. Dawn of a New Age [00:06:40]
-04. Message from Within [00:05:24](   Читать дальше...   )Жанр: Psychedelic, Space Rock, Prog RockПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2342DDC08CAD295A61684DDF8F4728A822FD38E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617405   (1035369) от 06.03.2023
-
-Dave Kerzner - 2 Studio Albums (2021) (2xCD) [WavPack|Lossless|image + .cue] <Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035369.jpg" />
-</div>
-
-
-###  Подробнее
-
-All Worlds Live at Rosfest (2019):
-01. Stranded
-02. The Lie
-03. Secret(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 02:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A3706E9FD594F544FEA21749B504FF3E5E99C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443752   (1035217) от 30.01.2021
-
-The Romantics - Strictly Personal (1981) [WavPack|Lossless|image + .cue] <Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Nighttime
-02. Look At Her
-03. No One Like You
-04. Bop(   Читать дальше...   )Жанр: Power PopПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6A27CBAA1FCE3AD6D2F8ABF482BD0F45207B36
 ```
 
 https://mybot314.ru/tekegram_catalog/

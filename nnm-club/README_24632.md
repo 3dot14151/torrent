@@ -1,51 +1,24 @@
-###  Публикация: 1795599   (67053) от 05.05.2025
+###  Публикация: 1783062   (69867) от 03.03.2025
 
-VA - Музыка Семейства Штраусов. На Прекрасном Голубом Дунае (2008) [FLAC|Lossless|tracks + .cue] <Classical, Romantic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Марш Радецкого, Соч. 228 [03:16]
-02. «На Прекрасном Голубом Дунае», Вальс, Соч. 314 [09:02]
-03. «Жизнь Артиста», Вальс, Соч. 316 [09:19]
-04. «В Крапфенвальдле», Французская Полька, Соч. 336 [04:04](   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A07F9EA7B50956C24346416835E58FA5881A164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795563   (67052) от 05.05.2025
-
-Фёдор Достоевский | Идиот (2024) [MP3, Сергей Горбунов]
+Александр Пушкин | Капитанская дочка (Радиосериал) (2012) [MP3, Иван Краско, Борис Соколов и др.]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67052.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Князь Мышкин, главный герой знаменитого романа Фёдора Михайловича Достоевского «Идиот», несет людям проповедь сострадания, прощения, милосердия и братства. Однако надежды его рушатся: становится убийцей «крестный брат» Рогожин, гибнет «красота» Настасья Филипповна… И все-таки без таких людей, как князь, мир не существует. «Он только прикоснулся к их жизни, – пишет (   Читать дальше...   )Жанр: Русская классика, романИздательство: МедиаКнигаПродолжительность: 30:38:13
+Серия/Цикл: Радиосериал.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+«Капитанская дочка» – историческая повесть Александра Пушкина, действие которого происходит во время восстания Емельяна Пугачёва. Впервые был опубликован в 1836 году (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 05:07:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF393207BFAE35784B2AE5AD2036A8C200E453B5
+magnet:?xt=urn:btih:8C072CD793AAFD97BB838C59D9691EB5EBE3BD69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794598   (67051) от 05.05.2025
+###  Публикация: 1782975   (69866) от 03.03.2025
 
-iSenin - Москва кабацкая (2025) [MP3|320 Kbps] <Chanson>
+John Haydock - Heard It on the Radio (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67051.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Всё живое особой метой [00:02:51]
-02 - Заметался пожар голубой [00:02:39]
-03 - Мир таинственный [00:03:31]
-04 - Мне осталась одна забава [00:03:22](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:24:55
+01.  Darkness on the Water (3:46)
+02.  Runaround (4:18)
+03.  You Got the Fire (4:03)
+04.  21 Reasons (5:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:681522F59C055D6FA90ADB235E4C418E99A11844
+magnet:?xt=urn:btih:CDC5A493F90AD3DCC8F78F1D9C1B9C157D3ACF31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +55,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795567   (67050) от 05.05.2025
+###  Публикация: 1783007   (69865) от 03.03.2025
 
-His Kingdom Suffers - Lord Have Mercy (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal, Deathcore>
+Шрифты - Creative Market - Raking - Bold Display Font - 290877712 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Raking Font — это смелый и элегантный дисплейный шрифт, оснащенный альтернативой и лигатурой, который подходит для брендинга, плакатов, логотипов и рекламы. Этот шрифт гарантирует, что сообщение, переданное через текст, останется легко читаемым и понятным.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503B305960AA53B633DB6412683C3488939333CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782955   (69864) от 03.03.2025
+
+Downhome Kin - Gravel & Grit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hushed Horizons (2:30)
+02.  Obsidian Grace (3:40)
+03.  Iridescent Steps (2:04)
+04.  Midnight Blues (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E419CB7D9947D6B6F4640571BDD223C4A450246C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782991   (69863) от 03.03.2025
+
+Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67050.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. To The Lord Above All I Praise Your Holy Name and Please Give Me Strength
-02. Lord Open My Eyes
-03. Carry Your Cross
-04. Psalms 144(   Читать дальше...   )Жанр: Progressive Death Metal, DeathcoreПродолжительность: 00:22:59
+01.  Run Brother Run (4:11)
+02.  Wow! Signal (3:31)
+03.  Labareda (participação de Oswaldo Montenegro) (3:33)
+04.  Cloudy Winter Dome (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A49D2DE766C7758F2D1FF2503F2F311F5F21A2C
+magnet:?xt=urn:btih:949009432D8ABC61FD23ABB69BCCA66F434FCC90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +141,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795573   (67049) от 05.05.2025
+###  Публикация: 1782895   (69862) от 03.03.2025
 
-Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
+Шрифты - Creative Market - Winter Veil - Festive Typeface - 290879936 [OTF, TTF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67049.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Illusive Golden Age (05:50)
-A2. The Living Vault (06:10)
-B1. Carrion Tide (05:04)
-B2. Mater dolorosa (06:54)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:44:38
+Окутайте свои проекты теплом и очарованием сезона с Winter Veil, праздничным рождественским шрифтом с аутентичным рисованным видом. Этот шрифт с грубыми краями и естественной, рукописной эстетикой передает уютный дух праздников, что делает его идеальным выбором для распространения веселья и радости.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D630BFAD5104F13A26E08EC4358F0DCEB58F6AD5
+magnet:?xt=urn:btih:38D659A5267AAAC8AE23F17C6D46B1E5374E1938
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +169,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795552   (67048) от 05.05.2025
+###  Публикация: 1782950   (69861) от 03.03.2025
 
-Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
+Журнал | Главбух №5 (март 2025) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67048.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Beatus (04:05)
-A2. ...Ever Know Peace Again (03:35)
-A3. Cosmic Migration (05:56)
-A4. Nocebo (05:22)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:47:30
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E19E8C4B783D9087F942D866A93BBF0DF7C8B740
+magnet:?xt=urn:btih:53F483B704A7EF3B9A9C35A0D25343E870146089
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795564   (67047) от 05.05.2025
+###  Публикация: 1782949   (69860) от 03.03.2025
 
-Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
+Журнал | Небосвод №4 (апрель 2025) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67047.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maniac Attack
-02. Eye of the Night
-03. Call of the Void
-04. KIA(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:10
+Журнал "Небосвод" расскажет вам новости из мира астрономии. В журнале вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будете в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: НебосводФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85DD6E5798F85BE300894AAE3D8B2C80FAEA86F2
+magnet:?xt=urn:btih:6A67AD8A3F0C37AB5795CBF996F795AE98715D5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +221,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795545   (67046) от 05.05.2025
+###  Публикация: 1783020   (69859) от 03.03.2025
 
-Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
+НХЛ 2024-2025. Торонто Мэйпл Ливс - Питтсбург Пингвинз (02.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67046.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Foeman's Flesh
-02. Desolation Hexx
-03. Total Bicep
-04. Violence Dimension(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:47:20
+2 марта 2025, воскресенье. 21:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 284 зрителя (87% при вместимости 18 673)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Джон Макисаак (Труро, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада); Линейный: Брэд Ковачик (Вудсток, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A7C4228EA9B4CD94DD239516240266F91EAAD07
+magnet:?xt=urn:btih:DD76F62E84CD45764BEFFFECE3EDF034EA61D161
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,115 +248,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795473   (67045) от 05.05.2025
+###  Публикация: 1782962   (69858) от 03.03.2025
 
-Hate - Bellum Regiis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Bellum Regiis
-02 – Iphigenia
-03 – The Vanguard
-04 – A Ghost of Lost Delight(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8F8276417FF172B6EDEC3E9B553828F3FA60D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795487   (67044) от 05.05.2025
-
-Froglord - Metamorphosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, doom-metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Collision
-02 – Follow The Star
-03 – Herman
-04 – The Swamp(   Читать дальше...   )Жанр: Sludge, doom-metalПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191D32CE610942238ED8A9E98AE6049BEE1F25DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795616   (67043) от 05.05.2025
-
-Chontaraz - Phantom Of Reality (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Istanbul (03:42)
- 02 - Prayer To The Masses (04:00)
- 03 - You're The One To Blame (02:58)
- 04 - Phantom Of Reality (03:47)(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD26EED285736989E585A174AD676DEE4FD78B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795580   (67042) от 05.05.2025
-
-Sarah Jane Cion - Moon Song (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67042.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Pond Beneath the Moon [7:17]
-02. Last Cha-Cha in Longbeach [4:56]
-03. Moon Song [7:20]
-04. Samba Picara [4:36](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:21
+01. Introduction - Joey [0:45]
+02. Cherokee [9:17]
+03. Ceora [13:51]
+04. I'm in the Mood for Love [6:36](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:04:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC0BC1BDE091D5BEA77BC85FFC9D5C70B3A12302
+magnet:?xt=urn:btih:03E53170D50F806E70F34D1F02431AB4943F9A98
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,86 +277,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795480   (67041) от 05.05.2025
+###  Публикация: 1782902   (69857) от 03.03.2025
 
-Paradise Slaves - With Hell In His Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – For Those Who Watch The Sea
-02 – Aesthetic Of Serpents
-03 – A Fever To Defeat
-04 – Dreamers(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9952880175B88D0ABF1D4B5304F44E56D7747E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795562   (67040) от 05.05.2025
-
-The Night Eternal - Fatale (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67040.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Tartarus
-2. Prince Of Darkness
-3. We Praise Death
-4. Ionean Sea(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7DCA5C748099D845F46572D0E76F3A897B54CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795500   (67039) от 05.05.2025
-
-Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67039.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Behind Closed Doors
-A2 If You Wouldn't Be My Lady
-A3 You Never Really Wanted Me
-A4 A Sunday Kind Of Woman(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:49
+Thrashfire - турецкая метал-группа, основанная в январе 2006 года2011 - Thrash Burned The Hell
+2015 - Vengeance of Fire (EP)
+2019 - Into the ArmageddonЖанр: Thrash MetalПродолжительность: 01:58:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA7C6D617671F7FF6F3CC8E4F5A51C1013542E68
+magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794730   (67038) от 05.05.2025
+###  Публикация: 1782964   (69856) от 03.03.2025
 
-Валерий Новиков - Здравствуйте, соседи (2025) [MP3|320 Kbps] <Chanson>
+Joey DeFrancesco, Massimo Farao - Estate (2008) Zucca Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67038.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Букет из звёзд [00:03:06]
-02 - Милая моя [00:03:20]
-03 - Заблудилось моё счастье [00:03:00]
-04 - Я не забуду наши встречи [00:03:32](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:35
+01. Estate [13:41]
+02. On a Clear Day [9:04]
+03. Fly Me to the Moon [11:10]
+04. Voyage [9:47](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:08:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FE2CB590B30BD5C0D8DC6F2706D79B09A1E29BB
+magnet:?xt=urn:btih:0A68152C5F5D964226C70871A3E730A2677F9FE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,115 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795286   (67037) от 05.05.2025
+###  Публикация: 1783096   (69855) от 03.03.2025
 
-Changeling - Changeling (2025) [MP3|320 Kbps] <Progressive, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introject
-02. Instant Results
-03. Falling In Circles
-04. World? What World?(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAE39CDD118B583AAAEC042918EAD0E9B7247CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794726   (67036) от 05.05.2025
-
-Андрей Кудин - Моральный кодекс (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - А сердце просит тишины [00:04:34]
-02 - Сказка для взрослых [00:05:34]
-03 - Молчит Луна [00:05:52]
-04 - Мы часто стремимся ко святости [00:03:11](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D9FDB65FE7AC58A4EA3C6F55590F3CF37084D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795453   (67035) от 05.05.2025
-
-Gypsy Pistoleros - Welcome To The Church Of The Pistoleros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Punk, Glam>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Church of the Pistoleros
-02 – Shadow Walker
-03 – Whatever happened to the Old Town
-04 – Last train to Nowhere(   Читать дальше...   )Жанр: Alternative Rock, Punk, GlamПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D38B0D542F51BE75BF92D5F848148D2A59F433A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795547   (67034) от 05.05.2025
-
-Gormoth - Oh My Bitter Addictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Ambient>
+Unto Others - Strength (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Post-Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67034.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - I Disappear in My Addictions (08:12)
-02 - Nostalgia (07:39)
-03 - Last Words (07:07)
-04 - The Dreary End (07:27)(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 00:38:29
+01. Heroin 3:41
+02. Downtown 3:15
+03. When Will Gods Work Be Done 4:07
+04. No Children Laughing Now 3:43(   Читать дальше...   )Жанр: Gothic Metal, Post-PunkПродолжительность: 00:46:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31ADF22ABEE91F41C55EA6028795DA3796C2C30A
+magnet:?xt=urn:btih:026481824F223C3BF701ED4346C70C31D8486CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +363,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794731   (67033) от 05.05.2025
+###  Публикация: 1782963   (69854) от 03.03.2025
 
-Евгений Росс - Верность (2025) [MP3|320 Kbps] <Chanson>
+Joey DeFrancesco - All Of Me (1989) Columbia [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67033.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Живи [00:03:34]
-02 - Антарктида [00:03:03]
-03 - Вне закона [00:03:31]
-04 - Я её не знаю [00:03:55](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:41
+01. Blues for J. [4:20]
+02. Close to You [4:32]
+03. Carbon Copy [6:01]
+04. All of Me [7:04](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B32044BFD6E99809D2DF5B0509ED5BD04F3C12F4
+magnet:?xt=urn:btih:9495D5A90863A3C72FE52521AE574D54CBC20FB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +392,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795778   (67032) от 06.05.2025
+###  Публикация: 1782961   (69853) от 03.03.2025
 
-Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/192|image + .cue|Vinyl-Rip] <Black, Death Metal>
+Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Bluegrass>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67032.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69853.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Enter My Darkness
-A2 - Even To The Bones Marrow
-A3 - Before Storm
-A4 - The Return Of Apocalypse(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00: 44:54
+A1 Mr. Wonderful
+A2 Yesterday
+A3 Good Morning Starshine
+A4 Body And Soul(   Читать дальше...   )Жанр: Folk, BluegrassПродолжительность: 00:29:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4AF239EB08C6A19FADE5F73CFB91B2A6101E7B9
+magnet:?xt=urn:btih:33208A9C25F7FE841C24338C008F6BD33C983291
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +421,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795772   (67031) от 06.05.2025
+###  Публикация: 1782972   (69852) от 03.03.2025
 
-Billy Strayhorn's Septet - Cue For Saxophone (1959) 1988, London [FLAC|Lossless|tracks + .cue] <Swing>
+Howard Mahan - Hope on Credit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stuck on My Mind (4:11)
+02.  Gin Soaked Poet (5:03)
+03.  Leave My Heart Alone (5:52)
+04.  Miss Lady (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EB362B42010302C94ACD8437DD8507A920C5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782974   (69851) от 03.03.2025
+
+John Doe Trio - JD III (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Prologue: Resurgence (1:51)
+02.  First King of Texas (4:11)
+03.  Whose Blues? (3:42)
+04.  Big Bad Ron (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D062F4015DD5FD5171E2047543E5E2D65A62A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783171   (69850) от 04.03.2025
+
+John Graas & Art Pepper - Complete Small Group Sessions (1951 - 1958) 2CD, 2017, Phono [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67031.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69850.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cue's Blue Now [10:07]
-02. Gone with the Wind [4:18]
-03. Cherry [5:55]
-04. Watch Your Cue [3:11](   Читать дальше...   )Жанр: SwingПродолжительность: 00:40:31
+01. Popo [3:05]
+02. Didi [2:30]
+03. Four Mothers [2:52]
+04. Over the Rainbow [3:04](   Читать дальше...   )Жанр: West Coast Jazz, BopПродолжительность: 02:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:980144974277C71360AE0D99D8FC4A5A5E7558D2
+magnet:?xt=urn:btih:F40BB924DB7E0112E5FBE0AD37BA89410016BB66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +508,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795769   (67030) от 06.05.2025
+###  Публикация: 1783208   (69849) от 04.03.2025
 
-Bennie Green - Soul Stirrin' (1958) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+НХЛ 2024-2025. Оттава Сенаторз - Вашингтон Кэпиталз (03.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69849.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 марта 2025, вторник. 02:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Джон Макисаак (Труро, Канада); Главный судья: Брэндон Шредер (Санборн, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C26C54EE48877AEC61776DFDFDF6A6B2DD9871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783234   (69848) от 04.03.2025
+
+Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asylum - метал-группа, образованная в Голд -Кост, Австралия, в 2012 году.2017 - Concealed Death/Slaughterhouse
+2022 - TyrannicideЖанр: Thrash MetalПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D626F2340CCD2A61EF8A4ED12B2CCA209BED8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783160   (69847) от 04.03.2025
+
+Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Blackened Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fatal Embrace - метал-группа из Варберга, Швеция. Была активна с 1992 по 1998 год и воссоединилась в 2016 году.1997 - Shadowsouls' Garden
+2023 - Manifestum Infernalis
+2024 - Hail Down DeepЖанр: Melodic Blackened Death MetalПродолжительность: 02:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B510205E1DEEE2394E91EC0CAA5FFDE43D65B4D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783153   (69846) от 04.03.2025
+
+Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adversor - трэш-метал группа из Италии, сформированная в сентябре 2015 года2016 - Rise To Survive
+2018 - The End Of Mankind
+2023 - Portrait of a WastelandЖанр: Thrash MetalПродолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E46757FB9190B28A20736500DEB64C388A4D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783174   (69845) от 04.03.2025
+
+The Very Tall Band - What's Up? (1998) 2007, Telarc Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67030.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soul Stirrin' [6:53]
-02. We Wanna Cook [6:41]
-03. That's All [6:29]
-04. Lullaby of the Doomed [6:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:58
+01. Squatty Roo [8:26]
+02. Salt Peanuts [8:25]
+03. Ad Lib Blues [10:49]
+04. If I Should Lose You [7:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:075506484817A680DA0003A6D0FD3CAC7B7260E8
+magnet:?xt=urn:btih:D8DC29C81024568593C3C2D591F8AA3B6BE4A1A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +647,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795774   (67029) от 06.05.2025
+###  Публикация: 1783173   (69844) от 04.03.2025
 
-Death Kommander - Pro Patria Mori (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Joey DeFrancesco - Finger Poppin' (2009) Doodlin' Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67029.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Tunes of War
-03. Steel Reaper
-04. Incoming Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:35
+01. Strollin' [8:26]
+02. Swingin' the Samba [4:41]
+03. The Jody Grind [6:00]
+04. Finger Poppin' [6:05](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:00:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E2326FF20E7F350131CE8E69A87174C652FA2E1
+magnet:?xt=urn:btih:978DDB80E8F55DA3D8DBD0F40E67F41078E956B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +676,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795797   (67028) от 06.05.2025
+###  Публикация: 1783086   (69843) от 04.03.2025
 
-Dredge the Lethe - Blood Metal (2025) [MP3|320 Kbps] <Symphonic Black Metal>
+Christian Mistress - Children of the Earth (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67028.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Die. Drink. Forget
-02. Blood Metal
-03. Mortal Throne
-04. Triumph Over The Horde(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:06
+01. City of Gold [00:04:11]
+02. Voiceless [00:03:56]
+03. Demon's Night [00:04:12]
+04. Love of the World [00:05:05](   Читать дальше...   )Жанр: MetalПродолжительность: 00:33:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E616A8B7DF6EA16962CA75AD3EDE4910B6CA4978
+magnet:?xt=urn:btih:9C71545861AC0CCB1E7367B4894B1D137AB0D01D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783099   (69842) от 04.03.2025
+
+Antony Szmierek - Service Station At The End Of The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternativa & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Service Station at the End of the Universe [00:03:06]
+02. Rafters [00:03:07]
+03. The Great Pyramid of Stockport [00:02:35]
+04. Big Light [00:03:23](   Читать дальше...   )Жанр: Alternativa & IndieПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CB4726AADA505A86581B033351F037078CAF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

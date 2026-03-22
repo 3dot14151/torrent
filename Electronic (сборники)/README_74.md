@@ -1,3 +1,152 @@
+###  Публикация: 1021122   (740993) от 29.05.2016
+
+VA - DabSTEP Mistik MiX by zXz. Vol.1 (2013-2014) [MP3|192 кб/с] <DubStep, GlithHop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fr33m4n - Off We Go
+02.Access Denied - Black (Original Mix)
+03.Antiserum & Vinja Feat. Messinian - Murkulation (Original Mix)
+04.Nero - Promises (Nero & Skrillex Remix) (Tolgar's Symphony of Destruction Rework)(   Читать дальше...   )Жанр: DubStep, Drum&Bass, GlithHopПродолжительность: 02:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969FB5A964A5EA92F37D9D056C9FEE5D2B891E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217749   (740946) от 06.04.2018
+
+VA - Psy Trance Timewarp (2018) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740946.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tranceway - A Mind Trip
+002. Egorythmia - Anno Domini (Original Mix)
+003. Ovnimoon feat. Ascent & The Key - Spiritual Transformations (Original Mix)
+004. Psilocybe Project - I Am Darkness (Original Mix)(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 12:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2AFCAA86FFEAB77930DAE6463627CF65C12EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021296   (740680) от 29.05.2016
+
+VA - Неформатная Электронная Музыка Vol.1 [Compiled by Zebyte] (2016) [MP3|256-320 кб/с] <Glitch, Bass, Cosmic Dub>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Refraq - Semantics (05:25)
+02 Charlesthefirst - Miuris Cave (04:02)
+03 Eyeseeu - Tre... The Gun (04:50)
+04 Pierrothemoon - 3Msi (05:29)(   Читать дальше...   )Жанр: Glitch, Bass, Cosmic Dub, Crunk, Downtempo,
+Future Bass, Hypnotic, Midtempo, Psydub, PsyglitchПродолжительность: 02:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF64E6968A98811E804FD8628FD3BC835090CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283235   (740262) от 16.02.2019
+
+VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progressive, Melodic Progressive, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolier & NBLM - Follow Me (BLR Remix) [5:16]
+02. Deep Fog - Eagle Nebula (Original Mix) [7:50]
+03. JFR - Rainy Day In Mendoza (Original Mix) [7:58]
+04. Nerutto - Illuminate (Original Mix) [5:33](   Читать дальше...   )Жанр: Deep Progressive, Melodic Progressive, Progressive HouseПродолжительность: 03:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA200737EE5BF19DBD903FDDC004765EFD4E84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282973   (740145) от 16.02.2019
+
+VA - Hits of My Soul Vol. 44 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart (Original Mix) (08:51)
+02. Morvan - Kiss Of A Muse (Original Mix) (07:41)
+03. Dannie Denito feat.Wenturo - Rain On The Venus (Original Mix) (06:12)
+04. Neo & Farina - Alba Rossa (Remastered Original Vocal Mix) (09:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283475   (739724) от 17.02.2019
 
 VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
@@ -600,151 +749,6 @@ VA - Beatport Chill Electronic: Sound Pack #400 (2022) [MP3|320 Kbps] <Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38772D35D0249CCC5E18CDBC32C035FAD5364F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527471   (736813) от 28.01.2022
-
-VA - Beatport Tech House: Sound Pack #399 (2022) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленный глубоким и плотным звучанием мелодического техно, Beatport предлагает вам очередной 399-й саун дпак актуального Tech House. треки в этом паке лучше всего описать как гипнотические. Они вызывают ощущение техно-андеграунда старой школы, вместе с тем предлагая что-то новое и освежающее.001. Hoods - Cliff
-002. DJ Leandro - Electronic Soul
-003. Devv - Prism
-004. Italobros - Dilan(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 10:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4648EE12ACDAA155CAB98BA1A79A7F2CFB7F421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398006   (736693) от 24.07.2020
-
-VA - Symphonic: Psychedelic Trance Mix (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736693.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Audiodact - Lostallo
-002. The Esotarica - Jendaya
-003. Dave Owens - Enigma
-004. Liquid Soul - Levitate(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 11:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F317F19CDD0333E102A4C256DD7A6EF65B6E1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398004   (736608) от 24.07.2020
-
-VA - EDM And House: Night Club Party (2020) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736608.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mike Candys - Brand New Day
-002. Pitch Invader - Bodyswerve
-003. Michael Christian - Say You Love Me
-004. DJ Hoang Phong - We Used To(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955CA7411D39D333BF8811C6D5FAF2672823C7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397998   (736536) от 24.07.2020
-
-VA - Beatport Techno Electronic: Sound Pack #134 (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736536.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexander Brydges - Storm
-002. Andre Crom - The Mirror Method
-003. Tauchen - Picoz (Original Mix)
-004. Cyber - Ily(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 09:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39E7A4660E02466C783474E726C8FF0335A2921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527490   (736411) от 29.01.2022
-
-VA - Inverted World: Progressive Trance Set (2022) [MP3|320 Kbps] Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inverted World - это буйство прогрессивного транса и жесткого техно с выдающимся вокалом. Музыка, которая продолжает свое музыкальное победное шествие в сердца поклонников по всему миру!001. Richard Durand - Off The Grid
-002. Frank Wizardd - Seven Years After
-003. Vicky Merlino - Purnama
-004. Dreamseekers - Lift Me(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967C21E8E0FA5C8D69547B3CC9687B38556B3198
 ```
 
 https://mybot314.ru/tekegram_catalog/

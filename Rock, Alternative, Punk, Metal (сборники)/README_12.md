@@ -1,3 +1,32 @@
+###  Публикация: 1502827   (823044) от 17.10.2021
+
+VA - Oblivion: Metal & Hard Rock Compilation (2021) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Primal Age - Intro & Wise Old Man
+002. Concilium - From The Chalice
+003. Zero Trust - Birch
+004. Natural Born Machine - Moonchild(   Читать дальше...   )Жанр: Metal, Hardcore, Hard RockПродолжительность: 08:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14755B760254B1E320BA7AAA346FB74DB62C4D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502841   (821333) от 18.10.2021
 
 VA - Household Names: Indie Pop-Rock Collection (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
@@ -716,35 +745,6 @@ Creedence Clearwater Revival - Travelin' Band (2019) 2CD, Compilation [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE35585094BC1583FFD7B37011428B9A87A877C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507385   (798450) от 04.11.2021
-
-VA - My Little Planet: Pop Rock Indie (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798450.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dopamoon - Ailleurs Que Le Soleil
-002. The Underground Youth - For You Are The One
-003. Cerberus Shoal - Yes Sir, No Sir
-004. Sam Valdez - For A While(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165C77ACC8FD92A7D83EBEC19097246CADA77384
 ```
 
 https://mybot314.ru/tekegram_catalog/

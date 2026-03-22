@@ -1,3 +1,61 @@
+###  Публикация: 1721500   (110033) от 07.05.2024
+
+VA - Seaside Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup, Evamaria Linnet - Faces (3:32)
+02. Calmabohain - So Far Away (Sa Trinxa Edit) (4:45)
+03. Luis Hermandez - Todo el tiempo (4:00)
+04. Weber & Weber - Fly On Wings (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4412A1437D018D619375C91D3E7F5D97D84510A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721436   (110031) от 07.05.2024
+
+VA - Climax Chill Out Session, Pt. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike D'Abo - Reach out for Starlight (Syper Chill Mix, AL-Faris Re-Extended Mix) (5:02)
+02. Luke Mornay - The System F'ed Us Up (Kastilla Lounge Mix) (4:02)
+03. Project Blue Sun - Escape (7:35)
+04. Micro Mania - Emotional Scars (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2678C3CD65B92F0615F9B44453D0DA846773B50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722976   (109656) от 13.05.2024
 
 VA - Peaceful Resort Experice: Urban Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -687,64 +745,6 @@ VA - Future Sounds Of Kraut, Vol. 2 - compiled by Fred und Luna (2024) [FLAC 24/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287DF90C9C03812ABC85EB0BFC95CB544B470BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731879   (107627) от 22.06.2024
-
-VA - Ibiza Chill Vibes, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guenter Haas - Secret Diary (Remastered) (5:38)
-02. 351 Lake Shore Drive, Genius Jane - Moon Shadow (Vincent Honca Mix) (5:45)
-03. Eric Matthew - Sad Shine (4:55)
-04. Marco Moli - The Rules of Love (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF8A10F60A217B36D1BB414C7AC8349825B7A187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733716   (107257) от 30.06.2024
-
-V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 24 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Da Praia, Mayla Da Viola - Water (Bossa Nova Version)
-02. Cassandra Beck - Be the One
-03. Banda Do Sul - Over and Over
-04. Stella Starlight Trio, Shelly Sony - Georgy Porgy(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0CEEF9C583D8BC31431EAB108ED0FA44455D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1450474   (1029060) от 26.02.2021
+
+Allison - They Never Come Back (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River
+02. Edge Of Golden Days
+03. Crank It Up
+04. Hang Tough(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0FAC76B289F223CA0B96198D813648B434762C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450344   (1029055) от 26.02.2021
+
+Arabia - 1001 Nights (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heart Is A Lonley Hunter
+02. Darkside Of Love
+03. Love Love Me Do
+04. 1001 Nights(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B515510038DEE1E9E3616AF9FA3CF66FF3B20E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450309   (1029048) от 26.02.2021
+
+Ricky Warwick - When Life Was Hard & Fast (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Life Was Hard & Fast
+02. You Don't Love Me
+03. I'd Rather Be Hit
+04. Gunslinger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4EE9AC3068E327C00061BBACD0F79189FB06DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450315   (1029039) от 26.02.2021
 
 Thundermother - 4 albums (2014-2020) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy, Female Vocals>
@@ -660,93 +747,6 @@ Thunder - All The Right Noises (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE7D81908F0E91277D9552BF173453099DCB48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453973   (1026611) от 13.03.2021
-
-Sunstorm - Afterlife (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterlife (4:00)
-02. One Step Closer (3:54)
-03. Swan Song (5:14)
-04. Born Again (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2CF735E85125A90F542CE4165F5E9618FFA87E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454227   (1026450) от 14.03.2021
-
-Starmen - Welcome To My World (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming
-02. Face The Truth
-03. Ready To Give Me Your Love
-04. Stay The Night(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88EB64992B000F6F962C523C0F3EE15B7061C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454226   (1026446) от 14.03.2021
-
-Starmen - Kiss The Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stealer
-02. Dangerous
-03. All Along The Watchtower {Bob Dylan cover}
-04. Gravity(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5CB2C69F1F1685D8CC8E0CB7CCC51E10E27D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

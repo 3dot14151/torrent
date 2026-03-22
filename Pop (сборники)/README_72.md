@@ -1,3 +1,177 @@
+###  Публикация: 1047754   (548265) от 31.08.2016
+
+VA - Музыкальный адреналин. Top Hits (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tiana - Плен
+002. Vaults - Midnight River
+003. Интонация - Приходи
+004. Chris Brown - Player(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4603D9B916CFEED3AEA46E17C92DAFF254571D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048119   (547347) от 01.09.2016
+
+VA - Асталависта. Суперсборник от Русского радио (2016) [MP3|256~320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. НашеVremя  -  Асталависта  3:18
+002. Юлианна Караулова  -  Внеорбитные  3:02
+003. Killah & Мари Краймбрери  -  Давай Навсегда  4:06
+004. Нетсмысла  -  Мегаполис  3:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AF601C62A35C810896CC6F8D418E3815374A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048158   (547142) от 01.09.2016
+
+VA - Музыка Хорошего Настроения на Ретро FM  (2016) [MP3|320 Kbps] <Pop, Disco, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547142.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Toto Cutugno  -  L'Italiano  3:57
+002. Bad Boys Blue  -  You're A Woman  3:58
+003. London Beat  -  I've Been Thinking About You  3:45
+004. 2 Unlimited  -  No Limits  3:50(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 06:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5841E6C3EBE886A4CF8B381C87062E2C3C388C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238414   (547110) от 29.07.2018
+
+VA - German Top 100 Single Charts 27.07.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro & Gigi D'Agostino - In My Mind
+002. El Profesor, Hugel - Bella ciao (HUGEL Remix)
+003. Clean Bandit - Solo (feat. Demi Lovato)
+004. Drake - In My Feelings(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC690AE6AACF6F0E52B605DAE76B0C142E50D1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238353   (546969) от 29.07.2018
+
+VA - Shazam: Хит-парад Russia Top 100 Июль (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546969.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clean Bandit feat. Demi Lovato - Solo 3:41
+002. The Prince Karma - Later Bitches 4:08
+003. Dynoro & Gigi D'Agostino - In My Mind 3:05
+004. CYGO - Panda E 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86271A260B8E94FA0FE6ED750CA7FEA68DB9878D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048798   (545401) от 03.09.2016
+
+VA - Горячие Новинки От Зайцев.Нет часть 1 (2016) [MP3|189~320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Город 312  -  Времени Осталось Мало  3:45
+002. Alan Walker  -  Sing Me to Sleep  3:09
+003. In-Grid  -  Chico Gitano  3:23
+004. Hozier  -  Better Love (OST Тарзан. Легенда 2016)  3:13(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB627713C17D6C2E5706E8FBAC876981A6850DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310760   (545299) от 26.06.2019
 
 VA - German Top 50 Party Schlager Charts 24.06.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -599,192 +773,6 @@ VA - Главная дискотека августа 2 50/50 (2012) [MP3|256 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3583F9415666527ABB2ADFC6B1FEC43685C1C958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532481   (538247) от 07.08.2012
-
-VA - Горячие хиты пляжного сезона 4 Русский (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Митя Фомин И Кристина Орса - Не Манекен
-02 Ассорти - Ангелы
-03 Кристина Орбакайте Feat. Павел Есенин - А Знаешь, Все Еще Будет
-04 Катя Лель - Не Могу Забыть
-05 A-Via - По Парам
-06 Никита - Прости
-07 Вероника Агапова - Горько
-08 Горячие Головы - Мы Встретимся Вновь
-09 София Ротару - Два Солнца
-10 Валерия - Подруга(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8433BC1265814E21A5CCD1B40AB930BFDAD743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050405   (538077) от 08.09.2016
-
-VA - Зайцев.Нет - Лучшие Новинки Сентября (2016) [MP3|180~320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire Of The Sun  -  High And Low  3:44
-02. Passenger  -  Anywhere  3:36
-03. Craig David & Sigala  -  Ain't Giving Up  2:39
-04. Britney Spears  -  Clumsy  3:02(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0E8BCD3A19D6F085C11916976814131D97EABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532461   (537965) от 07.08.2012
-
-VA - Новое и Лучшее. Русский Сборник (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Varda - Я Тебе Не Верю
-002. Dj Настя Крайнова - Я Это Ты
-003. Игорь Николаев - Звездопад
-004. Сергей Пенкин - Ангел
-005. Наталья Подольская Интуиция
-006. Дантес & Олейник - Стереодень
-007. Елка - Я Тебя Буду Ждать
-008. Стас Михайлов - Я Ждал
-009. DJ Next feat. DJ Solar Explosion - Жажда Танца (Dance Club 2012)
-010. Elvira T - Стоп Любовь(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A02D7840BEFD9A54B74D9AD0A91045D941E304FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925968   (536947) от 08.08.2015
-
-Алла Пугачёва - Я смогу (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я смогу
-02. Алло!
-03. Где же ты любовь
-04. Ангел любви (Странник)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA49012E4A90A171CF001F98A278FFDCD40F036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050743   (536740) от 09.09.2016
-
-VA - Back Where I Belong Popular Dance (2016) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536740.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Hello (DJ Noiz Radio Remix)
-002. Martin Garrix & Third Party - Lions in the wild
-003. Proyecto Loco - Suena La Clave (Original Version)
-004. Afrojack Ft. Pitbull & Mike Taylor - Summerthing!(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 09:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CADD95DC7444369B0DE1E638958A8EF70009D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311916   (536498) от 02.07.2019
-
-VA - German Top 50 Party Schlager Charts 01.07.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Andrea Berg - Die geheimen Träumer
-03. Kerstin Ott - Regenbogenfarben
-04. Ben Zucker - Wer sagt das(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B358F795DC2C6379413298A1FB8195C3405157
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,236 @@
+###  Публикация: 804873   (611601) от 14.07.2014
+
+Alizee - Blonde (2014) [FLAC|Lossless] <Pop, Electronic, French Pop, Dancepop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blonde
+02. K.O.
+03. Alcaline
+04. Seulement pour te plaire(   Читать дальше...   )Жанр: Pop, Electronic, French Pop, DancepopПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A6C51507948485836094451716331B43BB13D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147228   (610997) от 01.07.2017
+
+Belinda Carlisle - The Anthology (2014) Compilation, 3CD [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In The City (3:58)
+02. Bless The Beasts And The Children (4:18)
+03. Christmas Lullaby (3:53)
+04. I Won't Say (I'm In Love) (3:18)(   Читать дальше...   )Жанр: Pop-Rock |Продолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC8F9EC068D794C8608DE294A1FFA133B18E8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525000   (609244) от 20.07.2012
+
+VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_609244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Michel Telo - Ai Se Eu Te Pego (2:45)
+2. Sak Noel - Paso (The Nini Anthem) (3:17)
+3. Qwote Feat. Pitbull & Lucenzo - Throw Your Hands Up (Dancar Kuduru) Sagi Abitbul Remix Edit (4:33)
+4. R.I.O. feat. U-Jean - Turn This Club Around (3:18)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:31:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913370   (606934) от 28.06.2015
+
+Savage Garden - The Singles (2015) [FLAC|tracks+.cue]<Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You
+02. To The Moon And Back
+03. Truly Madly Deeply
+04. Break Me Shake Me(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BB928F4377313A32D0C451AC04BB1AC598F010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296976   (606798) от 20.04.2019
+
+Everything but the Girl - Amplified Heart (1994) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rollercoaster (03:13)
+02. Troubled Mind (03:34)
+03. I Don't Understand Anything (04:25)
+04. Walking To You (03:30)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAA33F9764D12BC175C11E1B0EBE636E21C9BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546451   (606105) от 24.04.2022
+
+Mariah Carey - #1's (1998) Compilation, 2022, Columbia - Legacy [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetheart
+02. When You Believe (from "The Prince of Egypt")
+03. Whenever You Call
+04. My All(   Читать дальше...   )Жанр: Hip Hop, Funk, Soul, PopПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C968FCA99D3774D8CB1748AF930E3056C5A5833E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231463   (605081) от 18.06.2018
+
+VA - Top Of The Pops '1977 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодняшним релизом пополняется наша небольшая серия путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители (   Читать дальше...   )CD1:
+01. Donna Summer - I Feel Love  (5:46)
+02. Marvin Gaye - Got To Give It Up  (4:04)
+03. Harold Melvin & The Blue Notes - Don't Leave Me This Way  (3:27)(   Читать дальше...   )Жанр: 1970s, pop, rockПродолжительность: 02:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93984D9F75280929971DF822F6C550A879143AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038630   (604923) от 29.07.2016
+
+HONNE - Warm On A Cold Night (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Pop, Soul, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm On A Cold Night (04:21)
+02. Til The Evening (04:40)
+03. Someone That Loves You (With Izzy Bizu) (04:04)
+04. All In The Value (03:42)(   Читать дальше...   )Жанр: Alternative Pop, Soul, ElectronicПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DB29C4FD7E54681703FB61835129F924C91AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297294   (604736) от 21.04.2019
 
 Bee Gees - Odessa (1969) Deluxe Edition, 2017 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -513,238 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ECD7B1F78A4883262BE3B334489B0BC78DB7ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232456   (599792) от 24.06.2018
-
-Eruption - The Best Of Eruption (2017) Reissue, Remastered [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I can't stand the rain (feat. Precious Wilson) (3:09)
-02. Go Johnnie go (keep on walking, John B.) (3:31)
-03. Leave a light (4:22)
-04. Movin' (4:27)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB2F1D6A001937B86C119D9BFBC8645093343C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038845   (599525) от 30.07.2016
-
-Bee Gees - Living Eyes (1981) 1983, RSO [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Eyes [04:22]
-02. He's a Liar [04:05]
-03. Paradise [04:21]
-04. Don't Fall in Love With Me [04:57](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A70D1E26095DD2B572906F5FB0B3AD3F6E972E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548576   (597903) от 03.05.2022
-
-Demis Roussos & We Five - Demis Roussos & We Five (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demis Roussos - When a Man Loves a Woman [00:02:41]
-02. We Five - Wild Thing [00:03:53]
-03. Demis Roussos - Black Is Black [00:04:01]
-04. Demis Roussos - Paint in Black [00:02:33](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD247BD75D163AF7CD6F69FEA47C4F1619B73AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914918   (596285) от 03.07.2015
-
-VA - Golden Romantic Hits (2006) [FLAC|image + .cue]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demis Roussos - Forever and Ever [3:37]
-02. The Mamas & The Papas - Step out [3:04]
-03. Astrud Gilberto - Fly Me to the Moon [2:21]
-04. Stevie Wonder - My Cherie Amour [2:53](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAAE99A804A30FFAEA5CA3B3F22929F3C1A5177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299753   (596175) от 03.05.2019
-
-Stéphanie Bédard (Stephanie Bedard) - Ricochet (2019) EP [FLAC|Lossless|tracks + .cue] <Pop, Francophone>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596175.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tu m'emmènes (3:38)
-2. Tous ces gens (4:11)
-3. La dérive (4:35)
-4. Ensemble (3:09)Жанр: Pop, FrancophoneПродолжительность: 00:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C58CE7FC44413840B91ABC6549F5B93C5B42F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914273   (596112) от 03.07.2015
-
-A-ha - Greatest Hits (1999) [FLAC|tracks + .cue]<Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me [03:47]
-02. Cry Wolf [04:08]
-03. Touchy [04:37]
-04. You Are The One (Remix) [03:47](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E22C53AA99AA107EF7B7A31E655A49711512F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299662   (596070) от 03.05.2019
-
-VA - The Acoustic Album (2006) 2CD [FLAC|Lossless|image + .cue] <Acoustic Pop-Rock, Folk, Singer-Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596070.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Jack Johnson – Breakdown (03:34)
-2. Corinne Bailey Rae – Put Your Records On (03:34)
-3. KT Tunstall – The Other Side of the World (03:32)(   Читать дальше...   )Жанр: Acoustic Pop-Rock, Folk, Singer-SongwriterПродолжительность: 02:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1903D8423F703AEA8A6E6EBA15AC69E003BB8918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150298   (595285) от 14.07.2017
-
-Peter Cornelius - Liederbuch (1998) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du entschuldige i kenn Di (04:23)
-02. Reif für die Insel (04:41)
-03. Ganz Wien hat den Blues (04:21)
-04. Der Kaffee ist fertig (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163D36185473C2322FFA2B125DC386C97230F76D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1197875   (811881) от 09.01.2018
+
+Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildwood
+02. Wildwood Priestess
+03. Old Gods & Ancient Stones
+04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198053   (811878) от 09.01.2018
 
 Chicago Afrobeat Project, Tony Allen - What Goes Up (2017) [FLAC|Lossless|tracks + .cue] <Afrobeat>
@@ -711,35 +740,6 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB674F0985B71B19B2F3A7027149CC0311D92274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119754   (805741) от 29.03.2017
-
-Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thanks So For Pushing Record Button [00:04:15]
-02. Deep Inside [00:06:16]
-03. Don't look at him [00:04:32]
-04. Forest Soul [00:05:34](   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B541FD1F308343275FE907325489D01ADCE1E311
 ```
 
 https://mybot314.ru/tekegram_catalog/

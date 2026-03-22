@@ -1,3 +1,151 @@
+###  Публикация: 1229950   (620892) от 09.06.2018
+
+Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running to the Sea
+02. Gorecki
+03. Serendipity
+04. A Love That’s Hard to Find(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520666   (619427) от 15.07.2012
+
+Tish - Shadows EP (08-07-2012) [MP3|320 кб/с]<Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows 07:50
+02. Shadows (Fabio Giannelli Remix) 08:19
+03. Attic House 07:52
+04. Inversus 06:19Жанр: Tech HouseПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3058FE76BC99F3A1C685C2E893DF45ACFFBC93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523477   (619040) от 15.07.2012
+
+VA - Best Of Deep House (50 Most Wanted) (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weekend Of Robots - "Information 4 Peace" (07:47)
+02. Adapt To Survive - "Its Something" (06:18)
+03. Adapt To Survive - "Greed" (06:16)
+04. Alex Aglieri - "Twisted" (07:01)
+05. Klangware - "Strandrauber" (07:43)
+06. E-Teb - "Explicit Differentiation" (05:18)
+07. Sinior Cliff - "Across The Sunset" (08:54)Жанр: HouseПродолжительность: 05:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827F4F92EFC364A8329F854675843399CEA2C5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544797   (618306) от 17.04.2022
+
+Swedish House Mafia - Paradise Again (2022) [MP3|320 Kbps] <Bass House, Disco House, French House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia feat. Mapei - Time (Co-Prod. by Enzo Ingrosso)
+02. Swedish House Mafia & Connie Constance - Heaven Takes You Home (Co-Prod. by Klahr)
+03. Swedish House Mafia feat. Jacob Mühlrad - Jacob's Note
+04. Swedish House Mafia & The Weeknd - Moth To A Flame(   Читать дальше...   )Жанр: Bass House, Disco House, French HouseПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E4B115E0644D7534A52C7C21AAA42F8C2DF0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146043   (618239) от 27.06.2017
+
+VA - Get On Your Surfboard: Summer (2017) [MP3|320 Kbps] <Progressive, Electro, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duna Shain - Dolce 02:37
+02. Dexter Morgan - Galaxy 02:33
+03. Distances - Note 02:37
+04. Chris Folkz - Travel 02:56(   Читать дальше...   )Жанр: Progressive, Electro, Future HouseПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE74F432EDE81C235699E2E4837C1CC1BE210E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145664   (618095) от 27.06.2017
 
 VA - Ibiza Progressive House (2017) [MP3|320 Kbps] <Progressive House, Melodic, Vocal>
@@ -618,151 +766,6 @@ VA - Secret Weapons (2015) [MP3|320 кб/с]<Techno, Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D903EEC87713772E6F70FE80FB1B03B829751817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913392   (605213) от 29.06.2015
-
-VA - Ibiza Beach Club (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiffre 100 - Skies (06:34)
-02. The Sura Quintet - Intimacy (05:31)
-03. Soul Emphasis - Going Deeper (06:15)
-04. Over Range - Groove the Day (06:22)(   Читать дальше...   )Производство: Nidra MusicЖанр: Deep House, Chill HouseПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9EA5E74ABC529F8B1759CDFA970C6FD8922C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038789   (604970) от 29.07.2016
-
-VA - Dance Zone - Top Music Hits (2016) [MP3|320 Kbps] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anastasia Zelenina -  Say You Want Me 3:31
-02. DJ Kaliostro -  Moscow City Girls 3:45
-03. Milena -  One, Two, Three 3:32
-04. Invisible Dye Project -  I Don't Beg (feat Lokka - Extended Mix) 4:51(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 05:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1220529EFBA16ECEB195BCCBD4D7E0FB7116FB0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038699   (604847) от 29.07.2016
-
-Zhu - Generationwhy LP (2016) [MP3|320 Kbps] <Electronic, Deep House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Neon City) [01:10]
-02. Cold Blooded [04:19]
-03. In the Morning [04:07]
-04. Secret Weapon [04:04](   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CBD70E122B6E2577A3AAFD926C158D985F07D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297195   (604828) от 21.04.2019
-
-VA - 100 % Pure Bounce (2019) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klubb Eff3kt - Move It
-02. Poomstyles - Hold Up
-03. Tom Damage - Dreams
-04. Mr Mister &Tasered In Tesco(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA560A0C56D3CB3B8CCB9C22150DDF4118D32BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148677   (603457) от 07.07.2017
-
-VA - 40 Dance Summer Hits 2017 [MP3|320 Kbps] <Club, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southree & Wayck - Carousel (Burani & Busilacchi Edit) 02:58
-02. Goldenbeatz - Living Out Loud (Feat Bodhi Jones - Radio Edit) 02:50
-03. Kuwan - Heartbeat (Maph & Nick Le Funk Remix) 03:55
-04. Alex Milani - Where The Stars Go (Feat Rhett Fisher - Radio Edit) 02:52(   Читать дальше...   )Жанр: Club, Progressive, Future HouseПродолжительность: 02:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B1F292EAAA7CE988050AEF9F0EFB4000047A7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

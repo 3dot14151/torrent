@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1858911   (1060746) от 
+###  Публикация: 1860357   (1061850) от 
+
+VA - Ori Uplift - Uplifting Only Episode 684 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LR Uplift - Arrival (Intro Mix)
+02. Lost Witness & FAWZY with Yasmin Jane - Gardens of Your Mind
+03. DreamLife - Morning Tears (Orchestral Uplifting Classic)
+04. Eric Senn - Athena (Fan Favorite (683))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C4901F6887968310EBA27BB078278E80AD8DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860265   (1061662) от 
+
+VA - Armin van Buuren - A State Of Trance 1269 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Armin van Buuren & Alle Farben ft. ROSY - Lost In Time
+02.	Mees Salomé & Robby East – Mindstate (Progressive Pick)
+03.	Beaumarchais - Desert Moves
+04.	Eugenio Tokarev - Sun & Moon(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC95498C4A2710233AE5636DE360C1E24F68C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858911   (1060746) от 13.03.2026
 
 VA - Ori Uplift - Uplifting Only Episode 683 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
@@ -28,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858884   (1060745) от 
+###  Публикация: 1858884   (1060745) от 13.03.2026
 
 VA - Armin van Buuren - A State Of Trance 1268 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -688,64 +746,6 @@ VA - Ori Uplift - Uplifting Only Episode 674 (2026) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAD72E7786FAE6CEF4185B9FD276238C7D105207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846861   (1051839) от 09.01.2026
-
-VA - Armin van Buuren - A State Of Trance 1259 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALOTT – Far From Home
-02. Omnia & UUFO – Hello (Trending Track)
-03. Kyau & Albert & John Grand – Under My Skin (John Grand Remix)
-04. Kudus & Farius – Not Alone Now(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0489EA3A3D59B135CFF116444D7B8D5F29079F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846951   (1051813) от 24.01.2026
-
-Tiesto - Prismatic 001 (2026-01-02) [MP3|320 Kbps] <Dance, Electro Pop, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto & FORS - Bring Me To Life
-02. BLR & Amber Revival - Feeling Good
-03. Xashes & Human Rias - This Is The End
-04. Tiësto - Theme From Norefjell (Ørjan Nilsen Remix)(   Читать дальше...   )Жанр: Dance, Electro Pop, TranceПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD9FC73130037799B33118DE1657F57ABAD7AE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

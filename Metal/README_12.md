@@ -1,3 +1,32 @@
+###  Публикация: 978152   (964708) от 22.01.2016
+
+Skeletoon - The Curse Of The Avenger (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timelord
+02. What I Want (Feat. Roland Grapow)
+03. Heroes Don't Complain (Feat. Roland Grapow)
+04. Hymn To The Moon(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719486D620522CB7C3DBC97781953EBEB8FD690E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977925   (964644) от 22.01.2016
 
 Hell In The Club - Shadow of the Monster (2016) [MP3|320 кб/с] <Heavy Metal, Hard Rock>
@@ -722,35 +751,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB20BB164BC4144629979B4190E0D7F098576AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089321   (951915) от 03.01.2017
-
-Gone Is Gone (Mastodon, Queens Of The Stone Age, At The Drive-In) - Echolocation (2017) [MP3|320 Kbps] <Progressive Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sentient
-02. Gift
-03. Resurge
-04. Dublin(   Читать дальше...   )Жанр: Progressive Metal, ExperimentalПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F38D71C629101666E477D2B4C8F433E873CA50E
 ```
 
 https://mybot314.ru/tekegram_catalog/

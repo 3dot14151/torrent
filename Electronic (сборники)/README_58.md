@@ -1,3 +1,90 @@
+###  Публикация: 1511095   (789422) от 20.11.2021
+
+VA - Dive In Red Oceans: Psy Trance Mix (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gms - Happy Trails
+002. Vandeta & Ananda Shake - Anandeta
+003. Aida, Thirsty Amigo - Without You
+004. Throw3r - Stay Awake(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23B73A7AFA3BA6C56255ED73F285ED4C1B93876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275885   (789388) от 13.01.2019
+
+VA - Music for Car 11 (2019) [MP3|320 Kbps] <Electronic, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MiyaGi & Эндшпиль, Kadi - In Love (3:15)
+02. Alec Benjamin - Swim (2:24)
+03. Bea Miller - Outside (3:21)
+04. 3LAU - You Want More (feat. Max) (3:00)(   Читать дальше...   )Жанр: Electronic, Dance, HouseПродолжительность: 03:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F415A6FAC7756F5C7DBF37ADFF1554AD308EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275851   (789384) от 13.01.2019
+
+VA - Options Remake Of Tracks January -A- (2019) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Change My Mind (Pete Herbert Remix)
+02. Dante Pippi & Demitros - Maculele
+03. Matti (TR) - The Magician (Original Mix)
+04. Sergio WoS - Back to the Old School(   Читать дальше...   )Жанр: HouseПродолжительность: 05:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151D672B95C9540BFA8F1F0D7FC313A6121E7DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511100   (789312) от 20.11.2021
 
 VA - Liquid Blue: Relax Space Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -655,93 +742,6 @@ VA - Beatport Electro House: Sound Pack #370 (2021) [MP3|320 Kbps] <Electro, Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B307CD60892564395280CF1863029F2AE1C35FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512330   (787469) от 24.11.2021
-
-VA - Synthwave Dream (Vol.03) (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787469.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karlo Wanny - Among Us
-002. Shock Therapy - You Were The Moon
-003. Koreless - White Picket Fence
-004. Quiqui - Everything About You(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7460E2D405625CD6595733C64529051BFA0852D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512363   (787468) от 24.11.2021
-
-VA - Chill Electronic: Casa Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Important - Except
-002. Sonic Art - Orbital Journey
-003. Rey&Kjavik - Zula
-004. 808 Lounge - Changes(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 08:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2BDD60C7E68B25C4BB28D08B590145B2357523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512356   (787467) от 24.11.2021
-
-VA - Techno Frozen (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Q-Green - Bubbles
-002. Hardchemist - Red Dragon
-003. Bearface - Live For Life
-004. Alex Tb - Cyberpunk(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E17AF71B01BC9F66F24B1D282BE8B732831DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

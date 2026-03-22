@@ -1,3 +1,88 @@
+###  Публикация: 1273442   (800704) от 01.01.2019
+
+System - Plus (2018) Morr Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open (06:02)
+ 02. Drift (05:39)
+ 03. Gebiet (04:27)
+ 04. Piste (06:02)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B795BDFB1E27CDE37656E35CFF5DAF2B96250B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453001   (800686) от 22.05.2020
+
+Shazam Encore Paid 10.30.1 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не знаешь что играет на радио? Нет проблем когда у тебя установлен Shazam!
+На сегодняшний день Shazam Encore является одной из лучших программ на разных платформах для определения названия песни или исполнителя по небольшому фрагменту песни.Тип издания: ПираткаРелиз состоялся: 22.05.20Разработчик: Shezam Entertainment LtdПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E9C399FD98A20CB49617D9B35764048DE55273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121130   (800657) от 02.04.2017
+
+VA - Trance Essential Series Vol.2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nebula 66 - Consciousness (Original Mix)  6:58
+02.  ADL - Fading Memory (Luca de Maas Remix) (feat. Angel Falls)  9:43
+03.  Nebula 66 - Burning Heart (Original Mix)  3:48
+04.  DJ Michael Angello - Holographic Universe (Etheria Remix) (feat. Louise Browne)  6:55(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25180C7764AE77C7461EE2C698ACB566B8DCC61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120687   (800655) от 02.04.2017
 
 VA - AVA Seasons Selected By Mike Saint Jules - Spring (2017) [MP3|320 Kbps] <Trance>
@@ -624,86 +709,6 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47217BF831614EE44E68636BF55A9871ED86BA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121594   (800482) от 02.04.2017
-
-Type 41 - Aquis (Plutian Pres. Astrion Remix) (2017) Single [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Type 41 - Aquis (Plutian pres. Astrion Remix) 08:38
-02. Type 41 - Aquis (Plutian pres. Astrion Club Mix) 07:07
-03. Type 41 - Aquis (Plutian pres. Astrion Radio Edit) 04:26Жанр: Trance,Uplifting TranceПродолжительность: 00:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5941681947AA8AD5AA30B1459A0D3A6FC7C34B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121369   (800471) от 02.04.2017
-
-AIMP 4.13 Build 1890 Final RePack (& Portable) by D!akov (with DFX Audio Enhancer) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800471.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7681B8506B261475A0DEE271ACD5CA1F6B6E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121491   (800468) от 02.04.2017
-
-Однажды в России (2017.04.02) SATRip (сезон 5, выпуск 3) [AD]
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE31C3CF827D48AF83CD17F31F13D72D9327D54
 ```
 
 https://mybot314.ru/tekegram_catalog/

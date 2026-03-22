@@ -1,3 +1,177 @@
+###  Публикация: 1830233   (202386) от 26.10.2025
+
+Deep Purple - Made In Japan (1972) BOX Set, 5 x CD, Reissue, 2025, Warner Records LLC, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202386.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Made in Japan (Steven Wilson Stereo Remix):
+CD1-1 Highway Star
+CD1-2 Child In Time
+CD1-3 Smoke On The Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546489E17A0490CEE5DBD2DAE373B338FDF038CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299615   (202134) от 27.02.2023
+
+Black Star Riders - 5 albums, 7 CD (2013-2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Star Riders - рок-группа из США, созданная в декабре 2012 года гитаристом Скоттом Горэмом. Идея создания группы принадлежит бывшим участникам гастролировавшего состава легендарных Thin Lizzy и Alice Cooper (Scott Gorham, Damon Johnson). Это произошло, когда группа решила записывать новый материал, но не выпускать его под именем Thin Lizzy. Группа существует (   Читать дальше...   )--------------------------
+
+01. Wrong Side Of Paradise_ (3:44)
+02. Hustle_ (3:27)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 05:00:56 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7735F62E133CB19C290EDE40B1F77FF403F7B94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214682   (201836) от 30.08.2023
+
+Wishbone Ash (Martin Turner) - 48 Albums, 1 Box Set, (1970 - 2020) 87 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Classic Rock, Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wishbone Ash - британская рок-группа, образованная братьями бас-гитаристом Martin Turner, гитаристом Glenn Turner, а так же барабанщиком Steve Upton в 1969 году в Девоне, Англия и исполняющая классический, построенный на жёстких блюзовых структурах хард-рок, делая акцент на импровизациях, характерных для прогрессивного рока. Вскоре гитарист Glenn Turner ушёл из группы, (   Читать дальше...   )Список альбомов:
+1970 - Wishbone Ash
+1971 - Pilgrimage
+1972 - ArgusЖанр: Classic Rock, Hard Rock, Progressive RockПродолжительность: 78:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9144691A77338A443C65F73B0E529102630F7669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452859   (201382) от 13.03.2023
+
+Wig Wam - 6 albums, 7 CD (2004-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была образована в Норвежском городе Фредрикстад приблизительно в 2001 году. К этому времени за плечами участников группы уже имелся солидный музыкальный опыт. Все они начинали свою карьеру в составе различных коллективов ещё в восьмидесятых годах. Благодаря активной концертной деятельности, группа быстро обзавелась армией поклонников, став одной из самых известных (   Читать дальше...   )--------------------------
+
+01. Out Of The Dark (4:28)
+02. High N Dry (3:34)(   Читать дальше...   )Жанр: Glam Rock |Продолжительность: 05:58:32 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B78749B55C2392F96F9705CAB2C8A551DB847F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449794   (200807) от 26.03.2023
+
+The Dead Daisies - 6 studio albums (2013-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из классик-роковых сенсаций - американо-австралийская рок-группа The Dead Daisies была создана в 2012 году как супер-группа в Сиднее, Австралии. Основал группу австралиец Дэвид Лоуи, игравший раньше в Red Phoenix, Angels и Mink и новозеландец Джон Стивенс, в 2000-м ставший вокалистом INXS после смерти легендарного Майкла Хатченса, для проекта присоединились (   Читать дальше...   )--------------------------
+
+01. Face Your Fear (4:09)
+02. Hypnotize Yourself (3:49)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 04:52:47 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74634210C01DFF642E95F9F6ABDB062CB6319404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628058   (199459) от 21.04.2023
+
+Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelations
+02. Diamonds And Rust (Joan Baez cover)
+03. Morning Star
+04. Dust In The Wind (Kansas cover)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714F2C4B8DD342B83E79ABC98096E1E60E58EEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642499   (196533) от 27.06.2023
 
 Laura Wilde - Charmed + Dangerous (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -568,180 +742,6 @@ Eclipse - Megalomanium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F7023BE389F5DC6BE6060294D5FD9D2F9F16DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657509   (192757) от 03.09.2023
-
-Eve To Adam - Locked & Loaded (2013) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locked & Loaded
-02. Immortal
-03. Bender
-04. Straightjacket Supermodel(   Читать дальше...   )Жанр: Alt.Metal / Post-Grunge / Hard RockПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748D1BE0F3F1A4662D30992CAD4D9D058DE850AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657256   (192697) от 03.09.2023
-
-Various Artists - English Hard Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Darkness - Grief Hammer (Single Version) (3:12)
-02. C.C.S. - Whole Lotta Love (3:33)
-03. Cozy Powell - Na Na Na (3:27)
-04. Skin - Back Door Man (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1F7F71C4AB78EE1872272025D2B5265CE98675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587890   (192148) от 02.11.2022
-
-Biters - The Future Ain't What It Used To Be (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Roll
-02. Stone Cold Love
-03. Callin' You Home
-04. Don't Turn This Good Heart Bad(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663CB9B9CDDFB6C11DAF07592006DEC0F7AC4800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587844   (192081) от 02.11.2022
-
-amma'd'amma - rock stars obscured by... (2021) [FLAC|Lossless|tracks + .cue] <Mashup, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. rock stars obscured by pf clouds (26:28)
-02. hensley meets all (12:16)
-03. highwaystar-cut-mix (07:43)
-04. demons in paradise (heaven and hell uriah heep war suite) (18:06)Жанр: Mashup, Hard Rock, Classic RockПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9CF58F4908F10A1E4C28EAE32DB68F3FFBE1504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198627   (191957) от 05.09.2023
-
-Suzi Quatro - 33 albums, 2 Box-set, 66 CD (1973-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Glam Rock, Classic Rock, Pop Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная бас-гитаристка нашей планеты – Сьюзи Кватро, участник и основатель одноименной рок-группы «Suzi Quatro», первая женщина-рокер, которая выбила дверь в мир рок-музыки для следующих поколений девушек. За короткое время Suzi Quatro стала популярной певицей с международным именем. Трудно сказать, какой считает себя блистательная Сьюзи: американской или британской. (   Читать дальше...   )--------------------------
-
-01. Shine A Light (3:24)
-02. Face To Face (3:38)(   Читать дальше...   )Жанр: Glam Rock, Classic Rock, Pop Rock |Продолжительность: 2d 12:41:21 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBA4B8F1620D478B77BADBDC300FFB3E75B23F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658103   (191951) от 06.09.2023
-
-Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:31]
-02. One In A Million [00:05:03]
-03. Rollin [00:04:09]
-04. Tutankhamun [00:05:41](   Читать дальше...   )Жанр: Hard Rock, Heavy, Thrash MetalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0260938A389AEC797B66C4D8782983564EB2B23B
 ```
 
 https://mybot314.ru/tekegram_catalog/

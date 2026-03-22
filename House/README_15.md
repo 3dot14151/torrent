@@ -1,3 +1,154 @@
+###  Публикация: 1503701   (817636) от 20.10.2021
+
+VA - 35 Best Body Building Hits 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axel Force - Born For This (Fitness Version) (05:03)
+02. DJ Kee - Get Busy (Fitness Version) (04:21)
+03. D'Housemasters - House Arrest (Fitness Version) (04:37)
+04. DJ Kee - Blood Is Pumpin' (Fitness Version) (04:04)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A43AE9D507BF50CFAB88267EE29A7591EA99FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117612   (817343) от 23.03.2017
+
+VA - Beach Deep House (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anatoliy Kurakin - Invasion  6:43
+02.  Geogor Dansis - Immensity Of Space  7:20
+03.  Dima Tumbler - Helloween  5:22
+04.  Bendetti - Eastern Illusion  5:36(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B078207F12080A155A86D0CC61714D940ECC8FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656106   (817145) от 14.05.2013
+
+Daft Punk - Random Access Memories (2013) [MP3|320 кб/с]<Electronic, House, Disco>
+
+>>След.
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Life Back to Music (4:34)
+ 02. The Game of Love (5:21)
+ 03. Giorgio by Moroder (9:04)
+ 04. Within (3:48)
+ 05. Instant Crush (feat. Julian Casablancas) (5:37)
+ 06. Lose Yourself to Dance (feat. Pharrell Williams) (5:53)
+ 07. Touch (feat. Paul Williams) (8:18)
+ 08. Get Lucky (feat. Pharrell Williams) 6:07
+ 09. Beyond (4:50)
+ 10. Motherboard (5:41)(   Читать дальше...   )Жанр: Electronic, House, DiscoПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042BD0BC98058DA19EAF95A5FC3B79717B7A8876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008312   (816111) от 18.04.2016
+
+VA - Cub Session Rush Hour Vol.10 (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axay, SPHYNX - Love Me 04:17
+02. Falko Niestolik, Oni Sky - Together (Funkin Matt Remix) 03:52
+03. Jay Frog - Share Love (feat. Dacia Bridges) 04:42
+04. Toby Webster - Jack It! 03:53(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1683B9FAED413CAAB8228BC9A07E2366CB738012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008402   (816041) от 18.04.2016
+
+VA - Venera Music Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DeDrecordz - Silent City (Original Mix) 04:00
+02. DJ Webby - Breeze (Original Mix) 06:41
+03. Ra-Ga - Sun Rise (Original Mix) 04:28
+04. Anna Kraynidolski - Coins (Manchus Remix) 06:24(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8625CDE791BA6C669EB6E169C8E1C55C3A8164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008518   (816028) от 18.04.2016
 
 VA - House Rhythms (Special Edition) (2016) [MP3|320 кб/с] <House, Club House>
@@ -603,148 +754,6 @@ VA - Global Underground: Afterhours (2016) [MP3|320 кб/с] <House, Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DC125039AC8F51BDE401E68869B599304482E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119472   (807494) от 28.03.2017
-
-VA - Progressive House Spring Essentials (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vintage & Morelli - Desire (Dezza Remix)  5:42
-02.  LTN - Whispers In The Night (Original Mix)  6:44
-03.  Sam Davies - Cosmos (Sundriver Remix)  8:22
-04.  Eskai - Tides (Original Mix)  5:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1062A07EDB3649F9A469AF0136B1BBCBFCA16FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119436   (807110) от 28.03.2017
-
-Shingo Nakamura - Best of Shingo Nakamura (2017) [MP3|320 Kbps] <House,Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artist Retrospective (Continuous Mix)Жанр: House,Progressive HouseПродолжительность: 02:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804373691C5308362687EBE031DB403E902FBBC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009939   (806213) от 23.04.2016
-
-VA - Bigtime EDM Vol.8 (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Bale - The One (feat. Aybewan) 06:19
-02. Sl Curtiz & Domovnik - Timeline (Teo Moss Remix) 05:46
-03. Dion Mavath - B52 06:19
-04. Teo Moss - Activation 05:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE8C9290F601983860450F9F25499F685045E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119797   (805618) от 29.03.2017
-
-VA - OTB-EDM Records Miami (WMC) (2017) [MP3|320 Kbps] <House, Progressive, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Antonio Miccoli - Close Your Eyes  5:08
-02.  Dave Noise & Andeejay - Fire  5:31
-03.  i52DJ - Dream  5:09
-04.  Tosch - Windjammer  4:19(   Читать дальше...   )Жанр: House, Progressive, FunkyПродолжительность: 03:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D8C8CAAF7245B658E296746ADC2CC1CA916743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010342   (804394) от 24.04.2016
-
-VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Decyno - Trip 07:51
-02. A. Chagochkin - Give Me Key 04:59
-03. Chemical Poison - Skyward 07:01
-04. Creatique - Talskaf 05:34(   Читать дальше...   )Жанр: House, Tech House
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337D7EA374467BD850AA72B1B8E96A3B2EA7A1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

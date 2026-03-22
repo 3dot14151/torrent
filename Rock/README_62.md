@@ -1,3 +1,154 @@
+###  Публикация: 950139   (372334) от 25.10.2015
+
+Trubetskoy - Magister Bibendi (2015) [MP3|~265 кб/с (V0)]<Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок-группа Trubetskoy из Минска создана бывшими участниками «Ляписа Трубецкого», «Крамбамбули» и других коллективов. «Magister Bibendi — это не просто распорядитель попойки, как считают знатоки латыни. Это уличный маг, обаятельный жулик, диджей на пире во время чумы. Он является, когда мир становится слишком серьёзным», — говорят музыканты о своём альбоме.01. Magister Bibendi
+02. Ева и Адам
+03. Лети
+04. Капкан(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8104B3FF971C36AD4F2198AE7AA3E25761F76805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415959   (371590) от 14.10.2020
+
+Rikk Eccent - Black Halo (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher Love (06:06)
+ 02. Strange (00:11)
+ 03. Stranger (05:39)
+ 04. Strangest (00:42)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20FFBD5C39C3E5382C8E89A75A28DBD8698D35A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069583   (371311) от 05.11.2016
+
+Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedelic Atmospheric Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Welcome to the Machine   (06:40) 
+  02| Killer (Live)   (05:21) 
+  03| Redemption (Live)   (07:26) 
+.Жанр: Psychedelic Atmospheric Rock |Продолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E026C782EADB2BF2574DF9E3869D3B55D5AF2C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575479   (371256) от 14.11.2012
+
+Outer Limits & Jeff Christie - Outer Limits/Floored Masters-Past Imperfect (2008) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Turn On Your Lovelight (3:40)
+2.  Both Ends Of The Rainbow (3:50)
+3.  You've Got The Love (3:14)
+4.  Midnight Express (3:53)
+5.  Troubadour (4:53)
+6.  Back On The Boards (3:31)
+7.  Another Point Of View (3:27)
+8.  You And Me (4:25)
+9.  On The Same Side (5:06)
+10.  Saints And Sinners (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FF94CA17F7E9C7DB5742F10D0929178F06FD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069837   (371188) от 05.11.2016
+
+Sir Rod Stewart - And Some Of His Early Faces (2016) 2CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond Joe
+02. Engine 4444
+03. Maggie May
+04. Stay with Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF9A9AF4607AA9816425703BD42F3EE0BB9F599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 251962   (371078) от 01.11.2010
 
 The Band - Discography (1968..2005) [MP3|320 kbps]<Country / Roots / Blues Rock>
@@ -606,148 +757,6 @@ Dire Straits - Dire Straits FM Broadcast April 1979 (2020) [MP3|320 Kbps] <Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CA8FDDDDF2FB6FC4B007B14A83A30CD305E6C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416027   (367333) от 16.10.2020
-
-Uriah Heep - Uriah Heep FM Broadcast February 1974 (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Livin' (Live)
-02. Sweet Lorraine (Live)
-03. Stealin' (Live)
-04. July Morning (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663F8D9A4DF33D0E5325F6D2223C1F3C9DE3E168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070420   (366417) от 07.11.2016
-
-Smokie - Greatest Hits (1999) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Next Door To Alice (3:28)
-02. Lay Back In The Arms Of Someone (4:06)
-03. I'll Meet You At Midnight (3:16)
-04. She Rides Wild Horses (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13E98AC168B3C5B6BC73034F143DF96FE6BDD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416688   (365250) от 17.10.2020
-
-T. Rex - T. Rex FM Broadcast 1976 (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride A White Swan (Live)
-02. Life's A Gas (Live)
-03. Teenage Dream (Live)
-04. Metal Guru (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBF08D813E0B42DE29FEAB5CE678F48BBE17D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416438   (365108) от 17.10.2020
-
-Santana - FM Broadcast Santana Live (2014) [MP3|320 Kbps] <Rock, Indi Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Well Alright (Live)
-02. Black Magic Woman / Gypsy Queen (Live)
-03. Dance Sister Dance (Live)
-04. Europa (Live)(   Читать дальше...   )Жанр: Rock, Indi Rock, Pop RockПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF889503C60CF4DB46F6B7D435C7565A55B153F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416683   (364967) от 17.10.2020
-
-Eagles - Live From The Forum MMXVIII (2020) [MP3|320 Kbps] <Classic Rock, Legends>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic Rock, LegendsПродолжительность: 2 CD, 02:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23146CA756436D61E8DC7312B1E393B6F37AD68
 ```
 
 https://mybot314.ru/tekegram_catalog/

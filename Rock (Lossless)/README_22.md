@@ -1,3 +1,119 @@
+###  Публикация: 1089214   (953755) от 02.01.2017
+
+Yogi Lang (ex.RPWL) - No Decoder (2010)  [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Reach You 2:20
+02. Sacrifice 9:30
+03. Our World Has Changed 5:26
+04. Sail Away 5:16(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DDE9F3B2F69561D5A2078028C8E4C540699A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280275   (953482) от 08.01.2011
+
+Океан Ельзи - Песни высшей пробы (2010) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953482.jpg" />
+</div>
+
+
+###  Подробнее
+
+----------------
+01. Я так хочу... [4:42]
+02. Все буде добре [3:08]
+03. Без бою [4:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980853   (952968) от 31.01.2016
+
+Mystic Braves - Days of Yesteryear (2015) [FLAC|Lossless|WEB-DL|tracks] <60's Psychedelic Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Myself
+02. No Trash
+03. Now That You're Gone
+04. As You Wonder Why(   Читать дальше...   )Жанр: 60's Psychedelic Rock, Garage RockПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BDDC18CFF0142553A36EDF7CF50D408FCE4C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981602   (951550) от 01.02.2016
+
+Van Wilks - 21st Century Blues (2015) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock, Texas Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Girl
+02. Drive By Lover
+03. Golddigger
+04. Just Walk Away(   Читать дальше...   )Жанр: Rock, Blues Rock, Texas BluesПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F4E404C0CDC6355FD91992096AB9B13C087DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362097   (951159) от 22.02.2020
 
 Indica - A Way Away (2010) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
@@ -629,122 +745,6 @@ Regent - Illusions (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D584F574317E9CAF180939A62411D61E8F33EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091166   (944864) от 08.01.2017
-
-Blind Ego - Liquid (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944864.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Place in the Sun (6:11)
-2. Blackened (5:44)
-3. What If (6:24)
-4. Not Going Away (7:32)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFD6A5E9C9A2551115938974D7AEC1FE2CFB34A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983374   (943622) от 06.02.2016
-
-Elton John - Wonderful Crazy Night (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Crazy Night
-02. In The Name Of You
-03. Claw Hammer
-04. Blue Wonderful(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A431589699B283BF6877B6743DD3944330794C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 152629   (943525) от 06.02.2016
-
-GPS (ex-Asia) - Window to the soul (2006) US Edition [FLAC|Lossless|tracks + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Window to the soul (6:57)
-02. New Jerusalem (8:27)
-03. Heaven can wait (8:04)
-04. Written on the wind (6:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E85487D54CC46F2FB95EBE3C8FCB772CBF5D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091582   (943017) от 09.01.2017
-
-Sonia Dada - Sonia Dada (1992) [FLAC|Lossless|tracks + .cue] <Rock Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943017.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We Treat Each Other Cruel (4:09)
-2. You Don't Treat Me No Good (4:08)
-3. Jungle Song (4:42)
-4. As Hard As It Seems (3:59)(   Читать дальше...   )Жанр: Rock SoulПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87742EA26C52A4C3BB13B609A2B37E46874CD118
 ```
 
 https://mybot314.ru/tekegram_catalog/

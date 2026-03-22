@@ -1,3 +1,148 @@
+###  Публикация: 1154766   (535186) от 02.08.2017
+
+Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Walk The Line
+02. Folsom Prison Blues
+03. Cry! Cry! Cry!
+04. Get Rhythm(   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926078   (535158) от 09.08.2015
+
+Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Talk About It (feat. King Mez & Justus)
+03. Genocide (feat. Kendrick Lamar, Marsha Ambrosius & Candice Pillay)
+04. It's All On Me (feat. Justus & BJ the Chicago Kid)(   Читать дальше...   )Жанр: Soundtrack, Rap, Hip-HopПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A7B45F3DA4374C41826BC3C9217438339FFF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312181   (534387) от 03.07.2019
+
+Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Track 1 (02:15)
+02. Theme from Child's Play (04:25)
+03. Birth of Chucky (02:41)
+04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C92FEA31D6A76FB5F56F1E538FCD7A26253FFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819506   (533682) от 07.09.2014
+
+V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ronnie Price Orchestra - The First Time Ever I Saw Your Face
+02. Eddie Heywood - A Dreamer's Holiday
+03. Floyd Cramer Orchestra - It Had To Be You
+04. Ronnie Price with Nick Ingman Orchestra - Somewhere My Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD80F54D3BE6FE847F43E3E24B0E7E0658CAC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926551   (533310) от 10.08.2015
+
+Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2011) [FLAC|Lossless|WEB-DL]<Instrumental, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Else Matters
+02. Brothers In Arms
+03. Californication
+04. Don't Cry(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B10EB5B9831EF70DECC39492A06D8E1D2A800C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 366000   (532734) от 25.07.2011
 
 Терминатор - The Terminator (1984-2009) [MP3|320 kbps]<Score, Soundtracks>
@@ -607,155 +752,6 @@ Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312201   (530694) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got a Friend in Me (02:04)
-02. I Can't Let You Throw Yourself Away (02:06)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312207   (530614) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой хороший друг (02:05)
-02. Ты не вздумай (02:09)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30AEDEB11C9F62527DE6B7F435F0B16CF13E822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927215   (529929) от 12.08.2015
-
-Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantastic Four Prelude
-02. The Garage
-03. The Unveiling
-04. Baxter(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240295   (529754) от 10.08.2018
-
-Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slipping Away
-02. Spoken from Within
-03. Like Father Like Daughter
-04. Kokkino Garifalo (Classical Arrangement)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75250D94AD252061CBB8CAAE2854F04D18F12E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368373   (529491) от 27.07.2011
-
-Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guru Stotram
-02. Om Bhagavan Sri Ramana
-03. Pathless Path
-04. Everything is Shiva
-05. Om Mani Padme Hum
-06. Infinite Dance
-07. Shower of Grace
-08. Heart of FireЖанр: Mantras, New AgeПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C85BE61C6878FF8102EBB8F67C76C6382DFAC31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,147 @@
+###  Публикация: 1060304   (457250) от 06.10.2016
+
+Eguana - The Last Dragon (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breathing Cold Mountains (6:24)
+02.  Spirit Of The Dragon (9:49)
+03.  The Majestic Finesse To Soul (6:23)
+04.  Shaman Dancing With Dragon (9:53)(   Читать дальше...   )Жанр: Ambient, Chillout, New ageПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8C466FBCD9AEDD0D40F883B7B97472942176AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246966   (456986) от 13.09.2018
+
+Matt English - Inspire Me (2018) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith
+02. Key of B
+03. Childlike
+04. Crave(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E843A632E4AB3FBF6F454B2A78DBFCE685FCD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321583   (456802) от 25.08.2019
+
+Christopher Phillips - Piano Chill: Songs of Billy Joel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Always a Woman (3:40)
+ 02. She's Got a Way (3:17)
+ 03. Piano Man (2:53)
+ 04. Allentown (4:10)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9526E9C62549E6855E457E1C5BBA12535BBF717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321208   (456439) от 25.08.2019
+
+Tantric Sex Background Music Experts - Asian Tantric Yoga (2019) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensual Yoga (3:19)
+02. Spiritual Intimacy (2:57)
+03. Deep Tantric Sensuality (4:00)
+04. Awaken Your Sexual Potential (3:33)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B526179D2721EE15897C450E9210853496A08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 826508   (455480) от 29.09.2014
+
+VA - В ритме танца. Вальс (2010) 3CD [FLAC|Lossless]<Instrumental, Easy Listening, Waltzes>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в начале 1800-х вальс впервые был представлен на английских балах, он был осужден церковью и государством за вульгарность и безнравственность. Это был, в конце концов, первый раз, когда перед обществом возникла возмутительная позиция для танца, в которой мужчина так близко держал женщину. Но именно эта изюминка, вызвавшая столько критики, вызвала увлечение (   Читать дальше...   )CD1: Будь Что Будет
+CD2: Любовь Моя
+CD3: Этот Прекрасный МирЖанр: Instrumental, Easy Listening, WaltzesПродолжительность: 03:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0B432F29EEBAA58DEA365D3775A6F3562341A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407885   (455439) от 12.09.2020
 
 Garmarna - сборник, 7 альбомов (1993-2016) [FLAC|Lossless|tracks] <Folk, Folk rock, Synth folk>
@@ -603,157 +747,6 @@ VA - Back To Nature (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49E7EC4C508F8206EBB8240C7A77AE4A8346728A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145393   (448586) от 14.08.2022
-
-Александр Зацепин - Тайна третьей планеты (1981) [MP3|320 kb/s]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.   Main Title (2:16)
-2.   The Journey Begins (0:49)
-3.   Dr Verhovtsev (1:07)
-4.   No Diaries (1:08)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2555366D63286EA9E038C381C5B68EE6DAFF6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705472   (448585) от 30.09.2013
-
-Leo Rojas - Flying Heart (2012) [FLAC|Lossless|image + .cue] <New age, Instrumental, Native american, Panflute>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Song (3:38)
-02. Chariots Of Fire (3:40)
-03. Run (4:03)
-04. Angel (2:53)(   Читать дальше...   )Жанр: New age, Instrumental, Native american, PanfluteПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C785863776D82353F7D2E67FB971812B5F28AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247910   (448491) от 17.09.2018
-
-Rajendra Teredesai & BlueMonk - Samsara (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Himalayan Sunrise
-02. Sunshine Girl
-03. Darjeeling Dreams
-04. As Life Passes By, Pt. 1(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1FFF64B8A3D5E14D6F25166CD25744CCC7FAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163689   (448144) от 06.09.2017
-
-Vangelis Katsoulis - If Not Now When (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All The Blue Skies
-2. Zarrin
-2. Grand Delusions
-4. Liquidity(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BD186848BB6C4262AAC9FAA7B8B913719FD75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552150   (448049) от 26.09.2012
-
-Edward Shearmur - K-PAX / Планета Ка-Пэкс (2001) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448049.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grand Central (4:38)
-2. Good Morning Bess (2:47
-3. Taxi Ride (3:50)
-4. Constellation Lyra (2:41)
-5. Bluebird	 (3:52)
-6. 4th Of July (4:14)
-7. Prot Missing (2:30)
-8. Sarah (3:03)
-9. New Mexico (6:24)
-10. Powell's Return (1:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930E304F2AEDB95BA8BFADE2CD7D96A39FB9BC62
 ```
 
 https://mybot314.ru/tekegram_catalog/

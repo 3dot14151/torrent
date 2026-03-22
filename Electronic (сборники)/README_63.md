@@ -1,3 +1,90 @@
+###  Публикация: 1211077   (778237) от 05.03.2018
+
+VA - Empire Records - Progressive Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clouds Testers  -  Inhale The Love (Semenovb Instrumental Remix)  3:58
+02.  Jurgen Paape  -  Whisper Echo (Original Mix)  5:00
+03.  Luke Lucid  -  Black Star (Original)  5:28
+04.  Sebastian Davidson  -  Golden Age (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E6DCFD737F854D79A6B683BEA372697F6847DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211096   (778204) от 05.03.2018
+
+VA - Empire Records - Deep Disco 7 (2018) [MP3|320 Kbps] <Disco, Nu Disco, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Olej & Stereoteric feat. Kristina Tiurina  -  Trust Me (Remix)  3:01
+02.  Robert Cristian  -  My Road (Original Mix)  3:05
+03.  QRVZH  -  Sunshine (Original Mix)  5:24
+04.  Vanotek feat. Eneli  -  Tara (Andrew Brooks Remix)  5:04(   Читать дальше...   )Жанр: Disco, Nu Disco, DanceПродолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FEA6C0EF30F86661692FE6AE5794A4F0966B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211167   (777896) от 06.03.2018
+
+VA - Empire Records - Blue Line Trance 2 (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonas Blue feat. William Singe - Mama (Kevu Festival Bootleg)
+02. Jon Thomas, DJ Backslash, Johnny Catch - Never Been Honest
+03. Jon Bellion - iRobot (Landis Remix)
+04. Newclaess - Be The One(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98C4EAAF5D2B20B71A31E66FD8045E0F38BF935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211239   (777874) от 06.03.2018
 
 VA - Empire Records - Magic House 3 (2018) [MP3|320 Kbps] <House, Deep House>
@@ -658,93 +745,6 @@ VA - Rain Hugs: Relax Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B30713040B1733D5A5F6F02C30AF30B0C5C5CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211854   (776897) от 09.03.2018
-
-VA - Crystal Bass: DnB Line (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Block Control - Collaps
-002. Keeno - The Comet
-003. Fox Stevenson - Knowhow
-004. Danny Byrd - Devil's Drop(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 09:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A917A36BC90712C60EE55CB194A6E570233075E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014097   (776571) от 07.05.2016
-
-VA - Audio Safari Ibiza (2015) [MP3|320 кб/с] <Tech House, Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Booka & Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:37)
-02. Moe.ritz - A Go (06:05)
-03. Lenox (GER) - Don't Go (05:17)
-04. Heinrich & Heine - Like the Sun (Andree Wischnewski Remix) (05:47)(   Читать дальше...   )Жанр: Tech House, Deep House, Nu DiscoПродолжительность: : 03:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4166D9BAAF6EC29FCC32DDB51E825835EDAA8225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212164   (776551) от 10.03.2018
-
-VA - Music Generation: Big Room Electro House (2018) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Point - Weekend Players (Original Mix) 05:32
-002. 5sta Family - Снова вместе (Vadim Adamov & Hardphol Radio Remix) 03:09
-003. Mark Bale & Bobby Rock feat. Roger Horton - The Bass (Ferdinands Feld Festival Anthem 2017) 04:03
-004. The Boogeyman - The Bass Poem (Radio Edit) 03:22(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 08:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DED95F801ED87035A1E103544414417BC682832
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,118 @@
+###  Публикация: 1451238   (1028566) от 01.03.2021
+
+Nelson - Life (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Girl Like That
+02. I Would If You Want Me To
+03. Life
+04. She Sheila(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CF067F93C4E3B39B1FFB6ADB6FBDA311A0347F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451163   (1028565) от 01.03.2021
+
+Shelter - First Stop (1983) Reissue, 2018, Rock Candy [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Line (03:43)
+02. So Glad I Found You (03:48)
+03. The Way I Feel (04:09)
+04. Who Do You Love (03:26)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3A56B10FF4B073A9E28888721426F5766D04AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451339   (1028560) от 01.03.2021
+
+Fish - Change of Heart (1997) CDS, Single [FLAC|Lossless|image + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change of Heart (03:46)
+02. Goldfish and Clowns (Radio Edit) (04:17)
+03. The Perception of Johnny Punter (US Radio Edit) (08:38)Жанр: Prog RockПродолжительность: 00:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A063DAED888B3D0637E2D623C36BFA3B269DCF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451159   (1028557) от 01.03.2021
+
+Lee Kerslake - Eleventeen (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celia Sienna (05:48)
+02. Take Nothing For Granted (03:23)
+03. Where Do We Go From Here (04:30)
+04. You May Be By Yourself (But You're Never Alone) (06:05)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB357EBED948F2DD803407F93493415167327566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451289   (1028554) от 01.03.2021
 
 Tane Cain - Tane Cain (1982) Reissue, 2015, Rock Candy [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
@@ -629,122 +744,6 @@ Rod Stewart - 9 Albums (1977 - 2013) 10 CD [FLAC|Lossless|tracks + .cue]<Pop Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:509312774F5A71DD489E08F938493F2DBC6E0A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452669   (1027561) от 07.03.2021
-
-Святослав Вакарчук - Оранжерея (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оберіг [00:03:33]
-02. Лиш для нас [00:03:00]
-03. Без причини [00:03:10]
-04. Знову [00:05:08](   Читать дальше...   )Жанр: RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE35F3AA53CF203C91204E1B036C403A12AEF929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452869   (1027416) от 08.03.2021
-
-East Temple Avenue - Both Sides Of Midnight (2020) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain
-02. Don't Make Believe
-03. Fool For Love
-04. My Last Breath(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A84986D085614459960EDF606BC5D23BAF2CBBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452890   (1027415) от 08.03.2021
-
-Arc - Maquette (1980) Reissue, Remastered, 2020, Paisley Press [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quand (7:11)
-02. Oraison Funebre (6:06)
-03. Ami (9:54)
-04. Souffle Colore (11:56)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DFF6B6EB050C0C0DA8455902FA7820FBD80A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452820   (1027414) от 08.03.2021
-
-Kim Mitchell - Itch (1994) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonder Where & Why
-02. Acrimony
-03. Lick Yer Finger
-04. The U.S. Of Ache(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0EE585CB1403512044296CB7F656FC05F74855
 ```
 
 https://mybot314.ru/tekegram_catalog/

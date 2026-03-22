@@ -1,3 +1,32 @@
+###  Публикация: 960222   (309924) от 27.11.2015
+
+Schubert - Piano Sonatas - Christian Zacharias (Vol.2) (2CDs) (1998) [FLAC|image +.cue]<Classical, Recital, Romantic Period, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonate en la majeur D.959
+01. Allegro (15:40)
+02. Andantino (07:37)
+03. Scherzo (allegro vivace) (05:37)(   Читать дальше...   )Жанр: Classical, Recital, Romantic Period, SonataПродолжительность: 02:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D50827E1D73576996D89347F3ECD19B5BBD8F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960105   (309825) от 27.11.2015
 
 Schubert - Piano Sonatas - Christian Zacharias (Vol.1) (3CDs) (1998) [FLAC|image +.cue]<Classical, Romantic Period, Recital, Sonata>
@@ -721,35 +750,6 @@ Piano Sonata No. 21 in B flat major, D. 960:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682341   (131821) от 06.12.2023
-
-Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131821.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-(1)-(3) Sonata I in A minor
-(4)-(6) Sonata II in A flat major(   Читать дальше...   )Жанр: Classical, FortepianoПродолжительность: 01:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53021E948485FD6A416FD948FC6E36777B87ACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

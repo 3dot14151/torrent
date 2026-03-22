@@ -1,3 +1,319 @@
+###  Публикация: 1761249   (36865) от 18.11.2024
+
+Wheeler Walker Jr - Ram (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Fuck (2:53)
+02. Money 'N' Bitches (3:29)
+03. Dumptruck (2:52)
+04. Sniffer's Row (3:48)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4400FB3726D8822972C367E91A9371352D3C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761366   (36767) от 19.11.2024
+
+Garage Bluesband - Seven Shades of the Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Full of Women (3:29)
+02. In the Name of No Good (3:41)
+03. I (4:40)
+04. A Quitter Never Wins (5:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2843CC6B23DBF8BE67AAA16F0C993DA770D3CBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760811   (36764) от 19.11.2024
+
+Fritz Kalkbrenner - Third Place (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal House, Progressive>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Ain’t Over
+02. High Line
+03. Playing Games
+04. Free At Last(   Читать дальше...   )Жанр: Tech House, Deep House, Vocal House, ProgressiveПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F6C6451C920B594D55C0684FDE36E8816A759E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761445   (36723) от 20.11.2024
+
+VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Ballad, Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soft Rock, Ballad, Hard Rock, Blues RockПродолжительность: 01:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1610288ECB9F0CB78BCAFDC715F00A68E87B0581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761527   (36683) от 20.11.2024
+
+Luke Watt - Luke Watt (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paddy (3:13)
+02. In Plain Sight (4:25)
+03. The Creek (5:56)
+04. Liza Jean (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01932BCCB9607F5EC6FC443117CFCE05E0FDA42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761459   (36659) от 20.11.2024
+
+Sandy Hall - Full Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock, Singer-Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Feeble Words (03:59)
+02. Love Still Remains (03:35)
+03. The River Calls Me Home (03:51)
+04. Break The Cycle (03:57)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Singer-SongwriterПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D56C58F8B5A6911D46D16ACF6E2B429505CF3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761526   (36657) от 20.11.2024
+
+Dan T. and the Crew - LEGACY (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MIGHTY LONG TIME (4:55)
+02. TEARS (3:28)
+03. MY BLUES (3:33)
+04. BRAND NEW DAY (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9367CFFC58DD59873D1C6A9A710E3D7B0AAA055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761711   (36589) от 21.11.2024
+
+Jazz Romantica, Sexual Music Collection - Jazz Room of Seduction (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Romantica - All of You (3:38)
+02. Jazz Romantica - Chill Lounge (4:05)
+03. Jazz Romantica - Touch of Jazz (3:43)
+04. Jazz Romantica - Coffee (4:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8A73578E94610AD9CC2CDA45B7430058CEA348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761679   (36581) от 21.11.2024
+
+Marilyn Manson - One Assassination Under God - Chapter 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Industrial metal, gothic rock, alternative metal, shock rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Assassination Under God (5:28)
+02. No Funeral Without Applause (4:07)
+03. Nod If You Understand (4:05)
+04. As Sick As The Secrets Within (5:36)(   Читать дальше...   )Жанр: Industrial metal, gothic rock, alternative metal, shock rockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0196A7E1E1BA53562A4C0490FD8EEAE00EBB7984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761596   (36576) от 21.11.2024
+
+Straviado - Weird (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trapped (3:49)
+02. Go Back (4:23)
+03. I'm drowning in... (4:30)
+04. The suicide of adolescence (3:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756F431B200D8CA7B1A854749BC8EB848C56B962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761712   (36575) от 21.11.2024
+
+Ludivine issambourg - Above the Laws (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bear (3:27)
+02. New Morning (3:22)
+03. Kickin' Your Ass (2:51)
+04. Manoir (3:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F142008A55DC9B067E2BC0B3AF41B5E779353500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761603   (36573) от 21.11.2024
 
 As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -426,325 +742,6 @@ Mell Vf - Queen Of My Castle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DDAA0A10B81E50CCAA15B9D587AA3AE2E2B72B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761831   (36467) от 22.11.2024
-
-Mystery Moon - Shine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36467.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Now's The Time (7:16)
-• 02. Shine (4:09)
-• 03. The Hidden Magic (4:23)
-• 04. The Mystery (4:44)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC13C4FC7F1F3044C30CC6EF5F0481662C92EAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761796   (36466) от 22.11.2024
-
-Luminare Christmas! - Mistletoe Madness (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Light That Shines (4:09)
-02. Mistletoe Madness (2:35)
-03. Oh Holy Night (4:31)
-04. Carol of the Bells (3:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E81EBA33F3D52E6308FAB24C27DFE56B836905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761778   (36465) от 22.11.2024
-
-Van Zant - Always Look Up (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awesome God (4:45)
-02. Stand Up (4:59)
-03. Warrior (4:08)
-04. There You Are (3:47)(   Читать дальше...   )Жанр: Southern Rock, Melodic RockПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18F6EB4AAAE79B7A5155DE708DF215244EE2389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761868   (36464) от 22.11.2024
-
-Viktoria Tolstoy - Stealing Moments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love Song (2:27)
-02. Good and Proper End (4:43)
-03. Wherever You're Going (4:08)
-04. Hands Off (4:24)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B33866885584658166657BEEE8676190405ADBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761865   (36463) от 22.11.2024
-
-Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancient — норвежская блэк-метал-группа из Бергена, образованная в 1992 году.1994 - Svartalvheim
-1995 - Trolltaar (EP)
-1996 - The Cainian Chronicle
-1997 - Mad Grandiose Bloodfiends(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 07:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EFEA486C8A12D06E97629472130E5B6657367E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761663   (36461) от 22.11.2024
-
-Storace - Crossfire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Screaming Demon (3:43)
-02. A New Unity (0:49)
-03. Rock This City (3:55)
-04. Adrenaline (4:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7656623FE9B8C4CF1401FB5083A029EBADD96415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761774   (36459) от 22.11.2024
-
-Sunstorm - Restless Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Stand For You (3:29)
-02. Love's Not Gone (4:26)
-03. Hope's Last Stand (3:32)
-04. Shot In The Dark (4:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAF8815E2A23546DA892B9B85469339C2E5B785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761793   (36457) от 22.11.2024
-
-Tygers Of Pan Tang - Animal Instinct (2008) Reissue, 2024, Mighty Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Candy (4:22)
-02. Cry Sweet Freedom (4:19)
-03. Live For The Day (4:32)
-04. Let It Burn (4:07)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32319A0D8D7EF055FEECAFF780C2C51EC4024E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761920   (36456) от 22.11.2024
-
-Black Pumas - Live from Brooklyn Paramount (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic, Alternative Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fire (Live from Brooklyn Paramount) [4:41]
-02 - I'm Ready (Live from Brooklyn Paramount) [4:54]
-03 - Gemini Sun (Live from Brooklyn Paramount) [5:28]
-04 - Know You Better (Live from Brooklyn Paramount) [7:56](   Читать дальше...   )Жанр: Psychedelic, Alternative Rock, Indie RockПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E84A560C80334AB48B6EEA46AFEE24855DF03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761792   (36452) от 22.11.2024
-
-The Smoothies - It's Christmas Around the World: A Cozy Soulful Christmas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Joy in NYC (2:35)
-02. Home for Christmas (2:40)
-03. Waiting for You Christmas Eve (2:24)
-04. Love in Paris at Christmas Time (2:04)(   Читать дальше...   )Жанр: SoulПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99C5CB6FD9ADEE24B1B8798F8D1EB24D056339E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761789   (36451) от 22.11.2024
-
-Motley Crue - Dr. Feelgood (1989) 35th Anniversary, Remaster, 2024,  BMG Rights Management (US) LLC [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Glam metal, heavy metal, hard rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.n.T (Terror 'n Tinseltown) (0:43)
-02. Dr. Feelgood (4:50)
-03. Slice Of Your Pie (4:31)
-04. Rattlesnake Shake (3:40)(   Читать дальше...   )Жанр: Glam metal, heavy metal, hard rockПродолжительность: 01:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA08DB1FF5F85A529C56C9CB1436F8E6C0BFD3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

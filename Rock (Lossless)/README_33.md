@@ -1,3 +1,116 @@
+###  Публикация: 1376472   (860367) от 17.04.2020
+
+David Bowie - ChangesNowBowie (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man Who Sold The World (04:01)
+02. Aladdin Sane (03:34)
+03. White Light/White Heat (03:43)
+04. Shopping For Girls (03:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEE1E09C29F39BC4B17C3604BA49256C978654F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497985   (859766) от 25.09.2021
+
+Steve Hackett - Surrender of Silence (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Obliterati (02:16)
+02. Natalia (06:17)
+03. Relaxation Music For Sharks (Featuring Feeding Frenzy) (04:36)
+04. Wingbeats (05:19)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF38F18F38FBC8BFD48675DFE8C3DECB771D6D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498069   (859431) от 25.09.2021
+
+Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970/2021) (50th Anniversary 2CD Remastered Deluxe Edition)[FLAC|Lossless|image + .cue] <Rock opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (3:59)
+02. Heaven on Their Minds (4:22)
+03. What’s the Buzz / Strange Thing Mystifying (4:14)
+04. Everything’s Alright (5:15)(   Читать дальше...   )Жанр: Rock operaПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C7AB21B1240E0B2DA7D5203A68F41620C4F6D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000003   (859304) от 25.03.2016
+
+Sniff'n'The Tears - Love/Action (1981) [FLAC|Lossless|image + .cue]<Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop Rock, Soft RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5489F0A0CDA6F7D4396786476A4B5C9C4D73DEB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999919   (859202) от 25.03.2016
 
 Queensryche - Greatest Hits (2000) Compilation, Remastered [FLAC|Lossless|tracks] <Rock, Heavy Metal>
@@ -629,125 +742,6 @@ Care Of Night - Connected (2015) [FLAC|Lossless|image + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:260C7C2912FAD0EA4ED2AFF2A225978EC7BF6459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002032   (848909) от 31.03.2016
-
-Sly & The Family Stone - Greatest Hits (2015) [FLAC|Lossless|tracks + .cue] <Rock, Soul, Funk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to Take You Higher (3:05)
-02. Everybody Is a Star (3:04)
-03. Stand! (3:10)
-04. Life (3:01)(   Читать дальше...   )Жанр: Rock, Soul, FunkПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7150A15E84CDE9725FF8EF54C53A3E64F4A927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002198   (848388) от 31.03.2016
-
-Scorpions - The Best Ballads (1995) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Dove (4:20)
-02. Lonely Nights (4:44)
-03. Believe In Love (5:20)
-04. Always Somewhere (4:55)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5826E387D58886CA62FE9ADAC179E20301AD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001707   (848320) от 31.03.2016
-
-Creedence Clearwater Revival - 7 альбомов (1968-1972) [FLAC|Lossless|image + .cue] <Блюз-Рок, Кантри-Рок, Рок-н-Ролл>
-
->>След.
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival — Fantasy, июль 1968
-02. Bayou Country — Fantasy, январь 1969
-03. Green River — Fantasy, август 1969
-04. Willy and the Poor Boys — Fantasy, ноябрь 1969(   Читать дальше...   )01. I Put a Spell on You (04:33)
-02. The Working Man (03:05)
-03. Susie-Q (08:39)
-04. Ninety-Nine and a Half (Won't Do) (03:40)(   Читать дальше...   )Жанр: Южный Рок, Блюз-Рок, Кантри-Рок, Рок-н-Ролл, Рутс-Рок, Свомп-Рок, Психоделический РокПродолжительность: 04:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762D0E25CC58363172CD34DF86145C248C2A86B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499357   (847974) от 02.10.2021
-
-Steely Dan - Northeast Corridor: Steely Dan Live! (2021) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847974.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Cow
-02. Kid Charlemagne
-03. Rikki Don't Lose That Number
-04. Hey Nineteen(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC054999F0AB3584E8F4021AAD0B47657101A51
 ```
 
 https://mybot314.ru/tekegram_catalog/

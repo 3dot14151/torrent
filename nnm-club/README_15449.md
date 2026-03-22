@@ -1,31 +1,22 @@
-###  Публикация: 559158   (408118) от 13.10.2012
+###  Публикация: 559144   (412042) от 11.10.2012
 
-VA - Top 100 Самые скачиваемые треки vol.8 (2012) [MP3|256 кб/с]<Pop>
+Подборка журналов | Звукомания №№1 - 8, 10 [январь...октябрь 2012] [PDF]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408118.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Инь - Ян - Oh, Yeah!
- 02. Юлия Волкова - Давай Закрутим Землю
- 03. DJ Sanny J feat. Los Tiburones - Chaka Chaka (Sax Mix)
- 04. Полина Гагарина - Нет
- 05. Tacabro - Ritmo Della Calle (Radio Edit)
- 06. One Republic - Feel Again
- 07. Нюша - Воспоминание (Dj Nejtrino & Dj Baur Radio Remix)
- 08. Dee & Crane - Let the Music Play (Radio Edit)
- 09. Ocean Drive - Revolution (Radio Edit)
- 10. Юлия Войс - Ненавижу Любя(   Читать дальше...   )Жанр: PopПродолжительность: 06:16:04
+«Звукомания» - журнал про звук, кино, аудиоустройства, хоум синема и аудио-видео технике. Журнал о звуке, о том, что же такое музыка. В нашей стране не умеют слушать музыку, и речь не о мощной громкости и всеобщей попсе на улицах, а о нормальной качественной музыке дома (причем при малых затратах). От которой при правильном её применении вы будете в полном восторге.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7C148D6BFE6828A897F2CAB69B9D962ABDA5C35
+magnet:?xt=urn:btih:E386692D879383ACE76F418265DECC28974A988F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,27 +24,204 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 558347   (408116) от 13.10.2012
+###  Публикация: 559202   (412039) от 11.10.2012
 
-Sainkho Namtchylak - Cyberia - Suite For The Voice A Cappella (2011) [FLAC|Lossless]<Jazz Vocal, Folk, Contemporary Jazz>
+Журнал | Загадки истории №14 [2012] [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_408116.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morning Hoomi [04:54]
-02. Syberian One [09:49]
-03. Dei-A-De [07:01]
-04. Hylba-Hulbus-Hmnga [05:50]
-05. Petrogliphs [05:05]
-06. Syberian Two [04:36]
-07. Hynguraarang [05:21]Жанр: Jazz Vocal, Folk, Contemporary JazzПродолжительность: 00:42:36
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D0DFCAF2EC0C64300303AB3955F14147CEB40F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559016   (412038) от 11.10.2012
+
+[Wallpapers] Нравятся! Сотня № 059 (1920х1080-2560х1600)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Большое спасибо неизвестным авторам этих работ.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F04BD357A400B48D465B92BF55A50540521513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559011   (412036) от 11.10.2012
+
+[Wallpapers] Нравятся! Сотня № 056 (1920х1080-2560х1600)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Большое спасибо неизвестным авторам этих работ.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3E50E4CBA81E1B91EEF852058B08088C1AA485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559160   (412035) от 11.10.2012
+
+Memphis May Fire - Challenger (2012) [MP3|320 кб/с]<Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412035.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Without Walls
+2. Alive In the Lights
+3. Prove Me Right
+4. Red In Tooth And Claw
+5. Vices
+6. Legacy
+7. Miles Away (feat. Kellin Quinn)
+8. Jezebel
+9. Losing Sight (feat. Danny Worsnop)
+10. Generation Hate(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884BB0378003026033D244387E500382EC33392C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559007   (412034) от 11.10.2012
+
+[Wallpapers] Нравятся! Сотня № 055 (1920х1080-2560х1600)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Большое спасибо неизвестным авторам этих работ.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A80D077D30B409F3B0248574320B7C0C8691C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559125   (412033) от 11.10.2012
+
+[Wallpapers] Nice Wallpapers Pack №1 [840 шт.]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412033.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nice Wallpapers Pack №1Название:  Nice Wallpapers Pack №1
+Разрешение файлов: 1280x1024 - 9380x6016
+Количество: 840 шт.
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B33CF4EE404EEE0860553678232C78BA5431931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558856   (412029) от 11.10.2012
+
+Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmospheric Rock / Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_412029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immersion   (1:57)
+02. Knowledge   (4:45)
+03. Chains   (6:50)
+04. Senseless   (8:03)
+05. Alone   (4:23)
+06. Ophelia   (6:36)
+07. Oppression   (5:08)
+08. Remember Me  (6:55)
+09. Wonderland   (8:29)
+10. Insomnia   (4:37)Жанр: Death Doom Metal / Atmospheric Rock / Progressive MetalПродолжительность: 00:57:43
 
 ## Скачать торент
 ```bash
@@ -65,283 +233,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559940   (408112) от 13.10.2012
+###  Публикация: 1412980   (412028) от 02.10.2020
 
-Журнал | Tattoo life №79 (UK) [ноябрь - декабрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание о современном мире татуировок как искусстве. Содержит информацию о международных выставках, фестивалях тату, а также иллюстрации самих татуировок.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FF6F44D18C24994EE6292234DC3296388F49DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559071   (408111) от 13.10.2012
-
-Лион - Сердце льва 2 (Мixtape) (2012) [MP3|128-320 кб/с]<Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смотри-лови (ft. DJ Andrew)
-02. Делай (ft. Смоки МО)
-03. Руки к небесам (ft. Гига)
-04. Быть безупречным (Кличко)
-05. Никто (ft. 9 жизней, Гальяно)
-06. Время летит (ft. СВО)
-07. Крутиться (ft. Смоки МО)
-08. В урбане (ft. KREC, Check)
-09. Одна (ft. Гига)
-10. Жми плей (ft. Триада)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC1BA086FD1023E4ABDAE4BD10C360A821D5BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559626   (408108) от 13.10.2012
-
-Журнал | Зарубежное военное обозрение №7 [июль 2012] [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный информационно-аналитический иллюстрированный журнал Министерства обороны Российской Федерации.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813F26F4CB8B2BE24B3A4183BB52E24F2CB8FF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413363   (408098) от 04.10.2020
-
-David Lee Roth - 8 Albums, 1 EP (1985 - 2013) 10 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что David Lee Roth (р. 10 октября 1954) родился в захолустье штата Индиана, ему довольно рано удалось познакомиться с большим шоу-бизнесом. Дело в том, что его дядя Manny Roth являлся владельцем популярного нью-йоркского заведения "Cafe Wha?", и именно в этом кафе семилетний David впервые соприкоснулся с творчеством таких личностей как Bob (   Читать дальше...   )Жанр: Hard RockПродолжительность: 07:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0D627B4A71FADB08C32869B2B61D0BCBC5F7FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413519   (408097) от 04.10.2020
-
-VA - Свежак Vocal Trance NNM (2020) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond feat. Zoe Johnston - Reverie (3:52)
-02. Alex M.O.R.P.H. feat. Cheryl Barnes - Against The Wind (3:24)
-03. Alexander Popov & Enzo feat. Cari - Stranger Inside (3:14)
-04. Alpha 9 - Tell Me (4:07)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 06:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0633D5DAFA345A0132EEDE95BA1C7BBF4487E30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413525   (408096) от 04.10.2020
-
-Санчес - ПРОДАНО. Часть 1. Начало (Version 2020) (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Продано (Вступление) [00:58]
-02. Продано [03:19]
-03. TV [02:57]
-04. Время [03:15](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00F10E590BEC35B512C3055B5DFC621947F90F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413635   (408095) от 04.10.2020
-
-VA - Beatport Deep House: Electro Sound Pack #176 (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408095.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ryan Fuller - Virgin Of Rock (Original Mix)
-002. Davix Project - Caribe
-003. Jeff Bhaume - Caraibe
-004. Immure - Time (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FD6A16364A35A05B6F6D59EABD30A3127DAB0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413593   (408094) от 04.10.2020
-
-Петр Волцит | Всё на свете знают дети. Почему дует ветер? (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительно, сколько вопросов может задать ребёнок о погоде! Почему дует ветер? Откуда берутся облака? Что такое туман? Почему по утрам видна роса на траве?
-
-Автор этой книги, Пётр Волцит, познакомит ребят с природными явлениями - грозой, ветром, дождём, градом, и расскажет, почему погода на Земле такая разная и переменчивая.
-(   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D2CDE00DCC2E042B5F1121C148804176BB9A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413590   (408093) от 04.10.2020
-
-Светлана Шидловская | Счастье внутри. Легкие рецепты для стройности и красоты (2019) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если похудение у вас цепко связано со словами "мало есть", "невкусно", "пресно", "голод", "диета", то самое время открыть эту книгу, а страшные слова забыть навсегда. Под обложкой вас ждет простая, в общем-то, истина: зачем голодать и давиться безвкусной несоленой гречкой с листом салата, когда есть столько вкусных, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C335E04AD2DAB00886ED899F45CA24B32F6096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413331   (408092) от 04.10.2020
-
-Amaranthe - Manifest (2020) Nuclear Blast Records [FLAC|WEB-DL|tracks] <Modern Melodic Metal>
+Echolot - Destrudo (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408092.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fearless [00:03:31]
-02. Make It Better [00:03:50]
-03. Scream My Name [00:03:03]
-04. Viral [00:03:01](   Читать дальше...   )Жанр: Modern Melodic MetalПродолжительность: 00:40:18
+01. Frozen Dead Star [00:09:38]
+02. Orbital [00:09:23]
+03. Wind up North [00:19:33]Жанр: Doom MetalПродолжительность: 00:38:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:447D74FE9A3B11295ABC7978542FCDE0250D2B43
+magnet:?xt=urn:btih:6DD5D489A4D9DBA8BE3C105E0E8F8BE8A04D5DF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,105 +261,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413512   (408091) от 04.10.2020
+###  Публикация: 1413203   (412027) от 02.10.2020
 
-Татьяна Корсакова | Гремучий ручей (2020) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беда не приходит одна.
-И кажется, страшнее беды, чем война, быть не может. Когда твой дом – больше не твоя крепость. Когда из окон его видны виселицы. Когда твое сердце полнится ненавистью и страхом.
-Но беда не приходит одна… Вслед за оккупантами в тихий городок вползает нечто темное и ненасытное. И старый дом на дне Гремучей лощины просыпается от многолетнего сна, (   Читать дальше...   )Жанр: МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FAD516EC742691693A592830F5DEC2D8D67D298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413484   (408090) от 04.10.2020
-
-Тайная кухня Энтони Бурдена / Anthony Bourdain: Parts Unknown (2013-2016) IPTVRip (сезоны 1-8 из 12, серии 54 из 71)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый человек иногда задумывается, как сложилась бы его жизнь, живи он в другой стране. Известный американский шеф-повар Энтони Бурден ищет ответ на этот вопрос, путешествуя по всему миру. Погрузиться в чужую языковую среду, попробовать блюда местной кухни, погулять по затерянным улочкам городов и пообщаться с их обитателями - всё это стало его настоящей страстью.Производство: США, Zero Point Zero Production Inc.Жанр: Документальный, путешествия, кулинарияРежиссер: Том Витале, Майкл Стид, Салли ФриманПеревод: Двуголосый закадровый, профессиональный (1ТВЧ)Субтитры: отсутствуютПродолжительность: серии x ~00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825C007BCAFF6AE9C9EAC285273631CAA0A5BCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413676   (408088) от 04.10.2020
-
-Между ангелом и бесом / Les anges gardiens (1995) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антуан Карко — владелец знаменитого парижского кабаре со стриптизом. Он ведёт размеренную жизнь богача, но всё меняется после звонка давнего друга, который перед самой смертью успевает попросить Антуана забрать из Гонконга мальчика и доставить его в Париж к матери. Антуан соглашается, так как с мальчиком ему предстоит забрать и крупную сумму денег. Однако в Гонконге (   Читать дальше...   )Производство: Франция / Gaumont International, TF1 Films ProductionЖанр: Фэнтези, Комедия, КриминалРежиссер: Жан-Мари ПуареАктеры: Жерар Депардье, Кристиан Клавье, Ева Гримальди, Ив Ранье, Александр Эксимо, Лоран Жандрон, Ева Герцигова, Жан Шампьон, Анна Гейлор, Натали Сежан и др.Перевод: Профессиональный (двухголосый, закадровый), Профессиональный (многоголосый, закадровый)Субтитры: русские, английские, французскиеПродолжительность: 01:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EC7376AE580BC9DD15517F66DF86F120ABB46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413654   (408087) от 04.10.2020
-
-Icecream PDF Editor PRO 2.33 RePack (& Portable) by elchupacabra [Multi/Ru]
+DubVision - Live @ Madurodam, Netherlands 2020-09-30 [MP3|320 Kbps] <Big Room>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408087.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. DubVision - Into You
+02. Claptone & Mylo - Drop The Pressure
+03. DubVision - ID w/ MEDUZA ft. GOODBOYS - Piece Of Your Heart (Acappella)
+04. Martin Garrix ft. John Martin - Higher Ground (DubVision Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:46:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC1E06AE26ED9286E6CADAB5A8F33095194A7B0A
+magnet:?xt=urn:btih:D8C702113E9FE51952DBA551BB7062983CCB0601
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,25 +290,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413506   (408086) от 04.10.2020
+###  Публикация: 1413097   (412026) от 02.10.2020
 
-Евгений Гришковец | Узелки (2020) [FB2]
+Methodica - Clockworks (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
 
->>Художественная литература
->>Современная поэзия и проза
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408086.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Есть воспоминания такой яркости и отчётливости, которые не тускнеют, не размываются и не уходят в тень новых событий и переживаний… Я говорю про воспоминания, которые всегда рядом, которые под рукой как некие предметы, лежащие в кармане некой вечной, бессменной одежды, как едва заметный белый маленький шрам на ноге, руке или на лбу, бросая взгляд на который или (   Читать дальше...   )Жанр: Современная русская литератураФормат: FB2
+01. A Trick (extended Version) (07:45)
+ 02. When I Fell Out Of The Sky (07:07)
+ 03. The Door To You (07:42)
+ 04. Shooting Stars (03:33)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 01:05:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9FC76646E678C304A95FE9B36D555D8B4A8A608
+magnet:?xt=urn:btih:BD429385D6D6ED270142EA5D71C9D0624FFA6CCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,28 +319,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413643   (408085) от 04.10.2020
+###  Публикация: 1413069   (412025) от 02.10.2020
 
-Eric Clapton & Friends - A Tribute To Ginger Baker: London 2020 (2020) Box Set, 2 CD, Unofficial Release [FLAC|Lossless|tracks] <Blues Rock, Classic Rock, Electric Blues>
+Chris Otchy - Recursive (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Drone, Minimal>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408085.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Питер Эдвард (Джинджер) Бейкер (1939 г. - 6 октября 2019 г.) добился наибольших успехов в качестве барабанщика британской супергруппы Cream с гитаристом Eric Clapton и басистом Jack Bruce. Джинджер Бейкер был очень вспыльчивым и с ним было чрезвычайно трудно работать. В американском документальном фильме "Beware of Mr. Baker" (Остерегайтесь м-ра Бейкера, (   Читать дальше...   )01. Introduction  (4:46)
-02. Sunshine Of Your Love  (6:27)
-03. Strange Brew  (5:15)
-04. White Room  (6:44)(   Читать дальше...   )Релиз состоялся: Live at Eventim Apollo, London, UK 17th February 2020Жанр: Blues Rock, Classic Rock, Electric BluesПродолжительность: 01:45:56
+1. Imperfect Replica 07:33
+2. Infinity Room 04:10
+3. Data Breach 03:41
+4. Maitreya 04:18(   Читать дальше...   )Жанр: Ambient, IDM, Drone, MinimalПродолжительность: 00:48:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA49FB7E6FCAA088FFC9886331F74C72A127218C
+magnet:?xt=urn:btih:2580A9D62725DB5C15829DF5E22AA07278FFC0CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,25 +348,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413603   (408084) от 04.10.2020
+###  Публикация: 1413104   (412024) от 02.10.2020
 
-ORPALIS PaperScan Professional 3.0.118 RePack (& Portable) by elchupacabra [Multi/Ru]
+Denis A - DAR Sessions #52 (2020) WEB-DL [MP3|320 Kbps] <Techno, Tech House>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408084.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ORPALIS PaperScan Professional является универсальной, мощной и простой в использовании программой для сканирования. Большинство приложений подобного рода предназначены для одного сканера, PaperScan позволяет управлять любым сканером, в том числе сетевыми сканерами (TWAIN или WIA протоколы поддерживаются). Вы можете импортировать любые изображения / PDF-файлы в PaperScan (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Kosmas - Pan Metron Ariston
+02. Jos & Eli - Atomica
+03. Greg Ignatovich & Aleandros Djkevingr - Mr.Robot
+04. Marcus Meinhardt - Masada(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:04:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:411BD43C8A84E1D95E073834DB0C2927DAABD65D
+magnet:?xt=urn:btih:BFE8715817508FAFB4F4A79886900FC438F5A9E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,25 +377,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413592   (408083) от 04.10.2020
+###  Публикация: 1413126   (412023) от 02.10.2020
 
-Гамлет ХХI век (2010) WEBRip
+Legion Of The Damned - Slaves Of The Shadow Realm (2019) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408083.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История Гамлета, принца Датского, перенесенная в XXI век. Героям придется решать все те же нравственные проблемы и преодолевать те же трудности, но средствами сегодняшнего дня. Вместо дуэлей на шпагах - гонка, вместо писем - видеопослания, вместо классического саундтрека - композиции Deep Purple.Производство: Россия / Мастер ФильмЖанр: Драма, экранизацияРежиссер: Юрий КараАктеры: Гела Месхи, Дмитрий Дюжев, Данила Козловский, Армен Джигарханян, Евгения Крюкова, Александр Бердников, Юлия Кара, Андрей Фомин, Виктор Сухоруков, Дмитрий БозинСубтитры: ОтсутствуютПродолжительность: 02:20:50
+01. The Widows Breed
+02. Nocturnal Commando
+03. Charnel Confession
+04. Slaves Of The Southern Cross(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:47:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59E4608F986C541A01EC336732D12A67DAE8C346
+magnet:?xt=urn:btih:AE439F88A481E3819FDAD95DB7EC8CB8A5C5F959
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,25 +406,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407644   (408082) от 04.10.2020
+###  Публикация: 1413061   (412022) от 02.10.2020
 
-Выскочка / Election (1999) BDRip [H.264/1080p]
+Islands, Pt. 1 - Jupi/ter (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Neoclassic>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408082.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящая война развернулась между самой активной и нахальной ученицей школы Харвер Хай Трэйси Флик и ее учителем Джимом МакАлистером. Выскочка Трэйси хочет во что бы то ни стало быть избранной президентом школьного совета, а мистер МакАлистер, зная вероломный и склочный характер Флик, готов пойти на все, чтобы этого не случилось. К сожалению, мистер МакАлистер даже (   Читать дальше...   )Производство: США / Bona Fide Productions, MTV Films, Paramount PicturesЖанр: Драма, мелодрама, комедияРежиссер: Александр ПэйнАктеры: Мэттью Бродерик, Риз Уизерспун, Крис Клейн, Джессика Кэмпбелл, Марк Харелик, Фил Ривз, Молли Хэйгэн, Дэлани Дрисколл, Коллин Кэмп, Мэтт Мэллой, Джанин Джексон, Холмс Осборн, Фрэнки ИнграссиаПеревод: Профессиональный двухголосый, профессиональный многоголосыйСубтитры: Русские, английские, французские, испанские, португальские, ивритПродолжительность: 01:42:57
+1. Select 04:59
+2. 19 12 19 05:16
+3. Lagoon 05:20
+4. RedInk 05:55Жанр: Ambient, Drone, Minimal, NeoclassicПродолжительность: 00:21:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:257E5DD799EDDC8804710CCB9D59D5E68DF57183
+magnet:?xt=urn:btih:C97C8C42334A64EE82893E6315EF97EDD71A9BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,25 +435,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413680   (408081) от 04.10.2020
+###  Публикация: 1413111   (412021) от 02.10.2020
 
-Большое приключение по Новой Зеландии. Архипелаг Чатем / Coast New Zealand. Chatham Islands (2018) HDTV [H.264/1080p] (сезон 3, эпизод 2)
+М.В. Иванова | Всё для детского сада. Лошади и пони (2016) [PDF]
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408081.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Архипелаг Чатем лежит примерно в 750 километрах к востоку от Новой Зеландии. Из десяти островов архипелага только два из них обитаемы: это остров Чатем с населением 600 человек и остров Питт, где проживают всего 38 человек.Производство: Новая Зеландия, Great Southern Television, BBCЖанр: Документальный, познавательный, путешествияРежиссер: При ВисвалингамПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:09
+Изящные лошади и милые пони, нарядные зебры и упрямые ослы, загадочная лошадь Пржевальского и очаровательная фалабелла - со всеми ними и многими другими маленький читатель познакомится на страницах книги "Лошади и пони" серии "Всё для детского сада". Для подготовительной группы детского сада.
+
+Рекомендовано для воспитателей детского сада и родителей.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5433FB78C2A4AA8408A994A15B4F155D39A797F7
+magnet:?xt=urn:btih:E603C6A95BC02E6A5CFE15BC0E2CF99CFB944AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +463,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413511   (408080) от 04.10.2020
+###  Публикация: 1413064   (412020) от 02.10.2020
 
-Госфорд парк / Gosford Park (2001) BDRip [H.264/1080p] [Remastered]
+Marco Bernard and Kimmo Porsti (The Samurai Of Prog ) - Gulliver (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408080.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пасмурный ноябрьский день 1932 года в имении сэра Уильяма МакКордала, поместьи "Госфорд Парк", собираются гости: родственники и друзья, аристократы и знаменитости. Посетители сэра Уильяма намереваются провести несколько дней, наслаждаясь роскошью жилища, отдав привычную дань изысканному чревоугодию и великосветским ритуалам. Все готово к очередному шикарному (   Читать дальше...   )Производство: США, Великобритания, Италия, Capitol Films, Chicagofilms, Film Council, Medusa Produzione, Sandcastle 5 Productions, USA FilmsЖанр: детектив, драма, комедия, криминалРежиссер: Роберт ОлтменАктеры: Келли Макдоналд, Эмили Уотсон, Кристин Скотт Томас, Майкл Гэмбон, Клайв Оуэн, Хелен Миррен, Райан Филипп, Мэгги Смит, Ричард Э. Грант, Айлин АткинсПеревод: Многоголосый профессиональный, двухголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 02:17:00
+01. Overture XI
+02. Lilliput Suite
+03. The Giants
+04. The Land Of The Fools(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:02:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56C9CAA95F206BE4C1B156120B6BF81EE96016F6
+magnet:?xt=urn:btih:B8027E031047C0CD6C896774A61DCFD4D9C33547
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +492,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413637   (408079) от 04.10.2020
+###  Публикация: 1413019   (412019) от 02.10.2020
 
-VA - Beatport Progressive House: Electro Sound Pack #179 (2020) [MP3|320 Kbps] <Progressive House, Electro>
+Marco Bernard and Kimmo Porsti (The Samurai Of Prog) - La Tierra (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408079.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Upercent - The Red Moon
-002. Q-Green - Something (Remix)
-003. 2symmetry - Dr. Bob (Club Mix)
-004. Mario Ochoa - Rising Sun(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 10:25:56
+01. Vuelo Sagrado
+02. El Error
+03. Voz De Estrella Que Muere
+04. Ansia De Sonar(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:09:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:367EEC3C3E31D2B0F4F430F6510961CA927736EE
+magnet:?xt=urn:btih:C44DB830777FAE1B01B8828980E3C778F5F6186F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,26 +521,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252629   (408078) от 06.10.2018
+###  Публикация: 1413078   (412018) от 02.10.2020
 
-Вильям Лонг | Младший братец медведя (1908) [JPG]
+Fossil Hunting Collective - Vacancy (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Neoclassical>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408078.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказы из жизни животных.
-Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: JPG
+1. The Wicked Shores We Breathe 07:44
+2. Hallow 05:02
+3. A Tale of Two Endings (Pt. 1) 05:54
+4. One Morning Star 07:04(   Читать дальше...   )Жанр: Ambient, Drone, Minimal, NeoclassicalПродолжительность: 00:53:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB76DFECE718D38C1A3B003CD4F11772AC6031E9
+magnet:?xt=urn:btih:A412894618A1EA164B2497C5182B140ACC5B8897
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,28 +550,192 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252632   (408077) от 06.10.2018
+###  Публикация: 1412974   (412017) от 02.10.2020
 
-Формула 1. Сезон 2018. 17-й Этап. Гран-при Японии. Свободная практика 1 (05.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+Corey Taylor - CMFT (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408077.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-05 октября 2018 года, пятница. 04:00 МСК
-Формула 1. 17-й Этап сезона 2018 года. Гран-при Японии. Сузука (Япония).
-Свободная практика 1
-Арена: Автодром Сузука (Сузука, Япония)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:50
+01. HWY 666 (4:09)
+02. Black Eyes Blue (3:22)
+03. Samantha's Gone (3:12)
+04. Meine Lux (3:13)(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 00:47:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DEC31C6BD9667B6B06006900E7F046B2EAC111E
+magnet:?xt=urn:btih:BD5E4F7D8F30DC7E32FD0E764C11B36C24B24D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832444   (412016) от 18.10.2014
+
+Как приручить дракона 2 / How to Train Your Dragon 2 (2014) Blu-ray [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412016.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время,
+соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест.
+Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США, DreamWorks Animation, Mad Hatter EntertainmentЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуаПерсонажи: Джей Барушель, Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл,
+Кристофер Минц-Плассе, ТиДжей Миллер Кристен Уиг, Джимон ХонсуПеревод: Дублированный (Лицензия)Язык субтитров: Английский, датский, финский, норвежский, русский , шведский, китайский, эстонский, латвийский, литовский, украинскийПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE415790D520F7E9C8F08AD4218634DEE33B46F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832414   (412015) от 18.10.2014
+
+Как приручить дракона 2 / How to Train Your Dragon 2 (2014) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412015.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время,
+соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест.
+Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США |  DreamWorks Animation, Mad Hatter EntertainmentЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуаПерсонажи: Джей Барушель, Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл,
+Кристофер Минц-Плассе, ТиДжей Миллер Кристен Уиг, Джимон ХонсуПеревод: ДублированныйЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F175C82F0CD3AF2F76D6FBD3DDC8CD64D912B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832086   (412012) от 18.10.2014
+
+Омега | Поготовка к ЕГЭ по физике и математике (2013) [unpacked]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеозаписи лекций по подготовки к ЕГЭ по физике и математике, преподаватель Михаил Александрович Пенкин.Жанр: ЕГЭ, видеокурсыФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93BAFCBDD405C8185A910399830261C46B43BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832458   (412011) от 18.10.2014
+
+Футажи - Rab-Byte - Volume 19 - Transitions & Wipes (Keyable Transitional Animations) [AVI]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник анимационной графики Rab-Byte. 79 файлов со звуковыми эффектами.Формат: AVIРазрешение файлов: 720х480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484ADE5A322B58AF2F16EE857025CA6AFB1755AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832259   (412010) от 18.10.2014
+
+Футажи - Rab-Byte - Volume 39 - First half of the day "Rings & Roses. A Wedding Collection" [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник свадебной анимационной графики Rab-Byte. Розы и кольца. 17 клипов.Формат: AVIРазрешение файлов: 720 x 480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F484D752EF9B3F5210BD3974A84636424CA291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832387   (412009) от 18.10.2014
+
+Футажи - Artbeats - Water Effects 2 (PAL) [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412009.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 клип водных эффектов + 10 анимированных масок.
+
+Перевод от Яндекса: В водные эффекты 2 кристально чистой водой-это везде. Если вы ищете подводные пузыри, брызги и каскады, или капли дождя в воздухе или плескаться в бассейне, если вы нуждаетесь в завораживающую рябь солнечных лучей или под водой, вы сможете найти эти клипы, чтобы быть идеальным вода fx! Есть несколько (   Читать дальше...   )Формат: MOVРазрешение файлов: 720x576
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CB1D68CA99A5133CA09E204D83D726B7AB3A53
 ```
 
 https://mybot314.ru/tekegram_catalog/

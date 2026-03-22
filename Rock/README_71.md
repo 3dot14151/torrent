@@ -1,3 +1,149 @@
+###  Публикация: 963723   (287641) от 08.12.2015
+
+Foggy Mountain Rockers - Angel Heart (1999) [MP3|160-192 кб/с]<Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble (02:26)
+02. Hold me tight (03:39)
+03. All I can do is cry (02:10)
+04. Cat's rhythm (02:40)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0C2E466AD039B12D1F779EE94901D24C0D46E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186598   (286204) от 25.11.2017
+
+Elvis Presley - Christmas With Elvis And The Royal Philharmonic Orchestra (2017) [MP3|320 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286204.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Santa Claus Is Back In Town
+2. White Christmas
+3. Here Comes Santa Claus (Right Down Santa Claus Lane)
+4. Merry Christmas Baby(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E75F6BB210824436C348767FBBB2B3AB21C292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934131   (285742) от 20.11.2018
+
+Jesus Culture - 12 Live albums (2006-2018) [MP3|234-320 кб/с]<Praise & Worship, Contemporary Christian, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jesus Culture - христианская рок группа из города Redding, Калифорния,США и одновременно группа прославления христианского молодёжного проекта Jesus Culture.
+Но это не просто очередная христианская рок-группа. Это настоящие поклонники Иисуса Христа. Их концерты - это настоящие праздники поклонения. Своей музыкой они поклоняются Господу и зажигают Божьим огнём других. (   Читать дальше...   )2006 - Everything
+2007 - We Cry Out
+2008 - Your Love Never Fails
+2009 - ConsumedЖанр: Praise & Worship, Contemporary Christian, Christian RockПродолжительность: 16:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B098E2CABFD5815F59EB297F2A8E70D4E4A10C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081225   (284796) от 09.12.2016
+
+Edge - Edge (1970) Reissue, 2009, Tone Arm [MP3|320 Kbps] <Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Callin' Out
+2. Sing Your Song
+3. A New Breed Of Man
+4. Lady Of Darkness(   Читать дальше...   )Жанр: Psychedelic Rock, Hard RockПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6B2ECF53AAC55362BF201E28EFD4AE1A022967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081170   (284629) от 09.12.2016
+
+Joe Satriani - Supernova Remix - The Free EP (2016) [MP3|320 Kbps] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Supernova Remix
+02. Stars Race Across The Sky Remix
+03. In My Pocket Remix
+04. Cataclysmic Remix(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F88DD02BA091405040F84C134388B5FE94A3ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186955   (284062) от 26.11.2017
 
 Sandy and The Wild Wombats - Devoted to Rock`n`Roll (2017) [MP3|320 Kbps] <Rockabilly>
@@ -618,151 +764,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C02806A10E5BC82AEA775A820DFC10E42958EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337045   (276111) от 09.11.2019
-
-Zucchero - D.O.C. (2019) [MP3|320 Kbps] <Pop, Rock, Latin>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirito nel buio (3:48)
-02. Soul Mama (3:30)
-03. Cose che già sai (feat. Frida Sundemo) (4:04)
-04. Testa o croce (4:11)(   Читать дальше...   )Жанр: Pop, Rock, LatinПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C0295C81C74B4A0F85160802C5F165071277B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336790   (276092) от 09.11.2019
-
-John Fogerty - 50 Year Trip Live at Red Rocks (2019) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born On The Bayou (Live at Red Rocks) (3:31)
-02. Green River (Live At Red Rocks) (3:26)
-03. Lookin' Out My Back Door (Live At Red Rocks) (2:45)
-04. Susie Q (Live at Red Rocks) (3:44)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946A3F485CAF68EF5DE4CCBC6E1814418BCF5CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187324   (275380) от 01.12.2017
-
-Sting - Greatest Hits (2017) 2CD [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275380.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. I Can't Stop Thinking About You
-02. And Yet
-03. Send Your Love(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084F6ACAA8C058109B19BB34CC2DE0591FE397A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336429   (274875) от 10.11.2019
-
-Иннокентий 3D - Дурные Звуки (2019) EP, Авторская раздача [MP3|320 Kbps] <Indie Rock, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Голактеко опасносте
-02. Трус
-03. Батя любит план
-04. Нам не жальЖанр: Indie Rock, Electronic RockПродолжительность: 00:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60AA4AA6009D13DD79478DFFD7A425EC13B80F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083307   (274725) от 15.12.2016
-
-VA - Air Guitar Anthems (2016) 3CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274725.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Queen – Bohemian Rhapsody
-2. Led Zeppelin – Whole Lotta Love
-3. The Rolling Stones – Start Me Up(   Читать дальше...   )Жанр: RockПродолжительность: 03:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10D950580B44F4E550186D244F6254F2B44DBA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

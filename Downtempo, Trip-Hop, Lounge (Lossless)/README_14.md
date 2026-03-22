@@ -1,3 +1,61 @@
+###  Публикация: 1303359   (572923) от 21.05.2019
+
+VA - Sweet Lounge Session Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stepo Del Sol - Summer Dreams
+02. Taco-Town - Con Su Permiso
+03. Mazelo Nostra - Memories Of Love
+04. Bob Zopp - Summer On The Strand(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018AD68CDD74B9EFA0EE66734F46E8F7C075F418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303476   (572914) от 21.05.2019
+
+VA - Sweet Lounge Session Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Dancing Waves (Original Mix)
+02. Lilli - Melody (Original Mix)
+03. Golden Tone Radio - On The Shore (feat Shed)
+04. James Butler - Floating Vibes (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCBCBC66ED5258B879B82DE2431FBCECDE9823C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303576   (572848) от 21.05.2019
 
 VA - Sweet Lounge Session Vol 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
@@ -692,64 +750,6 @@ Blank & Jones - Relax (Edition Eleven) (2018) [FLAC|Lossless|WEB-DL|tracks] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3466B726081D1FFAC6A12BDB4709709473D06DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154333   (540938) от 30.07.2017
-
-Martian - Flying In Love (2010) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To You (6:06)
- 02. Crying Heart (4:39)
- 03. Like In A Movie (4:00)
- 04. Night Rain (6:29)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA60182C48138000F0D6A757FEE24D9F28F5EBD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036383   (540345) от 04.08.2018
-
-Puremusic - Discography 11 Releases (2013-2017) Silk Sofa Music [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunray Kiss (05:04)
- 02. Take A Seat And Relax (05:52)
- 03. Ai (04:42)
- 04. Dreams (06:18)(   Читать дальше...   )Тип издания: WEB •Жанр: Downtempo, Ambient, Chillout •Продолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D64DD877BB6CD672FCC8483D56A1E507FFD861
 ```
 
 https://mybot314.ru/tekegram_catalog/

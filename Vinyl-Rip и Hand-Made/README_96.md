@@ -1,3 +1,351 @@
+###  Публикация: 1721063   (37759) от 09.11.2024
+
+Paragon - Studio Albums (13 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon — немецкая метал-группа из Гамбурга, играющая в стиле пауэр-метал. Была основана в 1990 году Мартином Кристианом.1995 - World Of Sin
+1998 - The Final Command
+1999 - Chalice Of Steel
+2001 - SteelboundЖанр: Power/Speed MetalПродолжительность: 11:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290C6BEDC1568C3E6DF61492DB572AFBEFA44F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583521   (37545) от 12.11.2024
+
+Blind Guardian - Studio Albums (13 releases) (1988-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Speed/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blind Guardian — немецкая метал-группа, образованная в 1984 году в городе Крефельд. Считается одним из пионеров пауэр-метала, однако музыка группы часто выходит за рамки этого жанра.
+Тексты многих песен группы, которые пишет вокалист Ханси Кюрш, основаны на сюжетах фантастических произведений: книг Джона Толкина, Майкла Муркока, Стивена Кинга, а также на легендах (   Читать дальше...   )1988 - Battalions Of Fear
+1989 - Follow The Blind
+1990 - Tales From The Twilight World
+1992 - Somewhere Far Beyond(   Читать дальше...   )Жанр: Speed/Power MetalПродолжительность: 14:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B3C75E32148359B23793D347F09EC6C8C2B949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552689   (37507) от 12.11.2024
+
+Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kreator — немецкая трэш-метал-группа, основанная в 1982 году в Эссене. Название группы происходит от лат. create — «создавать», «творец», а также от имени демона в древненемецкой мифологии. Однако существует и иная трактовка этого названия («Kreatur» с немецкого языка переводится как «тварь» или «создание»). В 1980-х годах группа приложила много усилий к распространению (   Читать дальше...   )1995 - Cause For Conflict
+1997 - Outcast
+1999 - Endorama
+2001 - Violent Revolution(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 09:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E766A677B505A92D94E77AB6748E446F2DB29AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761445   (36723) от 20.11.2024
+
+VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Ballad, Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soft Rock, Ballad, Hard Rock, Blues RockПродолжительность: 01:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1610288ECB9F0CB78BCAFDC715F00A68E87B0581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761603   (36573) от 21.11.2024
+
+As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36573.jpg" />
+</div>
+
+
+###  Подробнее
+
+As the Sun Falls - мелодик-дэт-метал группа, основанная в 2020 году.2020 - Memoriam (EP)
+2021 - Last Days of Light
+2022 - Far Beyond (EP)
+2024 - Kaamos(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 02:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CAB9777C8B626EF70F75B8CD3000A359DE0CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761865   (36463) от 22.11.2024
+
+Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ancient — норвежская блэк-метал-группа из Бергена, образованная в 1992 году.1994 - Svartalvheim
+1995 - Trolltaar (EP)
+1996 - The Cainian Chronicle
+1997 - Mad Grandiose Bloodfiends(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 07:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EFEA486C8A12D06E97629472130E5B6657367E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762218   (36294) от 24.11.2024
+
+VA - Golden Ballads. Лучшие Баллады Последних Десятилетий (2002) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Scorpions - Wind Of Change
+02. Eagles - Hotel California
+03. Iggy Pop - In The Death Car(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762424   (36184) от 25.11.2024
+
+VA - Romantic Collection. Metal Ballads (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36184.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIDE A:
+01. Scorpions - When You Came Into My Life
+02. Marillion - One Fine Day
+03. Nazareth - God Save The South(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30621F116366F2119F1F6E82211614F817B3C27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677836   (36135) от 25.11.2024
+
+Suicidal Angels - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Suicidal Angels - трэш-метал группа из Афин, Греция, образованная в начале 2001 года Ником Мелиссургосом в возрасте 16 лет под влиянием трэш-метала старой школы.2007 - Eternal Domination
+2009 - Sanctify The Darkness
+2010 - Dead Again
+2012 - BloodbathЖанр: Thrash MetalПродолжительность: 06:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283F20255D32605832DBE453E4F8E81F712E18DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762879   (35841) от 28.11.2024
+
+Keep of Kalessin - Studio Albums (9 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Keep of Kalessin — метал-группа из Тронхейма, Норвегия, образованная в 1993 году.1997 - Through Times of War
+1999 - Agnen - A Journey Through The Dark
+2006 - Armada
+2008 - KolossusЖанр: Melodic Black/Death MetalПродолжительность: 06:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238CFB97E998C7E3439221401141B8645FE8AAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 419469   (35777) от 29.11.2024
+
+AC/DC - Back In Black (1980) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+01.  Hells Bells [5:12]
+02.  Shoot To Thrill [5:18]
+03.  What You Do For Money Honey [3:36](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB283DA76F5A3448190ECFE562B1019388CF351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525950   (35264) от 04.12.2024
+
+Clannad - Studio Albums (15 releases) (1973-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Traditional Irish folk, Celtic, new-age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clannad (Кла́ннад) — ирландская музыкальная группа.
+Музыку Clannad можно охарактеризовать как синтез кельтского фолка, рока, нью-эйдж и джаза. Поют на гэльском (ирландском) и английском языках.
+В состав группы входят Máire Brennan, её родные братья Ciarán и Pól Brennan, и двоюродные дяди Noel и Pádraig Duggan. Все они родом из городка Гвидор, (   Читать дальше...   )1973 — Clannad (The Pretty Maid)
+1975 — Clannad 2
+1976 — Dúlamán
+1980 — Crann ÚllЖанр: Traditional Irish folk, Celtic, new-ageПродолжительность: 12:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764088   (35125) от 05.12.2024
 
 VA - Golden Hitss  III. Классика Зарубежной Эстрады (2002) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
@@ -395,348 +743,6 @@ Atreyu — американская группа из округа Ориндж,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DEF3DBD049D016F76E5CA9945AD101DD6633FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772105   (31474) от 09.01.2025
-
-Conquer Divide - Studio Albums (2 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Conquer Divide - металкор/пост-хардкор-группа, образованная в 2013 году в Мичигане, США.2015 - Conquer Divide
-2024 - Slow BurnЖанр: Metalcore, Hard RockПродолжительность: 02:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB123D138774B2872581C8BDBFE4D52E6C0644F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772119   (31472) от 09.01.2025
-
-Theatres Des Vampires - Studio Albums (12 releases) (1996-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theaters des Vampires — итальянская группа, известная преимущественно темой вампиризма в своих текстах. Первоначально это был блэк/готик-метал-проект Алессандро Нунциати (он же Лорд Вампир) до его увольнения в 2004 году, после чего группа продолжила готик-метал/электро-рок-проект под руководством Сони Скарлет и Зимона Лиджои.1996 - Vampyrisme, Necrophile, Necrosadisme, Necrophagie
-1999 - The Vampire Chronicles
-2001 - Blody Lunatic Asylum
-2001 - Iubilaeum Anno Dracula 2001Жанр: Melodic Black/Gothic MetalПродолжительность: 09:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646BAAA9256AAE3C08BCF7B0F87D21797D0FB85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772112   (31463) от 09.01.2025
-
-Sevendust - Studio Albums (14 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sevendust - американская рок-группа из Атланты, Джорджия. Основана в 1994 году.1997 - Sevendust
-1999 - Home
-2001 - Animosity
-2003 - SeasonsЖанр: Nu Metal, Hard RockПродолжительность: 12:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0BC8293CADA9E7A6C024203F19C040FD5798FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772504   (31269) от 11.01.2025
-
-VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 02:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54501A797742A1E8A27B91017DF64843A38CD094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593932   (31199) от 12.01.2025
-
-Tremonti (Creed, Alter Bridge) - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] <Hard Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mark Tremonti — американский гитарист и вокалист. Со времен участия в Creed, Тремонти стал широко известен своими способностями в написании песен и техническим мастерством и был награждён несколькими наградами, в число которых входит Грэмми. В течение трех лет подряд журнал Guitar World выбирал его в качестве гитариста года. В 2011 году Total Guitar включил его в (   Читать дальше...   )2012 - All I Was
-2015 - Cauterize
-2016 - Dust
-2018 - A Dying MachineЖанр: Hard Rock, Post-grungeПродолжительность: 05:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315031   (31112) от 13.01.2025
-
-Mark Duffy - Tribute To Glen Campbell (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Country, Pop Rock, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31112.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 By The Time I Get To Phoenix
-A2 Gentle On My Mind
-A3 Try A Little Kindness
-A4 Mary In The Morning(   Читать дальше...   )Жанр: Country, Pop Rock, Easy ListeningПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D4B38EF5C7D7EF32B226734F85391AEC28A60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306733   (31101) от 13.01.2025
-
-Paper Lace - First Edition (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31101.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In The Morning
-A2 Stoney End
-A3 Lady
-A4 I've Got You, That's Enough For Me(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D08FB8E2A8620390BEB7EEFFBBF9EAADC9A8F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773028   (31078) от 13.01.2025
-
-Vivaldi Metal Project - Studio Albums (3 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vivaldi Metal Project - симфоник-метал-проект, переосмысливающий музыку Антонио Вивальди.2016 - The Four Seasons
-2018 - The Extended Sessions
-2022 - EpiClassicaЖанр: Symphonic MetalПродолжительность: 03:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1519AECA61FA985A8D8BD1E64613BB16B452716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773193   (30992) от 14.01.2025
-
-VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30992.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Toto Cutugno - l'Italiano
-02. Collage - Donna Musica'99
-03. Adriano Celentano - Il Tempo Se Ne Va(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE78891696DFF776329E58CD0CFF2D54C16D6DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675044   (30568) от 18.01.2025
-
-HammerFall (& Cans) - Studio Albums (20 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30568.jpg" />
-</div>
-
-
-###  Подробнее
-
-HammerFall — группа из Швеции, играющая в стилях хеви-метал и пауэр-метал. Основана гитаристом Оскаром Дроньяком в 1993 году, а известности достигла после прихода в 1996-м вокалиста Йоакима Канса, который стал вторым лидером группы. Песни HammerFall в основном посвящены средневековым рыцарям, сражениям, мужеству и героизму. Музыка группы эволюционировала от чистого (   Читать дальше...   )1997 - Glory to The Brave
-1998 - Legacy of Kings
-2000 - Renegade
-2002 - Crimson Thunder(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 17:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2E9C5DC419665928FD6A8251EDC5AC08FBECE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774301   (30322) от 20.01.2025
-
-Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sybreed — швейцарская индастриал/грув-метал группа из Женевы, основанная в 2003 году.2004 - Slave Design
-2008 - Antares
-2009 - The Pulse Of Awakening
-2012 - God Is An AutomatonЖанр: Industrial/Groove MetalПродолжительность: 04:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC405A35871419CE8B65196B73EC4FA6D09ABAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774334   (30315) от 20.01.2025
-
-Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side I
-A1 Hi Lili Hilo • Kaper, Deutsch
-A2 I'm A Lion • L. Smets, E. VerheeS
-A3 Got To Have You Back • L. Smets, C. Pilditch(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E10FF7D94D161227BF607A6EE8B7AF6B4B7D37
 ```
 
 https://mybot314.ru/tekegram_catalog/

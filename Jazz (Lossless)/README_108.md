@@ -1,3 +1,177 @@
+###  Публикация: 1289273   (688280) от 15.03.2019
+
+The Cinematic Orchestra - To Believe (2019) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Downtempo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Believe (feat. Moses Sumney)
+02. A Caged Bird / Imitations of Life (feat. Roots Manuva)
+03. Lessons
+04. Wait For Now / Leave The World (feat. Tawiah)(   Читать дальше...   )Жанр: Acid Jazz, DowntempoПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DB8BC31A3D3FB63B4EE19ED85B6D34552B36BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134703   (687670) от 16.05.2017
+
+Joe Newman - Four Classic Albums (1955 - 1958) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687670.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Corky [04:53]
+02. Mambo for Joe [04:01]
+03. Wolafunt's Lament [03:32](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46787774D0F0CD5D9A6010CE27A6DE093DFA162D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134695   (687668) от 16.05.2017
+
+Sheila Jordan - Little Song (1977) 2002, HighNote [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Song I Blackbird [02:15]
+02. Autumn In New York [07:47]
+03. Bardados [04:50]
+04. On a Slow Boat to China [05:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F665291D7F2058DD3617CBDDE5B9D578547B0142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134717   (687596) от 16.05.2017
+
+Duke Ellington - Live from the 1956 Stratford Festival (1989) Music and Arts Programs of America [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hark, the Duke's Trumpets! [03:47]
+02. Harlem Air Shaft [03:36]
+03. Clarinet Melodrama [05:52]
+04. Theme Trambene [03:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612CC213D14ECE87FAFD54A6F45F2A2867D0707A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134726   (687594) от 16.05.2017
+
+Dorothy Donegan - One Night with the Virtuoso (1957 - 1960) 2CD, 2012, Jasmine Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687594.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. That Old Black Magic [03:46]
+02. Over the Rainbow [02:30]
+03. Sweet Georgia Brown [02:52](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFE2890F7A6A6CD42B33A9DD0D052BFDFF03088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134705   (687565) от 16.05.2017
+
+Jan Garbarek, Arild Andersen, Edward Vesala - Triptykon (1973) Remaster, 1992, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rim (10:34)
+02. Selje (2:18)
+03. J.E.V. (7:27)
+04. Sang (2:47)(   Читать дальше...   )Жанр: Contemporary Jazz, Free JazzПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A81F4DDF1B2222F75344274E9E8EB9659A723F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222257   (687486) от 28.04.2018
 
 Kenny Dorham & Barry Harris Quartet - New York 1964 (2006) Rare Live Recordings [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -577,180 +751,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F484F492B92106CAB044C84578A5C7D35155EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135058   (685220) от 17.05.2017
-
-Duke Ellington - The Essential Duke Ellington (1990) CBS Disques SA [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [02:58]
-02. Sophisticated Lady [03:01]
-03. Perdido [04:32]
-04. I Got It Bad and That Ain't Good [03:39](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769FF28FE400A0719129E54DACCE99BAC64509A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134988   (685219) от 17.05.2017
-
-Duke Ellington - The English Concert (1971) 1999, BGO Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Togo Brava-Brava Togo Suite: Part I & II [12:02]
-02. Togo Brava-Brava Togo Suite: Part III & IV [04:45]
-03. C-Jam Blues [04:42]
-04. Happy Reunion [04:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3550C72B222166B759C0C44E3ACBE123135278C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134961   (685212) от 17.05.2017
-
-Django Reinhardt & Stephane Grappelli - Jazz Anthology (1938 - 1946) 2007, Promo Sound [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daphne [03:15]
-02. Honeysuckle Rose [03:00]
-03. Sweet Georgia Brown [03:13]
-04. Liza [02:58](   Читать дальше...   )Жанр: SwingПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0974387C2683F565ED44C68C601BB37AB0C8CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029145   (684666) от 25.06.2016
-
-The Jeremy Steig Quartet - Flute Fever + 1 (1963) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Oleo [05:20]
- 02.Lover Man (Oh, Where Can You Be?) [09:05]
- 03.What Is Things Called Love? [03:54]
- 04.So What [10:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605F56FBA0F79A6623225CE843EF2FA12D279C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029140   (684658) от 25.06.2016
-
-Lionel Hampton All Star Band - Live At Newport '78 (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stompin' At The Savoy [04:52]
- 02.On The Sunny Side Of The Street [04:50]
- 03.Hamp's The Champ [10:06]
- 04.Carnegie Hall Blues [07:19](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94EF7B56A5395F95C2BDD1359EDC9B1258312F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028990   (684541) от 25.06.2016
-
-Ahmad Jamal - Trio & Quintet Recordings With Ray Crawford (1955-1960) 2CD, 2016, Cherry Red Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684541.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.New Rhumba [04:44]
-02.A Foggy Day [04:27]
-03.All of You [03:20](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8AC610A8F37CF494B967B92B6627A8FEB693F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1588383   (191643) от 04.11.2022
+
+Blue System - Forever Blue (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laila
+02. I Wanna Smile
+03. Baby Jealousy
+04. Taxi Girl(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDF11845316BA09C1EB12289EFCC67BE042C227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588526   (191410) от 05.11.2022
 
 Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -715,35 +744,6 @@ Tala A.M. - Arabica (1978) Reissue LP, African Roadtrip, 2015 [MP3|320 Kbps] <Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91045AB66E9E6F862968817FB6F34B8EBB846436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427301   (184424) от 27.11.2020
-
-Leslie O'Hara - Gipsy Boy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gipsy Boy  (7:07)
-02. No War Love  (2:48)
-03. It's America  (3:32)
-04. Disco Banjo  (6:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E286FBC866DB9AF7B3FFE4FD41A70193374D5920
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1587757   (191692) от 03.11.2022
+
+Parallels Desktop Business Edition 18.0.3 (build 53079) [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop Business Edition — удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей.
+
+Parallels Desktop поддерживает macOS Mojave, и другие операционные системы, в том числе Windows 7/8/10/11, Ubuntu и другие дистрибутивы Linux, а также более ранние версии Windows (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2022Разработчик: Parallels International GmbHПоддерживаемая ОС: macOS Mojave 10.14.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F89E006362E6EA4FEDD2660D82D9409528D255B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659012   (190577) от 10.09.2023
 
 TG Pro (Temperature Gauge Pro) 2.83 [En]
@@ -662,32 +690,6 @@ Duplicate Files Sweeper помогает вам тщательно сканир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:022E17F70EE8B8E74E68E5810F349F2D5CBFFADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428507   (180153) от 02.12.2020
-
-NeoFinder Business 7.7 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для катологизации мультимедийного контента, хранящегося на локальных и внешних дисках, CD/DVD-дисках и других носителях. NeoFinder каталогизирует все данные, что позволяет полностью контролировать коллекцию файлов.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: West-Forest-SystemsПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61706F00E54C68DF6A2B47FB468ED43902FC0468
 ```
 
 https://mybot314.ru/tekegram_catalog/

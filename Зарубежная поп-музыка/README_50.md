@@ -1,3 +1,119 @@
+###  Публикация: 1247526   (452727) от 15.09.2018
+
+Bananarama - Live at the London Eventim Hammersmith Apollo (2018) [MP3|320 Kbps] <Europop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Jones (6:14)
+ 02. Robert De Niro's Waiting (4:49)
+ 03. Rough Justice (4:34)
+ 04. Aie A Mwana (4:29)(   Читать дальше...   )Жанр: Europop, DanceПродолжительность: 01:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEA845939B1B86B165701C1EEF67C2B949DDB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247139   (452721) от 15.09.2018
+
+VA - Bravo Hits Vol. 103 (2018) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452721.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Josh. - Cordula Grun 3:34
+02. The Bosshoss - Ayo 3:19
+03. Bosse - Augen Zu Musik An 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085189DC1081D5150DF07050A03F01D14350771E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163018   (452714) от 04.09.2017
+
+VA - The Sweet Sound of Bossanova (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seby Burgio – Corcovado.mp3
+02. Seby Burgio – Shimbalaie.mp3
+03. Bruno Patinho – Pra Machucar Meu Coracao.mp3
+04. Giacomo Bondi – Moonlight Bossa.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC4C1270E15DD3B80BA18DDB5E751D7006B6D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163232   (452500) от 04.09.2017
+
+Soraya - Dolce Vita (2007) [MP3|320 Kbps] <Eurodance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Dolce Vita (3:33)
+ 02. Tonight (3:49)
+ 03. Soul Survivor (3:49)
+ 04. Sweet Dreams (3:51)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C601D6FAE2C99A81C3AFB6F578A85B5CB7B3DC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942741   (451640) от 02.10.2015
 
 Janet Jackson - Unbreakable (2015) Deluxe Edition [MP3|320 кб/с]<R&B, Pop>
@@ -625,122 +741,6 @@ ABBA - Дискография (1970-2007) 65CD [MP3|320] <PoP, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57AA7421DC40855AA070D63DC20FD3DA5087F7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571105   (436188) от 20.08.2022
-
-Celine Dion - A New Day Has Come (2002) [OGG Vorbis|485 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm alive
-02. Right in front of you
-03. Have you ever been in love
-04. Rain, tax (it's inevitable)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B488FB886018DC8CDC64BDF060BFD4B1D66284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570974   (436123) от 20.08.2022
-
-Linda Jo Rizzo - Greatest Hits & Remixes (2019) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My First, You're My Last (7" Version) 3:40
-02. Fly Me High (Radio Version) 4:07
-03. Heartflash (Tonight) (7" Version) 3:58
-04. Perfect Love (7" Version) 3:35(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CB3F2A2B1B68DB0E89FCDB9986DF7086476AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249297   (435994) от 23.09.2018
-
-Steps - Step One (1998) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steptro (0:57)
-02. Last Thing On My Mind (3:05)
-03. 5, 6, 7, 8 (3:24)
-04. One For Sorrow (4:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81A3F5ED04CC12BF8F3DCB9B036E51D209C2E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249244   (435989) от 23.09.2018
-
-VA - Das Beste aus der Starnacht (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435989.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Vanessa Mai - Mein Sommer
-02. Nik P. - Glühwürmchen
-03. Beatrice Egli - Verliebt, verlobt, verflixt nochmal(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622BDA112F5BBE3E44824C70BF5B10C56B71CA1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

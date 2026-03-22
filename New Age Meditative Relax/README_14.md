@@ -1,3 +1,32 @@
+###  Публикация: 1041811   (581464) от 10.08.2016
+
+Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irish Skies
+02. New Life
+03. As One
+04. Boy Buries Mother(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFA416EC135DF10387EF12CBC8FDE1D59D4D4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042093   (580581) от 11.08.2016
 
 Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Piano>
@@ -742,35 +771,6 @@ Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE99E2BEC1CD1A1705E14BB32A0962BF633EBBB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047219   (550013) от 29.08.2016
-
-Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic (5:43)
-02. Back to the Past (6:44)
-03. Awakening (5:49)
-04. Eyes of Truth (6:39)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AFE8332803B4D64557CAD5F20FF338637C22C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

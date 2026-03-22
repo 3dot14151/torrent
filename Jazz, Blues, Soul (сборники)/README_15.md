@@ -1,3 +1,32 @@
+###  Публикация: 1245655   (469780) от 07.09.2018
+
+VA - Smooth Jazz: Lyric Theatre (2018) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469780.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Tuvman - Fall Is in the Air
+002. Good Morning Jazz Academy - Jazzy Romance
+003. Jazz Piano Bar Academy - Smooth Lovers Song
+004. Jazz Guitar Club - Jazzy Instrumentals(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 06:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E51E4CE0A4DADDF56F446CB8471EA6F2E870AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059458   (461726) от 04.10.2016
 
 VA - Vocal Jazz Lady (2016) [MP3|320 Kbps] <Vocal Jazz>
@@ -710,35 +739,6 @@ Chris Rea - 25 Best Songs (2012) [MP3|197 - 270 кб/с]<Blues-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4872F3B02622077633653BDBE207E63263E14497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169272   (403061) от 27.09.2017
-
-VA - Big Box Store Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues, Lyric>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403061.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Los Lonely Boys - Heart Won't Tell A Lie
-002. Stevie Ray Vaughan - Lookin' Out The Window
-003. Rob Tognoni - Brave
-004. The Joey Gilmore Band - Man Of My Word(   Читать дальше...   )Жанр: Blues, Rock Blues, LyricПродолжительность: 10:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B119ACAACC804850C0B36FA8EC4BB5208BB9DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

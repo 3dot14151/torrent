@@ -1,3 +1,120 @@
+###  Публикация: 1119195   (809030) от 27.03.2017
+
+The Alan Parsons Project - The Best Of The Alan Parsons Project - Vol. 2 (1987) Compilation [FLAC|Lossless|image + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prime Time (3:51)
+02. Lat's Talk About Me (3:39)
+03. Standing On Higher Ground (4:24)
+04. Stereotomy (4:28)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585BC2198614DE785993C3FAEDB97FF8A96C787D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117946   (809028) от 27.03.2017
+
+Steve Hackett - The Night Siren (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых признанных гитаристов ХХ века, Стив Хэккет многим известен исключительно из-за своего яркого участия в одной из ведущих арт-роковых групп 70-х, Genesis. Однако далеко не все поклонники жанра знают, что после своего ухода из группы Стив продолжает выпускать очень интересные сольные работы.
+До прихода в 1971 году в Genesis, обладая классическим гитарным (   Читать дальше...   )01. Behind The Smoke (6:58)
+02. Martian Sea (4:41)
+03. Fifty Miles Trom The North Pole (7:08)
+04. El Nino (3:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6885887BB9B9D40DDC853AB31E3697E69472509B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118076   (808937) от 27.03.2017
+
+Freddie Mercury and Montserrat Caballe - Barcelona (1988) Remaster, 1992, Polydor [FLAC|Lossless|image + .cue] <Modern Classical, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcelona (5:39)
+02. La Japonaise (4:49)
+03. The Fallen Priest (5:46)
+04. Ensueno (4:21)(   Читать дальше...   )Жанр: Modern Classical, Symphonic RockПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6053DDE6F0F351C210D5CDF9BC9CC3C33B3A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504785   (808334) от 25.10.2021
+
+Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red Bullet [FLAC|Lossless|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanilla Queen (Early Version) [00:10:06]
+02. Radar Love (Basic Track) [00:06:30]
+03. The Song Is Over (Basis Track) [00:05:17]
+04. Are You Receiving Me (Basic Track) [00:09:33](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 2 CD, 02:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E3992A0E55732C57963CC63360177DD2710020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009765   (808121) от 22.04.2016
 
 Choco (ex. Eloy) - Bubbles In Your Brain? (2014) [FLAC|Lossless|image + .cue]<Progressive rock, New Age>
@@ -626,122 +743,6 @@ VA - These Dreams - Rock Classics (1997) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA0787954051183EB5638B12C5DB061806E0430E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120090   (803461) от 30.03.2017
-
-Brother Firetribe - Sunbound (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финская AOR-группа "Brother Firetribe", в состав которой входит гитарист коллектива "Nightwish" Эмппу Вуоринен. Группу создали пять финских музыкантов, которых объединила любовь к американским титанам AOR и хард-рока "Journey" и "Van Halen". Помимо Вуоринена, еще одной известной фигурой в составе коллектива является фронтмен (   Читать дальше...   )01. Sunbound (1:35)
-02. Help Is On The Way (3:55)
-03. Indelible Heroes (3:51)
-04. Taste Of A Champion (3:37)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95990A727BABA27061B20784C465A29AB5F205E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120100   (803372) от 30.03.2017
-
-House Of Shakira - Sour Grapes (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Определение стиля HOUSE OF SHAKIRA как хард-рок весьма условно, так как их звучание мало с чем можно сравнить. В общих чертах, это мелодичный рок очень высокого качества. У себя на родине HOUSE OF SHAKIRA считаются культовой группой.01. No Way Out (4:25)
-02. Nothing Left (3:53)
-03. Trial By Fire (4:04)
-04. Waste No Time (3:28)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102E3D5EB1936BB948ED830625CBC66509FCDE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120284   (803369) от 30.03.2017
-
-VA - Glamkings Of Rock: The True Story Of Glam Rock (1994) 2CD [FLAC|Lossless|image + .cue] <Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzi Quatro - Can The Can
-02. Mud - Tiger Feet
-03. The Sweet - Teenage Rampage
-04. T-Rex - Get It On(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C061D04930B20D922A387D695C38C0931FD0857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505447   (803041) от 28.10.2021
-
-Galahad Electric Company - Soul Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Therapy (00:04:14)
-02 - All That Glitters (00:06:50)
-03 - Gone to Ground (00:05:29)
-04 - Fluidity (00:03:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB22FBB6AE083D93CDFB0548E598C1F4036FD2D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

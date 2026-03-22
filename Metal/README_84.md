@@ -1,3 +1,119 @@
+###  Публикация: 1267458   (266519) от 06.12.2018
+
+Apocalyptica - Plays Metallica by Four Cellos - A Live Performance (2018) [MP3|320 Kbps] <Cello Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Sandman
+02. Master Of Puppets
+03. Harvester Of Sorrow
+04. The Unforgiven(   Читать дальше...   )Жанр: Cello MetalПродолжительность: 01:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2739CEF8641106AFAF88C0B822297B1CC47190B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190922   (266035) от 11.12.2017
+
+Nuckin' Futs - Abyss (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266035.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cradle Of Hypocrisy
+2. Force Of Will
+3. Enemy
+4. Abyss(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8474573AFFDC48822979DEE1681C3D17095674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267653   (265801) от 07.12.2018
+
+Clouds - Dor (2018) [MP3|320 Kbps] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Forever And A Day
+2. The Last Day Of Sun
+3. When I'm Gone (Feat. Gogo Melone)
+4. Dor(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FE3022EA7A35E83172E0B23CCA105F915B5C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267621   (265799) от 07.12.2018
+
+Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265799.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Gospel
+2. Chapter II
+3. Chapter III
+4. Moon Goddess(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339657   (265358) от 20.11.2019
 
 Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
@@ -660,128 +776,6 @@ Dirkschneider & The Old Gang - Babylon (2025) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24255921591A0C2C7659B0E454E311BAB5CC3FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617452   (250264) от 07.03.2023
-
-Warrior Pope - 3 Albums (2017-2023) [MP3|320 Kbps] <Drone-doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2017 - Anchorite
-2020 - Mellified Man
-2020 - The Voices Said Empty, Hollow and ThudЖанр: Drone-doomПродолжительность: 3 CD, 01:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B23F0957310746CBB37707C75D4DA387708F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493147   (248817) от 08.05.2012
-
-FireLake - The Temptation Journey (2005) [MP3|320 кб/с]<Progressive Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248817.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Reminder
- 2. The Chosen One
- 3. Marooned
- 4. Battle Cries
- 5. Dirge For The Planet
- 6. Under Cover Of Night
- 7. Stranger's Prophecy
- 8. Angel's Revelation
- 9. Abysmal Temple Trek
- 10. The Outcome Descends2005Жанр: Progressive Melodic DeathПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE50D1462A1C1C03C290EBD378ED240153C74F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833983   (248551) от 03.11.2025
-
-Avatar - Don’t Go In The Forest (2025) [MP3|320 Kbps] <Modern-Metal, Groove-Metal, Heavy-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight We Must Be Warriors(4:11)
-02. In The Airwaves(4:38)
-03. Captain Goat(4:29)
-04. Don't Go In The Forest(4:50)(   Читать дальше...   )Жанр: Modern-Metal, Groove-Metal, Heavy-MetalПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5113C3474D3BB054FC46445483C03A7330AB41BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833991   (248549) от 03.11.2025
-
-Fallen Lillies - Cran (2025) [MP3|320 Kbps] <Glam Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248549.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Basic Body Shaming (2:58)
-• 02. Haut et fort (4:32)
-• 03. Imposteur (2:48)
-• 04. Plaisirs amers (3:41)(   Читать дальше...   )Жанр: Glam-Metal, Hard-RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F11966837F9DE163A4B75BEE58B2CCED41415D
 ```
 
 https://mybot314.ru/tekegram_catalog/

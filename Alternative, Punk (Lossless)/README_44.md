@@ -1,3 +1,119 @@
+###  Публикация: 1578034   (347747) от 22.09.2022
+
+No Devotion - 2 Albums, 1 EP (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Punk, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break [00:04:17]
+02. Permanent Sunlight [00:04:36]
+03. Eyeshadow [00:03:50]
+04. Why Can't I Be with You [00:04:00](   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, IndieПродолжительность: 3 CD, 01:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFB783448E0AD67D8AE9716338235A5278E0817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578307   (345834) от 23.09.2022
+
+Weezer - 3 EP (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lawn Chair [00:02:04]
+02. Records [00:03:28]
+03. Blue Like Jazz [00:03:12]
+04. The Opposite Of Me [00:03:30](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 3 CD, 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C4DDD207043D43CDFBA15BC9E21FE7A4B569E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953630   (344511) от 06.11.2015
+
+Fish - Acoustic Session (1994) [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky (04:27) (Dick/Boult/Simmonds)
+02. Internal Exile (04:33) (Dick/Boult/Simmonds)
+03. Kayleigh (04:16) (Dick/Rothery/Kelly/Mosley/Trewavas)
+04. Fortunes Of War (06:11) (Dick/Cassidy/Boult)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC3B85A5B601DF232B1DA443B602B11CF11798A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257751   (343577) от 27.10.2018
+
+Yurcash (Юркеш) - 2 альбома (2006-2007) Дискография [APE|Lossless|image + .cue] <Панк-рок, Ска-панк, Фолк-панк>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343577.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. S..O..S. (3:42)
+2. Бурки чи бутінки?! (3:08)
+3. Патріот (3:04)
+4. Не пара (1:16)(   Читать дальше...   )Жанр: Панк-рок, Ска-панк, Фолк-панкПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADA81EC87A977C2470D905B21E879C014CF5A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257542   (342912) от 27.10.2018
 
 Twenty One Pilots - Trench (2018) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Pop>
@@ -629,122 +745,6 @@ Nylist - Divine Vision Torn Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ECE917B84F0CE7E05E21434996D7D43B8F12CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580846   (328059) от 04.10.2022
-
-Seething Akira - 3 Albums (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternatove Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Monster from Brussels (Instrumental) [00:03:27]
-02. Matching Poles of Magnets (Instrumental) [00:03:01]
-03. Half Empty (Instrumental) [00:03:49]
-04. Backlash (Instrumental) [00:03:31](   Читать дальше...   )Жанр: Alternatove Metal, RapcoreПродолжительность: 4 CD, 02:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999990AC05CDFAA77C4F5A4EA22E48561E972992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581855   (325588) от 07.10.2022
-
-Bush - The Art Of Survival (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Is The Ocean [00:05:12]
-02. Slow Me [00:03:48]
-03. More Than Machines [00:03:21]
-04. May Your Love Be Pure [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0589E4619B0F5CE4BBEB4528A5DA5588311B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843221   (325380) от 21.11.2014
-
-In This Moment - Black Widow (Best Buy Deluxe Edition) (2014) [FLAC|Lossless]<Alt.Metal | Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325380.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Infection
-02. Sex Metal Barbie
-03. Big Bad Wolf
-04. Dirty Pretty(   Читать дальше...   )Тип издания: АльбомЖанр: Alt.Metal | Female VocalПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5172BB727AA955E910DC02A6722C320855F96D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957898   (324959) от 20.11.2015
-
-The Wallflowers - Breach (2000) [FLAC|tracks+.cue]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Letters From The Wasteland
- 2. Hand Me Down
- 3. Sleepwalker
- 4. I've Been Delivered(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0FEA293278E8EB05CFC9CB9ECB7AB5401E41FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

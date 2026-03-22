@@ -1,3 +1,177 @@
+###  Публикация: 1268807   (223500) от 13.12.2018
+
+Ted Sirota's Rebel Souls - Breeding Resistance (2004) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saro-Wiwa [9:33]
+02. Chairman Fred (I Wish Fred Hampton Was Here) [7:23]
+03. Knife [7:24]
+04. For Martyrs [3:04](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBF7327D159964003AB2A2AAD76FA5836830C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651109   (223494) от 05.08.2023
+
+Howard Rumsey's Lighthouse All-Stars - Lighthouse At Laguna (1955) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_223494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Witch Doctor No. 2 [6:11]
+02. 'Round Midnight [5:52]
+03. Mood for Lighthouse [4:06]
+04. Walkin' [7:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1768936D05FE37D993130E52151AB4942F4DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268998   (223489) от 13.12.2018
+
+Rachel Caswell - We're All In The Dance (2018) Turtle Ridge Records [FLAC|Lossless|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile
+02. A Lovely Way to Spend an Evening
+03. We're All in the Dance
+04. Devil May Care(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0AD16DBAF5A40176FA8FC92E5B8D5A7B6EE4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268823   (223479) от 13.12.2018
+
+Rosemary Clooney - 16 Most Requested Songs (1950-e - 1960-e) 1989, Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On-A My House [2:03]
+02. Botch-A-Me (Ba-Ba-Baciani Piccina) [2:19]
+03. Hey There [3:02]
+04. Be My Life's Companion [2:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44777E041EDFE7854BC181CE763B610DF2E3D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268814   (223446) от 13.12.2018
+
+Ronnie Scott - Six Classic Albums Plus Bonus Singles (1956 - 1961) 4CD, 2015, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223446.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Basie Talks [3:31]
+02. It Might As Well Be Spring [4:22]
+03. Drop Me Off At Harlem [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 04:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626FC2BA5ED3D4ED9A80252DC45ED1BDEE1A4398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651162   (223182) от 05.08.2023
+
+Papik - Bossarama (2023) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_223182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunlight For Two (feat. Gustavo Baião)
+02. If You Leave Me Now (feat. Dagmar Segbers)
+03. Passos De Esperanza (feat. Giuseppe Milici)
+04. Alone Again (Naturally) (feat. Francesca Gramegna)(   Читать дальше...   )Жанр: Bossa Nova, Easy ListeningПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB7326535AAB7C40AE1FD4E7D0F46C831B3B3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342730   (222904) от 03.12.2019
 
 Beaux J Poo Boo - All Things Are New (2005) Summit Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -571,180 +745,6 @@ Herbie Nichols - Love, Gloom, Cash, Love (1957) 1994, Bethlehem [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F56C4CB0E23E0972FBB5AFD7E82E7E78AE89ACDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651596   (221277) от 07.08.2023
-
-Sam Rucker - In Position, The Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Position (4:00)
-02. Unspeakable (3:48)
-03. Be Thankful For What You Got (5:01)
-04. One Touch (4:19)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F001F7DA4D7DAC29CA3540E2ED8FD6989AC5C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651595   (221270) от 07.08.2023
-
-Patrick Yandall - Dance in the Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Boy (4:22)
-02. Find Your Purpose (4:25)
-03. Dance In The Rain (4:17)
-04. House Party (4:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71800411A4B48A0995FF8BF3F1A4426A4195F149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651594   (221263) от 07.08.2023
-
-Everett B Walters - Funkin Under the Chicago Skyline (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Minutes 2 Funk (5:07)
-02. On The Upside (5:35)
-03. Where Did Time Go (3:09)
-04. It's So Amazing (4:41)(   Читать дальше...   )Жанр: Smooth Jazz, FunkПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96A1AFBF4B3051A6E30373EDED2B85D85EDD6C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651599   (221233) от 07.08.2023
-
-Thom Rotella - Say Hey! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virtual Insanity (3:35)
-02. Patti Cake (4:29)
-03. Sugar (4:23)
-04. Somethin’ about You (3:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83CBB63BC2D266B17F67B1200BA64BA1DAE11C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651606   (221161) от 07.08.2023
-
-VA - Jazzin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong - What A Wonderful World (2:18)
-02. Etta James - At Last (3:03)
-03. Nina Simone - Feeling Good (2:55)
-04. Nat King Cole - L-O-V-E (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A566FA421EECB047C29430F943E72E2A2BE6384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084545   (221033) от 18.12.2016
-
-Babylon Circus - La Belle Etoile (2009) [WavPack|Lossless|tracks + .cue] <Ska-Jazz,Punk,Variete>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Des Fois
-02. Marions-Nous Au Soleil
-03. L'Envol
-04. Sur La Tete(   Читать дальше...   )Жанр: Ska-Jazz,Punk,VarieteПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEE1B2F65D167883B65AF2970E13A04C08A07B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

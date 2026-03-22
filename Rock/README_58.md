@@ -1,3 +1,145 @@
+###  Публикация: 1167894   (412835) от 22.09.2017
+
+After Tea - Jointhouse Blues (1970) Remastered, 2002, Progressive Line [MP3|320 Kbps] <Hevy Psych, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412835.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jointhouse Blues
+2. You've Got to Move Me
+3. I'm Here
+4. Someday(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D84668976D6332CAE4C313A618FD5E011058EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 147128   (412734) от 20.10.2009
+
+Chris Norman - It's A Tragedy (2009) [MP3|256]<Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_412734.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Run From The Shadows '92Жанр: Soft RockПродолжительность: 1:19:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167972   (412590) от 22.09.2017
+
+Van Morrison - Roll With The Punches (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412590.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roll With The Punches
+2. Transformation
+3. I Can Tell
+4. Stormy Monday - Lonely Avenue(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3ACC8E914775F4819AF536D6DE5D15F9CFC6C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573202   (412535) от 31.08.2022
+
+Omega - Gammapolis & Live At Kisstadion (2022) 2CD, Compilation[MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vostok [00:04:02]
+02. Gammapolis [00:08:06]
+03. Help To Find Me [00:08:19]
+04. Russian Winter [00:04:52](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 2CD, 01:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A4AB33A2153D94C9F299A038FFE3A28EC38DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573205   (412531) от 31.08.2022
+
+Omega - Beat (2022) 1966-68, Compilation [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Paint It Black (00:03:20)
+02 - Bus Stop (00:02:38)
+03 - Bend It (00:02:44)
+04 - I Put A Spell On You (00:03:20)(   Читать дальше...   )Жанр: Pop Rock, Psychedelic Rock, Psychedelic PopПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C48405D51E3646BF0C0E9B0D5BAA1A312FC31D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413097   (412026) от 02.10.2020
 
 Methodica - Clockworks (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
@@ -596,156 +738,6 @@ Flash And The Pan - 6 Albums (1978-1992) CD Collection [MP3|320 Kbps] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3164E6D6F2F9B3FA71F4B99ADDE8752AD3AD7C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413557   (408432) от 04.10.2020
-
-Genesis - Radio Sessions 1970-1972 (2020) Live, Compilation [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shepherd (live) [00:04:01]
-02 - Pacidy (live) [00:05:37]
-03 - Let Us Now Make Love (live) [00:06:08]
-04 - Stagnation (live) [00:08:04](   Читать дальше...   )Жанр: Progressive RockФормат: CD, Compilation, Unofficial Release
-Качество файлов естественно (так как действо менестрелей проходило на радио и в давние стародавние времена) аховое, что и видно из спектров. Наличие такого рода качества звука в несжатом формате 44,1/16 прямо таки вызывает чувство отрешенности от мира живых...
-КонтораПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD6562AD12FCE5C13D2EB2B49E803F40863BD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067310   (408380) от 28.10.2016
-
-Albert Hammond - In Symphony (2016) [MP3|320 Kbps] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| It Never Rains In Southern California   (04:03) 
-  02| I'm A Train   (03:47) 
-  03| When I Need You   (04:40) 
-  04| Give A Little Love   (04:15) (   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4455E472A61D72C09BD22F36AEA106DF5D622976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559282   (408232) от 13.10.2012
-
-Lost in Kiev - Motions (2012) [MP3|320 кб/с]<Post-Rock / Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408232.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. > (01:36)
-2. A Mere Shift Of Origin (06:46)
-3. I'm Stuck (06:01)
-4. Hope, Fights & Disillusions (08:41)
-5. They're Coming (08:29)
-6. Under Close Surveillance (06:55)
-7. The Day I Ruined My Life (09:10)Жанр: Post-Rock / Post-MetalПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1E28DAD9CC11BD13CC33AB39B4B8D9C05B3E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413346   (407989) от 04.10.2020
-
-Slade - Cum On Feel The Hitz - The Best Of Slade (2020) Compilation [MP3|320 Kbps] <Glam, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cum On Feel The Noize [00:04:23]
-02 - Skweeze Me, Pleeze Me [00:04:27]
-03 - Mama Weer All Crazee Now [00:03:42]
-04 - Coz I Love You [00:03:23](   Читать дальше...   )Жанр: Glam, Hard RockПродолжительность: 1CD, 02:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0706AB9A9C85EC6CF71C1C6853490C13ED969E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533490   (407691) от 06.10.2018
-
-Freddie Mercury and Montserrat Caballe - Barcelona [Japanese Edition] (1988) [MP3|320 кб/с]<Rock, Pop, Classical>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407691.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Barcelona (5:39)
- 2. La Japonaise (4:49)
- 3. The Fallen Priest (5:46)
- 4. Ensueno (4:21)(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2BFDDF029189F7CC6352BD7F769603D8E44E38
 ```
 
 https://mybot314.ru/tekegram_catalog/

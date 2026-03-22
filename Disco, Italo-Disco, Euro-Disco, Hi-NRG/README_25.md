@@ -1,3 +1,32 @@
+###  Публикация: 1240010   (533245) от 08.08.2018
+
+B.B. And Band - Wee Thee People (1982) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wee The People (6:06)
+02. Whistle Fantasy (5:41)
+03. Say That Again (7:32)
+04. All Night Long (Remix) (5:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CACB7307AE65DED4000FB56594B93D250FE6112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155423   (529555) от 05.08.2017
 
 VA - I Love The Bee Gees Volume 2 (Strictly DJ Only) (2017) [MP3|320 Kbps] <Disco, Funky>
@@ -720,32 +749,6 @@ Peter Wilson - The Passion and The Flame (2018) 2CD [MP3|320 Kbps] <Italo-Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2DF9773F8F1DE1279026D1B9B8FE711F141B93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318782   (492839) от 07.08.2019
-
-VA - Italo Made In Spain 5 (2018) 2xCD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Italo Made In Spain 5Жанр: Italo-DiscoПродолжительность: 02:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF5A4D30065CC1D4DCBCA47C1128591BD561285
 ```
 
 https://mybot314.ru/tekegram_catalog/

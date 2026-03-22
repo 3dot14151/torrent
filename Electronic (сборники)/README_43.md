@@ -1,3 +1,61 @@
+###  Публикация: 1379524   (839454) от 29.04.2020
+
+VA - Beatport Tech House: Electro Sound Pack #71 (2020) [MP3|320 Kbps] <Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armonica - Samburu
+002. Martin Schulte - Frosty Sky
+003. Waveform 99 - Ibiza (Night Tech Mix)
+004. Gabriele Toma - Hook (Original Mix)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 09:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FBA4572C3343CA4FBF094D742A4356FF2FFB96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499407   (839219) от 07.10.2021
+
+VA - Крутые пушки Осень 2021 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wellboy - Гуси (Stanislav Almazov Radio Remix) (3:29)
+02. Земфира - Ромашки (Cheeful & D.Slap Upfinger Radio Edit) (3:52)
+03. Kuyano NAEMS - Rolling in the Deep (Extended Mix) (3:27)
+04. Zivert - Del Mar (Winstep Radio Remix) (3:30)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94F39C472A5F546FC89199D78CF21A3D1780702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004489   (838622) от 06.04.2016
 
 VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House, Bigroom, Tropical>
@@ -690,64 +748,6 @@ VA - Vocal Anthems Vol.3 (2016) [MP3|320 кб/с] <Trance, Progressive, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E4E035B0D13068535873B0E08CF3E4D9ECC56D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004820   (834840) от 08.04.2016
-
-VA - Miami Electro (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuckie - Burn 04:54
-02. Chuckie - Bang! (feat. Hyper Crush) 04:16
-03. Dirty Audio - Chiefin 03:08
-04. Cut N Slice - Utopia 04:02(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C42D9B6810B281A49A25B4A7A828195F5A8D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004905   (834832) от 08.04.2016
-
-VA - EDM Volume 2 Heads Phone (2016) [MP3|320 кб/с] <Electro House, Big Room, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon (Ltn Remix) 03:20
-02. Third Party & Sentinel - Real Sound (Extended Mix) 05:34
-03. Dj Antoine - Thank You (Paolo Ortelli & Luke Degree Remix) 04:31
-04. Dave Emanuel - You & Me (Original Extended Mix) 04:33(   Читать дальше...   )Жанр: Electro House, Big Room, ProgressiveПродолжительность: 03:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1A26AA00E5D3FB00210959EC10D70C00C14A29
 ```
 
 https://mybot314.ru/tekegram_catalog/

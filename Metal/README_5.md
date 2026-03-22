@@ -1,3 +1,32 @@
+###  Публикация: 1456828   (1024765) от 24.03.2021
+
+Liquid Tension Experiment - LTE3 (2021) [MP3|320 Kbps] <Instrumental Progressive Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypersonic (08:22)
+ 02. Beating The Odds (06:09)
+ 03. Liquid Evolution (03:23)
+ 04. The Passage Of Time (07:33)(   Читать дальше...   )Жанр: Instrumental Progressive Metal, RockПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7440DFAF270F34EA04DD30CE8ADB6E18832F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457173   (1024640) от 25.03.2021
 
 Renacer - En Versiones Vol. 2 (2021) [MP3|320 Kbps] <Melodic Heavy Metal>
@@ -716,35 +745,6 @@ Axewitch - Out Of The Ashes Into The Fire (2021) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4975C4D9011E7CE3785DC965F5EE585BBD5D0814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466613   (1018302) от 01.05.2021
-
-Ironbound - The Lightbringer (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away (01:06)
- 02. The Witch Hunt (04:38)
- 03. When Eagles Fly (05:31)
- 04. Smoke and Mirrors (06:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7671B659F17C80F39EBDD506DABF32B63270497B
 ```
 
 https://mybot314.ru/tekegram_catalog/

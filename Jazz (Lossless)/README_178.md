@@ -1,3 +1,177 @@
+###  Публикация: 1162870   (455133) от 03.09.2017
+
+June Christy And The Stan Kenton Orchestra - The Complete Studio Recordings (1945 - 1951) 1994, Collectors' Choise Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tampico [02:44]
+02. It's Been a Long, Long Time [02:45]
+03. Just A-Sittin' and A-Rockin' [02:51]
+04. Shoo Fly Pie and Apply Pan dowdy [02:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78EB321575DF08941064C592BA493723A304803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247230   (455117) от 14.09.2018
+
+Will Davis Trio - Have Mood Will Call... (1959) 2017, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Call [4:18]
+02. Sock Cha-Cha [4:08]
+03. Bye & Bye [2:48]
+04. St. George's Groove [3:15](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB203B32D4EEDF1E1A238E1211DD7E40CCF9DED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247243   (455111) от 14.09.2018
+
+Diana Horta Popoff - Amor de Verdade (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madi
+02. Canção Chão
+03. O Barco
+04. Impressões de Amar(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C461D62A6245008357C939100BF30271DD2A547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247234   (454932) от 14.09.2018
+
+Red Rodney - Then And Now (1992) Chesky Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woody 'n' You [6:08]
+02. Marmaduke [5:41]
+03. Little Suede Shoes [6:33]
+04. Un Poco Loco [6:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D744A8572B5A4DFB9C3B8382A1015EC83DCBFBD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060650   (454823) от 07.10.2016
+
+Norah Jones - Day Breaks (Deluxe Edition) (2016) [FLAC|Lossless|image + .cue] <Vocal Jaz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn
+02. Tragedy
+03. Flipside
+04. It's A Wonderful Time For Love(   Читать дальше...   )Жанр: Vocal JazПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0B38FC7936079AE035C47676BA71BF051C9156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247208   (454638) от 14.09.2018
+
+Tony Bennett & Diana Krall - Love Is Here To Stay (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'S Wonderful
+02. My One And Only
+03. But Not For Me (Diana Krall solo)
+04. Nice Work If You Can Get It(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B047208F8DEDD80F0EB9C4F2A7FC5B8143F2473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408637   (454028) от 13.09.2020
 
 Stanley Cowell - Juneteenth (2014) 2015, Vision Fugitive [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -571,181 +745,6 @@ Jacques Loussier Trio - Plays Debussy (2000) Telarc [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F4E309B70B46750A83059569B105C5DD5B1963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943065   (451886) от 02.10.2015
-
-Rebecca Hardiman - Easy Living (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thou Swell
-02. Give Me The Simple Life
-03. Easy Living
-04. You Go To My Head(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:30
-Издатель (лейбл): Rebecca Hardiman
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2407B8A8E9370847FD7B638C3B79C45C45894F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705189   (451853) от 29.09.2013
-
-VA - Jazz Loves Marvin Gaye (2011) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quincy Jones - What's Going On (9:51)
-02. Grover Washington, Jr. - Mercy Mercy Me (The Ecology) (5:08)
-03. Phil Upchurch - Inner City Blues (Make Me Wanna Holler) (6:45)
-04. Grover Washington, Jr. - Trouble Man (15:52)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A21D5D0BF6B7AD5A4A93BB8E3AB0431B577B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408906   (451838) от 14.09.2020
-
-June Christy - Ballads For Night People (1959) 2005, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bewitched, Bothered, and Bewildered [4:57]
-02. Night People [3:22]
-03. Do Nothing 'Til You Hear from Me [4:09]
-04. I Had a Little Sorrow [3:52](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37810742B85F3C3AC65D6D4800F9D399CC0653FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943054   (451763) от 02.10.2015
-
-Tianna Hall - Hit Me With A Hot Note (2015) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Bailey (Won't You Please Come Home)
-02. Hit Me With A Hot Note (And Watch Me Bounce)
-03. Cry Me River
-04. Do Nothing Till You Hear From Me(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622FB81B4C31BE1DD26E9E7201B4C60366F0FDFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408779   (451606) от 14.09.2020
-
-VA - Feel Good Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nat King Cole - Smile (2:55)
-02 - Bobby McFerrin - Don't Worry Be Happy (4:48)
-03 - Louis Armstrong - When You're Smiling (The Whole World Smiles With You) (Without Intro) (4:00)
-04 - Norah Jones - Chasing Pirates (2:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B87BF077784B36323C4C45BA53061ECDDE55A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247650   (451384) от 16.09.2018
-
-Cecil L. Recchia - The Gumbo (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle Blues
-02. Second Line
-03. Limehouse Blues
-04. Jambalaya (On the Bayou)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DC1BD835ACB5AC978832A9B9231FDB740DDB43
 ```
 
 https://mybot314.ru/tekegram_catalog/

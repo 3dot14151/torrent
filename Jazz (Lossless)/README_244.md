@@ -1,3 +1,177 @@
+###  Публикация: 1627450   (242995) от 19.04.2023
+
+GoGo Penguin - Everything Is Going to Be OK (2023) [FLAC|Lossless|WEB-DL|tracks] <jazz, fusion, contemporary jazz, future jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Stronger Than You Think [00:01:16]
+02. Glimmerings [00:04:01]
+03. Saturnine [00:04:53]
+04. Glow [00:02:40](   Читать дальше...   )Жанр: jazz, fusion, contemporary jazz, future jazzПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A7BC28EFB2121C9FDF7DDB3C4F18DFB79F3615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627432   (242948) от 19.04.2023
+
+James Carter Organ Trio - Live from Newport Jazz (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le manoir de mes reves [11:29]
+02. Melodie au crepuscule [10:47]
+03. Anouman [10:06]
+04. La valse des niglos [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FA46FEBE47870AF057112B58C75BD04B604667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358760   (242945) от 09.02.2020
+
+Ivan Paduart - Enivrance (2015) Mons Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eruptions [4:47]
+02. Boyhood [5:04]
+03. Paresse Infinie [4:09]
+04. Molo Molo [6:00](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCF05276C670D05795B077A241E259EB6364475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457226   (242938) от 25.03.2021
+
+Piano Cats, Tamana Yaguchi - Better Concentration Piano BGM (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The More I Think About It (02:18)
+02. Concentrated Efforts (02:12)
+03. Better Brilliance (02:17)
+04. The Key to Intelligence (02:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98EF19C8A45EEC72F084322478EC19A3ADFE053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614975   (242928) от 24.02.2023
+
+Freddie Hubbard - Bolivia (1991) Limelight [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homegrown [8:45]
+02. Bolivia [6:58]
+03. God Bless the Child [6:34]
+04. Dear John [7:33](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B1F0D9AD5E38BC7CBDDAA3A937F723885A532F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614818   (242911) от 24.02.2023
+
+JB Project - Akira Jimbo & Brian Bromberg - Brombo III!!! (2017) [FLAC|Lossless|image + .cue] <Jazz, Jazz Rock, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Actual Proof (00:04:54.31)
+02. Stratus (00:07:23.12)
+03. Hybrid Life (00:05:48.18)
+04. Teen Town (00:05:37.21)(   Читать дальше...   )Жанр: Jazz, Jazz Rock, Jazz FusionПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C6321A7F6AA607DC14A4DF00CD95FB6D10D7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540776   (242864) от 31.03.2022
 
 Cortex - Inedit '79 (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
@@ -571,180 +745,6 @@ Eddie “Lockjaw” Davis - Goin' To The Meetin' (1960, 1962) 2001, Prestige[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:316C16146B3F09A937D7A5E1E7908304CD0C6F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616655   (242427) от 03.03.2023
-
-Joe Bonner Trio - Parade (1979) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change It [8:10]
-02. Au Privave [5:44]
-03. Sunny [6:08]
-04. Hurry Up and Wait [5:55](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CB03ADF89DBD71B2E0C6B0F56322106D098A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616657   (242411) от 03.03.2023
-
-Dinah Washington - The Jazz Biography (2005) United Audio [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Slick Chick [2:42]
-02. After I Say I'm Sorry [2:38]
-03. Am I Blue? [3:15]
-04. Baby Get Lost [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5143866154E7CA6F48E94D4B9368B89A6121BE33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105402   (242405) от 18.02.2017
-
-Sonny Rollins - Sunny Days, Starry Nights (1984) Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mava Mava [04:35]
- 02.I'm Old Fashioned [06:29]
- 03.Wynton [08:21]
- 04.Tell Me You Love Me [06:17](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69835F894DEF9D5E679FEDD70EA1C832C5909F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542061   (242399) от 05.04.2022
-
-Владимир Толкачев (Vladimir Tolkachev) - Поезд на Чаттанугу (Chattanooga Choo-Choo) (2002) Bison [APE|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chattanooga Choo-Choo [4:48]
-02. Moonlight Serenade [3:45]
-03. Overture [2:03]
-04. Moonlight Becomes You [3:13](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D6A044F6D308580D350F6C58D321949A657D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105941   (242398) от 18.02.2017
-
-Lalo Schifrin - There's A Whole Lalo Schifrin Goin' On (1968) 2013, Universal [FLAC|Lossless|tracks + .cue] <World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Secret Code Synthesizer [02:32]
- 02.Dissolving [02:33]
- 03.Machinations [02:46]
- 04.Bride Of The Wind [02:39](   Читать дальше...   )Жанр: World FusionПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB2CA65D7C773C91E4B1997FA8C1792FB2FC5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634927   (242324) от 23.05.2023
-
-Clare Teal - A Tribute To Ella Fitzgerald (2016) Chasing The Dragon [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got You Under My Skin [2:57]
-02. Begin the Beguine [3:57]
-03. I Get A Kick Out Of You [3:55]
-04. Ding Dong The Witch Is Dead [3:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01725A50E7816ADE1C6699953EE8A1CC4F9526A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

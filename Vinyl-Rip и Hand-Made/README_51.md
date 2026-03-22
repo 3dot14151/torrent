@@ -1,3 +1,350 @@
+###  Публикация: 1828332   (193427) от 24.10.2025
+
+Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garmarna — шведская фолк-рок-группа, основанная в 1990 году.1993 - Garmarna
+1994 - Vittrad
+1996 - Guds speleman
+1999 - VedergallningenЖанр: Folk RockПродолжительность: 05:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548510   (193411) от 24.10.2025
+
+Amorphis - Дискография (26 releases) (1991-2025) hand made [restored, declipped] [FLAC|44/16.1|tracks +.cue] <Progressive/Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом. Группа неоднократно меняла звучание, и её музыка не укладывается в рамки одного жанра. Её первый альбом выдержан в стиле дэт-метал. Начиная со второго альбома группа соединила финскую народную музыку с дэт-дум-метал. На более поздних записях появилось (   Читать дальше...   )1992 - The Karelian Isthmus
+1994 - Tales from the Thousand
+1996 - Elegy
+1999 - Tuonela(   Читать дальше...   )Жанр: Progressive Metal, Melodic Death Metal, Folk MetalПродолжительность: 23:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8F9435EBC069394420658E09378068B6A0A680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586896   (193257) от 29.10.2022
+
+VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «Здравствуй, Песня» - Птица Счастья
+02. Эстрадно-симфонический Оркестр Центрального Телевидения И Всесоюзного Радио - День В Сентябре
+03. Алла Пугачева, «Аракс» - Скажи Мне Что-нибудь
+04. Ленинградский Концертный Оркестр - Утро (из к/ф Служебный Роман)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587012   (193218) от 29.10.2022
+
+Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Doom Metal, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tiamat — шведская группа. Существует с 1989 года, её основатель, вокалист, ритм-гитарист и автор песен Юхан Эдлунд остаётся её единственным постоянным участником. На ранних альбомах Tiamat исполняли дум/дэт-метал с гроулингом, но начиная с альбома Wildhoney 1994 года группа постепенно перешла к прославившему её более мелодичному жанру готик-метал с влиянием психоделического (   Читать дальше...   )1990 - Sumerian Cry
+1991 - The Astral Sleep
+1992 - Clouds
+1994 - WildhoneyЖанр: Death/Doom Metal; Gothic MetalПродолжительность: 11:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586584   (193169) от 29.10.2022
+
+Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip)]<Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eldorado Overture (2:13)
+ 02. Can’t Get It Out of My Head (4:21)
+ 03. Boy Blue (5:19)
+ 04. Laredo Tornado (5:29)(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7274A0D8310CC1689F5E60331B3A2A35F21212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657185   (193142) от 02.09.2023
+
+Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193142.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Battlefield
+A2 South Cross Union
+A3 Prayers Of Steel
+A4 Halloween(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657087   (193139) от 02.09.2023
+
+Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193139.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A-me-ri-ca
+A2 If I Had A Hammer
+A3 Bye Bye Blackbird
+A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313506   (193138) от 29.10.2022
+
+Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Whole Lotta Shakin' Goin' On
+A2 Great Balls Of Fire
+A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657298   (193101) от 02.09.2023
+
+Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ring of Fire — американская неоклассическая/прогрессивная/пауэр-метал группа из Чула-Виста, Калифорния, образованная в 2000 году.2001 - The Oracle
+2002 - Dreamtower
+2004 - Lapse Of Reality
+2014 - Battle Of LeningradЖанр: Progressive/Power MetalПродолжительность: 05:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26EAF42EA1B40C0D8C30A20AB87DA11C1B6044D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524571   (193069) от 29.10.2022
+
+A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Synth-pop, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_193069.jpg" />
+</div>
+
+
+###  Подробнее
+
+A-ha  -  норвежская музыкальная группа, созданная в 1982 году в Осло и работающая в стиле электро-поп, появившемся на излёте «новой волны». Музыке a-ha присущи графичный, холодноватый («скандинавский») стиль, синтезаторно-гитарное звучание, выразительная балладная мелодика.1985 - Hunting High And Low
+1986 - Scoundrel Days
+1988 - Stay On These RoadsЖанр: Synth-pop, Pop-RockПродолжительность: 15:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6E87A8C13DF60FD4F9A6F402FE1684CDF4C819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587390   (192877) от 30.10.2022
+
+Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tankard — немецкая трэш-метал-группа из Франкфурта, основанная в 1982 году. Начиная со своего первого альбома, группа не изменяла взятому в самом начале направлению — создавать быстрые метал-песни, прославляющие алкоголь. В связи с этим получило распространённое мнение, что они изобрели жанр «алкоголик-метал». Сами себя Tankard называют «королями пива». Наряду с (   Читать дальше...   )1986 - Zombie Attack
+1987 - Chemical Invasion
+1988 - The Morning After
+1990 - The Meaning Of LifeЖанр: Thrash MetalПродолжительность: 14:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9EFD565F40230DE56F8740557B5F0D513260820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657365   (192771) от 03.09.2023
+
+Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Love [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192771.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 With A Song In My Heart
+A2 MacNamara's Band
+A3 Keep Right On To The End Of The Road
+A4 Anniversary Song(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4D3D6A5EB5844DEC31847A3D5027AB20CE10B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657320   (192745) от 03.09.2023
 
 Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Metal>
@@ -398,350 +745,6 @@ OSI — американская прогрессив-рок-группа, пе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658763   (190478) от 10.09.2023
-
-Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190478.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In The Navy
-A2 Get Away Holiday
-A3 Citizens Of The World
-B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660218   (189703) от 12.09.2023
-
-The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The Gondoliers" and "Yeomen Of The Guard" (1959) [FLAC 1.0|24/96||side-tracks|Vinyl-Rip] <Class ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Brass & Military, Opera, Brass BandПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589844   (189666) от 11.11.2022
-
-Рыбников Алексей - Звезда и смерть Хоакина Мурьеты (1978) 1981 [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Country Rock, Musical, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сторона 1(4)  • Звезда И Смерть Хоакина Мурьеты
-02. Сторона 2(4)  • Звезда И Смерть Хоакина Мурьеты (Продолжение)
-03. Сторона 3(4)  • Звезда И Смерть Хоакина Мурьеты (Продолжение)
-04. Сторона 4(4)  • Звезда И Смерть Хоакина Мурьеты (Окончание)(   Читать дальше...   )Жанр: Country Rock, Musical, Symphonic RockПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF14060D125CA94EFADCD263421BBBF3DCDFB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660657   (189404) от 13.09.2023
-
-Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189404.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Settle Down
-A2 After The Laughter (Came Tears)
-A3 Butterfly
-A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660750   (189373) от 13.09.2023
-
-Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189373.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vienna Blood
-A2 Radetzky March
-A3 Tales From The Vienna Woods
-B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, OrchestraПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590260   (189035) от 13.11.2022
-
-Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 48 Crash (3:57)
- 02. Glycerine Queen (3:52)
- 03. Shine My Machine (3:54)
- 04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590282   (189034) от 13.11.2022
-
-Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Opera, Art Rock, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сторона 1 • «Юнона» И «Авось» • Опера
-02. Сторона 2 • «Юнона» И «Авось» • Опера (Продолжение 1)
-03. Сторона 3 • «Юнона» И «Авось» • Опера (Продолжение 2)
-04. Сторона 4 • «Юнона» И «Авось» • Опера (Окончание)(   Читать дальше...   )Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661107   (188800) от 14.09.2023
-
-Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ludvig Van Beethoven (1770 - 1817)
-Symphony No.6 In F Major, Op. 68 "Pastoral"
-A New Recording from the Berlin Philarmonic Hall
-A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590517   (188658) от 14.11.2022
-
-Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Moon Rising (2:19)
- 02. Midnight Hour (2:26)
- 03. I Feel The Earth Move (2:54)
- 04. Walking The Dog (2:35)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543805   (188589) от 14.11.2022
-
-Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hot Chili Peppers (RHCP) — американская рок-группа, образованная в 1983 году в Калифорнии вокалистом Энтони Кидисом, басистом Майклом Бэлзари (больше известным как Фли), гитаристом Хиллелом Словаком и барабанщиком Джеком Айронсом.1984 - The Red Hot Chili Peppers
-1985 - Freaky Styley
-1987 - The Uplift Mofo Party Plan
-1989 - Mother's MilkЖанр: Alternative Rock, Funk RockПродолжительность: 21:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661762   (188563) от 15.09.2023
-
-Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Demons & Wizards - сайд-проект вокалиста Ханси Кюрша (Blind Guardian) и гитариста Джона Шаффера (Iced Earth) в жанре пауэр-метал.2000 - Demons & Wizards
-2005 - Touched by the Crimson King
-2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661630   (188544) от 15.09.2023
-
-Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave You Or Forsake You
-02. Reason To Rock
-03. It's Not Late For Love
-04. Somebody's Watching You(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
 ```
 
 https://mybot314.ru/tekegram_catalog/

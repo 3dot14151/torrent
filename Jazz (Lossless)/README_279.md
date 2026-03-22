@@ -1,3 +1,177 @@
+###  Публикация: 1671377   (171407) от 24.10.2023
+
+Papik & Nicole Magolie - Montecarlo Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greatest Part of You
+02. Montecarlo
+03. My Love Is True
+04. I'm Letting Go (Tenderly)(   Читать дальше...   )Жанр: Pop Jazz, Nu JazzПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91E12C3BFE2C0DADCF8F94795CD9C07622C8920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671561   (171271) от 25.10.2023
+
+Sonny Clark - Quintets (1957, 1958) 2000, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Flush [9:03]
+02. Lover [7:02]
+03. Minor Meeting [6:53]
+04. Eastern Incident [8:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB860253F746F1F398370EC8897CAC2D337599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671550   (171270) от 25.10.2023
+
+The Clare Fischer Latin Jazz Big Band - Ritmo! (2012) Clavo Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Francisco P.M. [5:59]
+02. Funquiado [8:18]
+03. Canonic Passacaglia, Blues and Vamp 'Til Ready [10:00]
+04. Machaca [8:22](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Big BandПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4EB5A89905C86AB98986D53D120C848CF17F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671553   (171267) от 25.10.2023
+
+Grant Green - His Majesty, King Funk (1965) 2004, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Selma March [8:27]
+02. Willow Weep for Me [10:02]
+03. The Cantaloupe Woman [4:56]
+04. That Lucky Old Sun (Just Rolls Around Heaven All Day) [5:20](   Читать дальше...   )Жанр: Hard Bop, Jazz-FunkПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334E5A9EE2F72BD87CF1D27C21BDC4A8AB38398C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671556   (171265) от 25.10.2023
+
+Thad Jones, Kenny Burrell, Frank Wess - After Hours (1957) 1992, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steamin' [9:29]
+02. Blue Jelly [11:27]
+03. Count Down [7:56]
+04. Empty Street [12:42]Жанр: Bop, Hard BopПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59493F695EEFBA43FD6C17A2267E74CD34F4469F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671566   (171263) от 25.10.2023
+
+Ruby Braff - The Mighty Braff (1954, 1955) 1989, Charly Records [FLAC|Lossless|image + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue And Sentimental [2:41]
+02. This Can't Be Love [2:38]
+03. Mean To Me [3:02]
+04. Ellie [2:28](   Читать дальше...   )Жанр: SwingПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E832D4EB2225C180A75201D50B60AD984D1C834E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671560   (171262) от 25.10.2023
 
 Robert Conti - To The Brink! (2005) Pinnacle Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
@@ -571,180 +745,6 @@ Tsuyoshi Yamamoto Trio With Koji Moriyama - Hida-Takayama Jazz Session (XRCD24) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B3BDE591AD204EA03C0EBAB0894F2B9B8382359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596433   (169890) от 10.12.2022
-
-Don Cherry - The Complete Blue Note Recordings Of Don Cherry (1965, 1966) 2CD, 1993, Mosaic Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169890.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Complete Communion [20:41]
-02. Elephantasy [19:39]
-03. Symphony for Improvisers [19:44]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D4E3EC592D265B6D1A5A132DE3CD6F058D23CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344551   (169881) от 11.12.2019
-
-John Clark - I Will (1997) Postcards [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [7:25]
-02. 96th Street Sonata: Casilda [4:40]
-03. 96th Street Sonata: Mellow Max [1:53]
-04. 96th Street Sonata: King Bert [3:46](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048BEC0E7927544099E2912D5188057A8114DB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344544   (169877) от 11.12.2019
-
-Mel Torme - Sings For Lovers 1982 - 1996 (2008) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song Is You [3:48]
-02. The Way You Look Tonight [3:39]
-03. Nobody Else But Me [3:59]
-04. You'd Be So Nice to Come Home To [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C192D207DEF3112F0AEDBDDB9E65F66A68983D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344545   (169839) от 11.12.2019
-
-Della Reese - Voice Of An Angel 1959 - 1964 (1996) RCA [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Beginning to See the Light [2:27]
-02. Baby, Won't You Please Come Home [3:11]
-03. Guess I'll Hang My Tears Out to Dry [2:49]
-04. I'm Just a Lucky So and So [2:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974DC5E5BA1A1E023FC926F2743AB963A4CDA0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344546   (169830) от 11.12.2019
-
-Della Reese - Essential Della Reese 1950-e - 1960-e (2004) MasterSong [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't You Know? [2:10]
-02. Stormy Weather [3:37]
-03. What Is There to Say? [2:26]
-04. I Could Have Danced All Night [1:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D439AFECC7A400AB03E7EF42633E24BFDAC322A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515457   (169678) от 07.12.2021
-
-Erroll Garner - 1944, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear A Rhapsody (Part 1 & 2) [8:21]
-02. Erroll's Reverie [7:24]
-03. You Were Born To Be Kissed [5:16]
-04. Perdido [2:46](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB01A927541901A8DE10E152C36F6CE85179504D
 ```
 
 https://mybot314.ru/tekegram_catalog/

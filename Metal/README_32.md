@@ -1,3 +1,32 @@
+###  Публикация: 1278599   (768523) от 26.01.2019
+
+Swallow The Sun - When A Shadow Is Forced Into The Light (2019) [MP3|320 Kbps] <Melodic Metal, Doom-Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768523.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. When A Shadow Is Forced Into The Light
+2. The Crimson Crown
+3. Firelights
+4. Upon The Water(   Читать дальше...   )Жанр: Melodic Metal, Doom-Death MetalПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAD1510B56F849CECFB32890A76303FDB59FB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125526   (768091) от 15.04.2017
 
 She Must Burn - 1 альбом + 1 EP (2015-2017) [MP3|320 Kbps] <Symphonic Deathcore / Metalcore>
@@ -715,35 +744,6 @@ Die Klute - Planet Fear (2019) [MP3|320 Kbps] <Industrial, Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E60FD9BAC19F2C2756889931171F991264DC4574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394854   (760607) от 07.07.2020
-
-The Last Renegades - Valley of the Kings (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colonel Kill (07:56)
- 02. Mr Smile (04:18)
- 03. 300 Strong (05:49)
- 04. Valley of the Kings (06:34)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35BF227D348E9624E14D8274550ECB38B2F0496
 ```
 
 https://mybot314.ru/tekegram_catalog/

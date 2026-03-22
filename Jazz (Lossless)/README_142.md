@@ -1,3 +1,189 @@
+###  Публикация: 920470   (580196) от 22.07.2015
+
+Art Blakey - Jazz Messengers!!!!! & A Jazz Message (1961/1964) /2011, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alamode [06:47]
+02. Invitation [07:29]
+03. Circus [05:14]
+04. You Don't Know What Love Is [07:02](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B717C49BA530A07E5FDAAAF39C56E946E4041D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553804   (580088) от 28.05.2022
+
+Kenny Davern - And The Rhythm Men (1996) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Rhythm Man [8:07]
+02. Out of Nowhere [9:27]
+03. Three Little Words [7:06]
+04. Say It Isn't So [6:19](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DDD2B674067DBBC91C00CCA1B3EE77E81813D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360349   (579868) от 08.07.2011
+
+Joe Sample And The Soul Committee - Did You Feel That? (1994) [FLAC|Lossless]<Jazz, Smooth-jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystery Child    [05:54]
+02. The Sidewinder    [06:00]
+03. Viva De Funk    [05:43]
+04. While It's Good    [04:27]
+05. Brother, Can You Spare Your Car    [04:03]
+06. Dirty Rice    [05:25]
+07. Did You Feel That    [04:45]
+08. The Last Buzz    [07:06]
+09. Give It Here    [04:35]
+10. Just Chillin'    [04:57]Жанр: Jazz, Smooth-jazzПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360409   (579833) от 08.07.2011
+
+Alain Caron - Rhythm'n Jazz (1995) [FLAC|Lossless]<Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579833.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Bump (Caron)  (05:37)
+2. Fat Cat (Caron)  (07:21)
+3. District 6 (Caron)  (05:13)
+4. Slam the Clown (Caron)  (07:37)
+5. Little Miss Match (Caron)  (07:39)
+6. I.C.U. (Caron)  (06:47)
+7. Cherokee Drive (Caron)  (08:29)
+8. Flight of the Bebop Bee (Caron)  (07:01)
+9. Donna Lee (Parker)  (04:12)
+10. Intuitions (Caron)  (06:25)Жанр: Jazz-Rock, FusionПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 197499   (579739) от 22.07.2015
+
+Richard Cheese & Lounge Against The Machine - 9 дисков (2000-2009) [APE,FLAC|Lossless]<Jazz,Lounge,Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_579739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ричард Чиз (Richard Cheese) — американский певец, фронтмен группы «Richard Cheese and Lounge Against the Machine» из Лос-Анжелеса (Калифорния). Настоящее имя Марк Джонатан Дэвис (Mark Jonathan Davis). Группа известна своими шуточными кавер-версиями песен известных поп и рок музыкантов, исполненными в манере, напоминающей стилистику Фрэнка Синатра, Дина Мартина и (   Читать дальше...   )Lounge Against The Machine (2000)
+Tuxicity (2002)
+I'd Like A Virgin (2004)
+Aperitif for Destruction (2005)(   Читать дальше...   )Жанр: Jazz, Lounge, PopПродолжительность: 05:14:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042314   (579687) от 12.08.2016
+
+Dafnis Prieto - Absolute Quintet (2006) Zoho[FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Coolest [03:27]
+ 02.Sensaciones [06:15]
+ 03.The Stutterer [06:42]
+ 04.Afrotango [08:20](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADCFE49917F4CAEE3A4CFD7AC44D5FB4E96C545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042264   (579682) от 12.08.2016
 
 (Николай Громин) Nikolaj Gromin & Jesper Lundgaard Duo - Blues For Thad (1991) [WavPack|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
@@ -570,198 +756,6 @@ Andrew Hill - Lift Every Voice (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EFA430C92152594B435DDE0622097CB04945E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921149   (577746) от 24.07.2015
-
-Ned Rothenberg - Ned Rothenberg Quintet for Clarinet and Strings (2010) [FLAC|image+.cue]<Modern Creative, Chamber Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terrace and Fold
-02. Interleaving
-03. Commentary
-04. Setting Stones(   Читать дальше...   )Жанр: Modern Creative, Chamber JazzПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7601AB58157A57820AD3FDF08C96399B78CC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921130   (577744) от 24.07.2015
-
-Jimmy Smith - Open House & Plain Talk (1960) /1999, Ars Nova/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open House [16:14]
-02. Old Folks [04:49]
-03. Sista Rebecca [10:54]
-04. Embraceable You [06:06](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00890899F96056A4B53CC537DE51A114B180CF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921142   (577619) от 24.07.2015
-
-Nancy Danino - Testify (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beauty On Water
-02. Blue Sky
-03. Millionaire In the Rain
-04. Someday(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F20EF629BF4719E5331ABA0E7727F5C50BC4B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361420   (577418) от 10.07.2011
-
-Various Artists - Gentle Jazz (2010) [FLAC|Lossless]<Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jimmy Giuffre - The easy way
-02.Mary Lou Williams - It ain't necessarily so
-03.Fleurine - The logical song
-04.Charlie Parker - Just friends
-05.Yusef Lateef - First Gymnopedie
-06.McCoy Tyner Trio - What the world needs now is love
-07.Erroll Garner - Exactly like you
-08.Charlie Haden & Gonzalo Rubalcaba - El Ciego
-09.Regina Carter - Pavane
-10.Gerry Mulligan - I heard the shadows dancing(   Читать дальше...)Жанр: Vocal Jazz, SwingПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360982   (577415) от 10.07.2011
-
-We3 - Amazing (2011) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember (Steve Swallow) (06:04)
-02. Amazing (Steve Swallow) (07:38)
-03. In F (Steve Swallow) (04:26)
-04. Free Ballad #1 (Liebman-Nussbaum-Swallow) (02:52)
-05. My Maia (Adam Nussbaum) (08:52)
-06. Get Out Of Town (Cole Porter) (06:34)
-07. Bend Over Backwards (Steve Swallow) (07:28)
-08. Swallowish (Dave Liebman) (06:14)
-09. Free Beguine #1 (Liebman-Nussbaum-Swallow) (03:01)
-10. Sure Would Baby (Adam Nussbaum) (05:10)(   Читать дальше...)Жанр: Contemporary JazzПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360976   (577278) от 10.07.2011
-
-Romane - Swing for ninine (2011) [FLAC|Lossless]<Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing for Ninine (Romane)
-02. Antilia (Romane)
-03. Charles Eston (Romane)
-04. Liane (M. Cazes)
-05. Folle Ronde (Romane)
-06. Erevan Valse (J. M. Ekherian)
-07. En Souriant (Romane)
-08. Dans le Regard de Laura (Romane)
-09. Niglo Swing (L. Bajata)
-10. Bibiguine (Romane)(   Читать дальше...)Жанр: Swing, Guitar JazzПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

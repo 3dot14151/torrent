@@ -1,3 +1,213 @@
+###  Публикация: 466680   (96441) от 12.03.2012
+
+VA - Новинки: Хит-парад 50/50 1 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Настя Задорожная - Воздух
+ 02 Dido-This Land Is Mine
+ 03 Тимати feat. Григорий Лепс - Реквием По Любви
+ 04 In-Grid-Dans Tes Yeux
+ 05 Маша Собко - Холодно
+ 06 Ramzi-Far Away
+ 07 Виктория Дайнеко - Сотри Его Из Memory
+ 08 Lara Fabian-Si Tu M'Aimes
+ 09 В Двух Шагах - Будь Со Мной Вечно
+ 10 Anastacia-In Summer(   Читать дальше...   )2012Жанр: РорПродолжительность: 05:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD656F6C2FDF38051FE57463A7641CAB4300F98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466107   (96350) от 11.03.2012
+
+VA - Italo - Eurodisco (2012) [MP3|256 кб/с]<Italo-Disco, Euro-Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission - Let It Be Love (Savino Mix)
+02. Magic System D.J. - I Wanna Touch Your Body Now (Extended Version)
+03. Fred Ventura & Andy Romano - I Want You Back (Extended Version)
+04. Mirko Hirsch - Pandora's Box
+05. Ajello Featuring Fred Ventura - I'm Not Ready (Savino Remix)
+06. Peter Arcade - The Fairytale (Vocal Version)
+07. Eddy Huntington feat. Discobonus - Honey, Honey (Extended)
+08. Riccardo Campa - Cyborg Woman
+09. Gina T. - Money For My Honey (Extended Dance Version)
+10. Galaxy Hunter - Make You Feel Alright(   Читать дальше...   )2012Жанр: Italo-Disco, Euro-Disco, PopПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F985BB60A8EC53BAFE7719E27E7995563BB2308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465298   (96211) от 10.03.2012
+
+VA - Весенний хит-парад Record 6 50/50 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 MM Dance - Отдыхаем (Dj Alfred extended mix)
+02 DJ Robert.T - Disco Crazy (Radio Edit)
+03 DJ HaLF & Tom Stem - Ready 2 Go (Radio Mix)
+04 Kay - M.A.J.O.R. (Tiesto Remix)
+05 DJ Half & Tom Stem - Любовь По Венам (MainstreamOne feat. DJ
+06 DJ Feel feat. Loona - I ll Find Myself (original mix)
+07 ViRUS! - ЧЗF
+08 Aly & Fila - Rising Sun (Bjorn Akesson remix)
+09 Mc Zali & Don Omar - Девочки мэйд ин раша (Dima Molotov Russian bootleg)
+10 Nicky Romero - Toulouse (original mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 08:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF6F0268A36985B545864967EFEE0CDA300A96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464704   (96149) от 09.03.2012
+
+VA - Взрывной хит-парад Весна (2012) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Reflex - Первый Раз (Версия 2012)
+002. Sabina - Не Надо Делать Больно
+003. Инфинити - Ты Мой Герой
+004. София Ротару - Не Зови Печаль (Время Любить)
+005. Катя Баженова - Ой, Люли (А Девочки Танцуют)
+006. Дмитрий Маликов - До Завтра (S.U.27 remix)
+007. Без Билета - Все Сразу!
+008. Градусы - Заметает
+009. Кристина Орбакайте И Thomas N'evergreen - Тайна Без Тайн (Dance Version)
+010. Даша Люкс - Делай Меня Точно(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1675603B457D1A2F443004ADFB5641905705754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464767   (96056) от 09.03.2012
+
+VA - Горячая Танцевальная Сенсация (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блестящие - Милый мой
+02. Глюк'oza - Наигрались
+03. Макс Барских - Dance
+04. Иракли - Ты одна
+05. Пропаганда - Наберу
+06. Банд'Эрос - Эти сумасшедшие ночи
+07. Филипп Киркоров - Мне не жаль тебя
+08. Альбина - Ну и пусть
+09. T-Killah & Лоя - Вернись
+10. Чи-Ли - Облака2012Жанр: PopПродолжительность: 06:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8681CE57681B58C6AE5929CA5068DC49441D7F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458111   (94793) от 27.02.2012
+
+VA - The Official UK Top 40 Single Charts (19.02.2012) (2012) [MP3|320 кб/с]<Pop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Fresh Feat Rita Ora - Hot Right Now
+02 Emeli Sande - Next To Me
+03 Gotye Feat Kimbra - Somebody That I Used To Know
+04 David Guetta Feat Sia - Titanium
+05 Flo Rida Feat Sia - Wild Ones
+06 Jessie J - Domino
+07 Alyssa Reid Feat Jump Smokers - Alone Again
+08 Will.I.Am Feat Mick Jagger & Jennifer Lopez - T.H.E. (The Hardest Ever) (Explicit Edit)
+09 One Direction - One Thing
+10 Cover Drive - Twilight2012Жанр: Pop, Rok, R&BПродолжительность: 02:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10ECA95B8F25537E26E2956702D6ABAA711DF317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 444467   (92010) от 01.02.2012
 
 VA - The Official UK Top 40 Singles Chart (29-01-2012) [MP3|320 kbps]<Pop, Rok, R&B>
@@ -682,216 +892,6 @@ VA - MAXI. Все хиты весны на Русском Радио (2012) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA50BAE0060FC5A38344B59AFA6ACFD7E7BDE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482689   (88461) от 14.04.2012
-
-VA - Фестиваль Авторадио 80-90-Х 50/50 (2012) [MP3|256 kbps]<Pop | Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus - Live Is Life
-02. Машина Времени - Однажды Мир Прогнется Под Нас
-03. East 17 - Let It Rain
-04. Каролина - Не Уходи
-05. Justin Timberlake - Cry Me A River
-06. В. Леонтьев - Дельтаплан
-07. Sabrina - Boys
-08. В. Казаченко - Золотая
-09. Lou Bega - Mambo No 5
-10. В. Попов И Гр. Твой День - Богиня Любви(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE09B44D74E5C7961AAB8854628A8F54D613EBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482777   (88408) от 14.04.2012
-
-VA - ЕвроХит Топ-40 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Telo - Ai Se Eu Te Pego.
-02. Nickelback - When We Stand Together.
-03. David Guetta & Sia - Titanium.
-04. Michael Mind - Rio De Janeiro.
-05. Basto - Again and Again .
-06. Винтаж и DJ Smash - Москва.
-07. Rihanna & Calvin Harris - We Found Love.
-08. Avicii - Levels.
-09. Taio Cruz & Flo Rida - Hangover.
-10. Kelly Clarkson - Stronger (What Doesn't Kill You).(   Читать дальше...   )13.04.2012Жанр: Pop, DanceПродолжительность: 02:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255D8C7F43AB45CF0FD4BEF02D242DF8942D8B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483053   (88388) от 14.04.2012
-
-VA - Новинки Эфира Love Radio 11 (2012) [MP3|256-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88388.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 5sta Family - Вместе Мы
-002 Emin - Heart Keeps A Beating
-003 Время и Стекло - Гармошка
-004 Michel Telo - Ai Se Eu Te Pego
-005 Наташа Королёва - Небеса
-006 Pitbull feat. Chris Brown - International Love
-007 Макс Барских - Dance
-008 DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California
-009 ВИА Гра - Диско
-010 Madonna feat. Nicki Minaj & M.I.A - Give Me All Your Luvin' (Radio Edit)(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB51D55FD71741F1D1EAFB5AAEA12DFD33DDAC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482076   (88240) от 13.04.2012
-
-VA - Потап и Настя в кругу друзей (2012) [MP3|192-256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Планка - Не дождалась
-02. Reflex - Я Буду Небом Твоим
-03. T - Killah & Лоя - Вернись
-04. Мулат feat. Джиган (Geegun) - Тесно
-05. Денис Майданов feat. Филипп Киркоров - Стеклянная Любовь
-06. Слава - Мост Света
-07. ВИА Гра - Диско
-08. Blue Affair & Sasha Dith feat. Carlprit - Я одна (Mondo remix)
-09. Кай Метов и Натали Катэрлин - Солнышко Мое
-10. Валерий Меладзе - Потерян И Не Найден(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6293E2048F17952D9B95334C71314353080505B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482294   (88166) от 13.04.2012
-
-VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooklyn Bounce - Contact
-02. DJ Aligator Project - Payback Time
-03. Real McCoy - Automatic Lover (Call For Love)
-04. Red 5 - Da Beat Goes…
-05. Felix - Don't You Want Me
-06. DJ Bobo - Respect Yourself
-07. Shaggy - Bombastic
-08. Dr. Alban - One Love
-09. Technotronic - Pump The Jam
-10. No Mercy - Plase Don't Go(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB1A4C1E32C17D29BA1107262BBE2CA5BCA724B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482211   (88163) от 13.04.2012
-
-VA - Disco Hits 90's Русский (2012) [MP3|256 kbps]<Pop | Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шура - День за окном
-02. Александр Айвазов - Бабочка-луна
-03. Русский Размер и Профессор Лебединский - Ля-Ля-Фа
-04. Запрещенные Барабанщики - Убили негра
-05. Русский Размер - Звезда разлуки
-06. Краски - Тех кто любит
-07. Божья Коровка - Теплоход
-08. Ван Моо - Народное техно
-09. Стрелки - Ты выбираешь сам
-10. Чай Вдвоем - Неродная(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87FECC245DB3711B28E9A3522A3E86771AD348D
 ```
 
 https://mybot314.ru/tekegram_catalog/

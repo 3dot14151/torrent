@@ -1,3 +1,90 @@
+###  Публикация: 1443792   (1034892) от 31.01.2021
+
+April Wine - 21 Albums, 1 Box-set, 35 CD (1971-2016) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034892.jpg" />
+</div>
+
+
+###  Подробнее
+
+April Wine — канадская рок-группа, образованная в 1969 году. По словам музыкантов, название April Wine было выбрано просто потому, что эти два слова хорошо звучали. April Wine, вместе с Rush и Heart, была одной из немногих хард-рок-групп, появившихся в 1970-х в Канаде и получивших коммерческий успех в США. Группа выпустила более 20 альбомов и продолжает вести активную (   Читать дальше...   )--------------------------
+
+01. Get Ready For Love (4:26)
+02. Hot On The Weels Of Love (3:14)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 25:00:13 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BEE41252278E0D4D10F2FB16B84B4ED604B8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617586   (1034834) от 08.03.2023
+
+Steel Panther - 7 Albums (2009-2023) [FLAC|Lossless|image + .cue] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steel Panther — глэм-роковая группа из Лос Анджелеса, основанная в 2000 году, специализируется на имитации и преувеличении аспектов hair-metalа 1980-х годов. Известна своими пошлыми юмористическими мотивами и текстами песен, а излюбленной лирической темой является откровенно сексуальный контент. Название группы было придумано не сразу, одни из первых названий были (   Читать дальше...   )--------------------------
+
+01. Never Too Late (To Get Some Pussy Tonight) (4:00)
+02. Friends With Benefits (3:54)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock |Продолжительность: 05:19:00 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E582A3955DF70BFE38D678766A94A8824FD9C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618458   (1034172) от 11.03.2023
+
+Seventh Crystal - Wonderland (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderland (04:22)
+02. Higher Ground (03:46)
+03. Hollow (04:10)
+04. Million Times (03:46)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard Rock, AORПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666109D663B1F688022A32E188550E2A359576AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618501   (1034169) от 11.03.2023
 
 Demons Down - I Stand (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -658,93 +745,6 @@ Inglorious - We Will Ride (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51E2B76A6C883086913E331176D7D603E3104E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620894   (1031678) от 22.03.2023
-
-Riptown Riot - Of Martyrs & Mayhem (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moth (4:21)
-02. War (3:50)
-03. Martyr May I (4:51)
-04. The Beast (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D799287E1766AA28484C72B4FDA2A7A4257A77EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620879   (1031647) от 22.03.2023
-
-Fire Of Destiny - Between Good And Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Hopes [00:05:53]
-02. Sweet Fairy [00:03:53]
-03. Eyes never lie [00:04:57]
-04. No Fear [00:04:01](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8064D5AB733925BC40437A349EBFD140CECCC1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447931   (1031400) от 15.02.2021
-
-Kreek - Kreek (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Bottom Of Hell
-02. Missiles
-03. Meet Your Maker
-04. Million Dollar Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB2CC588BF7AD8E744FC36F77163D102AE89C4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

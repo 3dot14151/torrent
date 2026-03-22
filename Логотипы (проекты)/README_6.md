@@ -1,3 +1,56 @@
+###  Публикация: 1001148   (855578) от 27.03.2016
+
+Проекты - RocketStock - Splash [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A667A200B60408C3E8E2AE2BA21C231348480B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000838   (855246) от 27.03.2016
+
+Проекты - VideoHive - Logo on Glass Ball - 11392891 [AEP]
+
+>>След.
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D568B450EDB31F4E9B7C36C3F2BCF2E90E383EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109973   (854965) от 01.03.2017
 
 Проекты - VideoHive - Fire Vortex Logo - 19438036 [AEP]
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5E5333D19CFF9DFF957F1F8A32ED70311BBA927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379721   (837301) от 30.04.2020
-
-Проекты - VideoHive - Enchanted River Logo - 26191964 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень необычный, красивый проект дает вам возможность привлечь внимание публики к демонстрации вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9014748B2C076D3B1020EA797F568268E8D3BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004406   (836656) от 07.04.2016
-
-Проекты - RocketStock - Assembly [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77EF31B0AA279264CD3C0A05E72EFBFD62B8567
 ```
 
 https://mybot314.ru/tekegram_catalog/

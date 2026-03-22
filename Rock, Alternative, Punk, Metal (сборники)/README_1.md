@@ -1,3 +1,32 @@
+###  Публикация: 1447647   (1031550) от 14.02.2021
+
+VA - Rock Drive 12 (2020) от DON Music (2020) [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miguel Montalban - True Lies
+02. Joe Bonamassa - Royal Tea
+03. Alastair Greene - Living Today
+04. U.D.O. & Das Musikkorps Der Bundeswehr - Mother Earth(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3FD6106A14015C12C971CA7BD5BF0E6B73539C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448114   (1031151) от 16.02.2021
 
 VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -713,35 +742,6 @@ VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3240C8223785A2221C5FA44BF43FC518802012A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468428   (1017064) от 08.05.2021
-
-VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ONI - Alone (Blacklight Media) (05:46)
- 02. John Petrucci - Temple of Circadia (07:11)
- 03. Sons Of Apollo - Fall to Ascend (05:05)
- 04. Delain - Combustion (05:25)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE8EC8B6D125612CE26A002586FE9149283ACE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,156 @@
+###  Публикация: 533824   (521681) от 12.08.2012
+
+Show Me A Dinosaur - Evolvent EP (2011) [MP3|320 кб/с]<post-rock, instrumental, post-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still First In Space
+02. Gagarin
+03. Is This Really Happening?!
+04. Petropavlovsk-Kamchatsky
+05. You Can't Find This Place On Google Maps
+06. Lift Up Your TelescopesЖанр: post-rock, instrumental, post-metalПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D543747C9A796ED7610223ABEC3D01D18692E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533011   (521680) от 12.08.2012
+
+Gendos (Gen Dos / Gennady Chamzyryn) - Bay-Tayga (2007) [MP3|320 кб/с]<Ethnic, Rock, Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521680.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Khovuda kezhee (Night in the s (4:28)
+2.  Huliganskaya (3:18)
+3.  Bay-Taiga (Rich Taiga) (4:44)
+4.  Kyzylym sen (My Kyzyl) (5:05)
+5.  Aza alzyn (Features take) (4:58)
+6.  Kysh (Winter) (3:20)
+7.  Langchyy boom (My Gun) (5:36)
+8.  Saktyyshkyn (Memories) (2:11)
+9.  Teek (remake of "Tos") (4:02)
+10. Manchureem (Beautiful District (5:38)Жанр: Ethnic, Rock, Folk-RockПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4489E83231409FA208A1CA6C97B594BC9E9E29D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560340   (520878) от 29.06.2022
+
+Seedy Jeezus - The Hollow Earth (Double Live) (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, 70's Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Is There All That Is
+02 The Golden Miles
+03 My Gods Are Stone
+04 How Ya Doin'(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, 70's RockПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7D0A47C03F8710A30E0F1C9390F28AA855B3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241503   (520131) от 17.08.2018
+
+Fox - 3 Albums (1975-1977) LP [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520131.jpg" />
+</div>
+
+
+###  Подробнее
+
+За свою скоропалительную карьеру "FOX" выпустили всего три альбома, но тем не менее успели снискать расположение публики и несколько раз побывали в горячей десятке. Своему появлению на свет группа обязана композитору, продюсеру, гитаристу Кенни Янгу. В начале 70-х Янг занялся созданием сольных альбомов, и на одном из них в качестве бэк-вокалистки выступила (   Читать дальше...   )Список альбомов:
+1975 - Fox
+1975 - Tails Of Illusion
+1977 - Blue Hotel(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F149313CAC12E88C1BA753E3E0E75D1AE15DB43B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241425   (520050) от 17.08.2018
+
+Status Quo - Down Down & Dirty At Wacken (2018) (Live)  [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caroline (Live At Wacken 2017) 05:31
+02. Something About You Baby I Like (Live At Wacken 2017) 02:16
+03. Rain (Live At Wacken 2017) 05:01
+04. Softer Ride (Live At Wacken 2017) 04:02(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104928D73D4FCE69A7CB7DB5A5147F17A95B3F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929377   (519593) от 19.08.2015
 
 Tokyo Rose - New American Saint (2005) [MP3|320 кб/с]<Pop Punk, Alternative Rock, Indie>
@@ -615,157 +768,6 @@ VA - Rock Playlist (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15E52FB9BC595329A63035026A51BE54BAE66A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931633   (511752) от 26.08.2015
-
-Santana - Greatest Hits (2012) 3CD [MP3|320 кб/с]<Latin Rock, Blues Rock, Jazz Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Europa (Earth's Cry, Heaven's Smile)
-02. Let The Music Set You Free
-03. Well All Right
-04. Stormy(   Читать дальше...   )Жанр: Latin Rock, Blues Rock |Продолжительность: 02:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B171162317958C5B192C6E27F489B1F2A374E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536603   (510580) от 22.08.2012
-
-Protos - The Noble Pauper's Grave (2007) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born a Bit Blue (3:10)
-02. Pause for Thought (0:45)
-03. Travels (5:12)
-04. Gathering Dreams (0:20)
-05. The Rally (11:44)
-06. Long Dark Night (0:39)
-07. The Final Dawn (2:53)
-08. The Noble Pauper (0:58)
-09. Outcry (10:54)
-10. Turmoil (0:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEBEEC36EB39FB1568E6B9C11A176A2455B175A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932204   (510269) от 28.08.2015
-
-Introitus - Fantasy (2007) [MP3|320 кб/с]<Symphonic Rock, Progressive Rock,  Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis (7:17)
-02. Child (5:56)
-03. Ghost (9:12)
-04. Fantasy (26:02)(   Читать дальше...   )Жанр: Symphonic Rock, Progressive Rock,  ExperimentalПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE210A6EB87432ABED123AD147DF4E3453700B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932025   (510195) от 28.08.2015
-
-Fink - Fresh Produce (2000) [MP3|320 кб/с]<Electronic, Downtempo, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tubb Journey (6:36)
-02. Fink Vs DJ Alicat (6:49)
-03. We Are Ninja (6:01)
-04. Break N Enter (5:55)(   Читать дальше...   )Жанр: Electronic, Downtempo, Indie RockПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A0261BCA1D3F850AB7D700DE69DA30CC671D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932209   (510193) от 28.08.2015
-
-Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]<Progressive Rock,  Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tides Of Time (7:48)
-02. Minion (6:56)
-03. Hell's Not Enough (6:24)
-04. Bennett Built A Time Machine (6:56)(   Читать дальше...   )Жанр: Progressive Rock,  Symphonic RockПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C12C7B64995332AFEB356AF9CA51989CDFBEBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1529003   (733524) от 04.02.2022
+
+VA - 30 Most Beautiful Pieces of Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orquesta Reino de Aragón Ricardo Casero - Adagio for Strings
+02. Metamorphose String Orchestra Pavel Lyubomudrov Denis Linnik - Piano Concerto No. 1, Op. 15: II. Adagio
+03. Metamorphose String Orchestra Pavel Lyubomudrov - Pictures at an Exhibition: No. 2, Il vecchio castello (Arr. for Orchestra)
+04. Metamorphose String Orchestra Pavel Lyubomudrov Mikael (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116DC61C5D18F24B775E26E7FFAF9FABDF8EB209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247279   (733480) от 04.02.2022
+
+П.И.Чайковский - Symphonies; Piano Concertos; Famous Waltzes (2007) 10CD [FLAC|Lossless|image + .cu]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 1 in G minor, op. 13 "Winter Dreams"
+[1] I Allegro tranquillo [11.49]
+[2] II Adagio cantabile ma non tanto [11.55]
+[3] III Scherzo: Allegro scherzando giocoso [8.09](   Читать дальше...   )Жанр: ClassicalПродолжительность: 09:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278683B94D74303AC762289414B9BD36402F70EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 213240   (733476) от 04.02.2022
+
+Antonio Vivaldi - The Masterworks (2004) 40CD Box Set [FLAC|Lossless|tracks + .cue]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733476.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01 - Violin Concertos Op. 8 Nos. 1-7
+1 - Concerto No.1 In E Major Op. 8 No. 1, Rv269, Spring
+2 - Concerto No.2 In G Minor Op. 8 No. 2, Rv315, Summer
+3 - Concerto No.3 In F Major Op. 8 No. 3, Rv257, Autumn(   Читать дальше...   )Жанр: ClassicalПродолжительность: 38:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F89EF024A61F83025E02547023CA9F10D5C5371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529255   (733160) от 05.02.2022
+
+Maxence Cyrin - Melancholy Island (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faro Bay (2:49)
+ 02. Soft Skin (2:11)
+ 03. Seasons (3:37)
+ 04. Rivages (2:57)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716822768B26C0FEA6A0F4DB965951F8FD9AD56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283310   (732052) от 18.02.2019
 
 Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
@@ -629,122 +745,6 @@ Jackie Evancho - Two Hearts (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Cros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58B025A1FD4D75FC3C047409632DD5758C0063D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133142   (696777) от 11.05.2017
-
-Jackie Evancho - Two Hearts (2017) [MP3|320 Kbps] <Classical Crossover, Vocal Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caruso
-02. Attesa
-03. How Great Thou Art
-04. Mama(   Читать дальше...   )Жанр: Classical Crossover, Vocal PopПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FCA86A17C360C91E008058CA0BA3EE438FF2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133132   (696775) от 11.05.2017
-
-Appassionante - Nell'aria (2017) [MP3|320 Kbps] <Pop, Classical, Crossover, Vocals>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Quanti inverni
-03. Find Me
-04. Amami(   Читать дальше...   )Жанр: Pop, Classical, Crossover, VocalsПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1EC5134244A35BAA5F4310917F48D0B25825F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027305   (696282) от 19.06.2016
-
-Vanhal, Dusek, Brixi, Vranicky, Czech Chamber Philharmonic, Vojtech Spurny - Baroque Bohemia & Beyond (2006) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony In G Minor
-01. Symphony in G minor: I. Allegro moderato    06:16
-02. II. Adagio    05:06
-03. III. Menuetto moderato - Trio - menuetto D.C.    03:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492CCE400A10D9C210A8A77498844565837FB0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027251   (696199) от 19.06.2016
-
-Itzhak Perlman - J.S. Bach: Sonaten und Partiten (1988) [FLAC|Lossless|tracks] <Classical, Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696199.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-Sonata for solo violin No. 1 in G minor, BWV 1001
-1. I. Adagio 4:27(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 02:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAA936D6884DD02E3064C3D61A1EC6085019015
 ```
 
 https://mybot314.ru/tekegram_catalog/

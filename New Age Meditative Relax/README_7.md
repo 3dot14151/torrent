@@ -1,3 +1,32 @@
+###  Публикация: 1210785   (778520) от 04.03.2018
+
+Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria (8:20)
+ 02. Heart Of The Sun (4:55)
+ 03. Flight In Weightlessness (7:36)
+ 04. Propitiation (6:48)(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6486BDEB83926AD1728D5A7740CE2313422AF247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210964   (778148) от 05.03.2018
 
 Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
@@ -716,35 +745,6 @@ VA - Impressions from Da Vinchi (2006) 3CD [MP3|320 Kbps] <New Age, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72F540F085FD2DDACFA72775C4469DA33AF3B6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217096   (744865) от 03.04.2018
-
-Doug Blair - The End of Chaos (2018) [MP3|320 Kbps] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karmic Harmonic (3:09)
-02. Coming Home (3:29)
-03. Ambient Neon (3:39)
-04. Cool Waters (3:37)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE661458007C569EDD56E0C4BB87B0E9C48ACF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

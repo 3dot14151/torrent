@@ -1,3 +1,29 @@
+###  Публикация: 1652846   (216200) от 13.08.2023
+
+Rectangle Pro 3.0.6 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_216200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2023 Ryan HansonПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777716D6B1EB8DFBA7278FADA05852046E272E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269935   (216039) от 17.12.2018
 
 Temp Monitor 1.2.3 [En]
@@ -654,34 +680,6 @@ MacDroid поможет вам преодолеть барьер передач�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39FB3B6DB3A84493806652DAE5DA3AA8051B07D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587757   (191692) от 03.11.2022
-
-Parallels Desktop Business Edition 18.0.3 (build 53079) [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop Business Edition — удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей.
-
-Parallels Desktop поддерживает macOS Mojave, и другие операционные системы, в том числе Windows 7/8/10/11, Ubuntu и другие дистрибутивы Linux, а также более ранние версии Windows (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2022Разработчик: Parallels International GmbHПоддерживаемая ОС: macOS Mojave 10.14.6 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F89E006362E6EA4FEDD2660D82D9409528D255B
 ```
 
 https://mybot314.ru/tekegram_catalog/

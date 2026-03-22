@@ -1,3 +1,176 @@
+###  Публикация: 1669099   (173061) от 15.10.2023
+
+Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dog It [4:42]
+02. But Beautiful [4:18]
+03. Caravan [9:24]
+04. All the Gin Is Gone [4:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB71FFC71D15CAB263DD27329FC3EAF0A82FF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669102   (173054) от 15.10.2023
+
+Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No.1 Green Street [7:21]
+02. 'Round About Midnight [7:06]
+03. Grant's Dimensions [7:57]
+04. Green with Envy [9:48](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6212024EED50DF2E3453B1186F202F8C659500F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669107   (173045) от 15.10.2023
+
+Grant Green - Standards (1961) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Stepped Out of a Dream [5:00]
+02. Love Walked In [6:35]
+03. If I Had You [7:11]
+04. I'll Remember April [9:10](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3607C1EA30AFD77BD048DF79AA2D553377630B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466457   (172961) от 15.10.2023
+
+Kajgūn(Kajgun) - Collection 4 Releases (2020-2022) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Metal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raawm Dhe Snaayeef (12:59)
+02. Shwoum Daryeetah Shwoum (15:54)
+03. Khotra Owu Daey (11:53)Жанр: Doom Jazz, Metal JazzПродолжительность: 03:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D02154A557ADD39646164078683E617C841931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669384   (172879) от 16.10.2023
+
+Robert Conti - Comin' On Strong! (1990) Time Is Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rookie Bookie [5:10]
+02. Wave [4:18]
+03. Westbound [3:23]
+04. I'll Remember April [4:17](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5816734CD6ABCD04F0DDAFC545B168D42DD1D745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669376   (172877) от 16.10.2023
+
+Andre Previn - Four Classic Albums (1957 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Much Too Late [9:31]
+02. You'd Be So Nice To Come Home To [7:05]
+03. It Could Happen To You [5:58]
+04. Low And Inside [9:00](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream Jazz, Piano JazzПродолжительность: 02:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006C51A90CA4588B98614B97A3A8C2505295ABF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669387   (172874) от 16.10.2023
 
 Grant Green - Alive! (1970) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz, Guitar Jazz>
@@ -568,180 +741,6 @@ Graham Collier Music - Songs For My Father (1970) 2000, DNA Records [APE|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF336EB2E233B4F7C71FE481CE34836D7DADB721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670576   (171956) от 21.10.2023
-
-Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Come Back to Me [3:28]
-02. I'm Getting Sentimental Over You [5:05]
-03. Like Someone In Love [5:43]
-04. My Funny Valentine [3:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719983F099B4164A0C46035F3891DC8202AF65F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670572   (171955) от 21.10.2023
-
-Anita O'Day - I Get A Kick Out Of You (1975) 1993, Evidence [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Song for You [3:06]
-02. Undecided [4:17]
-03. What Are You Doing the Rest of Your Life? [6:15]
-04. Exactly Like You [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22C526217F91B793BBEBC74ED9C4E5764054BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670569   (171954) от 21.10.2023
-
-Anita O'Day - There's Only One... (1978) 2011, Essential Media Group [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Mean A Thing (If It Ain't Got That Swing) [3:24]
-02. I'm Getting Sentimental Over You [5:12]
-03. Old Folks [3:00]
-04. What Is This Thing Called Love [5:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BAC17E09607EC7ADAE510FD9B48953E67BB1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670561   (171953) от 21.10.2023
-
-Grant Green Quartet - Nigeria (1960, 1962) 2014, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airegin [7:35]
-02. It Ain't Necessarily So [10:25]
-03. I Concentrate on You [5:53]
-04. The Things We Did Last Summer [6:00](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C32CD80F08ECBA25AB311CAD175B06951E3EA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670566   (171951) от 21.10.2023
-
-Orrin Evans - The Red Door (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Red Door [4:05]
-02. Weezy [7:12]
-03. Phoebe's Stroll [7:36]
-04. The Good Life [9:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9C68A12B45073DCC91EB3E6D7EBD515D70D775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670810   (171782) от 22.10.2023
-
-Julius Hemphill - Big Band (1988) Elektra Musician [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Harmony [9:04]
-02. Leora [6:02]
-03. C/Saw [8:30]
-04. For Billie [8:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-Bop, Big BandПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A959ABBBFA1EE5B4B267F96CFE679B6B004504D
 ```
 
 https://mybot314.ru/tekegram_catalog/

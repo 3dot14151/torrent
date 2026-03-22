@@ -1,3 +1,322 @@
+###  Публикация: 1823038   (112392) от 09.10.2025
+
+Cleopatrics - Love Revenge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boy (3:04)
+02.  Buckshot Love (3:55)
+03.  Our tunnel vision (3:00)
+04.  Between The Lives (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49758572A82AC906402639C5BAC12080188BDB59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823040   (112388) от 09.10.2025
+
+Esplanada - Closer to the Edge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Temporary Souls (Lp Version) (3:37)
+02.  In a Flick of an Eye (4:04)
+03.  Closer to The (3:18)
+04.  Vera (3:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9626B606B5C60AA808F5CD18E8B9C9F12EAD26A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823044   (112384) от 09.10.2025
+
+Eternal - Infernus (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Amor Vetitus (4:40)
+02.  Bride of Flame (4:32)
+03.  Covenant of Fire (4:43)
+04.  From The Ash (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C959C83BD6E0AEA9AE38822A7171D2072D81540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823045   (112382) от 09.10.2025
+
+Golden Ruffian - Never Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Forever Gone (2:47)
+02.  Hold Me (2:17)
+03.  Wild Baby (2:12)
+04.  Flawless Life (2:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8B69171BFD4ADD90A4BBB132AAFB121CB64996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823046   (112380) от 09.10.2025
+
+Rust n' Rage - Songs Of Yesterday (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  One for All (All for One) (3:08)
+02.  Songs of Yesterday (3:11)
+03.  Just Like Brothers (3:01)
+04.  Hey Jane (3:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB94B1EA0140B5486B96328F746BE670296AA209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823073   (112350) от 09.10.2025
+
+Arch Enemy - Blood Dynasty (Expanded Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dream Stealer (04:30)
+ 02 - Illuminate the Path (04:49)
+ 03 - March of the Miscreants (04:50)
+ 04 - A Million Suns (03:46)(   Читать дальше...   )Жанр: Melodic Death Metal, Female VocalПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C3EE7133D6828E1B1647AE63F09C93A21E6CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711926   (112303) от 01.04.2024
+
+Anyma - Genesys II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-House, Melodic-House, Techno, Trance, Psy-Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Avantgarde, Anyma - Eternity (Massano Remix) (6:03)
+02. Anyma - Pictures Of You (Cassian Remix) (4:04)
+03. CamelPhat, Anyma - The Sign (Kevin de Vries Remix) (4:03)
+04. Grimes, Anyma - Welcome To The Opera (Adriatique Remix) (5:14)(   Читать дальше...   )Жанр: Progressive-House, Melodic-House, Techno, Trance, Psy-TranceПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A4EBF015EC1541840FC7B7971A52DF404439F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712083   (112288) от 01.04.2024
+
+Bob Sinclar - Paradise (Remixed) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ghetto (Ian Pooley's Paradisiaque Mix) [00:06:55]
+02. Gym Tonic (Wh0 Remix) [00:02:28]
+03. My Only Love (Erick Morillo Remix) [00:06:07]
+04. Ultimate Funk (Tocadisco Remix) [00:03:19](   Читать дальше...   )Жанр: House, DiscoПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556D13E3C056A98D557277EBAA3328BB2597BB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712044   (112278) от 01.04.2024
+
+Candi Carpenter - Demonology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Exorcist (00:03:20)
+02 - Cult (00:03:17)
+03 - Antisocial Butterfly (00:03:21)
+04 - Strawberry Starburst (00:02:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4F2823E07D3D84F29657A74B6D338F4C0D0E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711941   (112276) от 01.04.2024
+
+Stoned Turtle - Blackout (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sweet (00:04:02)
+02 - Blackout (00:03:07)
+03 - What Are You Waitin' For (00:04:31)
+04 - Crazy For You (00:04:34)(   Читать дальше...   )Жанр: Alternative Rock, Progressive RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E558724A3C113C6D28D4EB28AD00CCFD69967A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711916   (112275) от 01.04.2024
+
+Lockeheart - All Of Us Divine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dead Hand Blossom (00:05:58)
+02 - Where The Light Fell Behind (00:05:01)
+03 - In Death The Gods Will Sing (00:05:08)
+04 - Our Pelagic Dream (00:05:00)(   Читать дальше...   )Жанр: Gothic-Metal, Industrial-MetalПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7568DDAB6DEF831A4F4818AB5BBCB31A685A8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711940   (112273) от 01.04.2024
 
 Unleash The Tapir - Unleash The Tapir (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -427,319 +746,6 @@ Canned Heat - Finyl Vinyl (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3F463DAACCB15AB275368A93EE50B5654B297C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713228   (111911) от 05.04.2024
-
-Korpiklaani - Rankarumpu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kotomaa (3:10)
-02. Tapa sen kun kerkeet (2:26)
-03. Aita (3:47)
-04. Saunaan (3:19)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC69AA2C2A106582B82A19094C48269D9722681C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713299   (111908) от 05.04.2024
-
-The Libertines - All Quiet On The Eastern Esplanade (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie rock, garage rock, post-punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run Run Run (2:53)
-02. Mustangs (3:27)
-03. I Have A Friend (2:59)
-04. Merry Old England (4:49)(   Читать дальше...   )Жанр: Indie rock, garage rock, post-punkПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50259058015C91546E250309ACC95CC104B710B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713682   (111898) от 06.04.2024
-
-U2 - Discothèque (1997) Remastered, 2024, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discothèque (Radio Edit / Remastered 2024) [00:04:38]
-02. Holy Joe (Garage Mix / Remastered 2024) [00:04:22]
-03. Holy Joe (Guilty Mix / Remastered 2024) [00:05:10]
-04. Discothèque (DM Deep Club Mix / Remastered 2024) [00:07:01](   Читать дальше...   )Жанр: Pop Rock, ExperimentalПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0154B6FFCE29B2F40F57066B2DA8456DBE6FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713676   (111895) от 06.04.2024
-
-Garbage - Bleed Like Me (2005) Remaster, 2024, Liberator Music [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative rock, post-grunge, electro-rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boyfriend (2024 Remaster) (3:47)
-02. Run Baby Run (2024 Remaster) (3:58)
-03. Right Between the Eyes (2024 Remaster) (3:56)
-04. Why Do You Love Me (2024 Remaster) (3:54)(   Читать дальше...   )Жанр: Alternative rock, post-grunge, electro-rockПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0181FB9CEAD37030FD4BDF573FC28D2D0916549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713739   (111894) от 06.04.2024
-
-Джоконда (DЖОКОНDА, Елена Минина) - Коллекция (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111894.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Джоконда» - российская рок-группа, главным образом работающая в жанре симфонического метала. Вокалисткой и лидером группы является Елена Минина.2021 - Каждый Охотник Желает Знать
-2024 - Последний законЖанр: Symphonic Metal/RockПродолжительность: 01:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA8D2A14151DCE3F81C3BDAE081E59736F9F63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713533   (111882) от 06.04.2024
-
-Attic - Return of the Witchfinder (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Covenant
-02. Darkest Rites
-03. Hailstorm And Tempest
-04. The Thief's Candle(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF0CC6ACB8F00EFF2D58BD4B24B43E3C5083AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713681   (111867) от 06.04.2024
-
-The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-punk Revival>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111867.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bravery — американская рок-группа из Нью-Йорка.2005 - The Bravery
-2008 - The Sun And The Moon Complete
-2009 - Stir the BloodЖанр: Post-punk RevivalПродолжительность: 02:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713655   (111857) от 06.04.2024
-
-The KVB - Tremors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <New Wave, Synthwave, post punk, shoegaze, coldwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Negative Drive
-02 – Words
-03 – Tremors
-04 – Labyrinths(   Читать дальше...   )Жанр: New Wave, Synthwave, post punk, shoegaze, coldwaveПродолжительность: 00:35:3003
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF5EB2774D006D6635D19E4D4920DABBCBE3A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713734   (111799) от 07.04.2024
-
-Eunuchs - Harbour Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Death Sea Nemesis (6:08)
-02. Pat a Dragon (4:20)
-03. Estuary of Dream (4:30)
-04. Siren (4:48)(   Читать дальше...   )Жанр: Avant-prog, jazz-rock, baroque popПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1758C22ED882FCD71236E6AB90ED2F51BE0DE855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713994   (111797) от 07.04.2024
-
-Symakya - Project 11: The Landing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Observer [00:01:31]
-02. The Height of Endymion [00:07:28]
-03. Phenomenon [00:08:19]
-04. Lunar Obsession [00:05:24](   Читать дальше...   )Жанр: Symphonic, Progressive MetalПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D29EBB5E4FAF3243DCBBC586861CD33CB75FF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713402   (111774) от 08.04.2024
-
-Axel Rudi Pell - Guardian Angel (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard 'n' Heavy>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guardian Angel (5:27)Жанр: Melodic Hard 'n' HeavyПродолжительность: 00:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402AFE9B4B87CD0494FD2A7F3EC6EFC272E97D3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

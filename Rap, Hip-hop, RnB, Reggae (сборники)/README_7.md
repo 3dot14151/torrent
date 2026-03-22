@@ -1,3 +1,61 @@
+###  Публикация: 1419897   (335805) от 30.10.2020
+
+VA - The Look Of Love (2020) [MP3|264-320 Kbps] <Dancehall, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Posh Morris - Ambition
+02. Blakkamoore - Amazing Grace
+03. C. Jones - Sunshine Dub
+04. Laroz - Reparation(   Читать дальше...   )Жанр: Dancehall, ReggaetonПродолжительность: 05:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75F290ED282ABB5F194085006EB5F83C7D19FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331530   (322504) от 16.10.2019
+
+VA - Рэп для тренировки (2019) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322504.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Asap Ferg feat. Future - New Level (4:26)
+2.A$AP Rocky, A$AP Rocky feat. Skrillex & Birdy Nam - Wild for the Night (3:29)
+3.Bas feat. JID - Fried Rice (2:55)
+4.Beastie Boys - Brass Monkey (2:37)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4D025DB01E12E2F4CB073FAFCE92DE9A2E8D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421049   (322106) от 03.11.2020
 
 VA - Reggae Tropical Party (2020) [MP3|320 Kbps] <Reggae, Riddim, Reggaeton>
@@ -688,64 +746,6 @@ VA - Union Of Tropic Riddim (2019) [MP3|320 Kbps] <Reggae, Reggaeton, Dancehall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E3BED1D42E84646B8246597717C4FCF90AAA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341542   (262308) от 28.11.2019
-
-VA - Creativity: Rap Playlist (2019) [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262308.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roc Marciano - 1,000 Deaths
-002. Young Dolph - Major
-003. Chucky Trill - Keisha
-004. Fat Trel - Too Much Drink(   Читать дальше...   )Жанр: RapПродолжительность: 08:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2D71CC7CD135717F9F66DE9A74E839F8923643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626821   (240321) от 16.04.2023
-
-VA - Rule Number On Dancehall Mixtape (2023) [MP3|320 Kbps] <Reggae, Dub, Dancehall>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240321.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Philax - Pilule [01:42]
-002. Lijay - Frick [01:50]
-003. Lamatrak - Shatta Boss [01:56]
-004. Rachelle Allison - Too Hot [02:00](   Читать дальше...   )Жанр: Reggae, Dub, DancehallПродолжительность: 07:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BE447F6C275EA4136D89E7B0ED0C5F4988FB1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

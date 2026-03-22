@@ -1,3 +1,183 @@
+###  Публикация: 1681246   (133160) от 02.12.2023
+
+Brian Durbin - Only Jams (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake This City [00:04:00]
+02. Give Me Your Love Tonight [00:04:45]
+03. Something New [00:04:10]
+04. Make A Scene [00:04:38](   Читать дальше...   )Жанр: Glam, Hard-RockПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F36A46E9DD52AD85FB2AD75EAF7CCD4F12E3614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681512   (132763) от 03.12.2023
+
+PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faded [00:03:19]
+02. Your Prize [00:04:20]
+03. Diverge [00:04:38]
+04. Fire When Ready [00:03:50](   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A453C41BF249DFB0FED213260D509C0C9CFCAE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681421   (132647) от 03.12.2023
+
+Ghost - 13 Commandments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Square Hammer [00:03:59]
+02. Year Zero [00:05:50]
+03. Mary On A Cross [00:04:04]
+04. Call Me Little Sunshine [00:04:44](   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 01:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0ED8DC15C99D530F39DF3E95DECE5366D3E119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152509   (132489) от 03.12.2023
+
+Graveyard - 6 albums (2007-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Stoner, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graveyard — шведская хард-рок-группа из Гётеборга, основанная в 2006 году, играющая в жанре стоунер, блюз-рок, с примесями психоделического рока. Дебютный одноименный альбом был выпущен 10 сентября в 2007 году в Шведции, 25 Марта 2011 года на лейбле Nuclear Blast вышел второй альбом группы, Hisingen Blues. Альбом был тепло встречен критиками, а также находился в (   Читать дальше...   )--------------------------
+
+01. Godnatt (3:16)
+02. Twice (2:41)(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner, Blues Rock |Продолжительность: 04:01:57 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFEC57AD16444E6F3E907684A61D44C15A546291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630580   (132222) от 04.12.2023
+
+Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelations (2:35)
+02. Diamonds And Rust (5:19)
+03. Morning Star (7:35)
+04. Dust In The Wind (4:34)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89A6BB21601FF9993CA8D1FE23330C24933862A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596366   (131425) от 30.12.2012
+
+Damn Yankees - Damn Yankees / Don't Tread (1990/1992) [WavPack|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Of Age [04:20]
+02. Bad Reputation [04:29]
+03. Runaway [04:03]
+04. High Enough [04:45]
+05. Damn Yankees [04:39]
+06. Come Again [05:39]
+07. Mystified [04:15]
+08. Rock City [04:26]
+09. Tell Me How You Want It [04:33]
+10. Piledriver [04:27]Жанр: Hard RockПродолжительность: 01:38:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216907   (131239) от 07.12.2023
 
 Gary Moore & Projects: Skid Row, Colosseum II, Greg Lake, BBM -54 Albums, 2EP, 1 Box Set (1970 - 2021) 106 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Classic Rock & Hard Rock & B ...
@@ -571,183 +751,6 @@ The Death Spell - The Death Spell (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F17BDBE18BDF08460B45BC060FE7E9A0E205581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686878   (126193) от 24.12.2023
-
-Relayer - Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Loss of Control (00:04:20)
-02 - Mystery Woman (00:05:19)
-03 - Woman in Black (00:05:16)
-04 - Flying High (00:03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134C0D1F3C631479F4396CD878D69373D3341584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279576   (125653) от 26.12.2023
-
-Mountain - 18 Albums, 1 Box Set (1970 - 2013) 31 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основателями Mountain являются Felix Papparlardi (бас, клавиши) и Leslie West (гитара, вокал). Papparlardi было тогда уже почти тридцать и он был заслуженным продюсером. Так продолжалось до тех пор, пока в 1968-м году он по долгу своей работу не столкнулся с группой The Vagrants. The Vagrants не впечатлили Papparlardi своей музыкой, однако он почувствовал большой (   Читать дальше...   )Список альбомов:
-1970 - Climbing!
-1971 - Flowers Of Evil
-1971 - Nantucket SleighrideЖанр: Hard Rock, Blues RockПродолжительность: 25:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8634FD672DE23D8A34D8E5C3EAD72ABD7704163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365873   (125550) от 27.12.2023
-
-Rival Sons - 9 Albums (2009 - 2023) 10 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Hard-Rock, Blues-Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rival Sons американская блюз-рок-группа из Лос-Анджелеса, созданная в июне 2008 г. Состав команды определился окончательно, когда к группе присоединился певец и автор песен Джей Бьюкенен (Jay Buchanan). Группа самостоятельно выпустила один альбом и  EP. Затем уже на лейбле Earache Records вышел альбом под названием Pressure & Time в июне 2011 года.
-В 2010 году (   Читать дальше...   )Список альбомов:
-2009 Before the Fire
-2011 Pressure & Time
-2012 Head Down(   Читать дальше...   )Жанр: Hard-Rock, Blues-RockПродолжительность: 07:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4689718047EC81CB52AE7D5FE58D393487DC961D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687923   (125474) от 27.12.2023
-
-Rainbow - Essential (2014) Universal Music Group Studios - 5348106 [FLAC 24/44.1|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник лучших треков группы Rainbow.
-Rainbow - британско-американская рок-группа, образованная в 1975 году гитаристом Ричи Блэкмором и музыкантами группы Elf во главе с вокалистом Ронни Джеймсом Дио. Творчество группы явилось важнейшей вехой в развитии хард-рока и хэви-метала. К Rainbow впоследствии присоединился бас-гитарист Роджер Гловер.
-В предлагаемом релизе (   Читать дальше...   )01. Since You Been Gone (3:19)
-02. All Night Long (3:52)
-03. I Surrender (4:03)
-04. Long Live Rock 'N' Roll (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12979B8E3D352A8A0612B9F0A1E6D87DE1D7AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688366   (124997) от 30.12.2023
-
-Toccata - Ultima Ratio (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Trinity (00:03:01)
-02 - D.N.A. (00:04:12)
-02 - D.N.A (00:04:12)
-03 - Outlaw (00:05:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA076DEDE9E18844EF5584EE6F2DCEFEB5E9D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688898   (124868) от 31.12.2023
-
-The Boatsmen - Hard Livin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin' On Lust [00:03:18]
-02. I Wanna Clone [00:01:31]
-03. Why Wait [00:02:52]
-04. Foggy Man [00:02:11](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539EAED96CBC9BF2A549F79E580C9D8B4F238DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,25 @@
-###  Публикация: 482467   (99552) от 13.04.2012
+###  Публикация: 1755575   (103529) от 19.10.2024
 
-State of Mind - Live! (2012) [MP3|256 кб/с]<Drum & Bass>
+Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99552.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. State of Mind & Axiom - Back in the Deadzone
-02. State of Mind & Black Sun Empire - Dont You v Pitch Dryfter
-03. State of Mind & Concord Dawn - Aces High
-04. State of Mind - Dune
-05. State of Mind - Frankenfunk
-06. State of Mind, Black Sun Empire, Bulletproof - Roulette
-07. State of Mind - Fucking Sellouts
-08. Freeland - Under Control (Alex Metric Remix)
-09. State of Mind - Moneytrain VIP
-10. State of Mind - Space Chase(   Читать дальше...   )2012Жанр: Drum & BassПродолжительность: 01:23:10
+01. Soul Brothers [9:35]
+02. How Long Blues [9:16]
+03. Cosmic Ray [5:25]
+04. Blue Funk [8:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:38:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AFD71F0826FA4B9BC0B023BFA238C159D0E1B7B
+magnet:?xt=urn:btih:A15616A215DD18959A72B6F7EE055B8C94228D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479610   (99551) от 13.04.2012
+###  Публикация: 1756213   (103528) от 19.10.2024
 
-Interphace - Injected Movements (2005) [MP3|320 кб/с]<Euro-Trance>
+Cloudscape - Studio Albums (5 releases) (2005-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99551.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rebirth (Intro)
-02. Dr. Feelgood
-03. No One Else (vs. BUSHMAN)
-04. Injection
-05. Bailar
-06. Do For You (feat. DNA)
-07. Darkness
-08. Knock On Wood
-09. Chica (Una Tequila)
-10. Energy(   Читать дальше...   )2005Жанр: Euro-TranceПродолжительность: 01:19:31
+Cloudscape — пауэр/прогрессив-метал группа из Хельсингборга, округ Сконе, Швеция, образованная в 1992 году под названием Doctor Weird. В 2001 году группа сменила название на Cludscape.2005 - Cloudscape
+2006 - Crimson Skies
+2008 - Global Drama
+2012 - New EraЖанр: Progressive/Power MetalПродолжительность: 04:57:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38C0691CC02FDC1DBB2AFFD697B056DD5FE98D5E
+magnet:?xt=urn:btih:46A9957E227473824EC69A5259CDDA4BBF08F008
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,34 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481639   (99549) от 13.04.2012
+###  Публикация: 1756053   (103527) от 19.10.2024
 
-VA - XXXL Super дискотечный 50/50 (2012) [MP3|256-320 kbps]<Pop>
+Big Creek Slim - Going to Germany (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99549.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Pitbull feat. Havana Brown - We Run The Night
-002 Григорий Лепс - Водопадом (new version)
-003 Kelly Clarkson - Hello
-004 Николай Басков - Странник
-005 Polina Griffith & Miami Kidz - Feeling This Way
-006 Филипп Киркоров - Я просто счастлив
-007 Christina Perri - Jar Of Hearts
-008 Чай Вдвоём - Улетай
-009 Sunstroke Project & Offbeat - Epic Sax
-010 ВИА Гра - Диско(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:19:15
+01. Don't Feed the Devil on My Shoulder (5:13)
+02. I'm Leaving You Baby (8:13)
+03. Milk Man Blues (6:32)
+04. She's Nineteen Years Old (8:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E177D5BD0321C6C6F8F6373B6D1A5B8BFBC14BE0
+magnet:?xt=urn:btih:3AD1E37779C1BF144B6919B07F13210B14A60CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,26 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482647   (99548) от 13.04.2012
+###  Публикация: 1756059   (103526) от 19.10.2024
 
-[Wallpapers] Нравятся! Сотня № 003 (1920х1080-2560х1600)
+MotoGP. Этап 17 из 20. Гран-при Австралии. Квалификация (19.10.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99548.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+19 октября 2024, суббота. 02:50 МСК, Этап 17 Филлип-Айленд. Гран-при Австралии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:49:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:686288951D211D29E7D1D20AFFB9D6F41D36B3C5
+magnet:?xt=urn:btih:2352B1BF336309C753F8A987448EE6702B35DF08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,34 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482385   (99546) от 13.04.2012
+###  Публикация: 1756056   (103525) от 19.10.2024
 
-VA - Хиты Европы Плюс №20 (2012) [MP3|256 кб/с]<Pop>
+Rosie's Smokehouse Deluxe - Welcome To The Smokehouse (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99546.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Девушки Эйнштейна - Suga (Radio Edit)
-002 Ne-Yo - In Love With You
-003 ВИА Гра - Диско
-004 Luis Lopez feat. Adena - Lay Me Down (Radio Edit)
-005 Светлана Разина - Радио НАХ
-006 Paulina Starborn - Never Gonna Let Me Go
-007 Наташа Королёва - Небеса
-008 Wisin & Yandel feat. Jennifer Lopez - Follow The Leader
-009 Чай Вдвоем - Время вода
-010 Sander van Doorn feat. Carol Lee - Love is darkness2012Жанр: PopПродолжительность: 05:43:36
+01. Welcome to the Smokehouse (3:53)
+02. Please, Please Me (4:15)
+03. Walkin' (3:14)
+04. Run Like the Wind (5:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96163EC328D19F1A9E87F2369DAE6CF889E78188
+magnet:?xt=urn:btih:48DC0B7C642BBEC65E6859098727E84D54A216A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,25 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482525   (99544) от 13.04.2012
+###  Публикация: 1756189   (103524) от 19.10.2024
 
-[Wallpapers] Girls Wallpaper (14.04.12)
+Riot V - Mean Streets (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Speed Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99544.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Hail To The Warriors (4:26)
+02. Feel The Fire (4:14)
+03. Love Beyond The Grave (4:21)
+04. High Noon (3:26)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed MetalПродолжительность: 00:51:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:947EF34229B0BCC3A7B447EFB75FC5435ECBE119
+magnet:?xt=urn:btih:1E2938B5957FAA031973F0FA7EA090B9382DDB52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,26 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482695   (99543) от 13.04.2012
+###  Публикация: 1755502   (103523) от 19.10.2024
 
-[Wallpapers] Нравятся! Сотня № 009 (1920х1080-2560х1600)
+Killagodzilla - Синхродавинчи (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Rapcore, Rap-Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99543.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+01. Родные нулевые [00:03:50]
+02. Руины [00:01:56]
+03. Слэм [00:02:23]
+04. Музыка яд [00:02:59](   Читать дальше...   )Жанр: Nu-Metal, Rapcore, Rap-MetalПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3624E635044A75B6D61DA580D7625C50EB211D9
+magnet:?xt=urn:btih:E8476D3E6E4B570C288BD610AEACB70B320A83D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,25 +198,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482327   (99541) от 13.04.2012
+###  Публикация: 1756114   (103522) от 19.10.2024
 
-Время земляники (2008) DVDRip
+MotoGP. Этап 17 из 20. Гран-при Австралии. Спринт (19.10.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99541.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Герой фильма — успешный молодой человек, в жизнь которого вмешивается его величество случай. Буквально за несколько дней он теряет работу, предает любовницу, попадает на войну, не считая таких мелочей, как участие в драках, гонках, бесконечных тусовках.Жанр: ДрамаРежиссер: Виталий ГалилюкАктеры: Владимир Колганов, Алексей Петренко, Ксения Каталымова, Александр Лыков, Сергей Мигицко, Анна Алексахина, Анна Слынько, Татьяна Колганова, Иван Паршин, Виталий Салтыков, Андрей ПеровичПродолжительность: 01:27:48
+19 октября 2024, суббота. 07:00 МСК, Этап 17 Филлип-Айленд. Гран-при Австралии. (13 спринт)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:39:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:367594FE6B4CAD5FBD94DD23BBB7664C25114D2F
+magnet:?xt=urn:btih:5A1EC427074336E9F8C23B4C7FB0E4A74E0FECF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,25 +224,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482613   (99538) от 13.04.2012
+###  Публикация: 1756043   (103521) от 19.10.2024
 
-Каникулы в Мексике - 2. Выпуск №30 (2012.04.13) SATRip
+Пятеро на одного (19.10.2024) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99538.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:08
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0521023B505828677DA89E5ED5F48BBE746D0C38
+magnet:?xt=urn:btih:D1641EFFBACD866F1AC0616574A35DD39B13CABB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,77 +250,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482535   (99536) от 13.04.2012
+###  Публикация: 1755932   (103520) от 19.10.2024
 
-Журнал | АиФ. Спецвыпуск. Вопросы и ответы №6 [2012] [PDF]
+Ограбление / Napad / Justice (2024) WEBRip [DVO] [AD]
 
->>Журналы
->>Другие журналы
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99536.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_103520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый из нас иногда болеет, и подчас мы сомневаемся: пить или не пить лекарство, выписанное незнакомым врачом? Слушать ли советы аптечных работников? Тратить на таблетки огромную сумму или купить аналогичные, но вдвое дешевле? В этом специальном выпуске эксперты "АиФ" - лучшие доктора и фармакологи - расскажут о том, как "дружить" с лекарствами. (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397763121364DAE1D38AEC0B19DA0ABF3087AAB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480080   (99534) от 13.04.2012
-
-CIFRAmagazine.com | Электронный журнал CIFRAmagazine №02 [2012] Screencast
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео уроки по различным полезным программам, плагинам и скриптам.Жанр: обучающее видеоПродолжительность: ~ 10-15 минут (общее 0:46:08)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F56E6F9C04D4C7609545DD112D98BE0CAD5030C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480831   (99533) от 13.04.2012
-
-Последний крик / Fear Runs Silent (2000) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юной Керри Джонсон все время видятся жуткие кошмары. Но ни одно из этих видений не могло даже сравниться с тем, что поджидало Керри и ее одноклассников, когда они отправились в поход с ночевкой.
-
-Встретившись лицом к лицу с самой темной стороной неведомого, подростки попадают в эпицентр леденящих кровь событий.
-
-Они потревожили дикую глушь, и из глубин дремучего леса вылезло нечто столь ужасающее и кровожадное, что ни школьный учитель мистер Хилл, ни местный шериф не могут даже надеяться, что им удастся спасти школьников и спастись самим…Жанр: УжасыРежиссер: Серж РоднунскиАктеры: Стейси Кич , Билли Ди Уильямс , Сюзанн Дэвис , Дэн Лория , Джеймс О'ШиПеревод: Двуголосый закадровыйЯзык субтитров: испанскийПродолжительность: 01:33:22
+Уволенный полицейский получает шанс вернуть себе прежнюю жизнь, поймав команду грабителей банка. Объединившись с молодой женщиной-полицейским, бывший полицейский должен действовать быстро, пока ограбление не привлекло нежелательного внимания новых властей.
+«Ограбление» — фильм 2024 года режиссёра Михала Газды.Производство: Польша / MAG EntertainmentЖанр: драма, криминалРежиссер: Михал ГаздаАктеры: Олаф Любашенко, Йеджей Хыцнар, Виктория Городецкая, Магдалена Бочарска, Миросляв Ханишевский, Nel Kaczmarek, Станислав Линовский, Lukasz Szczepanowski, Дариуш ТоцекПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:50:35Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
@@ -352,26 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482693   (99530) от 13.04.2012
+###  Публикация: 1756193   (103519) от 19.10.2024
 
-[Wallpapers] Нравятся! Сотня № 008 (1920х1080-2560х1600)
+Stan Silver and the Brave Puppies - All In (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99530.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+01. Cuddle Up Baby (3:06)
+02. Blow You A Kiss (2:58)
+03. Cool Water (3:12)
+04. Sweet Southern High (2:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C36D0E9CDABA5EA78E4B7FB6F250CA3F1AA94B1
+magnet:?xt=urn:btih:F001E3CBE5C64169C21392537FE1B07ABDA61BF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,25 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482710   (99528) от 13.04.2012
+###  Публикация: 1756170   (103518) от 19.10.2024
 
-[Wallpapers] Wallpapers Sexy Girls (14.04.12)
+Eric Bibb - In The Real World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99528.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Take The Stage (5:38)
+02. Walk Steady On (3:37)
+03. Everybodys Got A Right (3:20)
+04. Best I Can (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16688E2DAEC892B552404DFFB552B074101373A9
+magnet:?xt=urn:btih:31D0767F3B723ECBB66E7DD3012B7D41B7658508
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,26 +335,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482698   (99527) от 13.04.2012
+###  Публикация: 1756174   (103517) от 19.10.2024
 
-[Wallpapers] Нравятся! Сотня № 010 (1920х1080-2560х1600)
+Fate - Reconnect 'N' Ignite (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99527.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+01. Around The Sun (5:16)
+02. Reason For Everything (4:36)
+03. This Won't Last (5:01)
+04. I'm On Fire (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D83EDECA6BD2659155C82F16AEF887BD44B90740
+magnet:?xt=urn:btih:477E71F53C5D4BFF60E50CDBDD5EA5B6736B274E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,26 +364,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482688   (99526) от 13.04.2012
+###  Публикация: 1756150   (103516) от 19.10.2024
 
-[Wallpapers] Нравятся! Сотня № 006 (1920х1080-2560х1600)
+4 Promille - Zeitgeist (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk Rock, Alternative & Indie>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99526.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+01. Intro [00:01:31]
+02. Bereit (Album Version) [00:04:00]
+03. Zeitgeist [00:02:56]
+04. Endloser Sommer [00:03:58](   Читать дальше...   )Жанр: Punk Rock, Alternative & IndieПродолжительность: 00:40:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC83D258A09B16D568EC2EE2E378FA8851AFAB98
+magnet:?xt=urn:btih:D416503B468D03035AFD8BF07F3A943804D1DB70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,26 +393,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482687   (99524) от 13.04.2012
+###  Публикация: 1756167   (103515) от 19.10.2024
 
-[Wallpapers] Нравятся! Сотня № 005 (1920х1080-2560х1600)
+Burna - Live Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99524.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
+01. Live Forever (4:51)
+02. Love on Me (3:54)
+03. Chasin'the Highs (4:20)
+04. Love of My Life (6:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:349EFDFBF4C8F7907E5A8E37A8F62B6D3C90EBA5
+magnet:?xt=urn:btih:C71D204D727CEAF61DAAD354317956268C7C2C4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,27 +422,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482300   (99522) от 13.04.2012
+###  Публикация: 1756179   (103514) от 19.10.2024
 
-Шофер мисс Дэйзи / Driving Miss Daisy (1989) DVDRip
+Heather Pierson - Back To The Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99522.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Атланте, в богатом квартале, живет пожилая дама — мисс Дэйзи. Ей уже трудно водить машину самой, и сын присылает к ней шофера — чернокожего Хоука Колберна.
-
-Вскоре новый водитель становится ближайшим другом и советчиком своей хозяйки, что вызывает волну возмущения у соседей, враждебно настроенных по отношению к чернокожим.Жанр: Драма, КомедияРежиссер: Брюс БересфордАктеры: Морган Фриман, Джессика Тэнди, Дэн Эйкройд, Пэтти ЛюПон, Эстер Ролли, Joann Havrilla, Уильям Холл мл., Элвин М. ШугарманПеревод: Многоголосый закадровыйПродолжительность: 01:41:44
+01. Dusty House Blues (2:59)
+02. Up Here In The Mountains (4:04)
+03. Feel Something (3:06)
+04. Nails Trimmed and Clean (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D817449654010F33EC0DD775A89E1F060CE73CA
+magnet:?xt=urn:btih:73AE7198EFFFDA05EA3E055AA7B2385833FADC8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,25 +451,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482541   (99521) от 13.04.2012
+###  Публикация: 1755678   (103513) от 19.10.2024
 
-Журнал | Домой. Строительство и ремонт №13 [2012 апрель] [JPEG]
+Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Журналы
->>Домоводство (журналы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99521.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специализированный рекламный журнал «ДОМОЙ. Строительство и Ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере.2012 апрельФормат: JPG
+01. Sunburst [8:21]
+02. Dreams [9:56]
+03. Morning Song [7:40]
+04. You Know I Care [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7C7E1CA48CB1309BDE9ACFCCCF225D6C45EB3C5
+magnet:?xt=urn:btih:66C566C59E7F7B92CBEC29CDCD032E09D37B1AFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,27 +480,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482495   (99520) от 13.04.2012
+###  Публикация: 1756176   (103512) от 19.10.2024
 
-Slackel KDE-4.8.2 [x32 + x64] (2xDVD)
+Flamy Grant - CHURCH (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
 
->>Архив торрентов
->>Архив *Nix
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99520.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обновился Slackel – использующий последнюю стабильную версию рабочей среды KDE настольный дистрибутив и Live CD GNU/Linux на базе current-ветки Slackware и Salix OS. Редакция Slackel KDE 4.8.2 доступна в виде комплекта из 4-х ISO-образов: 32-bit и 64-bit установочных образов, а также 32-bit и 64-bit Live-образов, которые могут быть записаны на DVD или работать с USB-носителя.
-
-root password: live (standard user login: one / no password)
+01. Do It for the Song (4:01)
+02. Revenge (3:39)
+03. How to Find the Words (4:37)
+04. Start Again (M.J.'s Song) (4:05)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:46:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8CD9F2B4D8BF953407E42FD87AFC7E00A5B61B1
+magnet:?xt=urn:btih:4B60993AC442ECAA2FB987213DE2EA55F7B2B4F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,34 +509,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482646   (99518) от 13.04.2012
+###  Публикация: 1756184   (103511) от 19.10.2024
 
-Savage - Sons Of Malice (2012) [MP3|320 кб/с]<Heavy Metal>
+Malakye Grind - Dystopian Dream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99518.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Rage Within
-02. Black N Blue
-03. Sons Of Malice
-04. The Hanging Tree
-05. Monkey On My Back
-06. Junkyard Dogs
-07. Blow
-08. Waking The Dead
-09. Choose Revolution
-10. NOW(   Читать дальше...   )2012Жанр: Heavy MetalПродолжительность: 00:58:13
+01. Into The Night (4:04)
+02. Every Day Is Perfect (4:18)
+03. Seaside Cowboy Cult (2:33)
+04. The Not List (2:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56E158C00FD1E196CCF6C3AA8C7E276A80001692
+magnet:?xt=urn:btih:DD7C45189AEC8973DD34B2BFB27D259C4EE0B86B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,25 +538,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482596   (99515) от 13.04.2012
+###  Публикация: 1756192   (103510) от 19.10.2024
 
-[EN] Квартирантка / The Perfect Roommate (2011) HDTV
+Smash Atoms - Smash Atoms (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99515.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эшли — студентка колледжа. Попав в аварию на незастрахованной машине, она решает взять квартирантку, чтобы хоть как-то сократить расходы на квартиру. Ей становится, приятная на вид Кэрри Ремингтон. Через некоторое время, Эшли замечает, что квартирантка начинает прилаживаться к ее отцу Ричарду Данфилду обеспеченному вдовцу. Тогда Эшли решает сделать то, что нужно было сделать с самого начала — поинтересоваться прошлым Кэрри…Жанр: ТриллерРежиссер: Кертис КроуфордАктеры: Боти Блисс, Эшли Леггат, Уильям Р. Моусес, Джон МакЛарен, Питер Дж. ГрэйПеревод: ОтсутствуетПродолжительность: 01:32:19
+01. Bring The River (3:23)
+02. Black Cloud (3:19)
+03. Buried Under The Open Sky (3:41)
+04. Dead Season (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94401366BA22D2D60265BF20EC8D4F8CA16A6725
+magnet:?xt=urn:btih:E1BC0CCA4998E5A2E1E4F3636D0F50E6E64AD7C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,29 +567,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482667   (99511) от 13.04.2012
+###  Публикация: 1756161   (103509) от 19.10.2024
 
-[Wallpapers] Nature Pictures №43
+NRBQ - Brass Tacks (2014) 10th Anniversary Edition, 2024, Omnivore Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99511.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №43
-Название: Nature Pictures №43
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Waitin' On My Sweetie Pie [00:02:55]
+02. Greetings From Delaware [00:03:31]
+03. Sit In My Lap [00:02:39]
+04. Fightin' Back [00:03:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96A16F3008A310789E23FBD07932839F0A41FE5E
+magnet:?xt=urn:btih:BB02E80C4AC3812AC3D2BA33E49BA628AE57EBEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,25 +596,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481920   (99510) от 13.04.2012
+###  Публикация: 1756334   (103508) от 20.10.2024
 
-Роднополисы 2 - Здорова мама (2011) TVRip
+НХЛ 2024-2025. Вашингтон Кэпиталз - Нью-Джерси Дэвилз (19.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99510.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый клип от авторов "Роднополисов"Жанр: PopРежиссер: Константин ВоронАктеры: К. Ворон, Н. Белых и дрПродолжительность: 00:5:29
+20 октября 2024, воскресенье. 02:00 МСК. Стадион: Пруденшиал-центр (Ньюарк, США), 16 514 зрителей (94% при вместимости 17 625)
+Главный судья: Картер Сандлак (Лондон, Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88EE6BE24FF1EA5F9B657BE4E3E066CED6719871
+magnet:?xt=urn:btih:151F1A180957D03281724AB8519D804650BA3B02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,27 +623,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481950   (99509) от 13.04.2012
+###  Публикация: 1756257   (103507) от 20.10.2024
 
-[EN] Мера Веры / Measure of Faith (2011) DVDRip
+Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99509.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Внешне у Фейт Донахью (Tiara Gathright) замечательная жизнь - хорошая работа в церкви, красивый и успешный муж, прекрасные друзья. Она даже и представить не могла какие сложности могут неожиданно возникнуть в жизни. Внезапно умирает ее любимая бабушка, а затем появляется неожиданный гость - надломленный и безработный брат. Два раздельно проживающих брата должны попытаться улучшить отношения между собой, очистив души от налета лжи и обмана, чтобы навсегда изменить свои жизни.
-
-Faith Donahue seems to have the picture perfect life: a great job in the church, a handsome, successful husband and wonderful friends. But Faith's world is about to unravel in ways she never imagined. After the sudden death of her beloved grandmother, Faith receives an unexpected guest - her broke and unemployed brother. The two estranged siblings must try and mend their troubled relationship forcing each to come to terms with deeper seeded secrets and lies that will change their lives forever.Жанр: ДрамаРежиссер: Джейсон ХьюиттАктеры: Ларк Вурхис, Гленн Пламмер, Тиара ГатрихтПеревод: ОтсутствуетПродолжительность: 01:23:16
+01. Joy Spring [3:44]
+02. Over the Rainbow [4:25]
+03. Like Someone in Love [3:08]
+04. Minor Blues [5:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF242AFBCE560540BC0C02B2703C0DD461A18C7B
+magnet:?xt=urn:btih:2E6A18FCE792D86B4037391E0575F0ED21F2057A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,34 +652,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482352   (99508) от 13.04.2012
+###  Публикация: 1756395   (103506) от 20.10.2024
 
-VA - Русские Новинки Vol.44 from AGR (2012) [MP3|320 кб/с]<Pop>
+Beltane - Jera (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99508.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Наталья Могилевская - На Грани (Remix)
-02. K.Melody - Воспоминание
-03. Юрий Шатунов - А Лето Цвета
-04. Reality - Время Лечит
-05. Тимур Темиров - Веришь
-06. Music Hayk - Потоки Тока
-07. Karizma - On My Way (Russian Version)
-08. Тимур Timbigfamily & Лючана - Dance With Me
-09. Катя Чехова - Сердце Тебе В Ответ (Лёгкая Версия)
-10. Danila Rastv - Ну, Как Ты Там(   Читать дальше...   )2012Жанр: PopПродолжительность: 02:59:07
+01. Golden Dawn [04:15]
+02. Aij/A.S. [05:21]
+03. Seasons [07:06]
+04. E.O.S [05:38](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C79563340A543B17A0E4E77893B371A408E8C422
+magnet:?xt=urn:btih:D0B9FA9FC27FAA4AB24A8E1BDB177ADE72B1522D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755848   (103505) от 20.10.2024
+
+Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorpio Rising [7:02]
+02. Why Not? [8:35]
+03. Sweet and Lovely [7:40]
+04. It Never Entered My Mind [8:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576E8204A31209715A5CB9D7EFFD7CC95EB3D3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756051   (103504) от 20.10.2024
+
+Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onion Roll [4:24]
+02. Gumbo Hump [4:08]
+03. High Heel Sneakers [8:00]
+04. Put Your Little Foot Right Out [6:01](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99B5FE2DCD457367FA2DE1E42477248E9BFB80A
 ```
 
 https://mybot314.ru/tekegram_catalog/

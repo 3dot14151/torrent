@@ -1,3 +1,154 @@
+###  Публикация: 1086332   (152101) от 24.12.2016
+
+Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Starship Avalon (Main Title) (04:15)
+02. Hibernation Pod 1625 (01:19)
+03. Command Ring (00:57)
+04. Rate 2 Mechanic (02:08)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:12:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EB4DDFA9F340A28727F5C148A376CFA0249AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675516   (151762) от 16.11.2023
+
+Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Vedic Chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dhanvantri Dhyana
+02. Prarthana, Anna Brahmopasana, Paap Nivarak Mantra
+03. Roga Nivarak Sukta, Mrithika Sukta, Durva Sukta
+04. Shatangayur Sukta(   Читать дальше...   )Жанр: Mantras, Vedic ChantsПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638E4F713C95E72F84B7A8313C29FA0C509B7FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086334   (151589) от 24.12.2016
+
+Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Starship Avalon (Main Title) (04:15)
+02. Hibernation Pod 1625 (01:19)
+03. Command Ring (00:57)
+04. Rate 2 Mechanic (02:08)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:12:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677557   (150463) от 18.11.2023
+
+Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockstar (feat. Richie Sambora)
+02. World On Fire
+03. Every Breath You Take (feat. Sting)
+04. Open Arms (feat. Steve Perry)(   Читать дальше...   )Жанр: Country, RockПродолжительность: 02:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588849   (150433) от 14.12.2012
+
+Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150433.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Far Cry 3 (5:35)
+2. Heat (3:33)
+3. The Rakyat (3:55)
+4. Monsoon (2:53)
+5. Falling Into a Dream (2:20)
+6. Journey Into Madness (2:56)
+7. Rook Island (5:21)
+8. We Are Watching You (3:34)
+9. Treasure of Zhang He (3:35)
+10. Fever Dream (4:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E2C6D9AC5808B42990C1B782BCDA01CF9DD094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 737957   (150063) от 26.12.2013
 
 David Arkenstone - Ambient World (2011) 2CD [FLAC|Lossless]<New Age, Ambient>
@@ -597,157 +748,6 @@ VA - Свадебный хит (Весільний хіт) (2006-2010) 6CD [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B534796407FF1A98ABEDEC80BC8C3C76E532105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271553   (146830) от 25.12.2018
-
-Austin Wintory - The Sound Of Assassin's Creed Syndicate (2015) Limited Edition, Cardsleeve [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bloodlines (1:55)
-02.The Bustle (2:06)
-03.Steel Cathedrals (2:02)
-04.The Morning Smoke (1:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA749F2490AC4EFBF859212A573C905D66BA3767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087184   (146256) от 27.12.2016
-
-Max Richter - Black Mirror / Чёрное зеркало: Nosedive (Music from the Award-Winning Series) (2016) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Reflection (07:15)
-02. Dopamine 1 (00:51)
-03. The Sorrows Of Young Lace (01:51)
-04. Dopamine 2 (02:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070F6AD1633D0A2B36B2D32D2F5D81401FB911C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588974   (146090) от 16.12.2012
-
-Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|320 кб/с] <Game-Rip OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. It All Started on Scabb Island... (02:11)
-2. On the log with Fink and Bart (01:59)
-3. The Largo Embargo (01:16)
-4. Woodtick Suite (04:01)
-5. Scabb Island (02:00)
-6. The International House of Mojo (02:20)
-7. The Cemetery (03:13)
-8. Poking Largo (01:12)
-9. LeChuck's Return (02:42)
-10. Captain Dread and the Jolly Rasta (03:18)(   Читать дальше...   )Жанр: Game-Rip OSTПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EA9AD6261EA6D41C622C8A992F6606DEC33328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434518   (145976) от 27.12.2020
-
-Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Trailer>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside Heart (02:15)
-02. Consternation (03:40)
-03. Paradox (04:45)
-04. Disclosure (04:23)(   Читать дальше...   )Жанр: Soundtrack, Instrumental, TrailerПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6B8D4A34A3E7B730D1DBA7F550A4C3E0F66E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969166   (145762) от 28.12.2015
-
-Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud Mountain [15:50]
-02. Reflections [06:55]
-03. Tears Of The Forest [12:20]
-04. Providence [11:23]Жанр: Meditative, New AgeПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B65FB830E55BED4853F150E1519FE41A966E776
 ```
 
 https://mybot314.ru/tekegram_catalog/

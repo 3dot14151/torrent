@@ -1,3 +1,255 @@
+###  Публикация: 1492833   (900648) от 31.08.2021
+
+Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector №2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодние фоны
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1A2E39009A5A94FC05A169CFEC516C137B926A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492910   (900601) от 31.08.2021
+
+Векторный клипарт - New Year and Christmas illustrations in vector №32 [EPS, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодний
+12 EPS, AI +PreviewФормат: EPS, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289F42EE6B66B941DBC2FCDEAFBECA029222E03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492908   (900592) от 31.08.2021
+
+Векторный клипарт - New Year and Christmas illustrations in vector №27 [EPS, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодний
+10 EPS, AI +PreviewФормат: EPS, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA334B25A749C552EA3DF74F11E5E6E7B3B160F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492831   (900549) от 31.08.2021
+
+Векторный клипарт - Damask decorative floral vintage pattern design illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Декоративные цветочные старинные узоры
+6 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B313DBF431D3F247FBA7E28D7C49DF4C69DF91D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492845   (900445) от 31.08.2021
+
+Векторный клипарт - New Year and Christmas illustrations in vector №7 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодний
+25 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FDF9B7291E0E226FEB4F24B10FCA05F97E2BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492804   (900442) от 31.08.2021
+
+Векторный клипарт - Editable font effect text collection illustration design 246 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Текстовые стили
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C145B0C0BEA02AB7AE453D3761760BDE901D9232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492827   (900440) от 31.08.2021
+
+Векторный клипарт - Cheerful snowmen in different costumes Christmas illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Веселые снеговики
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF76BFFE9224C90D2DFCAB2BECE9A616D3F7619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492839   (900340) от 31.08.2021
+
+Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector №17 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодний
+5 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D727F1E73CB760812928F45618ABDD2000A9F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492841   (900332) от 31.08.2021
+
+Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector №18 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодний
+5 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191C9EA80BBDB1807EF9E30BE503C1604E58C487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492807   (900320) от 31.08.2021
 
 Экшены - GraphicRiver - Art Paint 3 - 33079157 [ATN, ABR, PAT, TPL]
@@ -453,250 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC1C1C43E564F03CF0C827EB1F8A353327962A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493125   (898847) от 01.09.2021
-
-Векторный клипарт - Seamless Floral Borders 57 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Узоры
-3 AI +PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0D76460DB24F084AF3FE94B1071CB165374FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100779   (898845) от 04.02.2017
-
-Пресеты - Text Presets Pack [FFX, AEP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текст Presets Pack - Этот пакет содержит 13 текстовых пресетов (масштаб, положение, вращение), что поможет вам сэкономить время и энергию!Формат: FFX, AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE706C2AF42D60E20E917243951DC045B8C1B495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493127   (898787) от 01.09.2021
-
-Векторный клипарт - Seamless Floral Borders 60 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Узоры
-3 AI +PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E38CC7314C14DB3A4F0FFAB7B73BD5B58C0EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493142   (898770) от 01.09.2021
-
-Векторный клипарт - Various Isometric Buildings 30 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Различные изометрические здания
-3 AI +PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77582F1FA2DEB79E498566636289DDDED4E35409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493076   (898759) от 01.09.2021
-
-Векторный клипарт - Luxury Abstract Vector Background [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фоны
-18 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0556A0B60513F6C79F7FB195CF1A6D853D6D5C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493136   (898635) от 01.09.2021
-
-Векторный клипарт - Сборник разнообразного вектора №2 [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-разнообразный
-143 EPS AI 18 +PreviewФормат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC90C93AC3FC7841E4012ECD64BE6A58E8DA7138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493001   (898568) от 01.09.2021
-
-Экшены - Creative Market - Poster Art Photoshop Action - 6453860 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poster Art - Это действие предназначено для превращения вашей фотографии в настоящий плакат. С помощью этого профессионального пакета вы можете превратить свои обычные фотографии в необычные изображения.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92385B1C21BD40793B5C5B22CE32155974E48EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492988   (898565) от 01.09.2021
-
-Экшены - GraphicRiver - Vintage Travel Poster Photoshop Action - 29146736 [ATN, PAT, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vintage Travel Poster - это действие фотошоп превращает ваши фотографии в классические туристические плакаты. Сценарий разработан, чтобы обеспечить лучший пользовательский интерфейс. Вы можете просто запустить его на любом из ваших изображений, и действие сделает все остальное. Вам просто понадобится Photoshop и никаких продвинутых навыков. Теперь каждый может по-настоящему (   Читать дальше...   )Формат: ATN, PAT, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C192642FA53F5F4C7744D2946A087DC40222726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492958   (898494) от 01.09.2021
-
-Пресеты - Shopee - 11000+ Advanced Lightroom Presets Collection [LRTEMPLATE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор очень пригодится как фотографам, так и дизайнерам.Формат: LRTEMPLATE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE48241DEC9C4D0A841DE80449E245CBB9ADA33
 ```
 
 https://mybot314.ru/tekegram_catalog/

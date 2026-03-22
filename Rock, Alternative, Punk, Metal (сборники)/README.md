@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1859613   (1061264) от 
+
+VA - Russian Rock 2017-2018 (2017-2018) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061264.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:17]. 001-Би-2 - Детство
+[3:32]. 002-Инкогнито - Чучело
+[3:44]. 003-Mireia - Карма
+[3:41]. 004-Сурганова и оркестр - Привыкай(   Читать дальше...   )Жанр: rockПродолжительность: 10:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDB0910ED4EC92593BD4703CB20122D477275B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858433   (1060485) от 10.03.2026
 
 Dave Stewart - Compilation (1990-2025) [MP3|320 Kbps] <Pop rock, Soft rock, New wave, Miscellaneous>
@@ -717,35 +746,6 @@ Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B7B577A1BDF789B1C78560EECD08653FC5EB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609727   (1043164) от 04.02.2023
-
-VA - The Stress: Rock Psychedelic Compilation (2023) [MP3|320 Kbps] <Psychedelic-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gambardella - Ascensiones
-002. Kesem - No Future
-003. Liquify - Subzero Descent
-004. The Tyromancers - Behold ! The Tyromancers(   Читать дальше...   )Жанр: Psychedelic-RockПродолжительность: 09:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5647BF312DFB978D8FEFE482C118900545E3E140
 ```
 
 https://mybot314.ru/tekegram_catalog/

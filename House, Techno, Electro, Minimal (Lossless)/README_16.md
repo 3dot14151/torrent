@@ -1,3 +1,61 @@
+###  Публикация: 1006392   (829209) от 11.04.2016
+
+Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 More Of You (6:32)
+02 Breathe (7:30)
+03 Meaning (6:54)
+04 Inbetween Thoughts (6:52)(   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F17285D427288EB54676B867C0C20D99D1D22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006375   (829207) от 11.04.2016
+
+Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honest with You (6:46)
+02. The Truth (6:52)
+03. Empty (7:16)
+04. World Disappears (6:35)(   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CC5BB5604635C6AE7EBDF04F27035B8AF98BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114900   (829103) от 16.03.2017
 
 VA - Pumping Storm from 2005 to 2015 (10 Years Bundle Pack) (Mixed by XS Project) (2015) [FLAC|Lossless|WEB|image] <Pumping House , Hard Bass>
@@ -683,64 +741,6 @@ Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197000   (819199) от 05.01.2018
-
-Christos Fourkis - Personal Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Fourkis - Liquid Dream (Original Mix) (06:54)
-02. Christos Fourkis & Silia – Me And You (Original Mix) (06:15)
-03. Adam Byrd – Without You (Christos Fourkis Remix) (06:28)
-04. Harri Agnel – Lovst (Christos Fourkis Remix) (05:20)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD4364C73717DF40595A6978FDBA705107D7F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382832   (817515) от 12.05.2020
-
-VA - Solitude Of The Forest Compilation (2020) Insectorama [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenchord - Untitledub 9 (06:11)
- 02. FaKtor.Ost - 3828 (05:54)
- 03. Markus Masuhr - Forest Lights (10:24)
- 04. Drfct - Unknown (07:35)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 01:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57FD519235D346833CDB1CAFAADB06215DD2E8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

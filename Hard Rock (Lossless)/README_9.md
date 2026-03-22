@@ -1,3 +1,90 @@
+###  Публикация: 1464505   (1019801) от 22.04.2021
+
+Cactus - Tightrope (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cactus — американская рок-группа, образовавшаяся в 1970 году в Нью-Йорке и исполнявшая жёсткий хард-рок с элементами блюз-рока. Пять альбомов Cactus входили в Billboard 200; наивысшей позиции (#54, 1972) достиг дебютный альбом. Группа первоначально задумывалась, как результат слияния ритм-секции Vanilla Fudge (Тим Богерт, Кармайн Эппис) c ядром The Jeff Beck Group, (   Читать дальше...   )01. Tightrope
+02. Papa Was A Rolling Stone
+03. All Shook Up
+04. Poison In Paradise(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC92E119770D77206DE0A736383A504DD41D58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464819   (1019661) от 23.04.2021
+
+Gilby Clarke - The Gospel Truth (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gospel Truth (00:03:56)
+02. Wayfarer (00:02:58)
+03. Tightwad (00:03:15)
+04. Rock N' Roll Is Getting Louder (00:03:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C34B99AF205FACAA494137CF34E6398552D2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465031   (1019349) от 25.04.2021
+
+Three Seasons - 4 albums (2011-2017) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Retro Prog, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плодовитые шведы словно нарошно рождают на свет новые хардовые команды. "Three Seasons" - ещё одно чудесное трио молодых музыкантов. Группа образована в 2009 году, насквозь пропитана духом марихуаны и саундом 60-х и ранних 70-х. Банда, в которую вошли экс-вокалист и гитарист Siena Root Сартез Фарадж, бас-гитарист Олле Рисберг, клавишник Маттиас Рисберг (   Читать дальше...   )--------------------------
+
+01. Been Gone (4:16)
+02. Something You Can't Have (5:30)(   Читать дальше...   )Жанр: Hard Rock, Heavy Retro Prog, Psychedelic Rock |Продолжительность: 03:28:37 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1006B4D4AACE811419930B1846DE374FFD444C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465053   (1019337) от 25.04.2021
 
 Orianthi - Believe II (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -658,93 +745,6 @@ Seven Ravens - Barely Hanging On (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02ED65A765ADE3F3E95DF6B5E2B3B5536D219C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467727   (1017563) от 05.05.2021
-
-Greta Van Fleet ‎ - The Battle At Garden's Gate (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Above (5:41)
-02. My Way, Soon (4:15)
-03. Broken Bells (5:51)
-04. Built By Nations (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DEFDADE44DF715D770F120D93ABF59D7502341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468074   (1017446) от 06.05.2021
-
-Naked - End Game (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silverthorn
-02. Aim For The Heart
-03. Blood Of My Blood
-04. Leaving You Tonight(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD599F02851C6E12F7CB2F74F5CE61D34FBA6F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468231   (1017233) от 07.05.2021
-
-Robin McAuley - Standing On The Edge (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thy Will Be Done
-02. Standing On The Edge
-03. Late December
-04. Do You Remember(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A8E98E5661E9FC2A0C7BCD7176322CBE725954
 ```
 
 https://mybot314.ru/tekegram_catalog/

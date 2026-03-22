@@ -1,3 +1,32 @@
+###  Публикация: 1221385   (695110) от 24.04.2018
+
+Overdrive - Electric Overdrive (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar My Overdrive (5:47)
+02. Glitter (6:11)
+03. Magic Moon (4:46)
+04. Constantinople (4:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BD3F7257EA60B4F4CCF104C3B33E040E1162AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221412   (695102) от 24.04.2018
 
 Who's Who - Who's Who (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -713,35 +742,6 @@ Leroy Gomez & Santa Esmeralda - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B90F3C18214810AD9E34CDF5954CC927ACF43E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290553   (676460) от 21.03.2019
-
-Dennis Parker - Like An Eagle (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like An Eagle (6:26)
-02. New York By Night (5:04)
-03. High Life (6:25)
-04. Why Don't You Boogie / I'm A Dancer (9:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4556034FCAD5DEBEFF5D03D8AE9FCDA1B3467705
 ```
 
 https://mybot314.ru/tekegram_catalog/

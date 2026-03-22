@@ -1,3 +1,347 @@
+###  Публикация: 1617214   (250260) от 07.03.2023
+
+Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Insomnium — финская англоязычная группа из города Йоэнсуу, играющая музыку в стиле мелодик-дэт-метал. Основными темами песен являются скорбь, мистицизм, природа. Их стиль содержит в себе некоторые элементы doom metal. В творчестве группы также присутствуют элементы нордического фолка и симфонической музыки.2002 - In the Halls of Awaiting
+2004 - Since the Day it All Came Down
+2006 - Above the Weeping World
+2009 - Across The DarkЖанр: Melodic Death MetalПродолжительность: 09:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617966   (250117) от 09.03.2023
+
+Имант Ванзович, Мирдза Зивере и Группа «Опус'' - Високосный Год. Песни Зигмара Лиепиньша (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250117.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Пробуй
+A2 Високосный Год
+A3 Мы Почти Позабыли
+A4 Испорченный Телефон(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586632   (250027) от 11.03.2023
+
+Группа Las Vegas - Imported From... (1998) Unofficial Release [FLAC 2.0|64/24|image+.cue|MC-Rip] <Glam Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Might
+02. Hard Golden Chains
+03. Crying In The Silence
+04. Bestseller Gun(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618707   (249886) от 13.03.2023
+
+Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Masterplan — немецкая пауэр-метал-группа. Основана гитаристом Роландом Граповым и барабанщиком Ули Кушем после их увольнения из Helloween в 2001 году.2003 - Masterplan
+2005 - Aeronautics
+2007 - MK II
+2010 - Time To Be King(   Читать дальше...   )Жанр: Power MetalПродолжительность: 06:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618995   (249796) от 14.03.2023
+
+Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mutiny Within — американская группа из города Эдисон, штат Нью-Джерси, играющая в стиле мелодик дэт-метал. Группа была основана в 2002 году басистом Эндрю Джейкобсом, первоначально, как кавер-коллектив группы Children of Bodom.2010 - Mutiny Within
+2013 - Synchronicity
+2017 - OriginsЖанр: Progressive Melodic Death Metal, MetalcoreПродолжительность: 02:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565417   (249436) от 23.07.2022
+
+Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Dance-Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ка́йли Энн Мино́уг (англ. Kylie Ann Minogue (ˈkaɪli ˈæn mɪˈnoʊɡ), также известная под мононимом Ка́йли; род. 28 мая 1968, Мельбурн) — австралийская поп-певица, автор песен и актриса. Наиболее коммерчески успешная австралийская исполнительница, известная частыми сменами сценического образа. СМИ называют её «поп-принцессой» (   Читать дальше...   )1988 - Kylie
+1989 - Enjoy Yourself
+1990 - Rhythm of Love
+1991 - Let's Get to ItЖанр: Dance-Pop, DiscoПродолжительность: 18:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623217   (245973) от 01.04.2023
+
+Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's in the blood [4:50]
+02. Getcha ya ya [4:35]
+03. She broke my heart (in 36 places) [3:40]
+04. She said she loves me [4:17](   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620006   (245766) от 20.03.2023
+
+Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Mask — пауэр-метал группа, основанная в 2002 году бельгийским гитаристом Душаном Петросси.2002 - Revenge Is My Name
+2005 - Hordes of The Brave
+2009 - Shadow Of The Red Baron
+2011 - Black As DeathЖанр: Power MetalПродолжительность: 07:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623839   (245564) от 03.04.2023
+
+Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Funk / Soul, PopПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620710   (245485) от 21.03.2023
+
+Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245485.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Не Променяй Съдбата Ми • Don't Change My Luck • Не меняй мою судьбу
+A2 Изморен От Чакане • Tired Of Waiting • Уставшая от ожидания
+A3 Самоубийство • Suicide
+A4 Ийви • Evie(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE96EE67321586B880F149F2CEE24276EF85A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624222   (245188) от 05.04.2023
+
+The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245188.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hold On To Your Dreams (Rock Version) 4:16
+A2 Love Can Change It All 3:40
+A3 Time Will Tell 3:47
+A4 What Do You Live For 4:06(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631112   (245169) от 04.05.2023
+
+Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Classical, Romantic, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+Concerto no.2 in B minor
+Composed By – Giovanni Bottesini
+01. 1 I. Allegro moderato(   Читать дальше...   )Жанр: Classical, Romantic, BaroqueПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621149   (245044) от 23.03.2023
 
 VA («Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель) - Не Задирай Носа (1972) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
@@ -397,348 +741,6 @@ B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623202   (243651) от 01.04.2023
-
-Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243651.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Touch Me (I Want Your Body) 3:44
-A2 I'm All You Need 4:25
-A3 Suzie, Don't Leave Me With Your Boyfriend 3:54
-A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542187   (243620) от 06.04.2022
-
-Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lindemann — метал-проект, образованный 4 января 2015 года Тиллем Линдеманном и Петером Тэгтгреном.2015 - Skills in Pills
-2019 - F & MЖанр: Industrial MetalПродолжительность: 01:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626764   (243585) от 15.04.2023
-
-Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243585.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Love You 3:14
-A2 Lost Again 4:18
-A3 No More Words 3:57
-A4 Crash Dance 2:09(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FCFBC7F78482EE24A0C54C7D666AD00A0A3D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633384   (243402) от 15.05.2023
-
-Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blazon Stone - шведская хэви-метал/пауэр-метал группа, образованная в 2011 году.2013 - Return To Port Royal
-2015 - No Sign Of Glory
-2016 - Ready For BoardingЖанр: Heavy/Power/Speed MetalПродолжительность: 04:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627110   (243370) от 17.04.2023
-
-Karel Zich - The Best Of Karel Zich (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk Rock, Soft Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243370.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Watching Your TV (Na Prvním Programu)
-A2 With Her Glasses On (Měla Na Očích Brýle)
-A3 You Taste Of The Meadow (Máš Chuť Majoránky)
-A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk Rock, Soft Rock, Rock & RollПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633294   (243325) от 15.05.2023
-
-StormWarrior - Studio Albums (6 releases) (2002-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243325.jpg" />
-</div>
-
-
-###  Подробнее
-
-StormWarrior — пауэр-метал-группа из Германии, основанная в 1998 году вокалистом и гитаристом Ларсом Рамке и барабанщиком Андре Шуманном, к которым позднее присоединились гитарист Скотт Болтер и бас-гитарист Тим Зайнет.2002 - Stormwarrior
-2004 - Northern Rage
-2008 - Heading Northe
-2011 - Heathen WarriorЖанр: Power/Speed MetalПродолжительность: 05:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FA93F21C7CABF936F40DA99D146619844104F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627034   (243295) от 17.04.2023
-
-Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Golden Age
-02. Run Boy Run
-03. The Great Escape
-04. Boat Song(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BCBDF1BDCA787069819A2385B14439366D9C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539354   (243251) от 27.03.2022
-
-Rolling Stones - Steel Wheels (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243251.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sad Sad Sad
-A2 Mixed Emotions
-A3 Terrifying
-A4 Hold On To Your Hat(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D680485C374BF47113F110DBA13F16E43D63A5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623884   (243215) от 03.04.2023
-
-Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539789   (243174) от 27.03.2022
-
-The Rolling Stones - Tattoo You (1981) Series: Nice Price, 1987 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243174.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Start Me Up
-A2 Hang Fire
-A3 Slave
-A4 Little T & A(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627156   (243080) от 18.04.2023
-
-Taboo - Ten Hundred Thousand (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243080.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tabu 1:53
-A2 Demand 4:58
-A3 Sexy Girl (LP Version) 4:57
-A4 Moving In The Midnight 5:50(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623196   (243057) от 01.04.2023
-
-Space - Magic Fly (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ambient, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243057.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1  Пристегните Ремни 5:59
-A2  Баллада 2:17
-A3  Танго В Космосе 4:28
-A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambient, DiscoПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

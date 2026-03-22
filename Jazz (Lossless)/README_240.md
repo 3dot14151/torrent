@@ -1,3 +1,177 @@
+###  Публикация: 1609641   (244773) от 04.02.2023
+
+Kai Winding & Curtis Fuller - Bone Appetit (1980) 2004, Par Media Music [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicoise [5:58]
+02. Bone Appetit [6:08]
+03. Baja Iberia [6:04]
+04. Entonces [4:05](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54B7DFF8C974FA7DADF182DE9D5CC328015CA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609637   (244737) от 04.02.2023
+
+Lester Young - Four Classic Albums: Second Set (1943 - 1957) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244737.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lester Leaps Again (take 1) [4:27]
+02. After Theatre Jump (take 2) [4:45]
+03. Destination K.C. (take 1) [3:53](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606FABE549C035978849ED1ED95171FAE76E3F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069821   (244670) от 05.11.2016
+
+Hank Jones - Urbanity (1947-1953) 1997, Verve[FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thad's Pad (master tk) [03:00]
+ 02.Things Are So Pretty In The Spring (master tk) [03:42]
+ 03.Little Girl Blue [02:50]
+ 04.Odd Number [03:35](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C4BC9673FDC3C48B306CB5CAE317889FC738D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069575   (244665) от 05.11.2016
+
+Lars Gullin - Baritone Sax (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Summertime [05:33]
+ 02.Fedja [05:03]
+ 03.A Foggy Day [04:45]
+ 04.Perntz [05:16](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31B2C0DA336BB35BC429156149544CBF6A31490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069476   (244655) от 05.11.2016
+
+Pierre de Bethmann - Sisyphe (2014) 2CD, Plus Loin Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244655.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Sisyphe [09:31]
+02.Volseau [11:04]
+03.Patience [09:58](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D947742866B2BDF05240F977FBBEACAFE59D3CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069931   (244644) от 05.11.2016
+
+Clint Houston - Inside The Plain Of The Elliptic (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Geri [06:41]
+ 02.You Are Like The Sunlight [06:01]
+ 03.Goodbye Mr. P [07:18]
+ 04.Letitia [06:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A4D1F56B424769A49AB9AD982FF345F6E6C8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289528   (244639) от 16.03.2019
 
 SFJAZZ Collective - Live 2005 2nd Annual Concert Tour (2005) 2CD, SFJazz Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -571,180 +745,6 @@ Peter Fernandes - The New Me (2011) [FLAC|Lossless|image + .cue] <Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFDA8DFA187C13FF98BCACC0E423D980A6DC836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072170   (244337) от 12.11.2016
-
-Laurent Coq Trio - Spinnin' (2005) Cristal Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Claude Sait [01:40]
- 02.C.H.W [08:16]
- 03.South Ferry [06:22]
- 04.Toulouse [05:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1479FDF9D676D65400BC9BF455AB2BA3B232ABA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294560   (244336) от 08.04.2019
-
-Thelonious Monk - The Best of Thelonious Monk (1955 - 1960) 2004, Riverside Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Round Midnight [6:43]
-02. Off Minor (take 5) [5:10]
-03. Jackie-ing [6:09]
-04. Well, You Needn't [11:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF87B471D89333E8DDFE569CFD9E594E06E8EF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072089   (244330) от 12.11.2016
-
-The Tony Kofi Quartet - The Silent Truth (2008) Specific Jazz[FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Giants [05:28]
- 02.Dante [04:12]
- 03.Cicada [04:54]
- 04.First Breath [05:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9E435184E980AA453C90E2F3205E8CBD3E9335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072123   (244313) от 12.11.2016
-
-Guido Manusardi Trio - No More No Less (2006) SoundHills Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Softy As In A Morning Sunrise [05:49]
- 02.Like Sonny [05:22]
- 03.You Stepeed Out Of A Dream [06:30]
- 04.Ice Drops [05:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EA4C671A3590E42F713C4F54AD63A0D3577340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072093   (244307) от 12.11.2016
-
-Count Basie & Joe Williams - Count Basie Swings, Joe Williams Sings (1955) 1993, Verve[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Every Day I Have The Blues [05:30]
- 02.The Comeback [05:29]
- 03.All Right, OK, You Win [03:06]
- 04.In The Evening (When The Sun Goes Down) [03:40](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379DAF41702D3C48B03C3180E14BC5A326071101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632167   (244304) от 09.05.2023
-
-Louie Bellson And His Big Band - Live From New York (1994) Telarc [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soar Like An Eagle [5:32]
-02. The Louie Shuffle [5:12]
-03. Blow Your Horn [6:44]
-04. L.A. Suite (I. Vine Street Waltz/II. Beverly And The Beach/III.(Studio City) Gathering) [16:04](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Big BandПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6EED7920B1806231042B0C4BDF340E612C566F
 ```
 
 https://mybot314.ru/tekegram_catalog/

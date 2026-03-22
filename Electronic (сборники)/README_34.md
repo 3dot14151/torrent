@@ -1,3 +1,61 @@
+###  Публикация: 1493747   (893822) от 04.09.2021
+
+VA - Peak Time: Techno Party (Vol.02) (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893822.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drewtech - Fight
+002. Skirra - Never Again
+003. Q-Green - Novel
+004. Canosa - The Rider(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC033968278B66F9F3A187A331B42AFD4B19CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493759   (893770) от 04.09.2021
+
+VA - Vocal Chillout Music: Romantic Collection (2021) [MP3|320 Kbps] <Vocal, Chillout, Lyric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893770.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boyz Ii Men - Why Christmas
+002. Seawayz & Sollito - Serenade
+003. Brijean - Wifi Beach
+004. Kina feat. Yaeow - Wish I Was Better(   Читать дальше...   )Жанр: Vocal, Chillout, LyricПродолжительность: 06:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DE5D2BDFA22CFB2808E6E15EE7BFD1B000C9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102183   (892939) от 08.02.2017
 
 VA - TOP Non-Stop 2010-2015: Dub-Step, Drum&Bass, Breaks (2015) [MP3|320 Kbps] <Dub-Step, Drum&Bass, Breaks>
@@ -693,64 +751,6 @@ VA - Record Super Chart № 426 (2016) Radio Record [MP3|128-320 кб/с] <Club 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F92E4D2B5B8AF9B6A222ABF5455A93E6F5233998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494633   (887831) от 08.09.2021
-
-VA - Maniac Hard Dance (2021) [MP3|320 Kbps] <Club, Hard Dance, Hardstyle, Core Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agressive Noize - Show Me The Way
-002. Dance House Project - Can't Stop Me
-003. Axray - Sahnekapsel
-004. Ezkill - Hands In The Air(   Читать дальше...   )Жанр: Club, Hard Dance, Hardstyle, Core DanceПродолжительность: 08:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7600603AA2F24BB12CDDC6A1BF1C73545353CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494589   (887819) от 08.09.2021
-
-VA - Beatport Electronic: Sound Pack #343 (2021) [MP3|320 Kbps] <Electronic, synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Trees Speak - Transforming
-002. Mmyylo - Venamy
-003. Darkside - Liberty Bell
-004. Fairtone - Riviera(   Читать дальше...   )Жанр: Electronic, syntheticПродолжительность: 12:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753BE5CD414D63A2DFD6A445773E15A4C79AF7A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

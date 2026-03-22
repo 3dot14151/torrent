@@ -1,3 +1,232 @@
+###  Публикация: 1110767   (851754) от 03.03.2017
+
+Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851754.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Walking Back To Me (3:43)
+A2. Your Love Is All (4:10)
+A3. Stop (4:56)
+A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Производство: A&M Records - 395 195-1Жанр: RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498981   (851019) от 30.09.2021
+
+Кино - Ночь (1986) 2LP Reissue 2021 [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Alternative Rock, Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Wave, Alternative Rock, Post-Punk
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40BB283B82A4D442549D97DB437185B8B260542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110805   (850179) от 04.03.2017
+
+Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была популярна в начале 80-х, в основном благодаря своему основателю и идейному вдохновителю Kim Arena, который по слухам, был племянником телеведущей Ave Ninchi. Группа получила свою известность благодаря синглу "Casino", в 1981 году вышел и одноименный виниловый диск-гигант. Именно этот сингл вдохновил Вечяслава Добрынина написать свое "Казино-казино-казино". (   Читать дальше...   )01. Casino (3:32)
+02. Mister Mouse (3:58)
+03. Touch And Go (5:27)
+04. Annalisa (3:33)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776615   (850127) от 30.03.2016
+
+Electric Light Orchestra - Discovery (1979)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850127.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Shine A Little Love (4:40)
+A2. Confusion (3:41)
+A3. Need Her Love (5:09)
+A4. The Diary Of Horace Wimp (4:22)(   Читать дальше...   )Производство: Jet Records - FZ 35769Жанр: Progressive RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377896   (849794) от 23.04.2020
+
+Frank Sinatra - Portrait Of Sinatra: Forty Songs From The Life Of A Man (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849794.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Let's Face The Music
+(Berlin)
+A2 Nancy (With The Laughing Face)
+(Van Heusen, Silvers)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02336EA0A829CF4CFEE91C33486053D831570B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877180   (849033) от 11.03.2015
+
+Fleetwood Mac - Rumours (1977) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849033.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Second Hand News (2:48)
+A2. Dreams (4:20)
+A3. Never Going Back Again (2:05)
+A4. Don't Stop (3:15)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D21AE3BE8E830387C475552ED04087ED25D739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002332   (848601) от 31.03.2016
+
+Группа Стаса Намина - Гимн Солнцу (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление и "Гимн Солнцу"
+02. После Дождя
+03. Где Живет Ветер
+04. Ты Только Слушай(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499460   (847826) от 02.10.2021
+
+Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847826.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heaven
+A2 Like An Ocean
+A3 Soon Will Be Too Late
+A4 You Always Saw The Blue Sky(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 870976   (846917) от 01.04.2016
 
 Юра Саркисян (кларнет) - 2002 (2002) [FLAC 2.0|44.1/16|tracks|MC-Rip] <Folk/Pop>
@@ -519,238 +748,6 @@ A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114400   (831490) от 15.03.2017
-
-The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wouldn't Want To Be Like You (3:11)
-02. Eye In The Sky (4:35)
-03. Games People Play (4:20)
-04. Time (4:58)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA31FBBE59C2E269055BEB99D758534D438B3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380819   (831443) от 04.05.2020
-
-Andy Williams - Showstoppers. Recorded 1965 (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831443.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 On The Street Where You Live
-A2 I've Grown Accustomed To Her Face
-A3 I Could Have Danced All Night
-A4 Get Me To The Church On Time(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CC122481EBADF9A26BC30B274DDFBE5072DCCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380696   (831231) от 04.05.2020
-
-Frank Sinatra - Some Nice Things I've Missed (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831231.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. You Turned My World Around
-Kaempfert, Rehbein, Carnes, Ellingson
-A2. Sweet Caroline
-Diamond(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D96B1159D7CBF242F59C47AC06928BA6D7CF77F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115091   (829699) от 16.03.2017
-
-The Doors - Strange Days (1967) Reissue, 1991 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829699.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Strange Days (3:04)
-A2. You're Lost Little Girl (2:58)
-A3. Love Me Two Times (3:12)
-A4. Unhappy Girl (1:56)(   Читать дальше...   )Производство: Elektra - K 42 016Жанр: Psychedelic RockПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E586865A43EDCEEA57DA00059E2385A2DC694C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774533   (829271) от 06.04.2014
-
-Electric Light Orchestra - Eldorado (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829271.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Eldorado Overture (2:12)
-A2. Can't Get It Out Of My Head (4:23)
-A3. Boy Blue (5:20)
-A4. Laredo Tornado (5:30)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502119   (826499) от 15.10.2021
-
-Nazareth - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Love Hurts
-A2 Razamanaz
-A3 Loved And Lost(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F81EC0669DBE5755D0180B914CE4DEC0635275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502547   (826412) от 15.10.2021
-
-Smokie - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. I'll Meet You At Midnight (Midnight Cafe)
-02. What Can I Do (Midnight Cafe)
-03. No More Letters (The Moutreux Album)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381521   (826134) от 07.05.2020
-
-Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826134.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sound of Music
-A2 That Old Feeling
-A3 Quiet Nights of Quiet Stars (Corcovado)
-A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
 ```
 
 https://mybot314.ru/tekegram_catalog/

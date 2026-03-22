@@ -1,3 +1,177 @@
+###  Публикация: 1692201   (122492) от 16.01.2024
+
+Mildred Bailey - 1938 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Let a Song Go Out of My Heart [2:59]
+02. Moonshine over Kentucky [2:43]
+03. Rock It for Me [2:54]
+04. If You Were in My Place [3:10](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A095314444599963B2D4FB9A9A5EAE9CD4EF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692572   (122346) от 17.01.2024
+
+Ran Blake Trio - Sonic Temples (1998) 2CD, 2001, GM Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormy Weather [7:27]
+02. Nothing or All [3:27]
+03. Horace is Blue [8:31]
+04. Laura [2:09](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 02:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76FFA21E2BAFD69B218CDB3A0B4719A1DA5E8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692571   (122345) от 17.01.2024
+
+Freddie Hubbard - Music Is Here (1973) 2022, Wewantsounds [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Dive [12:16]
+02. The Intrepid Fox [22:49]
+03. Povo [16:05]
+04. First Light [24:34]Жанр: Hard Bop, Post-BopПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1257D9F894F14A78F19BFBDC7E7CC5A04F8C7CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692395   (122321) от 17.01.2024
+
+Mildred Bailey - 1932 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Chair [3:02]
+02. Love Me Tonight [3:23]
+03. Is That Religion? [3:06]
+04. Harlem Lullaby [3:00](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17110BBDF482FBBF929EB1829239F91B87649834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692818   (122153) от 18.01.2024
+
+Joe Taylor - Westside Chill - Joe Taylor - Westside Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Westside Chill (4:08)
+02. Jaco's Court (3:42)
+03. Mr.campbell (4:39)
+04. Menemsha Fog (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE79EDC6F1AD7DE783C86E3F8CDA782BF4489F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692815   (122151) от 18.01.2024
+
+VA - The Quiet Storm Soothing Easy Listening Warm Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Together We Fly (4:08)
+02. Kool&Klean - Your Sensuality (4:52)
+03. Konstantin Klashtorni - Nice and Easy (5:12)
+04. Chillaxonic - Velvet Meadows (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE62C4679E4C77E21C8CAEAD88249EFB24E1E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692883   (122000) от 19.01.2024
 
 Ruth Price - Sings With Johnny Smith (1956) 2002, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -571,180 +745,6 @@ Anita O'Day - Live At The City San Francisco (1979) 1997, Emily Productions [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A1947BD684FAD26F60F5E6CB6AAEEAC07C39F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694745   (120780) от 26.01.2024
-
-Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [9:00]
-02. Nunca Mas [5:30]
-03. Marissea [7:43]
-04. Para Nosotros [8:03](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1574A6F11D2333AD16E516E74E69D27D68A07F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694746   (120779) от 26.01.2024
-
-Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Because of You [2:41]
-02. Swinging on the Moon [2:21]
-03. Blues in the Night [3:38]
-04. You Oughta Be in Pictures [1:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3961B08E6C817A894ABD06A6822CE5F157989C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694496   (120775) от 26.01.2024
-
-Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [1:37]
-02. The Song Is You [4:33]
-03. Street of Dreams [4:13]
-04. On a Clear Day (You Can See Forever) [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA22DA36492E36F41469C511F99DD33FFFADCCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694887   (120631) от 27.01.2024
-
-Mel Torme - An Evening With Mel Torme: Live from The Disney Institute (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One of Those Things/On Green Dolphin Street [4:59]
-02. You Make Me Feel So Young [4:23]
-03. A Nightingale Sang in Berkeley Square [4:31]
-04. Pick Yourself Up [4:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78EA06CD6267FF9E75CCD19753CB7FF6CBEE87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694741   (120613) от 27.01.2024
-
-Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia in Times Square [12:19]
-02. I Can't Get  Started [10:12]
-03. No Private Income Blues [12:51]
-04. Alice's Wonderland [8:58](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C278CBE8E0C9BB02FA1D4281C3811E0BD9A883F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694945   (120602) от 27.01.2024
-
-Soulstance - The Jazz Art Of Relax Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Never Come Again
-02. Sweet Flow
-03. Different Life
-04. If I Call You(   Читать дальше...   )Жанр: Nu Jazz, Funk, SoulПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43469B7DFAF5017B02081F9277D2F63F4760B73B
 ```
 
 https://mybot314.ru/tekegram_catalog/

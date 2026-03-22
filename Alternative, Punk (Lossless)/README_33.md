@@ -1,3 +1,116 @@
+###  Публикация: 1313990   (522326) от 11.07.2019
+
+The Kills - Ash & Ice (2016) [FLAC|Lossless|tracks + .cue] <Garage Rock, Lo-Fi, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doing It To Death (4:08)
+ 02. Heart Of A Dog (3:47)
+ 03. Hard Habit To Break (3:53)
+ 04. Bitter Fruit (4:15)(   Читать дальше...   )Жанр: Garage Rock, Lo-Fi, Indie RockПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB19B4F45C176CBFEF33A642D5935D4D6A1C89FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313976   (522324) от 11.07.2019
+
+The Kills - No Wow (2005) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Wow/Telephone Radio Germany (4:48)
+ 02. Love Is A Deserter (3:49)
+ 03. Dead Road 7 (3:23)
+ 04. The Good Ones (3:30)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E56D95B3B7DA96B26D541175FD620E6C29BC5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313927   (522269) от 11.07.2019
+
+The Kills - Keep On Your Mean Side (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstition (4:40)
+ 02. Cat Claw (3:33)
+ 03. Pull A U (3:23)
+ 04. Kissy Kissy (5:03)(   Читать дальше...   )Жанр: Blues Rock, Alternative Rock, Indie RockПродолжительность: 00:42:027
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB20F5362F3A1AE956D9E2E1C899240BD0B41ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313992   (521431) от 12.07.2019
+
+The Kills - Future Starts Slow (2011) Single [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Starts Slow (Radio Edit) (3:42)Жанр: Indie RockПродолжительность: 00:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7ACB24EDD304846E58907BD1E558E2442223AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560397   (520881) от 29.06.2022
 
 Fame on Fire - Levels (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Post-hardcore, Metalcore>
@@ -632,122 +745,6 @@ Travis - Singles (2004) Compilation [FLAC|Lossless|tracks + .cue] <Indie Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B2E074595B4BD2DEF5E64F7D6AC646DCB0CCB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315927   (510987) от 22.07.2019
-
-Biffy Clyro - Only Revolutions (2009) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Captain (03:43)
-02. That Golden Rule (03:50)
-03. Bubbles (05:01)
-04. God & Satan (03:10)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C709CEC9998D5744B58970A1F98A3ABFE508ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316005   (508903) от 23.07.2019
-
-Oxford Collapse - Some Wilderness (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land! (04:45)
-02. 1991 Kids (03:42)
-03. The Money You Have Is Maybe Too Little (03:33)
-04. Cumberland Gap (04:24)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C8C3765911406540CEE04046B0C217E3A411E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316033   (508897) от 23.07.2019
-
-Craig Finn - Faith in the Future (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maggie I've Been Searching For Our Son (04:02)
-02. Roman Guitars (04:05)
-03. Newmyer's Roof (04:42)
-04. Sarah, Calling From A Hotel (03:15)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A67562409097125CF3BADE3D5469DA1A70032A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316030   (508838) от 23.07.2019
-
-Craig Finn - We All Want The Same Things (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jester & June (03:59)
-02. Preludes (04:16)
-03. Ninety Bucks (03:41)
-04. Birds Trapped In The Airport (04:41)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7B9F62228A305B69EE4BE1FE35EA9614AA8535
 ```
 
 https://mybot314.ru/tekegram_catalog/

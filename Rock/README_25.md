@@ -1,3 +1,32 @@
+###  Публикация: 1014274   (776563) от 07.05.2016
+
+Chain - Toward The Blues (1971) Reissue, 2007, Picar ‎[MP3|320 кб/с] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirty Two - Twenty Blues
+02. Snatch It Back And Hold It
+03. Boogie
+04. Booze Is Bad News Blues(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7383E3F0742CA51DCCC1A29FEC5B5B578FD21008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014649   (776192) от 08.05.2016
 
 The Artwoods - Art Gallery (1966) Remastered, 2014, RPM Records [MP3|320 кб/с] <Rock>
@@ -713,35 +742,6 @@ July - The Second of July (1968) Remastered, 1999, Expertise Records [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B145BF3B40F2EF0F7A4CA2C2378103786FCEFB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213892   (767343) от 18.03.2018
-
-Без Билета - Маяк (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767343.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Пироги
-3. Фонарь
-4. Маяк(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D316331B1CCB50CE3BCA8C4D9366996924FBC0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

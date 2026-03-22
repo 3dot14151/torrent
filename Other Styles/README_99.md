@@ -1,3 +1,148 @@
+###  Публикация: 1157484   (525218) от 12.08.2017
+
+Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Better Than Myself
+2. Hellbent Hallelujah
+3. More Than Survival
+4. Freak Flag(   Читать дальше...   )Жанр: CountryПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD301D8DCA75CC9C2FB2BBAD0CE5D230C092C4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927331   (524848) от 13.08.2015
+
+Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (Remix)
+02. Don't Go Away
+03. The Mass
+04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5001ACFBA474E11F7B4C8C43AFA35776B55C4C35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927209   (524847) от 13.08.2015
+
+Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (Remix)
+02. Don't Go Away
+03. The Mass
+04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240433   (524462) от 12.08.2018
+
+VA - Latin Fitness:Summer Edition (2018) [MP3|320 Kbps] <Rumba, Salsa, Brazilian Samba, Reggaeton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geo Da Silva – Balkano Latino (Radio Edit) 2:54
+02. Noelia, Latin Workout – Candela (Latin Workout Remix) 3:08
+03. Latin Workout – Sacudelo (Workout Mix) 2:47
+04. Lester – Hace Calor (Original Mix) 2:57(   Читать дальше...   )Жанр: Rumba, Salsa, Brazilian Samba, ReggaetonПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4935F795C0464AE882A08A8AE82C8ECEB090ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312219   (524332) от 08.07.2019
+
+Hildur Gudnadottir - Chernobyl / Чернобыль (Music from the HBO Miniseries) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Door (02:43)
+02. Bridge Of Death (04:44)
+03. Turbine Hall (02:37)
+04. Vichnaya Pamyat (04:07)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7AC5186F6EBF2519FF714F3C09C9A8CD327B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258557   (524220) от 08.07.2019
 
 Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks] <Neofolk, Experimental, Ritual Folk, Rune Singing, Shamanic>
@@ -603,151 +748,6 @@ Wychazel - White Wolf Spirit 3 (2019) [MP3|320 Kbps] <New age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F98E6DEEDFCEFED012DF431310140F59598E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314693   (516956) от 16.07.2019
-
-Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Electonic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Of Worlds
-02. Listening To A Rain
-03. Dreamland Express
-04. Return(   Читать дальше...   )Жанр: Electonic, New AgeПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE3BA3C107A6673FEA3B126E376B3B45D3B2547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314748   (516955) от 16.07.2019
-
-Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
-02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
-03. Wilbert Roget, II - Netherrealm Incursion (03:43)
-04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847D57A3360499193E561267777E218ADC0B15B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314749   (516948) от 16.07.2019
-
-Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
-02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
-03. Wilbert Roget, II - Netherrealm Incursion (03:43)
-04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E9BD7D9600DB23B7E3B08F3BA949936330DD6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187817   (516886) от 20.08.2018
-
-Українські стрілецькі та повстанські пісні (Ukrains'ki strilec'ki ta povstans'ki pisni) (2008) [MP3|192-320 kbps]<Folk, ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ой, у лузі червона калина (Етнографічний хор "Гомін")
-02. Вже бубон грає (Квартет бандуристів "Рось")
-03. Ой, видно село (Національна заслужена капела бандуристів України ім. Г. І. Майбороди)
-04. Зажурились галичанки (Держ. засл. Буковинський анс. пісні і танцю)(   Читать дальше...   )Жанр: Folk, ethnicПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099D921663F18F6676FA835188AC7B52CD300186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241857   (516174) от 21.08.2018
-
-Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What is a Man (3:44)
-02. Icarus (3:28)
-03. Made to Love You (3:18)
-04. Fall Like a Feather (3:22)(   Читать дальше...   )Жанр: Folk-Rock, Pop, Soul, Singer/SongwriterПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12822CB589729E7D0042D312C8175414D8D2A1E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

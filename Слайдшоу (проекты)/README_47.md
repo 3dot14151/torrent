@@ -1,3 +1,55 @@
+###  Публикация: 1030970   (653056) от 03.07.2016
+
+Проекты - VideoHive - Sketch & Watercolor Art - 13836433 [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch & Watercolor Art - превратите вашу фотографию или видео в эскиз, в стиле акварели.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE89576EE211D0C11CFE513B65793AC4053CCECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141218   (651968) от 09.06.2017
+
+Проекты - VideoHive - Traveler Diary - 19997163 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651968.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Traveler Diary» это шаблон для After Effects, в котором Вы сможете создать прекрасное видео или слайд-шоу своего путешествия, летнего отдыха. Шаблон прост в настройке, имеет модульную структуру для изменения продолжительности проекта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322E7913BF8840960BB3609640EACDAA2A7DB2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 798790   (651850) от 23.06.2014
 
 VideoHive - Magic Qube - 6208906 [AEP]
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A09D8E42739CBC06172CF0759DF9DAC914AD9CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032081   (647263) от 06.07.2016
-
-Проекты - VideoHive - Memory Tree Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Tree Slideshow - ностальгическое слайд-шоу для памятных фотографий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0D303D8D4AAD7F055BAE059F31E75B2F29F245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906177   (647127) от 07.06.2015
-
-Проекты - VideoHive - Red And Blue Slide [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект промо дискотеки, вечеринки, шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FA1F47B197D43EAD5CEFFF9F544E6DDB78D395B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1071980   (354538) от 12.11.2016
+
+Paul Parker - Too Much To Dream (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный альбом, особенно для любителей творчества Patrick Cowley, где он выступил как: продюсер, синтезаторщик, клавишник и в 5-ти треках как композитор.01. Love's On The Line (6:12)
+02. Shot In The Night (6:03)
+03. Too Much To Dream (5:59)
+04. Baby You Can Have My Lovin' Anytime (4:44)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB11B9A88D345CAFBDB768780DFBBEDD6A4BA1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072538   (352388) от 13.11.2016
 
 The Mike Theodore Orchestra - 2 Albums (1977,1979) Reissue, 1998, Westbound Records [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
@@ -713,35 +742,6 @@ Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2658F0F0542E8C03AC950AEC9B2F533AFF14A836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954779   (339246) от 08.11.2015
-
-Boney M - Greatest Hits (2008) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339246.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Nightflight to Venus (04:47)
-02. Rasputin (05:51)
-03. Sunny (04:02)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 02:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6C526FDF9A6488B7174EF0A37B7B3B7DF3FE52
 ```
 
 https://mybot314.ru/tekegram_catalog/

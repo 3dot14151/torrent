@@ -1,3 +1,61 @@
+###  Публикация: 1850056   (1054014) от 25.01.2026
+
+VA - Breeze & Echoes: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pier-O - White Sands (Original Mix) (5:13)
+02. Marga Sol, Digby Jones - What I Need (Original Mix) (4:38)
+03. Soultekk - Nizza (MidNight Sax Mix) (4:36)
+04. Lennart Richter - Ride Along (Original Mix) (3:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF415F90EA381E7393E9188BF7BDC23E698C785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850144   (1053959) от 26.01.2026
+
+VA - Best Chillout Music - Fashion Forward Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kaxamalka - Bugambilia (04:00)
+ 02 - Breviarium Musicae - Aubade (04:10)
+ 03 - Vis et Spes - Love Play (04:30)
+ 04 - Lichterloh - Douceur (04:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B1FABB5AD257E858E598A9F45F8BDA34BE47EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848937   (1053213) от 19.01.2026
 
 VA - The Orient Collective: Oasis Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -687,64 +745,6 @@ GARRISON (Игорь Савосин) - Musical Contact (2022) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F57E3D608D58E818635B98FB1251430063DE8236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602951   (1045846) от 08.01.2023
-
-VA - Lounge Music Bar and Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vis Et Spes - Served With A Flourish (6:03)
-02. Aqua Mundi - Pescadores De Altura (5:54)
-03. Roesselsprung - Among The Firs (5:46)
-04. Ackeret - Surprisingly (6:03)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2355D6177DD999A887A3FBCA7D3747A43837FDDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603707   (1045669) от 10.01.2023
-
-VA - Relax 'n Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Moli - Believe in Yourself (Remix) (4:59)
-02. Marc Hartman - We're Jammin (4:32)
-03. Marco Moli - Excuses (4:16)
-04. DJ Deviance - Water to the Sea (3:51)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50CE8595D8F13758EF5361456ADF20F60BA1A73
 ```
 
 https://mybot314.ru/tekegram_catalog/

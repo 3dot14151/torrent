@@ -1,3 +1,32 @@
+###  Публикация: 1007377   (823307) от 14.04.2016
+
+Rage - My Way (2016) Single [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Way    04:20
+02. Black In Mind (2015)    04:10
+03. Sent By The Devil (2015)    04:43
+04. Apuesto A Ganar (Spanish Version Of My Way)    04:21Жанр: Power MetalПродолжительность: 00:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17E6621DE8821AE5B54C5721587EDB34801D9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007371   (823228) от 14.04.2016
 
 Otep - Generation Doom (2016) Deluxe Edition [MP3|320 кб/с] <Nu-Metal>
@@ -713,35 +742,6 @@ Leaves' Eyes - Sign of the Dragonhead (2018) [MP3|320 Kbps] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A50E36747EDF9FF68D8252C69666EA0023FA44F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009830   (808240) от 22.04.2016
-
-Elmsfire - Hour Of The Wolf (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye To Eye
-02. Dead Night Misery
-03. Rapophis
-04. The Wheel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20ACD96DEB42CBE9558712CF1AB95AF09845D960
 ```
 
 https://mybot314.ru/tekegram_catalog/

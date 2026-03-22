@@ -1,3 +1,177 @@
+###  Публикация: 1530685   (244528) от 12.02.2022
+
+VA - German Top 100 Single Charts 11.02.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_244528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAYLE - abcdefu
+02. Glass Animals - Heat Waves
+03. Sido - Mit Dir
+04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636A0B708CC40DFDD95CA20F2673B71DD1FF80D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567113   (244410) от 01.08.2022
+
+VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. НАТОМИ - Давно и не правда (3:21)
+02. P. PAT - Как звёзды (3:20)
+03. SOKOLL & MAIS - В дурака (2:25)
+04. Nastya Ramy - Зачем мне (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D872DCA64FCDD91D863E932ECB7D2A8210CC8A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072524   (244182) от 13.11.2016
+
+VA - Музыкальный Заряд 4 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Milen - Гори Огнем 4:45
+002.Inna & 3 Sud Est - Mai Stai 3:22
+003.Кристина Орбакайте - Я Гадаю На Ромашке 3:52
+004.Zip92 Pres. Диана Зварич - Слишком Привыкла 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6513971C1A62A519D3D38E5A7EC20E969B69070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072021   (244117) от 13.11.2016
+
+VA - Горячий хитовый драйв. Выпуск 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244117.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Xana - Красивыи Мужчина 4:00
+002.Goo Goo Dolls - So Alive 3:16
+003.Элен - Только Тебя 3:16
+004.Анжелика Начесова - Разорву 3:16(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6933907B7F8D1347FCBEC3BA04B69EF69FFF29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072623   (244097) от 13.11.2016
+
+VA - Осенний динамит. Русский выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244097.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Трио S Klass - Леди Вамп 4:28
+002.Андрей Бельгиец - Как Ты Хочешь 3:57
+003.Алла Костина Feat. Total - Не Я 3:32
+004.Джинсовые Мальчики - Голуби 3:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDF26739F43395999ED46795E7833178F25DE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074274   (243977) от 19.11.2016
+
+VA - Горячий хитовый драйв 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243977.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Татьяна Маргай - Обними 4:09
+002.Винтаж - Немного Рекламы 3:40
+003.Alas Lito Feat. Vingilevskiy - Белица 3:37
+004.Natan - Я Тебя Выберу 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E479BCB2C4ABBA24AF5E2171DD28505400724875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074268   (243958) от 19.11.2016
 
 VA - Осенняя дискотека по-русски - 4 (2016) [MP3|256 Kbps] <Pop>
@@ -571,180 +745,6 @@ VA - German Top 100 Single Charts 24.04.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E4B4CE173C7589170351B1484AA949BFAF17360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121287   (241001) от 02.04.2017
-
-VA - Сотка популярных весенних хитов от Европы Плюс выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241001.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Дворянинов - На Желанье 3:25
-002. Дмитрий Данилин - Ты Ушла 3:26
-003. Milen - Гори Огнем 4:45
-004. Magic - Плохое Поведение 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029CAFFC341D3ADD7199B3DDC30169A9FCD7F46A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571449   (240123) от 21.08.2022
-
-VA - Юрий Шатунов и другие... (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Шатунов - А лето цвета (4:03)
-02. Андрей Картавцев - А любовь не при чём (3:42)
-03. Milen - Ночь седая (3:46)
-04. ФЕДЯ - Белые розы (3:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3480E11344AF8F03D5E88A6141580E74B1AE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548332   (237732) от 03.05.2022
-
-VA - MEGA HITS 2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Animals - Heat Waves 3:59
-02. Felix Jaehn, The Stickmen Project, Calum Scott - Rain In Ibiza 2:22
-03. Justin Bieber - Ghost 2:33
-04. Olivia Rodrigo - Good 4 U 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4593662B03C155459A4B18F90278690132E8CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574155   (237420) от 03.09.2022
-
-VA - 80s Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Soul, Post-Disco, Synth-pop, Euro House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eurythmics, Annie Lennox, Dave Stewart - Sweet Dreams (Are Made of This) (Remastered)
-02. Whitney Houston - I Wanna Dance with Somebody (Who Loves Me)
-03. Earth, Wind & Fire - Let's Groove
-04. Soft Cell - Tainted Love(   Читать дальше...   )Жанр: Soul, Post-Disco, Synth-pop, Euro HouseПродолжительность: 03:47:54 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70A9F722F3F14DA9F96EA9B9511D9B8F30CECDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552603   (233801) от 21.05.2022
-
-VA - Свежий Русский Хит от ALEXnROCK часть 10 (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сборника свежей попсы. В него вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 10я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Шамиль Кашешов - Люби (Dj Ikonnikov E.x.c Version)
-02. Doni, Intellegent, Zvika Brand - Банда
-03. Глюкоза - Пати Экзотика
-04. Filatov & Karas, Лигалайз - Будущие Мамы 2.0(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D89848E45C89F4ABCC2AF5491089C7BFEA8C4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581574   (231029) от 06.10.2022
-
-VA - Осень на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sofia Reyes feat. Jason Derulo & De La Ghetto - 1, 2, 3 (3:21)
-02. James Hype, Miggy Dela Rosa - Ferrari (3:06)
-03. Purple Disco Machine feat. Sophie And The Giants - In The Dark (Denis Bravo Radio Edit) (3:10)
-04. Shakira feat. Rauw Alejandro - Te Felicito (Amice Remix) (3:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5157A80C416961D87375DBF9CFEDFAE72994A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

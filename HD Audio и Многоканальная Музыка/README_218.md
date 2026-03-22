@@ -1,3 +1,322 @@
+###  Публикация: 1723913   (56246) от 17.05.2024
+
+New Kids On The Block - Still Kids (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56246.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:34] 01.  Magic
+[3:02] 02.  Summer Love
+[3:00] 03.  Long Time Coming
+[2:59] 04.  Kids(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679B8D96FFFA1511AB7B75145D9E932F6AE5C550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724149   (56132) от 18.05.2024
+
+Муслим Магомаев - Лирика (1974) 2023 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Советская эстрада, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56132.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:34] 01.  Благодарю тебя
+[3:27] 02.  Одинокая
+[4:04] 03.  Есть у любви печали
+[3:24] 04.  Вечерний эскиз(   Читать дальше...   )Жанр: Советская эстрада, PopПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04839316A771C075C5A351AB852C7048DE97612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724353   (56042) от 19.05.2024
+
+Jazz Erotic Lounge Collective, Jazz Music Collection - Erotic Improvisation: Sensual Rhythms of Instrumental Jazz, Sexy Evening, Romantic Dinner (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:26)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC2EE6022EAED6553935B9FFFF3D67B363E8CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725420   (55509) от 24.05.2024
+
+twenty one pilots - Clancy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop, Pop Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Overcompensate [00:03:56]
+02 - Next Semester [00:03:54]
+03 - Backslide [00:03:00]
+04 - Midwest Indigo [00:03:16](   Читать дальше...   )Жанр: Indie Pop, Pop Rock, ElectronicПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78CEBCF8350393680B1035087DCDCFD9979DA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595750   (55449) от 25.05.2024
+
+Slash (Saul Hudson, Slash's Snakepit, Velvet Revolver) - Studio Albums (10 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saul Hudson, более известный по сценическому псевдониму Slash (род. 23 июля 1965 года) — американский рок-музыкант британского происхождения. Наиболее известен как гитарист американской хард-рок-группы Guns N’ Roses, с которой он добился всемирного успеха в конце 1980-х и начале 1990-х годов. В поздние годы своего участия в Guns N' Roses сформировал сайд-проект Slash's (   Читать дальше...   )2010 - Slash
+2012 - Apocalyptic Love
+2014 - World On Fire
+2018 - Living The DreamЖанр: Heavy Metal, Hard Rock, Glam MetalПродолжительность: 10:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE5A2BCB7155BAAA65E36CEE3460440045CC738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725844   (55307) от 26.05.2024
+
+Анна Герман - Анна Герман. Избранное (2019) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Советская эстрада, Поп>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Надежда (03:46)
+02.  Письмо Шопену (04:08)
+03.  Весна (02:23)
+04.  Не спеши (03:32)(   Читать дальше...   )Жанр: Советская эстрада, ПопПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121AC779F0A8410E7BEE43CFF0030A65490A9736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642533   (54664) от 01.06.2024
+
+Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eternal Tears of Sorrow — финская группа, исполняющая музыку в стиле симфонический дэт-метал.1997 - Sinner's Serenade
+1998 - Vilda Mannu
+2000 - Chaotic Beauty
+2001 - A Virgin And A WhoreЖанр: Melodic/Symphonic Death MetalПродолжительность: 05:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481279DD7028C9857300A7DD62000F5BE49EB494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585610   (54552) от 02.06.2024
+
+Snoop Dogg & Dj Drama - Gangsta Grillz: I Still Got It (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:11]
+02. I'm From 21st Street [00:03:15]
+03. I'll Holla Back [00:02:52]
+04. I Still Got It [00:03:05](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0049905720DDF5B965BD87D22A9E1FE5F7E6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455067   (54551) от 02.06.2024
+
+com.pass - Полюса (2021) [FLAC|Lossless|WEB-DL|tracks] <Russian Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вступление [00:01:22]
+02 - Ошибка [00:03:33]
+03 - Объект №0 [00:03:48]
+04 - Демон [00:03:33](   Читать дальше...   )Жанр: Russian MetalcoreПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEEB8EE4204260416A223C8929A138DCD84D35A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728346   (54180) от 06.06.2024
+
+Bon Jovi - Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Legendary (00:04:05)
+02 - We Made It Look Easy (00:03:15)
+03 - Living Proof (00:03:39)
+04 - Waves (00:03:52)(   Читать дальше...   )Жанр: Pop, Hard RockПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF439BB816596B5C62AE4715A70B5A9998CD5DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728371   (54167) от 06.06.2024
+
+Pet Shop Boys - A new bohemia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Électronique>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A new bohemia (radio edit) [00:03:45]
+02. It's not a crime [00:03:17]
+03. I've got plans (involving you) [00:04:26]
+04. A new bohemia (Alex Metric remix) [00:06:35](   Читать дальше...   )Жанр: ÉlectroniqueПродолжительность: 00:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E623A8AED5C899145283249C53B05EE2A91D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727750   (54153) от 06.06.2024
 
 Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
@@ -427,323 +746,6 @@ Ablaze My Sorrow — мелодик-дэт-метал группа из Фаль
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F59AA77849FFF45C7283D0505CBB9C992CFFF1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659088   (53554) от 12.06.2024
-
-Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bon Jovi — американская рок-группа из Нью-Джерси, образованная в 1983 году в Сейревилле, штат Нью-Джерси.
-После того, как одно из первых демо Джона Бонджови, «Runaway», стало хитом на радио Джерси, молодой музыкант в 1983 году сформировал группу Bon Jovi. Группа впоследствии стала одной из самых успешных рок-групп десятилетия, заработав огромное количество поклонников (   Читать дальше...   )1984 - Bon Jovi
-1985 - 7800° Fahrenheit
-1986 - Slippery When Wet
-1988 - New JerseyЖанр: Glam Metal, Hard RockПродолжительность: 29:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A801F54B7F65AE6063232A073EE2C9295F3481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729990   (53393) от 14.06.2024
-
-Moby - always centered at night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. on air (4:12)
-02. dark days (3:33)
-03. where is your pride? (3:39)
-04. transit (5:11)(   Читать дальше...   )Жанр: Downtempo, Ambient, ElectronicПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572A859ECE360EBFE4869F2559D0BE77CF8BAE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730154   (53301) от 14.06.2024
-
-David Bowie - Rock 'n' Roll Star! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Looking For A Friend (Arnold Corns Version - 2022 Mix) (00:03:11)
-02 - Hang On To Yourself (Early Ziggy Session Take) (00:02:41)
-03 - Star (aka 'Stars') (Alternative Version - Take 5) (00:02:42)
-04 - Lady Stardust (Alternative Version - Take 1) (00:03:27)(   Читать дальше...   )Жанр: RockПродолжительность: 5CD, 03:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8924C14F6A56E207FAA6E6C73AF24A8248E32557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730084   (53297) от 14.06.2024
-
-Lindsey Stirling - Duality (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil Twin (3:48)
-02. Eye Of The Untold Her (3:41)
-03. Surrender (3:22)
-04. Serenity Found (4:24)(   Читать дальше...   )Жанр: Classical Crossover, Pop, InstrumentalПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABCCFD96A39D9E16BF44BA267423EDF830C68DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730360   (53202) от 15.06.2024
-
-Seal - Seal (1994) Deluxe Edition, 2024, Warner Records Inc.[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring It On (Alternate Version) [00:05:35]
-02. Reality [00:04:34]
-03. Prayer for the Dying (Alternate Version) [00:05:30]
-04. Kiss From a Rose (Alternate Version) [00:05:10](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 02:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F913CAA91E895445C395875422EAAF102D9751C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730549   (53101) от 16.06.2024
-
-Fire From The Gods - Soul Revolution - The Collabs (2022) Deluxe, 2024, Better Noise Music [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Alternative Metal, Rap Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Revolution (feat. Yung Mo$h) [00:03:34]
-02. SOS (Alternative Version) [00:03:38]
-03. Thousand Lifetimes (feat. Corey Glover of Living Colour) [00:03:10]
-04. Double Edged Sword (feat. Sylar) [00:03:21](   Читать дальше...   )Жанр: Alternative Metal, Rap MetalПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90569A7EB778A4551684A0B16FD54D2540493985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730637   (53089) от 16.06.2024
-
-Bob Dylan - Good As I Been To You (1992) SACD, Reissue, Remastered, 2024, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Folk-Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie & Albert
-02. Jim Jones
-03. Blackjack Davey
-04. Canadee-I-O(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF2538A71D0A67B8C906BE357DE33C021223ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730711   (53029) от 17.06.2024
-
-Michael Jackson - Thriller (1982) SACD, Reissue, Remastered, 2022, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Disco, Funk, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin'
-02. Baby Be Mine
-03. The Girl Is Mine (with Paul McCartney)
-04. Thriller(   Читать дальше...   )Жанр: Disco, Funk, Soft RockПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F644A78B3401F6374995F61C380B21BA578003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730670   (53004) от 17.06.2024
-
-Звёздный Ансамбль Бардов России - Песни Нашего Века. Части I - III (1998 - 2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ChansonПродолжительность: 02:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDB51CE020A0A9C1B548DE2E7148EDC658A2C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730692   (53001) от 17.06.2024
-
-Riff Kitten - Chaos Parade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello, Stranger (2:46)
-02. Chaos Parade (3:15)
-03. Mistakes Were Made (3:04)
-04. Love Buzz (2:48)(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364B279798BA1B874451636F414874F4927D76BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730690   (52995) от 17.06.2024
-
-Connolly Hayes - Remember Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank's Song (3:25)
-02. Secret (5:01)
-03. Something's Gotta Matter (3:55)
-04. Midnight in Harlem (Live) (7:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC84A06C2D2DC47B14BC3F8A23F08C4A0A7EE865
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,319 @@
+###  Публикация: 1777553   (70990) от 06.02.2025
+
+Jean-Maxime Pinta Quintet - For the Peace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jake Naugle - For the Peace (4:17)
+02.  Jake Naugle - He's the Man (5:17)
+03.  Christian F. Gangeri - Red Chief (4:36)
+04.  Christian F. Gangeri - Birds Can Fly Away (3:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BA949307E9E8779EA76AA73970571057AFD57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777573   (70988) от 06.02.2025
+
+Kimmo Salminen - Love House (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love House (7:52)
+02.  Space Flower (7:27)
+03.  Harakiri (5:14)
+04.  Stream (6:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A2784B8C9BEDE03AA137470083C804A068DD1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777709   (70987) от 06.02.2025
+
+Nico's Trio - Standard's Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Groovin' High (4:18)
+02.  Jayne (4:24)
+03.  Travaglini Stefano - Let's Cool One (5:49)
+04.  Travaglini Stefano - Four (4:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6316D6F733E33A33529BCC0D2723BB042277DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777515   (70986) от 06.02.2025
+
+Bill Moio - Try This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Try This (6:06)
+02.  720 Berkeley (5:50)
+03.  I've Heard It All Before (4:57)
+04.  Need To Know (5:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC878647C4AB8A8A7F8C6ABFD38B838FBA98789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777712   (70983) от 06.02.2025
+
+Peter Erskine & JAM Music Lab All-Stars - Vienna to Hollywood: Impressions of E.W. Korngold & Max Steiner (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Herwig Gradischnig - March of the Merry Men (7:07)
+02.  Danny Grissett - Sterbelied (from Lieder des Abschieds, Op. 14) (6:13)
+03.  Bertl Mayer - Old Spanish Song (5:32)
+04.  Danny Grissett - The Boys Go to Play (5:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A0441F82082563FE04FBA40E16DB09AED11C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777707   (70982) от 06.02.2025
+
+Nel Begley - Small Flame (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cherokee (4:09)
+02.  A House Is Not A Home (6:17)
+03.  The Gentle Rain (5:09)
+04.  Lucky To Be Me (5:51)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E49ABDBB604AF8FAAA9727CCB89D94AFBCCDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777556   (70977) от 07.02.2025
+
+Dream Theater - Parasomnia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 In The Arms Of Morpheus (5:22)
+02 Night Terror (9:55)
+03 A Broken Man (8:30)
+04 Dead Asleep (11:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756E0005A5A96719E3C681EF84A9CD9C774C9940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777820   (70973) от 07.02.2025
+
+Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canterra - метал-группа с женским вокалом из Лейпцига, Германия.2016 - First Escape
+2020 - HeartmachineЖанр: Symphonic/Gothic MetalПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFEEF1BC4E01952022114C0AC77CCE5DC405945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777909   (70949) от 07.02.2025
+
+Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Train [00:04:04]
+02. No Pain, No Gain [00:03:35]
+03. Battle Cry [00:04:00]
+04. Megatrue [00:05:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADC7DE29F1BE887B28C2CFA05D59B671EF1A42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777826   (70939) от 07.02.2025
+
+Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamland — группа из Швеции, играющая в стиле мелодик-пауэр-метал.2005 - Future's Calling
+2007 - Eye For An Eye
+2009 - Exit 49Жанр: Power MetalПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB62A4D72FF04AC9CFEBF47D5A2FBE15E9213F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777896   (70938) от 07.02.2025
+
+Beans & Fatback - Hold Fast (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black and Blue (02:50)
+ 02 - Tight Ripped Jeans (03:08)
+ 03 - Sweet Unknown (02:34)
+ 04 - Turn Around (02:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5564E1041A584774F1C5790C53857B5635DB22B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778079   (70885) от 08.02.2025
 
 Thorbjorn (Thorbjørn) Risager and The Black Tornado - House Of Sticks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -427,325 +743,6 @@ Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4583DDDAB3DDFC9B3566715980B0860BED5B984F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779733   (70633) от 14.02.2025
-
-Ginger Evil - The Way It Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rainmaker (3:31)
-02.  Dead On Arrival (4:01)
-03.  Shame Old (3:33)
-04.  Flames (4:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D55C4E5ADEA71F76F86DAC4614E9DFCB5ACBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779858   (70594) от 15.02.2025
-
-Blank & Jones & Marc-George - Rediscovered Works (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Down (Rediscovered)
-02. Lullaby (Rediscovered)
-03. Nuits Blanches (Rediscovered)
-04. Lumen Ecclesie (Rediscovered)(   Читать дальше...   )Жанр: Electronic, Downtempo, Chill outПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1296C80B7E60D3F63668ECA18A0DE6B4E95454A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779857   (70569) от 15.02.2025
-
-Jazzystics - It's a Mistake (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Love
-02. Ghost Open Road
-03. It's a Mistake
-04. My Love Has Gone (feat. 48th St. Collective)(   Читать дальше...   )Жанр: Jazz, Pop JazzПродолжительность: 00:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C0C5641363BB8BFBFED8A4A7EC4D620F40FBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779996   (70561) от 16.02.2025
-
-VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TT - Потерянный рай (spiller remake)
-02. Stark - You
-03. Party - Подари любовь
-04. Nek - La Vita E(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E75A1EC4D380373866CE73E20381F038050014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779518   (70542) от 16.02.2025
-
-The Chordettes - 2015 - The Greatest Hits (2025) Remaster, 2025, ZOROTY[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ballad, Vocal, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70542.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Runnin' Wild (00:01:44)
-✧ 02 - Alice Blue Gown (00:02:44)
-✧ 03 - Love Me and the World Is Mine (00:02:53)
-✧ 04 - Lonesome That's All (00:03:09)(   Читать дальше...   )Жанр: Ballad, Vocal, Easy ListeningПродолжительность: 01:11:54
-
-qobuz
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F0D764FAF6E40AA0AFC40E1AEA58EC8DC5069A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780102   (70523) от 16.02.2025
-
-The Wombats - Oh! The Ocean (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70523.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Sorry I'm Late, I Didn't Want To Come (00:03:19)
-✧ 02 - Can't Say No (00:03:12)
-✧ 03 - Blood On The Hospital Floor (00:03:06)
-✧ 04 - Kate Moss (00:03:33)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34B981C485B97D44E5E81121A26FCBC5CFBA1F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780131   (70517) от 16.02.2025
-
-Moonchild Sanelly - Full Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Hip-Hop, Funk Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Scrambled Eggs [3:47]
-02 - Big Booty [3:32]
-03 - In My Kitchen [2:44]
-04 - To Kill a Single Girl (Tequila) [3:35](   Читать дальше...   )Жанр: Electronic, Hip-Hop, Funk Soul, PopПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A87CC1CB20ED7B5C32756CCE9D30ADB8BDBCC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780100   (70516) от 16.02.2025
-
-Role Model - Kansas Anymore (2024) The Longest Goodbye, 2025, Interscope Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70516.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Writing's On The Wall (00:02:49)
-✧ 02 - Look At That Woman (00:02:43)
-✧ 03 - Scumbag (00:03:03)
-✧ 04 - Oh, Gemini (00:02:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F382828AEFEC46067DB9B95D10B12B6B249EE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780223   (70442) от 18.02.2025
-
-Robert Ascroft - Echo Still Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70442.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Faded Photograph (00:04:01)
-✧ 02 - Empty Pages (00:03:23)
-✧ 03 - Where Did You Go (00:04:15)
-✧ 04 - Should've Stayed in Bed (00:03:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039E7B8BDBABEF5FA00C709CA71821EEC59B86E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780426   (70441) от 18.02.2025
-
-Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infringement - группа из Осло, Норвегия, основана в 2015 году.2017 - Transition
-2019 - Alienism
-2024 - Black Science and White LiesЖанр: Progressive RockПродолжительность: 02:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EB588A761C5E97F4CCB7AB919819C9CDFD8FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780434   (70440) от 18.02.2025
-
-Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Innerspace - прог-рок коллектив, основан в Монреале, Квебек, Канада в 2009 году.2012 - The Village
-2017 - Rise
-2024 - The Last SignЖанр: Progressive RockПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B419DBBE1A7874884CE39AC8FC615F2F551AA459
 ```
 
 https://mybot314.ru/tekegram_catalog/

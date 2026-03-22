@@ -1,3 +1,61 @@
+###  Публикация: 1300624   (588033) от 08.05.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 11) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хас - Дикий Кач (3:13)
+02. Alyona Alyona - Відчиняй (2:37)
+03. Freel - Спалах (3:23)
+04. Артем Лоік - Суд Лінча (3:58)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB38825BBB277BA9EE51F547B0266870710D0278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302126   (582182) от 14.05.2019
+
+VA - R&B Universe: Soul Collection (2019) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Johnny C - Body Shook
+002. Cool Company - Be More Mad
+003. Curtis Roach - Spectacular
+004. Judis La Jiji - Je Ne Sais Pas(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25598E08FADCD5BFD3DCF8ED420F57935F00B5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302917   (576310) от 19.05.2019
 
 VA - German Top 40 DBC Deutsche Black Charts 17.05.2019 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
@@ -688,64 +746,6 @@ VA - Rhythm Of My Song (2019) [MP3|320 Kbps] <Pop, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3CF4E483AA0165E20C6388ADE1DB12E78832466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945282   (432952) от 10.10.2015
-
-Каспийский Груз - Белый (2015) [MP3|192-320 кб/с]<Rap, Hip-hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Табор уходит в небо
-02. Выдох, Выстрел
-03. Как у Буйнова
-04. На поражение(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D842B182D5CAA58EC8FD6AEF39B4430C73C7F7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324384   (425361) от 09.09.2019
-
-VA - My Whole Life: Hip-Hop Collection (2019) [MP3|320 Kbps] <Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425361.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Foreign Beggars - Flashback
-002. P.R.Ism - Round
-003. John Jiggs - Deer Season
-004. Kraantje Pappie - Controle(   Читать дальше...   )Жанр: Hip HopПродолжительность: 10:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C4344881053EB98E4443580F7CEA1E8D2B7B92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1235566   (558752) от 12.07.2018
+
+Teddy Charles - Seven Classic Albums (1956 - 1959) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558752.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Variations On A Motive By Bud [4:19]
+02. Wailing Dervish [4:29]
+03. Further Out [5:42](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 04:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8625D809940D528AFEEB4988929B4D744863A40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305202   (558386) от 29.05.2019
+
+John Kirby - 1941-1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coquette [3:02]
+02. Royal Garden Blues [1:45]
+03. Close Shave [2:32]
+04. Bugler's Dilemma [2:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FCF662F4E36B29C9BAC73A624F39768FA5F460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153591   (558266) от 27.07.2017
+
+Wes Montgomery - Down Here on the Ground (1989) [FLAC|Lossless|image + .cue] <Hard Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Song (2:19)
+02. Georgia On My Mind (2:44)
+03. The Other Man's Grass Is Always Greener (2:34)
+04. Down Here On The Ground (3:38)(   Читать дальше...   )Жанр: Hard Bop, Contemporary JazzПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64DB72CEFCE8B2F18C7E82D9D3B63305D43D69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153584   (558255) от 27.07.2017
+
+Miles Davis - Tutu (1986) [FLAC|Lossless|image + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tutu (5:15)
+02. Tomaas (5:32)
+03. Portia (6:18)
+04. Splatch (4:45)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0820F2497800A71BA23A3AE8B1F54A9D606960CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153582   (558204) от 27.07.2017
+
+Miles Davis - Seven Steps to Heaven (1992) [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basin Street Blues (10:28)
+02. Seven Steps To Heaven (6:22)
+03. I Fall In Love Too Easily (6:45)
+04. So Near, So Far (6:58)(   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4129406AEF491231B7E4A78AF1D2A11959761F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153590   (558190) от 27.07.2017
+
+Kenny G - Breathless (1992) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joy Of Life (4:19)
+02. Forever In Love (4:58)
+03. In The Rain (4:59)
+04. Sentimental (6:34)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F47A2AC0BFF59A9558428257F935AD3BE9177F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045639   (558165) от 24.08.2016
 
 Franco Cerri - Chitarra (1964) 2008, DIW Records[FLAC|Lossless|tracks + .cue] <Bop>
@@ -567,180 +741,6 @@ Slide Hampton & The Jazzmasters - Dedicated To Diz (1993) Telarc Jazz [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E18E6BF151D5E88266E32C5207E3B6D9CB58E099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306939   (555371) от 07.06.2019
-
-Paolo Fresu, Richard Galliano, Jan Lundgren - Mare Nostrum III (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues sur Seine (04:53)
-02. Pavese (04:56)
-03. Love Land (04:23)
-04. The Windmills of Your Mind (03:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C360FBDDC4D6DD792217440F7ADA89EB0C91B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306896   (555370) от 07.06.2019
-
-Nils Petter Molvær (Nils Petter Molvaer) - Solid Ether (2000) [FLAC|Lossless|tracks + .cue] <Downtempo, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Indeed (7:30)
- 02. Vilderness 1 (7:49)
- 03. Kakonita (5:02)
- 04. Merciful 1 (1:03)(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Drum n Bass, Contemporary JazzПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130584D3CD94B20643FAD26DF3AAFD4011ADD99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307381   (555107) от 09.06.2019
-
-Eric Alexander & Lin Halliday - Stablemates (1996) Delmark Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Eternal Triangle [7:39]
-02. Blue Bird [8:47]
-03. Polka Dots And Moonbeams/Old Folks [10:39]
-04. Speak Low [8:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D4D7CE1DF49FF8E298F1BD0A8E9DEE3AD87081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307520   (555085) от 09.06.2019
-
-3rd Force - Driving Force (2005) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe in Me (Feat. Brian Hughes) (5:19)
- 02. Ask Me Why (Feat. Eric Darius) (4:28)
- 03. Real Thing (4:31)
- 04. You Got It (Feat. Marc Antoine) (4:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24723AD842289777943A5A4C91C97C886A603E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236330   (554728) от 16.07.2018
-
-VA - Jazz For A Summer Day Vol. 2 (Jazz Lounge Vintage Cafe) (2018) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Velvet - Lo Greco Bros, Julia St. Louis
-02. Staying for Good - Papik, Fabio Tullio
-03. Mucuripe - Nu Braz, Jesse Sadoc
-04. There's Nothing Like This - Paolo Marini Latin Jazz Combo(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 02:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98067E47F7420B4850795EAB70EBB177FD2D41A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236248   (554727) от 16.07.2018
-
-Ray Charles - Essential Original Albums (1959 -1962) 3CD, 2016, Masters Of Music [FLAC|Lossless|tracks + .cue] <Soul Jazz, Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554727.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. From The Heart [3:39]
-02. I've Got News For You [4:35]
-03. Moanin' [3:21](   Читать дальше...   )Жанр: Soul Jazz, Vocal Jazz, Big BandПродолжительность: 03:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DCE5915682D5518DAB68BC12DF8EF1783BD582
 ```
 
 https://mybot314.ru/tekegram_catalog/

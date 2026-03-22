@@ -1,3 +1,32 @@
+###  Публикация: 1604093   (1045285) от 14.01.2023
+
+Ted Hammond Orchestra - Hammond Evergreens (2022) Vol. 1, 2 [MP3|320 Kbps] <Hammond, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stayin' Alive (Original Mix) [02:53]
+02. Summer Nights (Original Mix) [03:39]
+03. Kiss You All Over (Original Mix) [03:15]
+04. The Devil Sent You To Lorado (Original Mix) [03:09](   Читать дальше...   )Жанр: Hammond, InstrumentalПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB6EC5F84FD07AC93F30E5578607A324BB12561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604704   (1044946) от 17.01.2023
 
 Канцлер Ги - Страшная сказка (2010) [FLAC|Lossless|image + .cue] <Folk-Rock>
@@ -713,35 +742,6 @@ Gabriella Quevedo - Gabriella’s Acoustic Arrangements (2020) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CACE22C23373E01D94FF0BC8A19A255B5CEF499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616678   (1036112) от 03.03.2023
-
-VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Era - Era
-02 - Enigma - The Roundabout
-03 - Deep Forest - Bohemian Ballet
-04 - Sacred Spirit - Legends(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743D78AF4985456382B4F16BEC15DDCF8DADA702
 ```
 
 https://mybot314.ru/tekegram_catalog/

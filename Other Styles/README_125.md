@@ -1,3 +1,148 @@
+###  Публикация: 138183   (351861) от 05.10.2019
+
+Норд-Ост [Полная версия на трёх компакт-дисках] (2005) [FLAC|Lossless|image + .cue] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это возвышенная и драматическая история любви, в которой, как в капле воды, преломляется история великой страны и великих открытий.01. Увертюра
+02. Гибель почтальона
+03. пристань
+04. Московский скорый(   Читать дальше...   )Жанр: OSTПродолжительность: 02:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB45D875D38C10FC2AC6FDFF89B3864F44D790C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072077   (351835) от 13.11.2016
+
+Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival (02:51)
+02. Heptapod B (03:43)
+03. Sapir- Whorf (01:17)
+04. Hydraulic Lift (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758A2FCDC9C8749F14B459382A5189D692EF5689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072432   (351831) от 13.11.2016
+
+Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [FLAC 2.0|48/24|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shells Landing (01:30)
+02. Around The Clock News (01:45)
+03. The Shell (03:12)
+04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE9BB24C397390DE7ADA3DF3CE5B08C58FEFD85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072434   (351715) от 13.11.2016
+
+Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shells Landing (01:30)
+02. Around The Clock News (01:45)
+03. The Shell (03:12)
+04. Approaching The Shell (09:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0409D2382028CBF24D22EB7A319F64D1314AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179243   (351518) от 30.10.2017
+
+Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Affirmation (3:15)
+02. Denials and Accusations (5:57)
+03. Touching Planet Earth (5:31)
+04. Blind Panic (4:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA702F9BD36A48AD6015337407C53498CBB2C5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257009   (349925) от 24.10.2018
 
 Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
@@ -606,148 +751,6 @@ VA - My Love My Guitar. The Best of Acoustic Guitar (2006) [MP3|320 кб/с]<Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F803EAF139FB9F41E37F98881A50292B4E3044A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330007   (345612) от 08.10.2019
-
-Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Soundtrack) (2004) [MP3|320 Kbps] <Classical, Baroque>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отношения между Людовиком XIV, Люлли и Мольером, лежащие в основе фильма "Король танцует", несомненно, уникальны в истории искусств. Если летописцы, историки и романисты много вышивали вокруг этой встречи, то факты еще интереснее, чем легенда. Ибо речь идет не только о встрече мецената, музыканта и драматурга. Благожелательная случайность сделала все лучше, (   Читать дальше...   )01. Te Deum Motet a deux choeurs (02:16)
-02. La Bocanne primitive (01:43)
-03. La Bocanne compliquee (01:06)
-      .....Опера Фаэтон(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578062   (345384) от 23.09.2022
-
-VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Picture, OST [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Hard Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Retaliators - Sometimes If You’re Lucky… It’s Better to Keep Evil Alive (0:22)
-02. Papa Roach - The Ending (3:29)
-03. The Retaliators - We Have to Get out of Here… Those Aren’t Zombies… (0:09)
-04. The Hu - This Is Mongol (3:44)(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Hard RockПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A5EBD5F50F3692DB41EE1893FBB9F72A32B6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257119   (345355) от 26.10.2018
-
-Thom Yorke - Suspiria (Music for the Luca Guadagnino Film) (2018) Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: IDM, Experimental, RockПродолжительность: 01:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2189E0D403FD5C0A841EDE37ACF615302930309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257239   (345182) от 26.10.2018
-
-Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasm 05:53
-02. Oyarsa (ft. Timbre) 06:52
-03. Aurora 02:49
-04. Immersion 02:56(   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A55487E654FF2F0D7E9BE2C6709F85664E1ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073547   (344639) от 16.11.2016
-
-Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Eight (Feat. Nanuk) (02:18)
-02. The Omega Point (05:39)
-03. Diving (02:52)
-04. The Die Is Cast (Feat. Mark Josher) (04:17)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F62D8EF347025D2D9CC3A89B09DBFD4B3082AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,283 @@
+###  Публикация: 474758   (98168) от 31.03.2012
+
+VA - House Vip (24.03.12) [MP3|320 кб/с]<Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98168.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2 Edit - Mee Lortimer (Stix Remix) (5:00)
+ 2. Adele - Rolling In The Deep (JAY FOKIN Remix) (4:48)
+ 3. Bodybangers feat. Gerald G - Set The Night On Fire (Rene Rodrigezz Remix) (5:21)
+ 4. Christopher S feat. Jamayl Da Tyger - Jump! (Mike Candys Remix) (4:36)
+ 5. DAB, Sissa, Chris Cobra - I Wonder (Chris Cobra Remix) (4:26)
+ 6. Dada Life – Kick Out The Epic Motherf..ker (Extended Vocal Mix) (5:50)
+ 7. Fast Foot feat. Dubble JD - Fuck (Original Mix) (5:02)
+ 8. Laidback Luke, Arno Cost & Norman Doray - Trilogy (Sam O Neall & C6 Remix) (6:16)
+ 9. Spencer & Hill - Miami Girlz (Club Mix) (5:48)
+ 10. Sygma, Alessio Silvestro, Big One - Another Brick in the Wall (Alessio Silvestro Alternative Remix) (5:09)24.03.12Жанр: Electro HouseПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E505B4578C129DF158FAAB0D021163BA02D22FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474762   (98166) от 31.03.2012
+
+VA - House Vip (26.03.12) [MP3|320 кб/с]<Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bit Twisted - C'Mon (Original Mix) (5:57)
+ 2. Christopher S feat. Gianina - Hypnotic Tango (Christopher S & Mike Candys 2012 Rework) (4:20)
+ 3. Edyta Nawrocka - Escape This World (David No Fuck & Vnalogic Remix) (5:07)
+ 4. Gotye - Somebody That I Used To Know (Sundave & Victor Teeg Remix) (6:18)
+ 5. Ian Davecore & Overdrive - Together (Novik Electro Remix) (3:50)
+ 6. Jessie J - Domino (The Scene Kings Remix) (5:03)
+ 7. Jim Marlaud feat. Ambra – The Night (Extended Mix) (4:49)
+ 8. John Dahlback - Bingo (DJ MELNIKOFF Remix) (3:12)
+ 9. Matt Pryde Feat. Candy - Zombie (Matt Pryde & Sublevel Remix) (5:17)
+ 10. The Digital Monkey - Radeon (Danny Blaze Remix) (6:16)26.03.12Жанр: Electro HouseПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9228D14942BB7986B027AD62334D90601A050654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474760   (98160) от 31.03.2012
+
+VA - House Vip (25.03.12) [MP3|320 кб/с]<Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Antoine Clamaran, Vladimir K - Bub (Original Re Edit By Antoine Clamaran) (6:48)
+ 2. Bootyman Feat. Danny Gee - For A Life With You (MD Electro Remix) (6:11)
+ 3. Demon Groove feat. Sonny Black - Crazy Glue (Original Mix) (5:50)
+ 4. Porn Stars & Jay Jacob - Time To Party (FTampa Remix) (5:37)
+ 5. PTN, Deface - Droid (PTN Remix) (5:05)
+ 6. Sebastian Ivarsson - Mo Drinks (Rolvario Remix) (5:10)
+ 7. Slin Project & Christopher S Ft. Tommy Clint - Tear Down The Club (Original Mix) (5:18)
+ 8. Sven Laakenstyk - Akomashi (Original Mix) (5:36)
+ 9. Tocadisco feat. Julian Smith - That Miami Track (Original Mix) (6:22)
+ 10. York, Lifted Emotion - iPhonic (Chris Schweizer Remix) (7:26)25.03.12Жанр: Electro HouseПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AEAB2A494ECB1541157A9849FAB8BD81DFB5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476058   (98158) от 31.03.2012
+
+VA - Клубные Новинки Vol.57 from AGR (2012)
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Format B - Atomizer (Sebastien Leger Remix)
+02. Vitodito - Fede (Michael Elliot Remix)
+03. John O'Callaghan & Neptune Project - Rhea (Suncatcher Extended Remix)
+04. Alex D'Elia, Nihil Young - Rave-O-Lution (Dualitik Remix)
+05. Umek & Beltek - Touch After (Original Club Mix)
+06. Giuseppe Francaviglia - Crown (Original Mix)
+07. Omnia feat. Melissa Loretta - Halo (Original Mix)
+08. Angger Dimas feat. Polina - Release Me (Vandalism Remix)
+09. Fedde Le Grand, Deniz Koyu & Johan Wedel - Turn It (Original Mix)
+10. Hampenberg feat. Pitbull, Fatman Scoop & Nabiha - Raise The Roof (Hawkins & Ravemod Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC44194D5A2B02B96630BC1317B96833A1A4CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474484   (98157) от 31.03.2012
+
+VA - Klubnye novinki Vol.54 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parker & Hanson - Afterthought
+02. JPS - Hear Me Out (Steve Brian Remix)
+03. Oscar Akagy - El Ritmo 1983 (Mijail Candyloop Remix)
+04. Fergus Keogh feat. Tiff Lacey - Darkest Hours (Erick Strong Remix)
+05. Q.u.a.k.e. - Move & Groove (Original Mix)
+06. Smoothiesforme - Forbidden (Stereopole Remix)
+07. Da Fresh & Max Freegrant - Barberry (Andrea Bertolini Remix)
+08. Leven Mervox - Shrinked Strings (Original Mix)
+09. Neomotion - Moonlight (Original Mix)
+10. Second Way - Tokyo Samurai (Airsoul Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA8EA1DBDDF00176EFD004C2C6ABB2B46670D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473100   (98144) от 31.03.2012
+
+VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Generic - Atmosphere 07:24
+02. Faders vs Audiotec - Voices (original mix) 07:00
+03. Hi Profile - Against Humanity 08:06
+04. Neelix - 7th Grade 06:03
+05. Erotic Dream - She Wants A Wash Machine 06:30
+06. Ticon - Balkan Tourist (Paul Thomas And Myke Smith remix) 06:06
+07. Ital - Conimi 07:16
+08. Shinouda - Hamy Influences 07:14
+09. Orion Signs vs Pyro - Light For The Blind 07:26
+10. Kularis - Foxtrott Lessons (original mix) 06:45(   Читать дальше...   )2011Жанр: Psy-Prog, Full OnПродолжительность: 02:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D8B565300B3D7B8C8F6D47F8E055F77473F96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474764   (98038) от 30.03.2012
+
+VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98038.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Christopher S feat. Jamayl Da Tyger - Jump! (Mike Candys Remix) (4:36)
+ 2. Cobra Starship vs. Purple Project - You Make Me Feel (Denis First ft. P.P Booty) (5:46)
+ 3. Corey Andrew, Liz Mugler, Riviera Kidd - Symphony Of Life (Riviera Kidd Remix) (7:31)
+ 4. Fragma – Thousand Times (Marc Lime & K Bastian Remix) (6:29)
+ 5. Jason Derulo - Breathing (Michael Mind Project Remix) (5:39)
+ 6. Jordan Rivera - One Night (Jack Ferreira Vocal Club Mix) (6:00)
+ 7. Labrinth - Last Time (R3hab Mix) (6:00)
+ 8. LMFAO - Sorry For Party Rocking (R3hab Remix) (5:12)
+ 9. Movetown feat. Nana - Lonely (Mario Lopez Remix) (6:31)
+ 10. Tito Torres & Ella - Sunrise (Slin Project Remix) (5:52)27.03.2012Жанр: Electro HouseПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBA65DA366CB75581C8A0E7196DC26C2CC39AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473773   (97809) от 27.03.2012
+
+VA - Dub Step vol.7 from AGR (2012) [MP3|256 kbps]<Dub Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cee - Mix Killa
+02. Meat Beat Manifesto - Less
+03. Shackleton - I Am Animal
+04. L-wiz - Lady Smilin
+05. Syncom - Beyond The Stars (SD Mix)
+06. Bass Clef - Life's Great In E8
+07. Deadbeat - Babylon Correction (feat. Paul St. Hilaire)
+08. Horsepower Productions - Damn It
+09. Boxcutter - Grub
+10. Goth - Trad (Cut End)(   Читать дальше...   )2012Жанр: Dub StepПродолжительность: 08:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3231220E6F4DB728207741F4B7849A6D930A17C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473798   (97795) от 27.03.2012
 
 VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
@@ -615,269 +895,6 @@ VA - Trance Symphony Volume 7 (13.03.2012) [MP3|320 кб/с]<Uplifting Trance, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A642287437652455C3C37DF5ACAD9DE792DB218B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465817   (96188) от 10.03.2012
-
-VA - High Rankin presents This Is Suicide Dub Volume 1 (2010) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sekklow – Be Alright (original mix) (04:56)
-02. High Rankin – Losing My Way (original mix) (04:11)
-03. Cliffhanga – I Love It (original mix) (05:43)
-04. Decibel – Gadget (original mix) (06:15)
-05. Evolve Or Die – Wheel &d Come (original mix) (04:24)
-06. Sticky Disco – Fuck Acid (original mix) (04:18)
-07. Temper D & Balkansky – In Pictures (original mix) (04:44)
-08. Cutline & Barbarix – Hey! Plane Rave (original mix) (05:42)2010Жанр: DubstepПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465133   (96172) от 10.03.2012
-
-VA - Ultimate Dance & Trance Vol.1 (2012) [MP3|320 кб/с]<Dance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wavetraxx, Meriton Celiku  -  Armageddon
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE579BBB11D063D33410519B0F0A366885581E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464650   (95944) от 08.03.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #76 (08/03/2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95944.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix) (5:31)
- 2. Nic Chagall & Duderstadt feat. Relyk - Alone With You (6:27)
- 3. Cerf, Mitiska & Jaren - Another World (Shogun Remix) (7:34)
- 4. David Forbes feat. Antonia Lucas - Because Of You (Pulser Remix) (7:02)
- 5. Andrew Rayel - Believe (Original Mix) (7:06)
- 6. Ernesto vs. Bastian - Bonanza (Original Mix) (6:56)
- 7. Trilucid feat. Sophie Tusnelda - Bring You The Sun (D-Mad Remix) (6:18)
- 8. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (8:49)
- 9. Karanda feat. Radmila - Coming Closer (Karanda Club Mix) (6:09)
- 10. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) (5:11)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA7A5266967CED03ED80DE36FA422DCEC4FD735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463700   (95869) от 07.03.2012
-
-VA - Sense Of Trance #24 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95869.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hydrogenio - 777 (Ben Gold Remix)
-002. Faruk Sabanci - As Faces Fade (Alexander Popov Remix)
-003. Cozmoz - Beyond Inner Limits (Original Mix)
-004. Veracocha - Carte Blanche (Dabruck & Klein Remix)
-005. Fadios & Raneem - Chromium (Max Graham Remix)
-006. Walsh & Coutre vs. Darin Epsilon - Detour On 44 (Dousk Remix)
-007. Sean Bay - Dualis (Sean Bay Remix)
-008. Nick Callaghan & Will Atkinson - Eastern Spirit (Original Mix)
-009. Reverse - Endless Journey (Matt Lange Remix)
-010. Gareth Emery feat. Ben Gold - Flash(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, TranceПродолжительность: 04:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A0ABFDBBF62956C2495C6FB40D8381FB33EAF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463717   (95825) от 06.03.2012
-
-VA - Sexy Trance #28 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95825.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Protoculture feat. Shannon Hurley - Sun Gone Down (Original Mix)
-002. SHOGUN - Skyfire
-003. Meridian - Shifter
-004. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
-005. Orjan Nilsen - The Mule (Album Mix)
-006. Philippe El Sisi feat. Josie - Over You (Original Mix)
-007. Project Purity - Inertia (Original Mix)
-008. Rene Ablaze feat. Avalona - United To The World (Original Mix)
-009. Sebastian Brandt - Ashes
-010. Setrise feat. Yana Kay - Weapon (Extended Mix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F559E8C3D9C53A66EE0C898856045A854AD04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463709   (95768) от 06.03.2012
-
-VA - Most Wanted Chill & Lounge (10.02.2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Rush (06:30)
-02. Hornbostel & Donner - Through Your Eyes (05:21)
-03. Svensen - Chillout 3 (09:18)
-04. Blue Wave - Eu Sou Carioca (05:39)
-05. Mykel Mars - A New Life (Comfort version) (05:59)
-06. Clark Parker - She's Gone (long skit) (02:03)
-07. Enrico Donner - Golfinhos (05:57)
-08. Saba Rock & Sandy Cay - Outta Sight (05:49)
-09. Suntheca Prod - Timeless (Sunset Session) (05:23)
-10. Rha - Occhi (04:15)(   Читать дальше...   )10.02.2012Жанр: Downtempo, Lounge, ChilloutПродолжительность: 07:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAFAC23FD712B247D25901DED0ADD419D68FBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463353   (95749) от 06.03.2012
-
-VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95749.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marco V - Unprepared (Recharged Original Mix)
-002. MaRLo feat. Jano - The Island
-003. Khoa & Martin Pres Khoma feat. Alisha Nauth - Over Soon (Train) (Original Mix)
-004. Kris Mclachlan & Costa Pantazis - Patience
-005. Majai - Motion Flash (Elevation Big Room Remix)
-006. Marcia Juell - Calling (5aint's Airplay Extended Mix)
-007. Mark Otten - Libertine
-008. Markus Voorn - Emotional Dreams (Original Mix)
-009. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
-010. Jonas Stenberg - I Will Find You (Paul Ercossa Remix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462823   (95604) от 05.03.2012
-
-VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, Progressive Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix) [07:20]
- 02. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) [08:28]
- 03. Orjan Nilsen - Atchoo! (Original) [07:16]
- 04. M.I.K.E. - Back In Time (Orjan Nilsen Refix) [07:44](   Читать дальше...   )Жанр: Uplifting Trance, Dream Trance, Progressive Trance, Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

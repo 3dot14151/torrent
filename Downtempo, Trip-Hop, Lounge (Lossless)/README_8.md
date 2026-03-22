@@ -1,3 +1,61 @@
+###  Публикация: 1382748   (817381) от 12.05.2020
+
+VA - Joyful Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Grooves - Secrets (Original Mix) (04:21)
+02. Mission Brown - Same Old Temptations (Original Mix) (04:33)
+03. Ingo Herrmann - A New Day Is Dawning (Original Mix) (03:37)
+04. Luis Hermandez - A Tu Lado (Original Mix) (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1277179523A522BEEDB24CEF8C2234C1BB5239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504041   (815968) от 21.10.2021
+
+VA - The Essential Downtempo: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florzinho - Onenness Meditation (08:07)
+02. Marga Sol - Night Sky (04:17)
+03. La Estación Del Mar - A La Sombra De Un Roble (04:24)
+04. Michael E - Matterhorn (04:04)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4CE8B94AC557887D0348310B131CDD65D4EBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118347   (813191) от 25.03.2017
 
 Lemongrass - Orion (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -681,64 +739,6 @@ VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E58FE59B6E7BE0B32716CC263749749190A1DAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203061   (789083) от 31.01.2018
-
-Rameses B - Spacewalk (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Drum & Bass, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nycto (03:22)
- 02. Orbit (03:56)
- 03. Lunar (04:44)
- 04. Heal Again (feat. Ghost Wars) (03:28)(   Читать дальше...   )Жанр: Chillout, Drum & Bass, AmbientПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C334B94DA728C1E1AADB47FEAEA63B582EC038B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203048   (789030) от 31.01.2018
-
-Tor - Blue Book (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip Hop, Chillstep>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:05)
- 02. Two Suns (04:34)
- 03. Loop Theory (03:33)
- 04. Days Gone (04:26)(   Читать дальше...   )Жанр: Downtempo, Trip Hop, ChillstepПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1767C0869E8616EDE0C38118F8B3CB8877DC723
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1543914   (625532) от 13.04.2022
+
+VA - Floating Pyramids: Ambient Meditation (2022) [MP3|320 Kbps] <Ambient, Meditation, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые вашему вниманию музыкальные треки для медитации это кладезь целительной энергии. Их прослушивание может оказать вам реальную помощь в восстановлении жизненных сил организма. Эта музыка помогает потокам энергии свободно протекать по ментальным каналам, изначально определенным в организме человека природой. Она снимает напряжение, что позволяет восстановить (   Читать дальше...   )001. Innesti - Recurring Dream
+002. Kaya Project - Zheng '21
+003. Pjs - Daydream
+004. Vangelis - Inside Our Perspectives(   Читать дальше...   )Жанр: Ambient, Meditation, RelaxПродолжительность: 10:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D83893CA18861A756F812BD54AAA0ED757D49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144745   (625527) от 23.06.2017
+
+VA - Ambient Compilation (2017) [MP3|320 Kbps] <Ambient, New Age, Chillout, Dream>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Schiller - Sonne  5:17
+02.  Conjure One - Endless Dream  4:30
+03.  Amethystium - Hymnody  4:20
+04.  Jesper Kyd - Venice Rooftops  3:20(   Читать дальше...   )Жанр: Ambient, New Age, Chillout, DreamПродолжительность: 04:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6542F8C61BE2000CE1F09BFA2A5AD590D0A5B416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522036   (624836) от 12.07.2012
 
 VA - Hoa Tau Guitar Latin (2CD) (2011) [MP3|320 кб/с]<Instrumental>
@@ -686,64 +744,6 @@ VA - The Best Of LoungeLegends (7CD) (2013) [MP3|192-320 кб/с]<Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:857BC4F494952B2BA44647C85512CC030297B96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041686   (581465) от 10.08.2016
-
-VA - Smooth Romance: Love Notes by the Piano (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Gonella - Improvviso
-02. Icardi Ivano, Magnino Corrado - Le Scaphandre Et Le Papillon
-03. Ivano Icardi, Corrado Magnino - Quite Motionless
-04. Cristiano Viti - Tulipano(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFCB304E4472F52DDB5BE6400C84068E0CC9C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042052   (580422) от 11.08.2016
-
-VA - I Like An Indian (Indian Heart) (2016) [MP3|256-320 Kbps] <Native american, Ethnic, Folk>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerry Freeman - The long Ride
-02. Ecuador Manta - Wayramanta
-03. Medwyn Goodall - Blue Jay
-04. Alborada del Inka - Five Spirith (Ivan Rafo)(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 04:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9FFCA9DF17394CB4EB28DCC48200704526C7F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

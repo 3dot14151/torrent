@@ -1,3 +1,177 @@
+###  Публикация: 957396   (327658) от 17.11.2015
+
+Tony Bennett & Bill Charlap - The Silver Lining: The Songs Of Jerome Kern (2015) Columbia[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.All The Things You Are [04:39]
+ 02.Pick Yourself Up [02:58]
+ 03.The Last Time I Saw Paris [03:26]
+ 04.I Won't Dance [03:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783D74A454E53DFB920F19DCA5C50B2053E26059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957169   (327654) от 17.11.2015
+
+Louis Armstrong - The Complete Town Hall Concert (1983) 2014, Sony Music[FLAC|tracks+.cue]<New Orleans Jazz, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327654.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Introduction by Fred Robbins [00:45]
+02.Cornet Chop Suey [02:56]
+03.Our Monday Date [03:01](   Читать дальше...   )Жанр: New Orleans Jazz, DixielandПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7B5A86352613C9429D0C4624A2E8E045B298C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957047   (327653) от 17.11.2015
+
+Miles Davis Quintet with John Coltrane - The 1960 German Concerts (2010) Jazz Lips Music[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.So What [10:37]
+ 02.Round Midnight [05:43]
+ 03.Walkin [11:04]
+ 04.So What (2nd Performance) [10:11](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3CAC071C5D9E8CB4DC1987C10F8BD6D4A946FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581192   (327293) от 05.10.2022
+
+Brian Landrus Orchestra - Generations (2017) BlueLand Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeru Concerto, Mvt. 1 [4:26]
+02. Jeru Concerto, Interlude [1:11]
+03. Jeru Concerto, Mvt. 2 [4:11]
+04. Jeru Concerto, Mvt. 3 [4:33](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2BF4DD6EB2E70F646DCD5AD1BF3C626C97D856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581359   (327291) от 05.10.2022
+
+Kai Winding - Seven Classic Albums (1955 - 1962) 4CD, 2015, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327291.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Out Of This World [2:22]
+02. Thou Swell [2:56]
+03. Lover [5:35](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 04:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D570CFDFDDDF19D7412D252DF58A2B00D5E434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957637   (326805) от 18.11.2015
+
+Larry Coryell - New High (2000) HighNote[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bags' Groove [08:03]
+ 02.Like Sonny [05:47]
+ 03.Funereal [05:05]
+ 04.Ursula [05:49](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F62217EC759F457A269B029581B0CF1328E5DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957598   (326782) от 18.11.2015
 
 Kenny Burrell - 12•15•78 (1978) 2CD, 1999, 32 Jazz[FLAC|tracks+.cue]<Hard Bop, Mainstream Jazz, Guitar Jazz>
@@ -568,180 +742,6 @@ Patti Austin - For Ella (2002) Playboy Jazz [FLAC|Lossless|tracks + .cue] <Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADA9263BC773079169F551133C9B30F395D62F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331583   (322947) от 16.10.2019
-
-Elmo Hope - Five Classic Albums 1953 - 1961  (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322947.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Mo Is On [2:51]
-02. Sweet And Lovely [2:59]
-03. Happy Hour [2:53](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070529EC510525BD9D0EB2F1D0B4EA60920B1671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421052   (322333) от 03.11.2020
-
-Bob Brookmeyer - One More: Music Of Thad Jones (2004) 2005, IPO Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subtle Rebuttal [5:37]
-02. Thad's Pad [4:54]
-03. Kids Are Pretty People [6:40]
-04. One More [5:49](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95554777CA59CBC5C6B6E996C87FEAFA35A3255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421055   (322329) от 03.11.2020
-
-Geoffrey Keezer - Wildcrafted: Live At The Dakota (2005) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' at the Savoy [8:18]
-02. Tea and Watercolors [8:30]
-03. Koikugari Bushi [7:38]
-04. Mirrim [5:24](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5211ECBAA1FE0574B8BB67C6033220948182812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421051   (322324) от 03.11.2020
-
-Art Blakey & The Jazz Messengers - Just Coolin' (1959) 2020, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hipsippy Blues [6:42]
-02. Close Your Eyes [6:28]
-03. Jimerick [6:24]
-04. Quick Trick [4:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E742733438AD4E396227E23C56C4CC21D95F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421038   (322218) от 03.11.2020
-
-Jan Aldridge-Clark - Moving Forward (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving Forward
-02. Rhumbatonic
-03. Fly Me to the Moon
-04. Remembering You(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D8765A70CCB95CBCF343D1288FDBE62284D777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421099   (322210) от 03.11.2020
-
-Bing Crosby & The London Symphony Orchestra - Bing at Christmas (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Beginning to Look a Lot Like Christmas (3:07)
-02. Sleigh Ride (2:51)
-03. Let It Snow! Let It Snow! Let It Snow! (2:05)
-04. White Christmas (feat. Pentatonix) (3:04)(   Читать дальше...   )Жанр: Vocal Jazz, Vocal Pop, ChristmasПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A05DF00F099BD42365B200B898820C4AC0C49B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

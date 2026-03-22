@@ -1,25 +1,22 @@
-###  Публикация: 1209763   (779144) от 28.02.2018
+###  Публикация: 1391247   (781344) от 19.06.2020
 
-VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
+Windows 10 Pro 2004 b19041.331 x64 ru by SanLex (edition 2020-06-19) [Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779144.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matt Bukovski & Andy Elliass & Arczi With Aneym - All I Can Do (Extended Mix) 6:34
-02. Andy Moor & Michele C - We Can Be Free (Evan Pearce Remix) 6:33
-03. Rene Ablaze Ft. Crystal Blakk - Torn Into Pieces (Extended Mix) 7:11
-04. Sarah Lynn - Put You Together Again (Extended Mix) 7:28(   Читать дальше...   )Жанр: Energy, Blissful, UpliftingПродолжительность: 01:45:50
+Сборка основана на официальном оригинал образе Windows_10_Pro_2004_Russian_x64. Отключены службы телеметрии, рекламные модули, не нужные службы Windows и всё что влияет на приватность (в пределах возможного и дозволенного). Добавлены накопительные обновления безопасности, улучшения и исправления. В остальном ничего лишнего не добавлялось, как только убавлялось/отключалось/изолировалось.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
+magnet:?xt=urn:btih:9389068D0DF0A16201307462EA54AE9BBAF942F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209676   (779143) от 28.02.2018
+###  Публикация: 922047   (781343) от 19.06.2020
 
-Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+Grand Theft Auto Liberty City Stories (2005) [PSP] [USA] 3.71 [Repack \ 3.2] [Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779143.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Burning Insight
-03. Bleeding Sanity
-04. Soar(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
+Либерти Сити, последний островок настоящей свободы, территория абсолютного беззакония. Город, где можно получить или потерять жизнь за доли секунды. Город с миллионом возможностей, для реализации которых не понадобится ничего, кроме собственной крови. Мы были в нём, увы, проездом. Увлекательный вояж закончился, за окном дома и улицы Лос Сантос, но разве мы не можем (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar LeedsЖанр: Action Adventure, Open-WorldЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209582   (779142) от 28.02.2018
+###  Публикация: 973947   (781342) от 19.06.2020
 
-Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+Grand Theft Auto Liberty City Stories (2005) [PSP] [USA] 3.71 [Repack \ 1.2] [Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779142.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The End Times (04:07)
-2. I Am A Dog (03:36)
-3. Frank (03:49)
-4. The Perfect Life Does Not Exist (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:15
+Либерти Сити, последний островок настоящей свободы, территория абсолютного беззакония. Город, где можно получить или потерять жизнь за доли секунды. Город с миллионом возможностей, для реализации которых не понадобится ничего, кроме собственной крови. Мы были в нём, увы, проездом. Увлекательный вояж закончился, за окном дома и улицы Лос Сантос, но разве мы не можем (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar LeedsЖанр: Action Adventure, Open-WorldЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209819   (779141) от 28.02.2018
+###  Публикация: 1391173   (781341) от 19.06.2020
 
-Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+Найти и уничтожить / Search and Destroy (2020) WEB-DL [H.264/1080p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779141.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jealousy (4:52)
-02. Ride (3:41)
-03. Who You Are (3:41)
-04. The Glass Parade (4:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:00
+Офицер разведки Джон Каттер теряет в бою весь свой отряд, пытаясь освободить заложников из плена жестокого украинского торговца оружием Игоря Родина. После этого он решает покончить с войной и уходит из армии. Однако через три года ему предлагают частный контракт по ликвидации того самого оружейного барона, и у рейнджера появляется шанс отомстить…Производство: Болгария / Millennium MediaЖанр: БоевикРежиссер: Дэнни ЛернерАктеры: Дилан Брюс, Джулиан Костов, Сергей Бадюк, Тим Феллингэм, Лесли Грэнтхем, Атанас Сребрев, Башар Рахаль, Оуэн Дэвис, Велислав Павлов, Юлиан ВерговПеревод: Дублированный (iTunes)Субтитры: Русские (Full)Продолжительность: 01:32:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +102,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209719   (779140) от 28.02.2018
+###  Публикация: 1391286   (781340) от 19.06.2020
 
-Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chillout>
+Detroit: Become Human (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781340.jpg" />
+</div>
+
+
+###  Подробнее
+
+2038, Детройт. Технологии эволюционировали до такой степени, что андроиды стали встречаться не реже людей. Они разговаривают, двигаются и ведут себя, как человеческие существа, но они – всего лишь машины на службе у людей. Играйте тремя уникальными андроидами и воспринимайте мир, балансирующий на грани хаоса, – возможно, наше будущее, – их глазами. Каждое из ваших (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure (Interactive Movie), Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391109   (781339) от 19.06.2020
+
+Русалка на суше / Mermaid Down (2019) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781339.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русалок замечали в этих водах на протяжении многих сотен лет. Они выглядывают посмотреть: любопытство побеждает разум. Может, они и правда существуют?» — такие разговоры ведут рыбаки на шхуне в Тихом океане и отправляются на охоту. И охота оказывается удачной… В их сети попадает русалка, и они решают отрубить ей хвост, перевезти и запереть в психушке. Хорошее место (   Читать дальше...   )Производство: США / Grellman Film, Heartpine Pictures, Mermaid DownЖанр: Ужасы, фэнтези, триллер, детективРежиссер: Джеффри ГреллманАктеры: Александра Бокова, Меган Тереза Риппи, Филлип Андре Ботельо, Эрин Ри, Берт Калвер, Кэролайн Бэмфорд, Джессика Хонор Карлтон, Эшли Корделия, Мишель Галлахер, Мелисса ЛугоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (на надписи), английские (Full, SDH)Продолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7425945B2E6A377BE7E2EEB4D81EF82F7BB33805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214487   (781338) от 19.06.2020
+
+Tom Clancy's Rainbow Six: Siege (2015) [Ru/Multi] (14457777/dlc) UplayRip =nemos= [Ultimate Edition + HD Texture Pack]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tom Clancy's Rainbow Six: Siege - разрабатываемый шутер от первого лица. Игра фокусируется на командную игру и реализм. Тем не менее, существуют значительные различия со старыми версиями игры. Шутер фокусируется на многопользовательской игре и отличается разрушаемым окружением. Tom Clancy’s Rainbow Six® Осада – новая часть всемирно известной серии шутеров от первого (   Читать дальше...   )Тип издания: UplayRipРазработчик: Ubisoft MontralЖанр: Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206892   (781337) от 16.02.2018
+
+VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779140.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. S.Dreams (07:26)
-02. Cmyk (04:45)
-03. Cye (03:26)
-04. 50 Trees (04:10)(   Читать дальше...   )Жанр: Downtempo, Nu-Jazz, ChilloutПродолжительность: 00:47:41
+01. Sugarboys - Nah Nah Nah (Original Mix)
+02. Adam Walker - Pump It (Original Mix)
+03. Nicole Palmer - Little Divine (Original Mix)
+04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3BD9858ED6B31B85875105937A2F3CD84113FE1
+magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +209,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209639   (779139) от 28.02.2018
+###  Публикация: 1206956   (781336) от 16.02.2018
 
-The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Abney Park (Эбни Парк) - Taxidermy (2005) Not On Label [MP3|320 Kbps] <Goth Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779139.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thunder Child (03:57)
-02. Lions Blood (03:47)
-03. Secrets (03:44)
-04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Wake (2005 Mix) 5:33
+02. New Black Day 4:50
+03. The Change Cage (2005 Mix) 4:00
+04. White Wedding 3:48(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:41:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
+magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +238,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209694   (779138) от 28.02.2018
+###  Публикация: 1206915   (781335) от 16.02.2018
 
-Flunk - Morning Star (2004) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
+Jakob Lindhagen - Paces (2017) Feeder [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779138.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morning Star (03:52)
-02. On My Balcony (03:11)
-03. Spring To Kingdom Come (05:01)
-04. Six Seven Times (04:39)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:35:04
+01. Kenopsia (04:20)
+02. Shelter (05:09)
+03. The Tipping Point (04:41)
+04. Forgotten (02:51)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:43:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DB52D5E84007984AD67EF40BB0C91F7FA7CFE66
+magnet:?xt=urn:btih:D410D764C9CD43A2C9F27A52571C91229B183B42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,83 +267,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209656   (779137) от 28.02.2018
+###  Публикация: 1206562   (781334) от 16.02.2018
 
-Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Indie Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Opener (03:40)
-02. How to Socialise & Make Friends (03:14)
-03. The Face of God (03:50)
-04. Anna (05:52)(   Читать дальше...   )Жанр: Alternative, Rock, Indie RockПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209714   (779136) от 28.02.2018
-
-Журнал | Salon-interior №3 (235) (март 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7467BE84CA48390D3734AD076CDEC65F2A1DC1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209740   (779135) от 28.02.2018
-
-Molecule (Molécule) Collection 4 Releases (2016-2018) Because Music [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Electro, Experimental, Field Recording>
+VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779135.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aria (05:08)
- 02. Elements (04:19)
- 03. Sila (04:05)
- 04. 5951Hz (05:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Techno/Electro/Experimental/Field RecordingПродолжительность: 01:05:28
+01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
+02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
+03.Adeva - Respect (Extended Mix) (7:32)
+04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDC7493AD6D5BA65930F85381E36AF5D720EC9F6
+magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,57 +296,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209580   (779134) от 28.02.2018
+###  Публикация: 1206920   (781333) от 16.02.2018
 
-Angra - OMNI (ØMNI) (2018) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of Transcendence
-02. Travelers of Time
-03. Black Widow’s Web
-04. Insania(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEE7049534303D7D367C0A79EC50913E6C99B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209351   (779133) от 28.02.2018
-
-VA - Future Trance Vol.83 (2018) [MP3|320 Kbps] <Trance, Progressive House, Progressive Trance>
+LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
 
 >>Electronic
->>Trance
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779133.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD:1
-01.  Axwell & Ingrosso  -  Dreamer  4:11
-02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
-03.  Martin Garrix, Matisse & Sadko  -  Forever  3:38(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 01:18:55
+01. Change (05:57)
+02. Tape Loops (05:28)
+03. Enchantment (03:25)
+04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1D2F3714AE39444CB864A859E6817948675859B
+magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,249 +325,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209767   (779132) от 28.02.2018
+###  Публикация: 1206955   (781332) от 16.02.2018
 
-Г. А. Белов и др. (ред.) | Из истории Всероссийской чрезвычайной комиссии (1958) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документы настоящего сборника систематизированы в двух разделах: «Военно-революционный комитет в борьбе с контрреволюцией в первые дни Советской власти», «Создание и деятельность Всероссийской Чрезвычайной комиссии».
-
-Внутри этих разделов документы расположены в строго хронологическом порядке по дате событий.
-(   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE4FEFE6433F8CC0A688AC9A40147261B742BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209716   (779131) от 28.02.2018
-
-Беседа с Евгением Федоровым (16.02.2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководитель направления НОД по взаимодействию с казачеством и представители Фонда социально-экономического развития регионов «Казна Творца РА» встретились с депутатом Государственной Думы, координатором Национально-Освободительного Движения Евгением Федоровым. Депутат и гости обсудили исторические и  правовые вопросы прекращения существования СССР.Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAA2E950E40D7293CA6EF9A0FC208526C606501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209816   (779130) от 28.02.2018
-
-VA - Galactic Dream Synthspace Version (2018) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pavel Kuznetsov - Introduction
-002. SellorektLA Dreams - Evolution of Dreams
-003. Son of Mars - Orbital Voyage
-004. Secret Space - Space Odyssey(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 08:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77CCE5E7E3714914C58E6597F017F1D5602F9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209772   (779129) от 28.02.2018
-
-VA - De Top 100 Aller Tijden 1982 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779129.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. June Lodge & Prince Mohammed - Someone Loves You Honey (3:51)
-002. Ph.D - I Won't Let You Down (4:06)
-003. O. M. D. - Maid Of Orleans (4:08)
-004. Musical Youth - Pass The Dutchie (3:22)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A6266A57A9F5A8508C313FD33473524154B2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209910   (779128) от 28.02.2018
-
-Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779128.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Those Loving Hands (10:29)
-2. The Orbs (10:11)
-3. Light and Warmth (11:50)
-4. Gentle was the Moment (6:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209859   (779127) от 28.02.2018
-
-Журнал | Полный привод 4x4 №1-2 (170) (январь-февраль 2018) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал рассказывает о том, как правильно управлять полноприводной машиной, чтобы максимально эффективно и безопасно использовать весь ее потенциал на всех типах дорог - от асфальтированных магистралей до лесовозных усов. Дает практические рекомендации: по тюнингу автомобиля: что можно сделать, чем усовершенствовать и дополнить внедорожник, квадроцикл, снегоход; как (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44451596BA457A22A47A2655C5A6655B4CDED4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209770   (779126) от 28.02.2018
-
-Двойной КОПец / Cop Out (2010) HDRip [H.264] [MP4|1280x534]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_779126.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух давних напарников — нью-йоркских полицейских, занятых поисками очень редкой и чертовски дорогой бейсбольной карточки, украденной у одного из них. Они вынуждены противостоять беспощадному гангстеру, просто помешанному на коллекционных вещицах.Производство: СШАЖанр: Боевик, Комедия, КриминалРежиссер: Кевин СмитАктеры: Брюс Уиллис, Трэйси Морган, Хуан Карлос Хернандез, Кори Фернандез, Ана Де Ла Регуера, Джейсон Харт, Джефф Лима, Шон Каллен, Кевин Поллак, Адам Броди, Мишель Трахтенберг, Джейсон Ли, Шонн Уильям СкоттПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 01:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F527586D2D4727C5F006CD666587305D6D14399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209214   (779125) от 28.02.2018
-
-Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. ODIN SPHERE's Theme [1:48]
-02. Opening Title [0:55]
-03. Attic Archive [3:15](   Читать дальше...   )Жанр: ScoreПродолжительность: 02:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209775   (779124) от 28.02.2018
-
-Alaska - Jasheri (V2) / Zoranine (V2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, Atmospheric>
+KCNcrew Pack 15.02.2018 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779124.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jasheri (V2) (10:24)
- 02. Zoranine (V2) (09:07)Жанр: Drum & Bass, Drumfunk, AtmosphericПродолжительность: 00:19:31
+KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и регулярно обновляется!
+
+База серийных номеров проекта KCNcrew по состоянию на середину февраля 2018 года.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF18D9EDA088D22F6094B09C562AD9E580607441
+magnet:?xt=urn:btih:C5CAA4AA02417419869A077072D6DA810F4B94C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +353,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209854   (779123) от 28.02.2018
+###  Публикация: 1206972   (781331) от 16.02.2018
 
-VA - ZYX Italo Disco New Generation Vol. 11 (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+Abney Park (Эбни Парк) - Ancient World (2012) Not On Label [MP3|320 Kbps] <Rock, Folk, World&Country>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779123.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Victor Ark feat. Matt Doll - Dark Affair (7:09)
-02. Stylove feat. Naoky - Now Close Your Eyes (6:15)
-03. Don Leone - In The Middle Of Love (4:47)
-04. R.B. Project feat. Brian Ice - I Am What I Am (Vocal Version) (7:42)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:09
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Steampunk Revolution 3:17
+02. Scupper Shanty 2:56
+03. The Story That Never Starts 4:08
+04. Ancient World 4:30(   Читать дальше...   )Жанр: Rock, Folk, World&CountryПродолжительность: 00:51:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D75BE753BC2045380AA1A641A2B1209B2CCF54D
+magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,107 +382,347 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209853   (779122) от 28.02.2018
+###  Публикация: 1206889   (781330) от 16.02.2018
 
-Цитадель памяти (2016) SATRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм «Цитадель памяти» посвящён 60-летию музея Брестской крепости.
-Фильм рассказывает об истории создания крепости - западного форпоста Российской империи, о сражениях Первой мировой и Великой Отечественной войн. История о подвигах защитников Брестской крепости, мемориальном комплексе и музее. Здесь, в легендарной Брестской крепости, свято и нерушимо (   Читать дальше...   )Производство: Россия, Беларусь, РОО «Дух Эльбы»Жанр: Документальный, война, историяРежиссер: Василий Кислов, Павел ПоповПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476442E4C3023366A71465B43C15346ACA22D382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209857   (779121) от 28.02.2018
-
-Журнал | National Geographic [Россия] №3 (174) (март 2018) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779121.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает National Geographic по-настоящему общемировым изданием.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFBC46BB28D474E8668849FC7695DB2C122160C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209858   (779120) от 28.02.2018
-
-Журнал | 4x4 Club №3 (234) (март 2018) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет результаты испытаний новейших моделей полноприводников, захватывающие рассказы о путешествиях и приключениях в стиле 4х4, об ралли - и трофи-рейдах и джип-триале, о способах подготовки внедорожника для преодоления офф-роуда, повышения его мощности и управляемости.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497266896CAB91EFF473A081E291224EA38C6B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209824   (779119) от 28.02.2018
-
-VA - Chill Dance Music (2018) [MP3|320 Kbps] <Deep House>
+VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779119.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 3 Doors Down - Here Without You
-002. Alastair Pursloe - 36 Degrees in the Shade
-003. AnatolliMal - Coordinates 06,02,15 (Original Mix)
-004. Autograf feat. Lils - You Might Be (MICA Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:48:40
+1. Cyre & DJ T.H. - Salida Del Sol (Original Mix)
+2. Kajis feat. Ylona - Way Back Home (Taival Remix)
+3. RAMiNiO - Confession (Extended Mix)
+4. Sunlight Project - Desert Flower (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:57:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2582261E384123B43C858C53DFAB925B4C0A185
+magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206964   (781329) от 16.02.2018
+
+Abney Park (Эбни Парк) - The End Of Days (2010) Not On Label [MP3|320 Kbps] <Industrial, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The End Of Days 3:25
+02. Neobedouin 3:41
+03. The Wrath Of Fate 3:05
+04. I've Been Wrong Before 2:55(   Читать дальше...   )Жанр: Industrial, FolkПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206910   (781328) от 16.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. 2-я Квалификация (12.02.2018) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781328.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 13:30 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Фристайл. Мужчины.
+Могул. 2-я Квалификация(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FA7C4B18679E631466DE6C11779291EEECBBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207062   (781327) от 16.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Женщины. Трамплин HS-109. Финал (12.02.2018) IPTV [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781327.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 15:50 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Прыжки с трамплина. Женщины.
+Трамплин HS-109. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7623F68B95A20F9D476C01502ECC056914065F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206936   (781326) от 16.02.2018
+
+VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781326.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Estiva & Justin Oh - Reach For The Sky
+002. Marc Van Gale - Mumbai Taxi (Original Mix)
+003. Emanuele Braveri - Destination Summer (Original Mix)
+004. Activeblaze - Last Day(   Читать дальше...   )Жанр: Progressive, Vocal, Uplifting TranceПродолжительность: 13:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207028   (781325) от 16.02.2018
+
+White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781325.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hansa (Cygnus)
+2. Patent Leather
+3. Slave
+4. Wait Till Tomorrow(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206766   (781324) от 16.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Женщины. Гонка преследования (12.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781324.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 13:10 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Биатлон.
+Женщины. Гонка преследования 10 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CC357A906516F356CA759294364CEFBCC4A1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206961   (781323) от 16.02.2018
+
+VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Metamorph  -  Wash Your Pain Away (feat. Shelley Sheree) (Original Mix)  7:05
+02.  Leonety  -  Le Lis Blanc (Original Mix)  7:06
+03.  Luvmac  -  Daybreak (Original Mix)  6:26
+04.  Niklas Grosswald  -  Daybreak (Nuestro Remix)  6:21(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 02:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207047   (781322) от 16.02.2018
+
+Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 L'amas d'chair
+2 Aie
+3 Soirees parisiennes
+4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206921   (781321) от 16.02.2018
+
+VA - Erased Tapes Collection VIII (2017) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Avantgarde, IDM, Modern Classical, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allred & Broderick - The Ways (03:08)
+02. Penguin Cafe - Cantorum (07:22)
+03. Daniel Brandt - Kale Me (06:30)
+04. Rival Consoles - Slow Song (03:52)(   Читать дальше...   )Жанр: Contemporary, Avantgarde, IDM, Modern Classical, AmbientПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4139825AD30EBE02B9D443C3838DE8DA3D180178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206893   (781320) от 16.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. 1/2 финала. Россия (ОАР) — Швейцария (12.02.2018) IPTV [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781320.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. 1/2 финала.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B9A1DE3E603C067247F322714FE4A07003F51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206944   (781319) от 16.02.2018
+
+VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dave202  -  Open Up Your Heart (Original Club Mix)  4:26
+02.  Dave202 & Gino G  -  Along With You (Extended Mix)  4:33
+03.  Dave202 & Gino G  -  Like An Animal (Club Mix)  4:15
+04.  Dave202  -  Kimura (Original Club Mix)  4:44(   Читать дальше...   )Жанр: House, Future House, Big Room, Electro HouseПродолжительность: 02:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
 ```
 
 https://mybot314.ru/tekegram_catalog/

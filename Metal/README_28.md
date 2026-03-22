@@ -1,3 +1,32 @@
+###  Публикация: 1122005   (798848) от 05.04.2017
+
+Mammoth Weed Wizard Bastard - Y Proffwyd Dwyll (2016) [MP3|320 Kbps] <Doom, Sludge, Psychedelic,>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valmasque
+02. Y Proffwyd Dwyll
+03. Gallego
+04. Testudo(   Читать дальше...   )Жанр: Doom, Sludge, Psychedelic,Продолжительность: 00.48.16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CD4639D19B43A74D14B32CE78C56F0D7BDC622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122001   (798843) от 05.04.2017
 
 Mammoth Weed Wizard Bastard - Noeth Ac Anoeth (2015) [MP3|320 Kbps] <Doom, Sludge, Psychedelic,>
@@ -716,35 +745,6 @@ Machine Head - Catharsis (2018) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EDF6BA99B790E2A7E46D0F2AB5641C855376E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387164   (792676) от 31.05.2020
-
-Cremation - In The Maelstrom Of Time (2017) [MP3|320 Kbps] <Death metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maelstrom (01:21)
-02. Collision Course (06:03)
-03. Jousting with the Psyche (06:13)
-04. Black Hole (06:50)(   Читать дальше...   )Жанр: Death metalПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF21C99E8105BD17C52143C7672A1254C07F8ABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

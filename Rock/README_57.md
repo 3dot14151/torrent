@@ -1,3 +1,148 @@
+###  Публикация: 1411314   (427519) от 25.09.2020
+
+Fish - Weltschmerz (2020) 2xCD [MP3|320 Kbps] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427519.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Grace of God (08:16)
+ 02. Man With a Stick (06:30)
+ 03. Walking on Eggshells (07:15)(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:24:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2872046F9A774F7E488ADD189661765D890BA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946387   (427358) от 13.10.2015
+
+Rehab Allstars - Feel The Blues (2015) [OGG| 521-558 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Next To You
+02. Jesus Just Left Chicago
+03. Burden
+04. Look On Yonder Wall(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5E12F159DBAED59D2552A331CA98F151A24FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946371   (427312) от 13.10.2015
+
+THR3E - 30 Day Hop (2015) [OGG| 505-529 кб/с]<Rock'n'Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 30 Day Hop
+02. Drive Like Crazy
+03. Matter of Time
+04. Blues for the Modern Man(   Читать дальше...   )Жанр: Rock'n'BluesПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EB93649F10A8EEE84E13E685FB791EB34BDA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250367   (426874) от 27.09.2018
+
+Rod Stewart - Blood Red Roses (2018) Deluxe Version [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look In Her Eyes
+02. Hole In My Heart
+03. Farewella
+04. Didn't I (Feat. Bridget Cady)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93131E1441FF4E4E3C12D4B1823958CAB77B192A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166029   (426636) от 16.09.2017
+
+VA - Now That's What I Call Driving Rock (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426636.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01 - Queen - Another One Bites The Dust (Remastered).mp3
+02 - The Clash - Should I Stay Or Should I Go.mp3
+03 - The Killers - Mr. Brightside.mp3(   Читать дальше...   )Жанр: RockПродолжительность: 03:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CF14909A2852D95C051CC3D41478D0F1E1017E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064434   (426251) от 20.10.2016
 
 Papadosio - Pattern Integrities (2016) EP [MP3|320 Kbps] <Experimental Electronic Rock, Instrumental Jam Band, Progressive Rock>
@@ -610,148 +755,6 @@ VA - 00s Rock Party (2018) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464C3AEA0518DBD123DB1015426F4F48B9295F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167894   (412835) от 22.09.2017
-
-After Tea - Jointhouse Blues (1970) Remastered, 2002, Progressive Line [MP3|320 Kbps] <Hevy Psych, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412835.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jointhouse Blues
-2. You've Got to Move Me
-3. I'm Here
-4. Someday(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D84668976D6332CAE4C313A618FD5E011058EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 147128   (412734) от 20.10.2009
-
-Chris Norman - It's A Tragedy (2009) [MP3|256]<Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_412734.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Run From The Shadows '92Жанр: Soft RockПродолжительность: 1:19:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167972   (412590) от 22.09.2017
-
-Van Morrison - Roll With The Punches (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412590.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roll With The Punches
-2. Transformation
-3. I Can Tell
-4. Stormy Monday - Lonely Avenue(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3ACC8E914775F4819AF536D6DE5D15F9CFC6C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573202   (412535) от 31.08.2022
-
-Omega - Gammapolis & Live At Kisstadion (2022) 2CD, Compilation[MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vostok [00:04:02]
-02. Gammapolis [00:08:06]
-03. Help To Find Me [00:08:19]
-04. Russian Winter [00:04:52](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 2CD, 01:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A4AB33A2153D94C9F299A038FFE3A28EC38DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573205   (412531) от 31.08.2022
-
-Omega - Beat (2022) 1966-68, Compilation [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Paint It Black (00:03:20)
-02 - Bus Stop (00:02:38)
-03 - Bend It (00:02:44)
-04 - I Put A Spell On You (00:03:20)(   Читать дальше...   )Жанр: Pop Rock, Psychedelic Rock, Psychedelic PopПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C48405D51E3646BF0C0E9B0D5BAA1A312FC31D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

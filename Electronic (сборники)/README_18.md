@@ -1,3 +1,61 @@
+###  Публикация: 974429   (976969) от 11.01.2016
+
+VA - Sunrise Avenue, Vol. 7 (20 Lounge & Chill-Out Pearls) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glenn Edwads - Pure Water (Ibiza Sunset Mix) (04:30)
+02. Brian Connors - Tropical Sunset (04:08)
+03. Gore Fontaine - Hindu Love (03:25)
+04. Jason Chambers - Black Horse (03:05)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89430474FCB206AF785D8A771F7CCBA9123A4936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974499   (976946) от 11.01.2016
+
+VA - Coming Home - Pop Lounge Music Deluxe (2015) [MP3|320 кб/с] <Lounge, Easy Listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risasi - How U Like [04:02]
+02. Jnr Robinson - Wanna Praise [03:47]
+03. Trevor Jackson - Can You Blame Me [04:47]
+04. Rocklike - Holding On (Acoustic Version) [04:25](   Читать дальше...   )Жанр: Lounge, Easy ListeningПродолжительность: 03:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7269B7B59D96CE4EF9E6BA189C54B602F31C65E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615362   (976899) от 09.02.2013
 
 VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
@@ -720,64 +778,6 @@ VA - Beatport Electro House: Pack #06 (2020) [MP3|320 Kbps] <Electro House, Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59D34DE0794DE06BFBDA81DBF5C330BFD9EC989F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357892   (971916) от 05.02.2020
-
-VA - Catalyst: Basslife DnB (2020) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971916.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. L.E.G.E.N.D. - Like That (Original Mix)
-002. Fuj - Deep Exile (Original Mix)
-003. Battery - Transistor Bass
-004. Smuggler Feat. Dubflex - Be Careful(   Читать дальше...   )Жанр: Drum And Bass, Bassline, DubstepПродолжительность: 07:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0963CC3D9F66D7AA471B9782368D2CE87D599CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357771   (971907) от 05.02.2020
-
-VA - Luxury Deep House (2020) [MP3|320 Kbps] <Deep, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Renato Gratis - Wolf (Original Mix)
-002. Nnatn - Lost (Original Mix)
-003. Re.You - Work It Now
-004. The Loop - Take Control (Pacific Time Mix)(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 11:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A179F5FFAA957F95DAB14F28CA2D2BE02F2614FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

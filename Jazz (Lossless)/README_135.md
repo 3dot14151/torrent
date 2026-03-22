@@ -1,3 +1,177 @@
+###  Публикация: 1148808   (603002) от 08.07.2017
+
+Don Braden - Workin' (2006) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spoken Introduction by Cecil Brooks III [00:52]
+02. You Can't Hide love [07:28]
+03. Spoken Introduction by Don Braden [00:34]
+04. Looking for Her [01:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2C001D1E840FD2F99FD7E28DB1680FC0610667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148805   (603001) от 08.07.2017
+
+David Grisman Quintet featuring Svend Asmussen - Svingin' With Svend (1988) Zebra Acoustic [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svingin' With Svend [04:04]
+02. Nadja [06:24]
+03. Lap-Nils Polska [08:25]
+04. It Don't Mean A Thing [06:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDB709A4423D88FF86650C7A309CC98F89745FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148661   (602999) от 08.07.2017
+
+Stan Kenton - Summer Of '51 (1987) Garland [FLAC|Lossless|tracks + .cue] <Big Band, Progressive Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artistry In Rhythm [00:45]
+02. Machito [02:24]
+03. Stardust [03:18]
+04. Gone With the Wind [02:46](   Читать дальше...   )Жанр: Big Band, Progressive JazzПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9149BF086B6F56D4804254BB6C65DE095540DDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547409   (602996) от 28.04.2022
+
+Tim Garland - ReFocus (2020) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Late, I'm Late [3:51]
+02. Maternal [5:30]
+03. Thorn in the Evergreen [5:46]
+04. Dream State [3:26](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457E6D68C0E9A71BCD24A4106B78CE5E7382A0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148807   (602990) от 08.07.2017
+
+VA - The First Ladies Of Swing (2002) K-tel Entertainment [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judy Garland - The Trolley Song [02:55]
+02. Ella Fitzgerald - My Heart Belongs To Daddy [03:10]
+03. Billie Holiday - Let's Do It [02:58]
+04. Doris Day - Bewitched [02:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A9F3AFDA0C64485A73C259785B8558D07C6569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232113   (602785) от 22.06.2018
+
+Miles Davis - Antwerp Blues (1967) 1998, Megadisc [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agitation [5:32]
+02. Footprints [9:46]
+03. 'Round Midnight [7:36]
+04. No Blues [11:28](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE97DDAD3011487CF10665D70A42CE94F28BDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232169   (602780) от 22.06.2018
 
 Tony Bennett - My Best To You (1982) Reissue 1995 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
@@ -571,180 +745,6 @@ Cindy Blackman - Arcane (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF86BF71277CA1EB87C349DCC7B82F30A88773A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149537   (600375) от 11.07.2017
-
-Lionel Hampton - Jazz Time Paris vol.4, 5 & 6 (1953) Remaster, 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Press Oui [12:58]
-02. Blue Panassie [13:23]
-03. Real Crazy [09:34]
-04. I Only Have Eyes for You [03:34](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCBFFBAD77FEA0DB855C4CF3EE561905296BE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149547   (600370) от 11.07.2017
-
-VA - Songs For A Lazy Sunday (2001) 2CD, Rajon Music Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Bop, Piano Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600370.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Duke Ellington - The Mood To Be Wooed [03:01]
-02. George Shearing - September In The Rain [03:16]
-03. Sarah Vaughan - It Might As Well Be Spring [03:14](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Bop, Piano Jazz, Hard BopПродолжительность: 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE75517D811B0EAF285DC755DE4EAD408BDD0D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914164   (600358) от 01.07.2015
-
-Rigmor Gustafsson - When You Make Me Smile (2014) [FLAC|tracks+.cue]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Me Lonely [03:32]
-02. Forget About the Moonlight [03:03]
-03. A Different Kind [02:56]
-04. If Dreams Are Made of Sand [03:37](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5CC2D01D0EB2D569D708D6D2E5EE2A527CBFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232482   (600167) от 24.06.2018
-
-Illinois Jacquet - The Illinois Jacquet Story: Jumpin' Jacquet (1944 - 1951) 2002, Proper Records [FLAC|Lossless|image + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's This [2:40]
-02. (I Don't Stand) A Ghost of a Chance [3:11]
-03. Ladies Lullaby [2:44]
-04. Illinois Stomp [3:04](   Читать дальше...   )Жанр: SwingПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A370C19F75AA50025225CBF5ED44BD8A7313F609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299305   (600161) от 01.05.2019
-
-V.S.O.P. The Quintet - Five Stars (1979) 2004, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skagly (Original LP Version) [10:08]
-02. Finger Painting (Original LP Version) [6:49]
-03. Mutants on the Beach [11:11]
-04. Circle [4:40](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0971434BAF0E5C3EF9166AA7A46185CB9A642360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299307   (600149) от 01.05.2019
-
-The Gene Harris Quartet - It's The Real Soul (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summertime [8:40]
-02. You Don't Know Me [6:31]
-03. Lady Be Good [9:10]
-04. Straight, No Chaser [7:41](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708F1706B2A61863DD5F1ECEE8E2BC9FB1063A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,147 @@
+###  Публикация: 1756060   (39668) от 21.10.2024
+
+Lane 8 - Childish (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lane 8 – Childish
+02. Lane 8 & Art School Girlfriend – The Deep
+03. Lane 8 – Higher
+04. Lane 8 & Arctic Lake – The Choice(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6E84746B569CD0C6006EA0CB4EA2D77CFDCA03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756233   (39666) от 21.10.2024
+
+Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We First Met
+02. Life at Full Speed
+03. Make U Happy
+04. Sunshine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E22F523825853600DA56C8590EBB3A3A3804AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757069   (39273) от 25.10.2024
+
+Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benassi Bros. x Dhany - Every Single Day (club edit) (03:43)
+02. Benassi Bros. x Dhany - Every Single Day (club version) (06:41)
+03. Benassi Bros. x Dhany - Every Single Day (club version instrumental) (06:41)Жанр: Club HouseПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC79D0F4BEABC3D5E8EB5673DBAC1E5F8D65C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757395   (39077) от 27.10.2024
+
+VA - Diamond Fitness - Best Songs For Cardio Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Space'c - Side Effects (Fitness Version 128 Bpm) (4:33)
+02. Dj Gang - Popular (Fitness Version 128 Bpm) (4:37)
+03. Kangaroo - Cruel Summer (Fitness Version 128 Bpm) (4:05)
+04. DJ Space'c - Drinkin (Fitness Version 128 Bpm) (4:33)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B91558AF4EC7FC30EC890B7AB32210BE9FF040F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758134   (38721) от 31.10.2024
+
+Power Music Workout - Xtreme Cardio Mix 40 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Please Please (Workout Version 130 BPM) (5:10)
+02. LIFETIMES (Workout Version 131 BPM) (4:38)
+03. Summer's Back (Workout Version 132 BPM) (4:50)
+04. Set My Heart On Fire (I'm Alive x And The Beat Goes On) (Workout Version 133 BPM) (5:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEF3D4785FB469D26882F09EA1BD6E81AB369D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758405   (38482) от 02.11.2024
 
 Power Music Workout - Workout Top Songs 2024 - Fall Edition [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -600,151 +744,6 @@ Alan Walker - Walkerworld 2.0 (2025) [FLAC 24/44,1,48|Lossless|WEB-DL|tracks] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E915204DD521ABD94AB02EA62EF883BC6A244993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775045   (29889) от 24.01.2025
-
-VA - Winter Car Music Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VOLB3X - Don't Leave Me (2:42)
-02. SEEAR - Hanuma (2:05)
-03. Hylost - Nomad (2:46)
-04. MIRAC SARI - Lost (2:37)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381752A302FDFFDF766C33980C95F125A7E597D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775883   (29499) от 28.01.2025
-
-VA - Fitness Motivation 50 Hits to Get You Started 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - Hot In It (feat. Charli XCX) (2:09)
-02. David Guetta - Forever Young (2:36)
-03. Robin Schulz - Only Way Is Up (feat. Izzy Bizu) (2:29)
-04. Madonna - Hung Up (5:37)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64863AD94FF34041CBA16969C4B7CD96536D162A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780230   (27306) от 17.02.2025
-
-Blond:ish - Never Walk Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Walk Alone [00:03:08]
-02. Can't Let You Go [00:02:34]
-03. Self Love [00:02:52]
-04. Shout It Out [00:03:08](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4BDA5699778D916CEB88B7EA9E42774046F878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780794   (26993) от 20.02.2025
-
-VA - BC2 Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Baffa - Geminis (Dany Dz Remix) [7:30]
-02. Thomas Ferell - Ghostship (Original Mix) [8:00]
-03. Nikola Jovanovic - Amnesia (Original Mix) [7:11]
-04. AOVA - Tavernia (Original Mix) [7:35](   Читать дальше...   )Жанр: HouseПродолжительность: 08:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077577D9C4A26C012C215E876E4388C93E64FA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780928   (26991) от 20.02.2025
-
-Dionigi - Space Disco (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Di Di Disco (6:34)
-02. Space Sequencer (5:45)
-03. Kevlar Sequencer (4:55)
-04. Base 80 (8:08)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 01:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E8EF4F9A012BF23FE1997BD58C6B097AC3E438
 ```
 
 https://mybot314.ru/tekegram_catalog/

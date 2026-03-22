@@ -1,3 +1,119 @@
+###  Публикация: 775601   (814148) от 14.04.2014
+
+Eric Clapton and The Yardbirds - At Their Best (2000) 2CD [FLAC|Lossless]<Rock, Blues, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814148.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:01. Good Morning Little Schoolgirl  (2:46)
+02. New York City Blues  (4:19)
+03. My Girl Sloopy  (5:37)
+04. 23 Hours Too Long  (5:11)(   Читать дальше...   )Жанр: Rock, Blues, Blues-RockПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C1DF5582463D31859A92266BED6E118219FF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197601   (813919) от 08.01.2018
+
+Crowded House - Temple of Low Men (1988) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Possessed (N.Finn) - 3:48
+02. Kill Eye (N.Finn) - 3:14
+03. Into Temptation (N.Finn) - 4:34
+04. Mansion in the Slums (N.Finn) - 3:46(   Читать дальше...   )Жанр: Pop-Rock, Soft RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B3A176177C94550A0BC5293FF00AA0AB83911A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008705   (813799) от 19.04.2016
+
+Elton John - Blue Moves (1976) Reissue 1988 [APE|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Starter For
+02. Tonight
+03. One Horse Town
+04. Chameleon(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A102E4355855D313F1DC113A2F06C4113063A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008820   (813418) от 19.04.2016
+
+ZZ Top - The Very Baddest (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme All Your Lovin' (3:32)
+02. Sharp Dressed Man (2:59)
+03. La Grange (3:53)
+04. Tush (2:17)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 02:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66FDAFC472988A0B7667F9E26EB9D5E0F54DC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504469   (812357) от 23.10.2021
 
 Dion Bayman - Alive (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
@@ -629,123 +745,6 @@ The Orwells - Terrible Human Beings (2017) Japanese Edition [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205AE72C6ED5E5515E626A8B40498977B68AD9AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119195   (809030) от 27.03.2017
-
-The Alan Parsons Project - The Best Of The Alan Parsons Project - Vol. 2 (1987) Compilation [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prime Time (3:51)
-02. Lat's Talk About Me (3:39)
-03. Standing On Higher Ground (4:24)
-04. Stereotomy (4:28)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585BC2198614DE785993C3FAEDB97FF8A96C787D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117946   (809028) от 27.03.2017
-
-Steve Hackett - The Night Siren (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых признанных гитаристов ХХ века, Стив Хэккет многим известен исключительно из-за своего яркого участия в одной из ведущих арт-роковых групп 70-х, Genesis. Однако далеко не все поклонники жанра знают, что после своего ухода из группы Стив продолжает выпускать очень интересные сольные работы.
-До прихода в 1971 году в Genesis, обладая классическим гитарным (   Читать дальше...   )01. Behind The Smoke (6:58)
-02. Martian Sea (4:41)
-03. Fifty Miles Trom The North Pole (7:08)
-04. El Nino (3:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6885887BB9B9D40DDC853AB31E3697E69472509B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118076   (808937) от 27.03.2017
-
-Freddie Mercury and Montserrat Caballe - Barcelona (1988) Remaster, 1992, Polydor [FLAC|Lossless|image + .cue] <Modern Classical, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barcelona (5:39)
-02. La Japonaise (4:49)
-03. The Fallen Priest (5:46)
-04. Ensueno (4:21)(   Читать дальше...   )Жанр: Modern Classical, Symphonic RockПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6053DDE6F0F351C210D5CDF9BC9CC3C33B3A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504785   (808334) от 25.10.2021
-
-Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red Bullet [FLAC|Lossless|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla Queen (Early Version) [00:10:06]
-02. Radar Love (Basic Track) [00:06:30]
-03. The Song Is Over (Basis Track) [00:05:17]
-04. Are You Receiving Me (Basic Track) [00:09:33](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 2 CD, 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E3992A0E55732C57963CC63360177DD2710020
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1684170   (127765) от 15.12.2023
+
+Riding with Killers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do This on My Own [00:04:09]
+02. Hostility [00:03:30]
+03. World Apart [00:03:20]
+04. Dna [00:03:21](   Читать дальше...   )Жанр: Alternative Metal, Post GrungeПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A167ECB74A236C8ED6F0F10CC02FF14EA3B63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684148   (127761) от 15.12.2023
+
+C-Clamp - Dream Backwards (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passing [00:06:13]
+02. Ten Degrees Arc [00:06:05]
+03. Bats [00:04:39]
+04. A Stand Still [00:03:26](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 02:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F75F98B6F1C507C7C0A6E6687A385CE9B5D45A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684481   (127599) от 16.12.2023
+
+Placebo - Collapse Into Never - Live In Europe (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Chemicals (Live In Europe 2023) [00:05:08]
+02. Beautiful James (Live In Europe 2023) [00:04:01]
+03. Scene of the Crime (Live In Europe 2023) [00:03:27]
+04. Hugz (Live In Europe 2023) [00:04:53](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6321ED9AB6120EFE45445C301870A04112CA3D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684894   (127359) от 17.12.2023
+
+(hed) Planet Earth - Detox (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Way Out [00:04:01]
+02. DETOX [00:03:45]
+03. Waiting [00:03:37]
+04. Too Late [00:04:09](   Читать дальше...   )Жанр: Rapcore, Nu Metal, HardcoreПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C250823CA40E7B95AA522F74E62820C485C4BF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685737   (127079) от 19.12.2023
 
 Meredith Hunter - Proud to be Different (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
@@ -631,122 +747,6 @@ beatport
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D0C60827F76268FDB3A141625BCEFC2EA6B5A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697524   (118762) от 07.02.2024
-
-Echo Splinter - The Last Stand (2024) [FLAC|Lossless|WEB-DL|tracks] <post-hardcore, alternative metal, hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armageddon [00:07:44]
-02. Footsteps On The Sun [00:03:30]
-03. Draw The Line [00:05:38]
-04. Raised Hopes [00:04:16](   Читать дальше...   )Жанр: post-hardcore, alternative metal, hard rockПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A834A9566087DAADEFD28C1FCD79E73DA12279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698599   (118236) от 10.02.2024
-
-Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Alternative metal, industrial rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebirth [00:04:11]
-02. Resurgence [00:03:51]
-03. Ritual [00:03:46]
-04. Revelation [00:03:51](   Читать дальше...   )Жанр: Alternative rock, Alternative metal, industrial rockПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5354AA652A6DBA8E9CAD27E0E724A34D8ABF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699105   (117965) от 12.02.2024
-
-August Burns Red - Twenty Year Tour Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:52]
-02. Fault Line (Live in Phoenix, AZ) [00:04:06]
-03. Empire (Live in Denver, CO) [00:03:52]
-04. Martyr (Live in Dallas, TX) [00:04:37](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1225F2A3A55A1E74E031293C7BAF053A9533B8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700323   (117075) от 17.02.2024
-
-Blooming Discord - Memories From The Future (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117075.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Latch
-2. You Won't Be Alone
-3. Idolies
-4. Trapped Again(   Читать дальше...   )Жанр: Alt. Rock, Alt. MetalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9FE4A61419A5046BF5D0BAAA359BFC57E798FDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

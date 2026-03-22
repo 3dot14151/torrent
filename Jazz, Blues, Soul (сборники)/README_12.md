@@ -1,3 +1,32 @@
+###  Публикация: 1143219   (637078) от 17.06.2017
+
+VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637078.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Instrumental Jazz Music Ambient - Soothing Jazz Music  2:50
+002.  Good Morning Jazz Academy - Lucid Dreaming  3:54
+003.  Wake Up Music Paradise - Night Walk  3:28
+004.  Jazz for Study Music Academy - Sweet Music (Activities For Children)  3:11(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5929A54B9FF6A996070A1542CE4D09A9DD11B318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143425   (636946) от 17.06.2017
 
 VA - Relaxing Instrumental Jazz Music (2017) [MP3|320 Kbps] <Smooth Jazz, Instrumental>
@@ -716,35 +745,6 @@ VA - Bossa Brasilia - Brazilian Jazz & Bossa Nova (2016) [MP3|320 Kbps] <Jazz, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AE13A26EAC920092CA6A17E7F7D95F155D4B947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551226   (590184) от 15.05.2022
-
-Michael Buble - Compilation (2022) [MP3|320 Kbps] <Vocal Jazz, Jazz-Pop>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Foolish Things (Remind Me Of You)
-02. Comin' Home Baby (Duet with Boyz II Men)
-03. Help Me Make It Through the Night
-04. Can't Help Falling in Love(   Читать дальше...   )Жанр: Vocal Jazz, Jazz-PopПродолжительность: 03:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E49560B54F17C436C439550299D839B8643A2C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

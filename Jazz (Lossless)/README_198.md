@@ -1,3 +1,177 @@
+###  Публикация: 1174528   (385568) от 15.10.2017
+
+Boney James - Honestly (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kicks
+02. Tick Tock
+03. On The Prowl
+04. Low And Slow(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8232475715C505AF11506D03070E6271E5984B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253273   (385555) от 08.10.2018
+
+Louie Bellson - Don't Stop Now! (1984) 1994, Capri Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop Now! [4:57]
+02. Lover Man [6:19]
+03. Indian Summer [4:58]
+04. Cipriana [5:13](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F339E7510914A80521E943738E69B81ED797E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253092   (385548) от 08.10.2018
+
+Rebekka Bakken - Things You Leave Behind (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer 3:54
+02. Black Shades 3:28
+03. Things You Leave Behind 4:06
+04. Time After Time 3:34(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A3FC9D40675ECCCFE996ABEF0B9CB78F0B1015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067952   (385229) от 30.10.2016
+
+Walt Weiskopf - A World Away (1993) 1995, Criss Cross Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A World Away [07:36]
+ 02.Heads in the Clouds [07:47]
+ 03.Immortal Soul [07:21]
+ 04.Mercenary [06:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC5689A9705FAFEA693234B4064FECFF9E91BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326439   (385225) от 20.09.2019
+
+Gunnar Svensson - Head, Fingers & Heart (1995) Phono Suecia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin' Feet [3:08]
+02. Hercules' Tune [3:17]
+03. The Topsy Theme [3:27]
+04. Karl Bertil Jonsson's Christmas Eve [5:19](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6776AFF1046958696AD15A0EC18A69B284993203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326443   (385221) от 20.09.2019
+
+Mose Allison - Lessons In Living (1982) 1994, Discovery Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Mind [2:50]
+02. Wild Man on the Loose [2:22]
+03. Your Mind Is on Vacation [3:28]
+04. You Are My Sunshine [4:43](   Читать дальше...   )Жанр: Vocal Jazz, Soul JazzПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0ABBF05574B6D134145B8BA2829FB063ADCBD42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067888   (385053) от 30.10.2016
 
 Nat King Cole - This Is Nat King Cole (1951-1966) 2CD, 1995, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -569,180 +743,6 @@ Jeff Lorber Fusion - Impact (2018) Time Blues [FLAC|Lossless|image + .cue] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5BE353243AB80FA1B4B02A126776D9CE3DD716E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574857   (381655) от 07.09.2022
-
-Sidney Bechet - Blues In Thirds (1940 - 1941) 1991, Giants Of Jazz [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues In Thirds [2:55]
-02. Ain't Misbehavin [2:52]
-03. Save It, Pretty Mama [2:53]
-04. Stompy Jones [2:48](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B633CCA3CBAE4F73E454377D4406734DAE0531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574766   (381647) от 07.09.2022
-
-David Enhco - Family Tree (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train de nuit (6:04)
-02. Shadow Love (3:38)
-03. The Lighthouse (4:30)
-04. Waltz #1 (3:22)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38815DEF889CFDD5EBFC5FD4F677374CA9938673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414867   (381604) от 10.10.2020
-
-Stan Getz - Opus de Bop (1946 - 1947) 1991, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus de Bop [2:33]
-02. Running Water [2:47]
-03. Don't Worry 'Bout Me [2:40]
-04. And the Angels Swing [2:46](   Читать дальше...   )Жанр: BopПродолжительность: 00:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF1D7F06607EE229DF4FCF4C2670A0D0F61BCE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414870   (381599) от 10.10.2020
-
-Peter Bernstein + 3 - Stranger In Paradise (2004) Venus Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus Blues [7:19]
-02. Stranger In Paradise [6:52]
-03. Luiza [6:25]
-04. How Little We Know [6:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35AE80E3161ADB4A73FE9C02D836495B7E28265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414859   (381593) от 10.10.2020
-
-Andrea Motis - Do Outro Lado do Azul (2019) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antonico [5:39]
-02. Sombra de La [4:00]
-03. Brisa [5:38]
-04. Sense Pressa [6:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF3341BBCBF99F1471FA4ED7CAA80203D768A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574690   (381442) от 07.09.2022
-
-Billy Higgins - Billy's Smile (2002) Red Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plexis [7:32]
-02. Three And Four For Peace [8:33]
-03. Judgement [8:36]
-04. Girl Talk [5:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE146DA6CFFFB0962BFCF6B12EA3C51EC89D58C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1346126   (164631) от 18.12.2019
+
+Toshiko Akiyoshi And Charlie Mariano - East & West 1963 (1997) BMG [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haru-No-Umi [7:17]
+02. Stone Garden of Ryoan Temple [14:27]
+03. Tonight [6:13]
+04. Something's Coming [2:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673708   (164600) от 02.11.2023
+
+Toshiyuki Miyama & The New Herd - Tsuchi No Ne (1973) 2012, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kappa Torai no Chi [4:19]
+02.Mokuhi no Yotabi [4:07]
+03.Bourei no Numa [3:46]
+04.Ougi Denjushiki [2:54](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8657060E2D80E978D1A31CA24585EBA623E639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346222   (164588) от 18.12.2019
+
+Yojo - Yojo (2013) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Psychedelic Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sundiver (5:56)
+02. VHS (6:26)
+03. Pterodactyl (5:29)
+04. Captain Kirk Had A Bad Day (4:20)(   Читать дальше...   )Жанр: Dark Jazz, Post Rock, Psychedelic Rock, InstrumentalПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2702A1D1F9517965EB6A801B661D04D0253392D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516879   (164583) от 13.12.2021
+
+Benko Dixieland Band - A Jazz Szuletesetol Napjainkig (2002) Bencolor [FLAC|Lossless|tracks + .cue] <Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Carey [1:59]
+02. Joshua Fit The Battle Of Jericho [1:51]
+03. Entertainer [3:20]
+04. Long Journey Home [2:13](   Читать дальше...   )Жанр: DixielandПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A023AD6106028C06C3441CFCC6E19037CA5F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598031   (164399) от 17.12.2022
+
+Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 1987, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Room [2:48]
+02. Seven Come Eleven [2:47]
+03. Till Tom Special [3:03]
+04. Gone with 'What' Wind [3:16](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2810783C11CCA8C65E170690147D2F511C946FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346250   (164383) от 18.12.2019
+
+Caro Emerald - Metropole Orkest & Caro Emerald (2017) [FLAC|Lossless|image + .cue] <Nu-Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tahitian Skies
+02. The Ghost Of You
+03. A Night Like This
+04. Home(   Читать дальше...   )Жанр: Nu-Jazz, Pop JazzПродолжительность: 00:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861B08B85D6FDF9B8627FB5CCFED698E5F848A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598027   (164329) от 17.12.2022
 
 Kenny Drew - The Classic Albums (1953 - 1961) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -571,181 +745,6 @@ Django Reinhardt - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2D423F8E58609C0F3301D33B4F22AC9C11A44FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433005   (161866) от 19.12.2020
-
-Katie Melua - Call Off The Search (2003) Dramatico DRAMCD0002 [FLAC|Lossless|image + .cue]<Vocal Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Off the Search (3:25)
- 02. Crawling Up a Hill (3:25)
- 03. The Closest Thing to Crazy (4:12)
- 04. My Aphrodisiac Is You (3:35)(   Читать дальше...   )Жанр: Vocal Jazz, BluesПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333BB49EF3CBDCEB148991EC5A6BD2BDBE111CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517823   (161738) от 17.12.2021
-
-Erroll Garner - 1949, Vol.2 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erroll-A-Garner [2:40]
-02. Stars Fell On Alabama [2:25]
-03. Laura [2:48]
-04. Lavande (Little Girl) [2:49](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA35CE0AAA5860DCEC7C596D83914ED96B0FD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517827   (161698) от 17.12.2021
-
-Johnny Hodges, Rex Stewart, Barney Bigard - The Great Ellington Units (1940 - 1941) 1993, Musical Heritage Society [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Hodges & His Orchestra - Day Dream [3:02]
-02. Johnny Hodges & His Orchestra - Good Queen Bess [3:06]
-03. Johnny Hodges & His Orchestra - That's The Blues, Old Man [3:00]
-04. Johnny Hodges & His Orchestra - Junior Hop [3:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CECA131344275AFF2EA3C401F3B35DB90F753BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598889   (161464) от 21.12.2022
-
-Count Basie & His Orchestra - The Count Basie Collection (1937 - 1939) 3CD, 2021, Acrobat [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161464.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pennies from Heaven [3:03]
-02. Swinging at the Daisy Chain [2:51]
-03. Honeysuckle Rose [2:59](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36FADB99A43100F0DFC36A5EC9EB393E3B5D095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674372   (161438) от 05.11.2023
-
-Sonny Rollins - Go West!: The Contemporary Records Albums (1957, 1958) 3CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm an Old Cowhand (Alternate Take) [10:12]
-02. Come, Gone (Alternate Take) [10:30]
-03. Way Out West (Alternate Take) [6:41]
-04. The Song Is You (Alternate Take) [6:17](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21700499B017DF76968B3D5382B13E25349BB2DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599046   (161428) от 21.12.2022
-
-Ulf Meyer & Martin Wind Featuring Billy Test And Alex Riel - Time Will Tell (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ulf Meyer & Martin Wind, featuring Billy Test and Alex Riel - Time will Tell: expressive musical testimony of a supergroup
-Some supergroups arise out of pure calculation - others out of sheer coincidence or happy coincidence. The latter proves the quartet around Ulf Meyer (guitar), Martin Wind (double bass), Alex Riel (drums) and Billy Test (piano/organ/Fender (   Читать дальше...   )01. Django (Lewis) - 8:53
-02. October Blues (Meyer) - 6:29
-03. Solitude (Wind) - 7:18
-04. Maya (Wind) - 8:24(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B7E5DDA065A5E861F5757BE1B255D4FC0D7FE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

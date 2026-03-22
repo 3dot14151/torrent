@@ -1,3 +1,148 @@
+###  Публикация: 1070734   (364772) от 08.11.2016
+
+VA - Top Deep House Anthems (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Invis - Another Day (6:08)
+02. Arturo Murro - Housenation (7:13)
+03. Bem Horo - Time Scourge (6:10)
+04. Deep Phase - Night Life (6:01)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4973565522D65FFACB11DA39146DCCB5CEFA8DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070727   (364770) от 08.11.2016
+
+VA - Nothing But... Deep House Vol.14 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. &9 - Keys To My Groove (Helder Teixeira Dub) (6:56)
+02. &lez - Deep (Mel Bell Remix) (7:32)
+03. 0208 Crew - Make It Rain (Lesny Deep Remix) (7:51)
+04. 12Inch Music - Marimba Soul (EmoBoys Depressive Remake) (7:37)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0AB547D481BC6D198E692855922C208A83589D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070721   (364768) от 08.11.2016
+
+VA - Good Morning IBIZA Vol.2 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soullution Project - See The Sun (Alex Latino's Supadeep Mix) (3:45)
+02. Ron Falcon - Just For Now (3:29)
+03. Jonathan Mantero - After I Think About It (House King's Mix) (2:56)
+04. Ron Carlton - Difficult Choice (3:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24BB926BD897ADC72150EC00A2CBD8598F215387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070743   (364762) от 08.11.2016
+
+VA - Analog Deep 2016 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SuSoul - I Get Lost To The Sound (Original Mix) (8:48)
+02. Pedro Costa - My Chance (Original Mix) (6:18)
+03. Tania Mendez - Hide Feelings (Original Mix) (6:24)
+04. Marcoa. - Hollow (Original Mix) (7:09)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856C5B7660B155AEE0EA6030412635C9B07DFA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070877   (364674) от 08.11.2016
+
+VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simplex Sensus - Right Behind (07:14)
+02. Flash Is Fast - Clean Your Desk (07:11)
+03. Circuito Zeta - Step Down (07:18)
+04. Dan Rubell - My Love (DJ Fopp Mix) (06:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D3DAF2E48E121FC596477D62433EA7CC629E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070761   (364673) от 08.11.2016
 
 VA - Sense Of Deephouse (2016) [MP3|320 Kbps] <Deep House>
@@ -603,145 +748,6 @@ VA - ADE Afterhours Volume 01 (2018) [MP3|320 Kbps] <Progressive House,Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D317BEE022203536B7071CCE542713D5812C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256579   (354414) от 22.10.2018
-
-DJ Бинокль - DneproHouse (2001) [MP3|320 Kbps] <Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.DJ Бинокль - DneproHouseЖанр: Club HouseПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9E30FCCFC3E2D615FE7EF0C0F0E6F085EED1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072675   (352391) от 13.11.2016
-
-VA - New Years Eve: Dance Party Package (2016) [MP3|320 Kbps] <House, Disco, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natalie Grant - I Will Survive (Vocal Radio Edit) (3:17)
-02. The Booty Jocks - Night Fever (5:24)
-03. Proyecto E-Fecto & Markus D'Ambrosi - Sweat... A La La La La Long (Reggaeton Mix) (3:22)
-04. The Booty Jocks - Celebration (5:11)(   Читать дальше...   )Производство: Sounds UnitedЖанр: House, Disco, DanceПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2278914262219A946551632FF7333BE1AA684C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256857   (352109) от 23.10.2018
-
-DJ Base - Энергия Жизни 1 (2001) [MP3|256 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.DJ Base - Energiya ZHiZni 2000Жанр: Progressive HouseПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5747CA4CC29D73FADE113704732533A0225DA7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256794   (351989) от 23.10.2018
-
-DJ Бинокль - Counter-Strike Attack (2002) [MP3|320 Kbps] <Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Unknown Artist – Intro (Smoke Machine In Beats)0:26
-02 Depeche Mode – I Feel Loved (Danny Tenaglia Mix)Remix – Danny Tenaglia 4:45
-03 Dirty Vegas – Days Go By (Full Vocal Mix) 4:14
-04 Sia – Drink To Get Drunk (Different Gear Mix) 4:45(   Читать дальше...   )Жанр: Club HouseПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2FE5DD05D5C75CB92BF7DEA2A9CB50905A16CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256723   (351696) от 23.10.2018
-
-VA - Intricate Records Is Going to Amsterdam (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Oloviani - Stardust (Original Mix)
-02. Tommy Conway - Storm Chasing (Original Mix)
-03. Sergey Tkachev - The Longest Mile (Original Mix)
-04. Sebastian Weikum - Monsoon (Anturage Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623AB688C46F47D5414AEF2BF6705677EB2B356E
 ```
 
 https://mybot314.ru/tekegram_catalog/

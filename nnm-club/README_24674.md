@@ -1,25 +1,24 @@
-###  Публикация: 1802980   (65961) от 20.06.2025
+###  Публикация: 1787445   (68766) от 25.03.2025
 
-Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Modal>
+Ганс Христиан Андерсен | Цветы маленькой Иды (Цветы для Иды) (Инсценировка) (2024) [MP3, Антон Багров, Наталья Разбаш и др.]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65961.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. So What    [0:09:25.32]
-02. Freddie Freeloader    [0:09:49.05]
-03. Blue in Green    [0:05:37.43]
-04. All Blues    [0:11:35.57](   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:25
+Серия/Цикл: Театр у вас дома.
+Ганс (Ханс) Христиан Андерсен (1805–1875) – датский писатель и поэт, автор всемирно известных сказок для детей и взрослых: «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» и др.
+Сказка «Цветы маленькой Иды» (1835). Маленькая Ида очень любит свои игрушки и обожает слушать увлекательные истории студента, приходящего (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:47:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAC7B638F85B5A13EE1523A846803DADA7C31A28
+magnet:?xt=urn:btih:E04C6F057067E245C2E24163DEF705E5C1578B42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +26,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802871   (65960) от 20.06.2025
+###  Публикация: 1787442   (68765) от 25.03.2025
 
-Фоны - kaleriia - Envato - Blond Hair Backgrounds - M9GVLMT [JPG]
+Ганс Христиан Андерсен | Новый наряд короля. Дикие лебеди. Огниво (2009) [MP3, Алексей Золотницкий и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература.
+Ганс (Ханс) Христиан Андерсен (1805–1875) –  известный датский писатель, сказки которого без преувеличения знают все. И отважную девочку Герду, не побоявшуюся отправиться в замок Снежной королевы на выручку брата, и Гадкого утёнка, превратившегося в прекрасного лебедя и конечно, Русалочку, пожертвовавшую собой ради великой любви.
+В (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПеревод: Анна ГанзенИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C175BEC9E5EC8BEFBFCDFEF7E297C67742259EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787591   (68764) от 26.03.2025
+
+Шрифты - MyFonts - Fliper [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65960.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 фонов со светлыми волосами.Формат: JPGРазрешение файлов: 5000 x 3333
+Fliper — это дружелюбный шрифт без засечек, который одновременно имеет геометрическое ядро ​​и гуманистические детали.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19582F5835AD5726B2EB76A97F9E622FE42B06F8
+magnet:?xt=urn:btih:F3970591C09B0B4E41F984B4E97EBD7176FDA956
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802931   (65959) от 20.06.2025
+###  Публикация: 1787689   (68763) от 26.03.2025
 
-Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
+The Smoothies - We Can Change The Past (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65959.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Human
-02 – Belong
-03 – Beautiful
-04 – Surface(   Читать дальше...   )Жанр: Dark-Electro, EBM, FuturepopПродолжительность: 01:39:18
+01.  We Can Change The Past (3:33)
+02.  Don't Change a Thing (3:34)
+03.  Springtime Song (3:34)
+04.  It's Raining in Rome (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:117C539968455639542B4D9B8D7E7AC2E86803AE
+magnet:?xt=urn:btih:7C03E1DA14D352FF7CE7068EEC9BB340174D1F99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,167 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802949   (65958) от 20.06.2025
+###  Публикация: 1787283   (68762) от 26.03.2025
 
-Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memorabilia (The Hacker 808 Remix) [00:06:39]
-02. A Man Could Get Lost (Jon Pleased Wimmin Remix) [00:05:48]
-03. Torch (MHC 2001 Remix) [00:08:42]
-04. Insecure Me (Hifi Sean Remix) [00:06:17](   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AF2EADF2995779240C3824FE9E5D92979E3CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802922   (65957) от 20.06.2025
-
-Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Gone
-02 – All over me
-03 – Relationships
-04 – Down to be wrong(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4E7AD9A58E34DA3D3847841EFFA6F8CC401115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802896   (65956) от 20.06.2025
-
-VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax – To The Ground (Matt Fax Doppelgänger Mix)
-02. ILLENIUM & HAYLA – In My Arms (KREAM Remix)
-03. Weekend Players – Into The Sun (Progressive Pick)
-04. Rivo & North – Stay Here (Leblanc Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B361D814E8B75C3763A2018032C9D881A612DA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802952   (65955) от 20.06.2025
-
-Газета | Тайны СССР №3 (26) (февраль 2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877C8EEB1BF52FB184841B0F95648A021F53CD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802872   (65954) от 20.06.2025
-
-Фоны - kaleriia - Envato - Red Hair Backgrounds - SHRLWZE [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65954.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 фонов с рыжими волосами.Формат: JPGРазрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C870A97AA75A1E0DDDB5C06D733A08B8A79066A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802817   (65953) от 20.06.2025
-
-Revelation - Inner Harbor (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Metal>
+Sundenrausch - Original Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Hard Rock, Alternative Rock, Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65953.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inner Harbor
-02. Terribilita
-03. Rebecca at the Well
-04. Eve Separated(   Читать дальше...   )Жанр: Progressive, Doom MetalПродолжительность: 00:35:01
+01 - Dawn Of Time [1:02]
+02 - Red Sun [3:46]
+03 - Trapped In Limbo [4:08]
+04 - Original Sin [4:05](   Читать дальше...   )Жанр: Gothic Metal, Hard Rock, Alternative Rock, MetalПродолжительность: 00:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC7D2F415FC08C746BCA7156715E78AD8FD1A73E
+magnet:?xt=urn:btih:E25D097F8C2AF5F51A67D08B06782743638FD501
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +140,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802916   (65952) от 20.06.2025
+###  Публикация: 1787584   (68761) от 26.03.2025
 
-Selvforakt - Ormstukken (2025) [MP3|320 Kbps] <Black, Sludge Metal, Crust>
+Шрифты - MyFonts - Mosir [OTF, TTF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65952.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fortapt
-02. Undergang
-03. Nålebyen
-04. For alltid(   Читать дальше...   )Жанр: Black, Sludge Metal, CrustПродолжительность: 00:29:38
+Семейство шрифтов отличается модульным дизайном с закругленными деталями, которые выглядят либо полностью современными, либо полностью старомодными, в зависимости от компании.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C43C1106C60403238FE8727279D860B250DA8ED8
+magnet:?xt=urn:btih:666DB9830C6206D3F734BD4480BA98C7B3936275
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,57 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802998   (65951) от 20.06.2025
+###  Публикация: 1787640   (68760) от 26.03.2025
 
-Leverage - Gravity (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Shooting Star
-02 – Tales of the Night
-03 – Hellbound Train
-04 – Moon of Madness(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2CBFE45BCD52A5731191E3968A0F2E6466F6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802929   (65950) от 20.06.2025
-
-Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Power Metal>
+Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65950.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - ...Of Silence
-02 - Weballergy
-03 - False News Travel Fast
-04 - The End Of This Chapter(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:16
+01. She Is My Sin
+02. The Kinslayer
+03. Come Cover Me
+04. Wanderlust(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:05:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1091AB78D33067BE80935D751FA5CEB8A6DC7C8F
+magnet:?xt=urn:btih:B1CEDEB557E55F5A945F32D34A7F278CC5E14976
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,226 +197,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802639   (65949) от 20.06.2025
+###  Публикация: 1787436   (68759) от 26.03.2025
 
-Me'Shell NdegеOcello - Cookie: The Anthropological Mixtape (2002) [FLAC|Lossless|tracks + .cue] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Nigga Blvd., Part 1 - 3:04
-02. Hot Night - 4:32
-03. Interlude: blah blah blah, dyba dyba dyba - 0:40
-04. Priorities 1-6 - 3:43(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764A8B05B337481B04411FD135D8E7F9ACBAF778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802907   (65948) от 20.06.2025
-
-Imperial Triumphant - Alphaville (2020) [FLAC|Lossless|image + .cue] <Black Metal, Technical Death Metal, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65948.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rotted Futures
-2. Excelsior
-3. City Swine
-4. Atomic Age(   Читать дальше...   )Жанр: Black Metal, Technical Death Metal, AvantgardeПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC19245A6C73C31AA7802002578018689C5EBB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802988   (65947) от 20.06.2025
-
-Alestorm - The Thunderfist Chronicles (2025) Deluxe Version, 3CD, Napalm Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Power-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65947.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Hyperion Omniriff (Instrumental) (5:30)
-• 02. Killed to Death by Piracy (Instrumental) (3:20)
-• 03. Banana (Instrumental) (3:44)
-• 04. Frozen Piss 2 (Instrumental) (4:38)(   Читать дальше...   )Жанр: Power-MetalПродолжительность: 3CD, 02:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC7CC9C64EF8C890E97BEAA40F40FD4C7BE94FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802851   (65946) от 20.06.2025
-
-Last Grasp - Southern Malaise (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under the Limestone [00:03:19]
-02. Southern Ennui [00:04:06]
-03. Fruit Bat Baby [00:02:15]
-04. Florida Cryptid [00:02:26](   Читать дальше...   )Жанр: Darkwave, Post-PunkПродолжительность: 00:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94A6A23613DC03056E2BF96CEB2EAC4F0DE3A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802798   (65945) от 20.06.2025
-
-SanMinor - Шаг вперед (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65945.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Женские уста
-2.Истина (Remix)
-3.Корабли твои мечты (Remix)
-4.Жара(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D73B0E2DBC14F1CE911A58BA5829C9022A21F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802921   (65944) от 20.06.2025
-
-VA - Ori Uplift - Uplifting Only Episode 645 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ADOVE – Lavender Field (Intro Edit) (Pre-Release Pick)
-02. Ronny K. vs Ziki – Memories (New World Remix)
-03. Twin View – Papillon (Sergey Salekhov Remix)
-04. XiJaro & Pitch – Unite Again (Corrado Baggieri Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADC51E9C463960D0538531FEAF4C93D0D699ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803049   (65943) от 21.06.2025
-
-Фредерик Содди | История атомной энергии (2025) [MP3, Георгий Попов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65943.jpg" />
-</div>
-
-
-###  Подробнее
-
-«История атомной энергии» — научно-популярная книга английского радиохимика, лауреата Нобелевской премии по химии Фредерика Содди (1877–1956)
-Книга представляет огромный историко-научный и культурный интерес как уникальная оценка полувекового развития ядерной физики с позиций одного из её основателей.Жанр: Учебная и научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 15:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDEE6630CFDCC3F0B0EC4640FF0007F1BE6FE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803188   (65942) от 21.06.2025
-
-Маленький-удаленький (1938) WEBRip [H.264/1080p]
+Сверчок (1982) DVDRip
 
 >>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65942.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О футбольном матче между козлами и зайцами, закончившемся, несмотря на все ухищрения вероломных козлов, в пользу зайчишек. Одним словом, сказка для детей - в реальной жизни бывает, что не все так радужно заканчивается...Производство: СССР / МосфильмЖанр: кукольный, детский, короткометражныйРежиссер: Валентин КадочниковСубтитры: отсутствуютПродолжительность: 00:14:28
+Жил в лесу один жадный медведь. Дал ему как-то другой пожилой медведь по имени Спиридон бочонок мёда, сказав, чтобы тот поделился с остальными. Однако Ваня медвежонок-жадина решил съесть весь его до капли сам. Другие зверята увидели это и решили проучить жадину.Производство: СССР / КуйбышевтелефильмЖанр: мультфильм, короткометражкаРежиссер: Александр ПолушкинАктеры: Гарри Бардин, Мария Виноградова, Светлана Лукашова, Александр Баранов, Ефим КацировСубтитры: отсутствуютПродолжительность: 00:10:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8B46F0A25284C7EB67579051DF0A5E52638E7EF
+magnet:?xt=urn:btih:967E41A95F0440E205245F410AB24562CADD0BB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,28 +223,274 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803098   (65941) от 21.06.2025
+###  Публикация: 1787573   (68758) от 26.03.2025
 
-GoGo Penguin - Necessary Fictions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Electronic, Instrumental>
+Kenny Wayne Shepherd, Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трехкратный обладатель премии Грэмми, легенда блюза Bobby Rush и пятикратный номинант на премию Грэмми, певец, автор песен и гитарист Kenny Wayne Shepherd объединились для совершенно особенной коллекции новых блюзовых песен, которые два артиста написали и записали вместе. Родившись с разницей в 44 года, Rush и Shepherd объединили усилия в Royal Studios в Мемфисе, (   Читать дальше...   )01. Who Was That (4:14)
+02. 40 Acres (How Long) (5:41)
+03. Hey Baby (What Are We Gonna Do) (3:58)
+04. Uncle Esau (4:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE29BC53E69FF235C5BC6CD69BCD37CBE60EEAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787714   (68757) от 26.03.2025
+
+Firefox Browser 136.0.3 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE004FD6730F3458D677D3F154F9B88053FEA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787301   (68756) от 26.03.2025
+
+UFO - Seven Deadly (2012) Deluxe edition, Reissue, 2024, Cleopatra Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fight Night [4:35]
+02 - Wonderland [5:09]
+03 - Mojo Town [3:57]
+04 - Angel Station [6:24](   Читать дальше...   )Жанр: Hard Rock, Blues Rock, RockПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD94AF3036E81B26C087289AD99EB224E326312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787462   (68755) от 26.03.2025
+
+Буйная ватага / Дяджял дястя (1937) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о жизни учеников одной из бакинских школ.
+Первая роль в кино азербайджанской актрисы Лейлы Бадирбейли (Джаванширова)
+Картинка далека от идеала.Производство: СССР / Азерфильм, Бакинская студияЖанр: детский, комедия, немое киноРежиссер: Александр Попов, Гамар СаламзадеАктеры: Лейла Бадирбейли, А. Варганова, Муртаза Ахмедов, А. Багирова, А. Мирзоев (III), Н. Антонов, Геннадий МолодцовСубтитры: русские (интертитры)Продолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB5A9A0AEFCCDBA6CB0134F4759CD6E47064FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787527   (68754) от 26.03.2025
+
+VA - I Love ZYX Italo Disco Collection 5 (2006) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perestroika Power - Animal Farm (Extended Version)
+02. Josy - Magic (Extended Version)
+03. Lian Ross - Fantasy (New Remix)
+04. L'affair - Secret Eyes (Extended Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7C57945411AB3EAB25DCBAFB3C1D2D7C6C88EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787722   (68753) от 26.03.2025
+
+Vivaldi 7.2.3621.71 include standalone [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723168F0BD223CA31DA4CA7ABBEC9AC82E5C6336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787561   (68752) от 26.03.2025
+
+Журнал | Делаем сами №6 (579) (март 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68752.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE370EF84A6AAD4324B8EB17F6D8C778E51086C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787469   (68751) от 26.03.2025
+
+Субстанция. Идеал / Grafted (2024) WEBRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Вэй, потерявшая отца в результате неудачного испытания инновационной инъекции, переезжает к тёте в Новую Зеландию, надеясь начать новую жизнь и получить образование. Вскоре она сталкивается с травлей со стороны кузины и её подруг, которые высмеивают внешность и национальные особенности девушки.
+В качестве решения проблемы Вэй предлагает преподавателю (   Читать дальше...   )Производство: Новая Зеландия / Propaganda, FluroBlack, Head Gear FilmsЖанр: ужасыРежиссер: Саша РейнбоуАктеры: Джоена Сон, Джесс Хун, Джаред Тернер, Иден Харт, Сепи Тоа, Сяо Ху, Марк Митчинсон, Chloe Parker, Элисон Киган, Эндрю Манро и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:12Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787528   (68750) от 26.03.2025
+
+GeoGebra 6.0.879 Classic + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68750.jpg" />
+</div>
+
+
+###  Подробнее
+
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78985167E57CC0F9B3AB4E573C91578D661B9EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787680   (68749) от 26.03.2025
+
+Jad Tariq - Jad Tariq Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65941.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Umbra
-02 – Fallowfield Loops
-03 – Forgive the Damages (feat. Daudi Matsiko)
-04 – What We Are and What We Are Meant to Be(   Читать дальше...   )Жанр: Jazz, Electronic, InstrumentalПродолжительность: 00:48:39
+01.  Flapjack (2:42)
+02.  You Think You're Too Good For Me (2:48)
+03.  Had You Told It Like It Was (3:23)
+04.  Fortune's Fool (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CBABF1F57FDFE1121D108FC48475C2A8C8F4808
+magnet:?xt=urn:btih:114B5A332C268D35F8FB70742093C368D8725ECB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +498,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803114   (65940) от 21.06.2025
+###  Публикация: 1787690   (68748) от 26.03.2025
 
-Caravan Palace - Dusty House Mix (Mixed) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
+Toni Sanchez Group - Projecte Delta (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65940.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. City Cook (Shiny Mob Remix) (Mixed)
-02. Moonshine (Bakermat Remix) (Mixed)
-03. Russian (Mixed)
-04. Tattoos (Mixed)(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 01:00:17
+01.  Obertura (5:50)
+02.  Piú nessuno mi porterá nel sud (4:04)
+03.  El vals de la fi del món (2:06)
+04.  Miles has a guitar (6:04)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:38:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44B847E59058D7B2631D4B4963F7E10C4F77A20E
+magnet:?xt=urn:btih:328F6E0353E29CFCD89D796AED4889FA7580DED4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,28 +527,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803103   (65939) от 21.06.2025
+###  Публикация: 1787627   (68747) от 26.03.2025
 
-Itinerum - Resurgence (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Ганс Христиан Андерсен | Снежная королева (Радиоспектакль) (2023) [MP3, Светлана Письмиченко и др.]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65939.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The Nobodies
-2. My Serenity
-3. Mother Of Chaos
-4. Till Dawn Do Us Apart(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:34:21
+Серия/Цикл: Детский остров.
+Ганс (Ханс) Христиан Андерсен (1805–1875) – датский писатель и поэт, автор всемирно известных сказок для детей и взрослых: «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» и др.
+
+Сказка «Снежная королева» – впервые была издана в 1844 году и с тех пор регулярно включается в сборники избранных сказок Андерсена.(   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:49:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5457515BBCA2E33FCFD42D35A6480FEE6FB456DF
+magnet:?xt=urn:btih:C9365AA4B8DAB0E38A2D114BA5B538E318C34CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +556,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803051   (65938) от 21.06.2025
+###  Публикация: 1787659   (68746) от 26.03.2025
 
-Газета | Тайны СССР №6 (55) (март 2020) [PDF]
+Darkness Light - Alive and Not Alone (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65938.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01.  Back to My Life (1:56)
+02.  Living with the Danger (3:48)
+03.  Adrenaline (4:26)
+04.  Darkness (5:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4B468C81C699BE756CC16282809745D7D7E2808
+magnet:?xt=urn:btih:77AA1168E2DAEBC4D0F7CAB22BB0118C958E2A80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,25 +585,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803067   (65937) от 21.06.2025
+###  Публикация: 1787625   (68745) от 26.03.2025
 
-Газета | Тайны СССР №16 (65) (август 2020) [PDF]
+Ганс Христиан Андерсен, Евгений Шварц | Снежная королева (Инсценировка) (2007) [MP3, Евгений Перов, Галина Новожилова и др.]
 
->>Журналы
->>Другие журналы
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65937.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+Серия/Цикл: Мелодия – детям.
+Ганс (Ханс) Христиан Андерсен (1805–1875) – датский писатель и поэт, автор всемирно известных сказок для детей и взрослых: «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» и др.
+Евгений Львович Шварц (1896–1958) – русский советский прозаик, сценарист, драматург, журналист и поэт.
+На этом диске – прекрасная сказка, (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:08:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA90C47F3F48194D16EB362A916C25B3F6906DCB
+magnet:?xt=urn:btih:6B57A994EE609A5E9FFA23F0060557125D0A3940
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,26 +614,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803068   (65936) от 21.06.2025
+###  Публикация: 1787623   (68744) от 26.03.2025
 
-TikTok Private Plus v40.5.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
+Ганс Христиан Андерсен | Сказки (2006) [MP3, Сергей Горбунов]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65936.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом Моде можно выкладывать видео для РФ.
-TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 20.06.2025Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+Серия/Цикл: Аудиосказка для детей и не только.
+Ганс (Ханс) Христиан Андерсен (1805–1875) – датский писатель и поэт, автор всемирно известных сказок для детей и взрослых: «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» и др.
+В аудиокнигу вошли самые красивые и романтичные сказки Г.Х. Андерсена. Добрые и трогательные истории о любви и преданности, (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: МедиаКнигаПродолжительность: 07:44:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07E5D6822C9F95CC7F51F703F8E41773F815BC4E
+magnet:?xt=urn:btih:F5CC08CB63A787874136F0EBBA24539CAC272293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787579   (68743) от 26.03.2025
+
+Шрифты - MyFonts - Realise Slab [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realise Slab — семейство шрифтов с засечками, которое по духу относится к эстетике шотландского модерна в решительно современной и брутальной форме. Острые детали встречаются с высокой контрастностью и экспериментальными деталями в миниатюре.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B40888554ACA00E4954DE3A00665E06065EBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787664   (68742) от 26.03.2025
+
+Муки переезда / FlyttedagsKvaler (1915) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая забавная история. Переезд с квартиры на квартиру это всегда такие хлопоты, такая нервотрепка. И вот, чтобы избежать всех этих мук, один господин едет в гости к приятелю, где успокаивает нервы до самой ночи. Но, видимо, он неправильно выбрал успокоительное средство и поэтому, в конце концов, вместо новой квартиры он, по привычке,  явился в старую, куда уже (   Читать дальше...   )Производство: Дания / Nordisk FilmЖанр: короткометражный, комедия, немое киноРежиссер: Лау ЛауритценАктеры: Олуф Биллесборг, Ellen Ferslev, Филиппа Фредериксен, Питер Йоргенсен, Дагмар Кофоед, Кристиан Шрёдер, Оскар Стриболт, Holger Syndergaard, Мэгги ЗиннПеревод: немой с интертитрами (В. Сачков)Субтитры: датские (интертитры), русскиеПродолжительность: 00:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382E8174BF02445E73CBB35D957F5671F1C916E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787560   (68741) от 26.03.2025
+
+Шрифты - MyFonts - Minati [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шрифт является очень гибким выбором и может использоваться в различных дизайнерских контекстах.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29D87C3CE46DC02ED90305076EF4A72A7B98BBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

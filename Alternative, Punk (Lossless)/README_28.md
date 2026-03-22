@@ -1,3 +1,119 @@
+###  Публикация: 1299758   (595057) от 04.05.2019
+
+Yours Truly - Afterglow (2019) EP [FLAC|Lossless|tracks + .cue] <Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595057.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Circles (2:51)
+2. I Can't Feel (2:57)
+3. High Hopes (3:51)
+4. Delusional Paradise (3:35)(   Читать дальше...   )Жанр: Rock, Pop PunkПродолжительность: 00:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDD40A23928EC5170D348E5995B2FBD1217E30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299656   (594975) от 04.05.2019
+
+Millencolin - SOS (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SOS (03:19)
+02. For Yesterday (02:46)
+03. Nothing (02:58)
+04. Sour Days (03:07)(   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85C673583EE36E39A4D9E2FD7334875FEE54AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039696   (594700) от 02.08.2016
+
+CiG (Chad I Ginsburg) - Rock N Roll Alibis (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive With Overdrive 03:23
+02. Dead To You 04:26
+03. Beyond The Barricade 04:26
+04. Somethin' To Hide 04:33(   Читать дальше...   )Жанр: Alternative Metal, Alternative Rock, Hard RockПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C238BBE30FCC0BFACB407F1CD09B6B2F73C5BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300062   (594586) от 04.05.2019
+
+Cigarettes After Sex - Cigarettes After Sex (2017) Partisan Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. K. (5:20)
+ 02/10. Each Time You Fall In Love (4:50)
+ 03/10. Sunsetz (3:35)
+ 04/10. Apocalypse (4:50)(   Читать дальше...   )Жанр: Indie Rock, Dream Pop, AmbientПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B76A64F47FD495034044F2632E4C653EE9817A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039771   (594515) от 02.08.2016
 
 Foals - Holy Fire (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
@@ -630,122 +746,6 @@ Death Note Silence - Collide & Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8587467177DEA2ECD1ED02FC247ED0D69E75FAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553552   (581869) от 26.05.2022
-
-Sever - This Should Have Been a Better Place (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581869.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. '91
-2. Red Room
-3. Animal
-4. Cold World(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5682CA81082294BFF16118A7328B1AB3FB4279FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302307   (581315) от 15.05.2019
-
-SASAMI - SASAMI (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was a Window (feat. Dustin Payseur) (03:34)
-02. Not the Time (02:50)
-03. Morning Comes (04:23)
-04. Free (feat. Devendra Banhart) (04:30)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFD80B771DCC418CBDFC5C4E5483A588B22B3D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302312   (581313) от 15.05.2019
-
-Mac DeMarco - Here Comes the Cowboy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The Cowboy (03:00)
-02. Nobody (03:32)
-03. Finally Alone (02:24)
-04. Little Dogs March (02:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF905998E6F2860925A436F3B2B9140AB07FF1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042129   (580470) от 11.08.2016
-
-Evans Blue - Letters From The Dead (2016) [FLAC|Lossless|tracks] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Letter From The Dead
-02. Comfortable With Hate
-03. Still I Remain
-04. Just Once(   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2B5E9F6291A03881E4E8653214BC98DCE8B73D
 ```
 
 https://mybot314.ru/tekegram_catalog/

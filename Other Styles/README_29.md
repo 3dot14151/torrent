@@ -1,3 +1,32 @@
+###  Публикация: 997435   (875584) от 16.03.2016
+
+Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Folk, Dark Folk, Experimental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875584.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Lose Yourself Forever Is Eternal Happiness
+2. You Can't Remain Here
+3. Detachment
+4. The Purified Eye of the Soul Is Placed In the Circle of Eternal Sun(   Читать дальше...   )Жанр: Folk, Dark Folk, ExperimentalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70361A1C7F88CBA512AE8BB25645106AD0C858A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783854   (874193) от 09.04.2020
 
 Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
@@ -714,35 +743,6 @@ Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3CAFD280E99DE5E0F7FB8425803CF2402038B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107019   (869674) от 21.02.2017
-
-Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enamor
-02. Lost Love
-03. La Guitarra De Oro
-04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB182E83FF0F2E61487EA315342168E7806838A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

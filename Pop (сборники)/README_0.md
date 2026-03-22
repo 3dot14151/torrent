@@ -1,3 +1,32 @@
+###  Публикация: 1841986   (1048701) от 15.12.2025
+
+VA - Hit music (2025. Зима) (2025) [MP3|320 Kbps] <POP>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fantomel x A - Traxx, K.Linn, K.Funk - Dame Un Grrr (Dj Baur VIP Edit)
+002. Basic Element - Leave It Behind (Oneon Remix)
+003. Инкогнито - До тебя
+004. Taylor Swift - The Fate of Ophelia (Dj Dark Remix)(   Читать дальше...   )Жанр: POPПродолжительность: 09:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFEB98ADF2A3AB2273706B5ACCE955487146815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842211   (1048587) от 15.12.2025
 
 Reyvi - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -716,35 +745,6 @@ VA - Party Retro Hits 80s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D6C921A1EECF1E3987DF0BE2F33CFCB51380CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441871   (1037178) от 23.01.2021
-
-VA - German Top 100 Single Charts 22.01.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasimir1441, badmómzjay & WILDBWOYS - Ohne Dich
-02. Olivia Rodrigo - drivers license
-03. Katja Krasavice - HIGHWAY (feat. ELIF)
-04. Rin - Dirty South(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6343AC13E61BB1E04506823B51F28BF4336BA782
 ```
 
 https://mybot314.ru/tekegram_catalog/

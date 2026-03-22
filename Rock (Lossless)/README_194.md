@@ -1,3 +1,380 @@
+###  Публикация: 1805222   (12566) от 04.07.2025
+
+Queen - Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Ga Ga (Remastered 2011)
+02. I Want To Break Free (Remastered 2011)
+03. A Kind Of Magic (Remastered 2011)
+04. Killer Queen (Remastered 2011)(   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA6243EE96D5FEA0A837733C4ED3D970F2A9FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805770   (12142) от 08.07.2025
+
+VA - Summer Rock Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  America - A Horse with No Name (4:12)
+02.  Chicago - 25 or 6 to 4 (4:50)
+03.  Fleetwood Mac - Dreams (2018 Remaster) (4:17)
+04.  Carly Simon - You’re So Vain (4:18)(   Читать дальше...   )Жанр: RockПродолжительность: 02:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5B9507554F014AFDD75DFC265661D9E3978E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805768   (12141) от 08.07.2025
+
+VA - Road Trip Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  David Brauner - Is There More (4:10)
+02.  The Rockpins - Heartbeat (4:38)
+03.  KATE RENA - Million Ways (2:52)
+04.  RayDi & Stivie - My Heart (3:33)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA8234D744BF6281E72451865F40327435949A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805766   (12139) от 08.07.2025
+
+VA - 25 Indie Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock/Rock pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Somerdale - The Coolest Kid in the Room (3:04)
+02.  Alex Muhanoff - Certified (4:50)
+03.  PG Naylor - Something for Nothing (3:27)
+04.  Reeya Banerjee - The Magic Word (3:33)(   Читать дальше...   )Жанр: Indie Rock/Rock popПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23AC6FD01A9C3B16D19FA16063A77D6BD9249693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805852   (12112) от 08.07.2025
+
+Type O Negative - Dead Again (2007) Reissue, 2022, Nuclear Blast [FLAC|Lossless|image + .cue] <Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12112.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Dead Again:
+1-1 Dead Again 4:16
+1-2 Tripping A Blind Man 7:05
+1-3 The Profit Of Doom 10:47(   Читать дальше...   )Жанр: Goth RockПродолжительность: 02:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F288E3199A686B69D0E83CFB6A1B917ADB484672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806035   (11963) от 10.07.2025
+
+Dire Straits - Brothers In Arms (1985) Box Set, 3xCD, Reissue, 2025 ,Mercury Records, 40th Anniversary [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One - Brothers In Arms:
+01. So Far Away
+02. Money For Nothing
+03. Walk Of Life(   Читать дальше...   )Жанр: RockПродолжительность: 02:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6150A2BB697896273E324C24B050ED77A54EB466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806439   (11774) от 12.07.2025
+
+Queen - Anthems (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Rock You (Remastered 2011)
+02. Bohemian Rhapsody (Remastered 2011)
+03. In The Lap Of The Gods... Revisited (Remastered 2011)
+04. Save Me (Remastered 2011)(   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8AF432FEEBFF8EB485D23A4444CA9C14928C3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806510   (11605) от 13.07.2025
+
+Sting - The Dream Of The Blue Turtles (1985) 2025 Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Love Somebody Set Them Free (Single Edit)
+02. Love Is The Seventh Wave
+03. Russians
+04. Children's Crusade(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404511C5CE11D11B579BBF8A6CABAB8CC4A5298E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807089   (11299) от 16.07.2025
+
+Jethro Tull - Still Living In The Past (2025) Box Set, 5XCD, Compilation, Reissue, 2025, Chrysalis [FLAC|Lossless|image + .cue] <Folk Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11299.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Original Mixes, Remixes, Edits & Demos 1968–1971:
+01. Song for Jeffrey (1971 remix)
+02. Love Story (1971 remix)
+03. A Christmas Song (1971 remix)(   Читать дальше...   )Жанр: Folk Rock, Prog RockПродолжительность: 04:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6E019452181FEA505B1B096CF3F5D93910B090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807258   (11093) от 18.07.2025
+
+Queen - Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another One Bites The Dust (Remastered 2011)
+02. Staying Power (Remastered 2011)
+03. My Baby Does Me (Remastered 2011)
+04. Back Chat (Remastered 2011)(   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F74FD86D91C253FC6E2171892ABED69109132C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808431   (10520) от 24.07.2025
+
+VA - 70s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gerry Rafferty - Right down the Line (4:28)
+02.  Fleetwood Mac - Dreams (2018 Remaster) (4:17)
+03.  Chicago - If You Leave Me Now (3:54)
+04.  Rod Stewart - You're in My Heart (The Final Acclaim) (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 01:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8230DE5224555535AB21667B6455B7862988F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808985   (10095) от 28.07.2025
+
+Queen - Ballads (2025) Remastered, 2011, UMG Recordings, Inc. [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love Of My Life (Remastered 2011) [3:38]
+02 - Sail Away Sweet Sister (Remastered 2011) [3:34]
+03 - Life Is Real (Song For Lennon) (Remastered 2011) [3:32]
+04 - Spread Your Wings (Remastered 2011) [4:35](   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B509DF160523E5369C9C76F93220390F7AB2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809241   (9947) от 29.07.2025
+
+The B-Shakers - Kissed By The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Son Of A Gun (04:23)
+ 02 - Hurry Up (02:56)
+ 03 - Bullet In Your Chest (04:42)
+ 04 - The B-Shakers Boogie (03:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A197FD40DE0745555D37A5E651BBEB7AC5DE7B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809893   (9661) от 01.08.2025
 
 Queen - Slightly Mad (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
@@ -369,383 +746,6 @@ VA - 90s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1F7BFEFA75665DCC6EB2E877F582308262FFA40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811788   (8440) от 11.08.2025
-
-VA - Rock para estallar los parlantes (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Myles Kennedy - Sweet Child O' Mine (Live) (6:29)
-02.  The Rolling Stones - Paint It, Black (3:23)
-03.  Queen - Another One Bites The Dust (3:35)
-04.  Tesla - Modern Day Cowboy (5:19)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCD718677E97D1318886B1A70FAA9D4AB3C22D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811822   (8434) от 11.08.2025
-
-Paul McCartney - Amoeba Gig (2019) SHM-CD, Japanese Edition, Reissue, 2025, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive My Car (live at Amoeba 2007)
-02. Only Mama Knows (live at Amoeba 2007)
-03. Dance Tonight (live at Amoeba 2007)
-04. C Moon (live at Amoeba 2007)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA36E038105F448D7D39FFFB2E1CA23A6AB8E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811780   (8428) от 11.08.2025
-
-VA - Hard Rock 2000s (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Green Day - The American Dream Is Killing Me (3:06)
-02.  The Black Keys - Man on a Mission (3:32)
-03.  Paramore - Proof (3:15)
-04.  My Chemical Romance - Mama (4:39)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3354B68D966A0211DE8864E85A91BF147D362E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811776   (8418) от 11.08.2025
-
-VA - Feel-Good Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Chemical Romance - Burn Bright (4:17)
-02.  Paramore - Ain’t It Fun (4:57)
-03.  Faith No More - We Care a Lot (4:04)
-04.  Biffy Clyro - A Little Love (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5FCDF3ECB932D62CC75D686640A7B25C759893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811794   (8417) от 11.08.2025
-
-VA - Rock songs para gising sa biyahe (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Chemical Romance - Welcome to the Black Parade (4:38)
-02.  Linkin Park - Heavy Is the Crown (2:47)
-03.  Good Charlotte - Rejects (2:55)
-04.  Fall Out Boy - Grand Theft Autumn / Where Is Your Boy (3:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7EE19D96B3382C2186769D6B3179BA318907E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811942   (8258) от 12.08.2025
-
-The Black Keys - No Rain, No Flowers (2025) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8258.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Black Keys – Dan Auerbach (гитара/вокал) и Patrick Carney (ударные/перкуссия) – вернулись с великолепным альбомом No Rain, No Flowers. В прошлом альбоме Ohio Players они гордились сотрудничеством – как в написании песен, так и в исполнении – с Beck'ом и Noel Gallagher'ом из Oasis. Этот альбом продолжает эту тенденцию в плане соавторства. Они пригласили Rick Nowels'а (   Читать дальше...   )01. No Rain, No Flowers (3:16)
-02. The Night Before (2:35)
-03. Babygirl (2:54)
-04. Down to Nothing (3:37)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, Indie RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D697445F0ADBE1EC758AC8F7AB0A95D56DE756A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812634   (7711) от 15.08.2025
-
-Queen - B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hang On In There (B-Side)
-02. See What A Fool I’ve Been (B-Side Version / Remastered 2011)
-03. A Human Body (B-Side)
-04. Hijack My Heart (B-Side)(   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C7BCD950B6DD878F6BE08810E0BCBE0D547EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812641   (7701) от 15.08.2025
-
-The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Edition, Remastered 2020, 2025, UMG Recordings, Inc. [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ode To My Family (Remastered 2020) [4:31]
-02 - I Can't Be With You (Remastered 2020) [3:08]
-03 - Twenty One (Remastered 2020) [3:08]
-04 - Zombie (Remastered 2020) [5:06](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 02:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03554744EB30C6DB53839565BEA4BA93F3FB96BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812365   (6961) от 19.08.2025
-
-VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <pop, rock, rap>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6961.jpg" />
-</div>
-
-
-###  Подробнее
-
-«500 величайших песен всех времён» — это периодический рейтинг песен, составляемый американским журналом Rolling Stone. Он основывается на взвешенных голосах выбранных музыкантов, критиков и представителей музыкальной индустрии. Первая версия списка была опубликована в декабре 2004 года в специальном выпуске журнала №963, через год после того, как журнал опубликовал (   Читать дальше...   )001. Aretha Franklin - Respect.flac — 00:02:27
-002. Public Enemy - Fight The Power.flac — 00:04:42
-003. Sam Cooke - A Change Is Gonna Come.flac — 00:03:11
-004. Bob Dylan - Like A Rolling Stone.flac — 00:06:09(   Читать дальше...   )Жанр: pop, rock, rapПродолжительность: 34:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F858DAC461E62547AA5D72613ACE76A37D7B180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813586   (6808) от 20.08.2025
-
-Duran Duran - Greatest (2025) Compilation, Reissue [FLAC|Lossless|image + .cue] <Pop-Rock, Synth-Pop, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greatest - сборник лучших песен Duran Duran впервые вышел в 1998 году, но только нынешнее переиздание 2025 выйдет также и на виниле. В этот сборник из 19 треков вошли хиты с первых восьми альбомов группы, выпущенных с 1981 по 1997 год, а также отдельные синглы, такие как саундтрек из одноименного фильма-бондианы "A View To A Kill" и песня, занявшая первое (   Читать дальше...   )01. Is There Something I Should Know? (4:10)
-02. The Reflex (4:26)
-03. A View to a Kill (3:37)
-04. Ordinary World (5:40)(   Читать дальше...   )Жанр: Pop-Rock, Synth-Pop, New WaveПродолжительность: 01:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7A689CE18BAE1644B2E4188E14ED0C74F3F484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814047   (6471) от 22.08.2025
-
-Queen - Acoustic (2025) Remastered, 2011, UME - Global Clearing House [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Calling All Girls (Remastered 2011) [3:52]
-02 - The Night Comes Down (2024 Mix) [4:22]
-03 - Funny How Love Is (Remastered 2011) [2:50]
-04 - '39 (Remastered 2011) [3:31](   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B47AA187FAEE80ED3026EF8AB9F8E267213C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814429   (6087) от 24.08.2025
-
-dArtagnan - Herzblut (2024) 2 x CD, Deluxe Edition [APE|Lossless|image + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6087.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ruf der Freiheit
-02. Herzblut (ft. Melissa Bonny)
-03. Dem Himmel Entgegen(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4B54B8BE03278D9AA4AABEF97851366D862156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814601   (6000) от 25.08.2025
-
-VA - Magic - Soft Rock Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pilot - Magic (3:06)
-02.  The Cure - Friday I'm in Love (3:35)
-03.  Dire Straits - Sultans of Swing (5:48)
-04.  The Goo Goo Dolls - Iris (4:50)(   Читать дальше...   )Жанр: RockПродолжительность: 05:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4E9E51B8EE25AF622C4DD7057031803A0A4872
 ```
 
 https://mybot314.ru/tekegram_catalog/

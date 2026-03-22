@@ -1,3 +1,32 @@
+###  Публикация: 1389285   (784591) от 10.06.2020
+
+BPMD - American Made (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wang Dang Sweet Poontang (03:35)
+ 02. Toys in the Attic (03:20)
+ 03. Evil (03:13)
+ 04. Beer Drinkers & Hell Raisers (03:44)(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC1F38578D7306A2FDC2517BEF238ED4FB3AEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204919   (784370) от 07.02.2018
 
 Iahsari - Shrine Of The Ancient Gods (2018) [MP3|320 Kbps] <Symphonic Metal, Folk Metal, Ethnic>
@@ -722,35 +751,6 @@ Ministry - AmeriKKKant (2018) [MP3|320 Kbps] <Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7433C90B78D66A2855E73BAC0756B0C35541A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750716   (776427) от 10.03.2018
-
-Myra - Discography (2006-2018) [MP3|192-320 кб/с]<Metalcore, Hardcore, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776427.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006 - Promo (EP)
-2008 - The Venom It Drips
-2010 - Godspeed
-2014 - Valley(   Читать дальше...   )Жанр: Metalcore, Hardcore, Thrash MetalПродолжительность: 03:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17043C3F8C69E4037B198C1DD30786203D80BC70
 ```
 
 https://mybot314.ru/tekegram_catalog/

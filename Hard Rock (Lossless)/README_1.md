@@ -1,3 +1,90 @@
+###  Публикация: 1605381   (1044964) от 17.01.2023
+
+Epic Symphonic Rock - Epic Symphonic Rock (Live) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classical, Covers>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obertura (Live) (1:59)
+02. Iron Maiden I (Live) (5:58)
+03. Metallica I (Live) (7:24)
+04. Chop Suey (Live) (3:44)(   Читать дальше...   )Жанр: Hard Rock, Classical, CoversПродолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CBF45077BEBB4E661CA010AB529B6A767ADD2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606177   (1044561) от 21.01.2023
+
+Lillasyster - Stormtrooper Boombox (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monster Truck [00:02:55]
+02. I Know You Better [00:03:01]
+03. Pretender [00:02:52]
+04. The Firestarter [00:03:23](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4F9DFA508F89BA77A24E5D35CBE57100B10870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606163   (1044540) от 21.01.2023
+
+Black Star Riders - Wrong Side of Paradise (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Side of Paradise (3:44)
+02. Hustle (3:27)
+03. Better Than Saturday Night (3:40)
+04. Riding Out the Storm (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082128214880006CEAE5A75062BFF994CC0E5A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606168   (1044535) от 21.01.2023
 
 Half Life - Like A Jungle (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -660,93 +747,6 @@ Sammy Hagar & The Circle - Lockdown 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8CC326D5F0ABEAC6BFF8AF3B5821BE1AF5F6E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438449   (1041157) от 08.01.2021
-
-Restless Spirits - Restless Spirits (2019) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Livin' To Live Online (feat. Johnny Gioeli)
-02. Unbreakable (feat. Deen Castronovo)
-03. I Remember Your Name (feat. Kent Hilli)
-04. 'Cause I Know You're The One (feat. Dino Jelusic)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B528CAEE5204AC91B643BAD86BCB41604E7539D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438301   (1041113) от 08.01.2021
-
-Magnum - Dance of the Black Tattoo (2021) Compilation [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Black Skies (Live) [00:06:06]
-02 - Freedom Day (Live) [00:06:20]
-03 - All My Bridges (Live) [00:04:55]
-04 - On a Storytellers Night (Live) [00:05:09](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BB3FFA93F1589894F30BB97E9567E059EBD9A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438549   (1040920) от 09.01.2021
-
-Hearts & Hand Grenades - Turning To Ashes (2021) [FLAC|Lossless|tracks + .cue] <Modern Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Turning to Ashes [00:04:17]
-02 - For the Weakened [00:04:05]
-03 - Daggers [00:03:38]
-04 - I Hide [00:04:23](   Читать дальше...   )Жанр: Modern Hard Rock, Female VocalПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427C66796F16697E5DEB9F17553337F9FEDC78A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

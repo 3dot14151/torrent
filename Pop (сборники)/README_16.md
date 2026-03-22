@@ -1,3 +1,32 @@
+###  Публикация: 1369102   (904539) от 22.03.2020
+
+VA - Radio DFM: Top D-Chart [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artik & Asti - Девочка танцуй (DJ Prezzplay & Kolya Dark Remix) 4:10
+02. Billie Eilish - Everything I Wanted (Kolya Dark & Alex Shik Radio Edit) 3:59
+03. The Weeknd - Blinding Lights 3:22
+04. Макс Барских - Лей не жалей (Lavrushkin & Max Roven Remix) 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0734CF4009A5D43430B883C2D9868666E35D496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636282   (904178) от 29.03.2013
 
 VA - Real Disco (2013) [MP3|320 кб/с]<Disco, Eurodisco, Pop>
@@ -722,35 +751,6 @@ VA - Снегопад новинок от Хит fm. Выпуск № 8 (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA18DB17EF999E9024E7644E90263098FFCCAAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100801   (898022) от 05.02.2017
-
-VA - Музыкальное потрясение зимы. Сборник №5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898022.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Базиль - Пой Мне 3:12
-002. Алла Пугачева - Не Звони 2:46
-003. Vlad Bostan Feat. Taya - Оригами 3:42
-004. Atesh - Самая Сильная 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA7336A20673ADB8C47D892A76269E6AAC8E503
 ```
 
 https://mybot314.ru/tekegram_catalog/

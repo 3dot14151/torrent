@@ -1,3 +1,147 @@
+###  Публикация: 1023457   (724656) от 05.06.2016
+
+Modern Eleven - Under The Bright Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Bright Light (7:36)
+02. Hall of Ice (4:56)
+03. Masked (8:58)
+04. An Ethereal Path (3:25)(   Читать дальше...   )Жанр: Ambient, Dub Techno, TechnoПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9DB6938EF32D836A3D54E5F40A67C290DBE9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023860   (722467) от 06.06.2016
+
+Plastikman - Disconnect (2003) [FLAC|Lossless|tracks+.cue] <Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconnect (Edit) (03:13)
+ 02. Headcase (10:19)
+ 03. Digital / Divide (10:28)Жанр: Techno, MinimalПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D52554B0AE3BCB43EA342E24516A23EC4ECBDF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129029   (722155) от 28.04.2017
+
+Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Nu Jazz>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Burning Spider (feat. Lightnin' Hopkins) (04:14)
+02. Step Two (feat. Lilja Bloom) (02:54)
+03. Soul Fever Blues (feat. Muddy Waters) (03:04)
+04. Everything Of My Heart (03:07)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6F37452C2CDABC9BBCCE4365E74AABE5D221D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218733   (721739) от 10.04.2018
+
+Cløtur (Clotur) - Levels of Consciousness (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connecting With The Spirit (06:21)
+02. The Healing Energy (08:49)
+03. Mindfulness (07:30)
+04. Clarity (05:50)Жанр: TechnoПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EEECABD4FD37FCF7AD1E4DA5372EDC503F3717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023885   (720690) от 07.06.2016
+
+Von Grall - Stemplot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Bodies (7:12)
+02. Surd (6:10)
+03. Octants (7:33)
+04. Stemplot (6:27)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DCD174ACF11802B00880D42228F9C84E97CD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023915   (720687) от 07.06.2016
 
 Elle - Yemaja (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
@@ -593,148 +737,6 @@ Clouds Testers, Arne Woutersax - Messenger (2015) [FLAC|Lossless|tracks] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66BBBF30B8A68927C2B9A76E4285D37D37A2844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670620   (712439) от 20.06.2013
-
-666 - 6 Albums , 19 Singles (1997 - 2007) [FLAC|Lossless]<Euro House , Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_712439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Euro House , Progressive TranceПродолжительность: 00:20:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025272   (712049) от 11.06.2016
-
-VA - 538 Dance Smash 2016 vol.2 (2016) [FLAC|Lossless|image + .cue] <House, Club, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fais & Afrojack - Fais
-02. Kungs vs. Cookin' On 3 Burners - This Girl
-03. Galantis - No Money
-04. Tinie Tempah & Zara Larsson - Girls Like(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD287D882B4256D47D6B0A912C6B34B7E4861DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219575   (711917) от 15.04.2018
-
-Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossless|Vinyl|tracks] <Techno, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Getting Things Started (06:01)
- 02. Tribal Days Part II (08:49)
- 03. Tribal Days Part III (09:06)
- 04. The Vibe (05:03)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219692   (711916) от 15.04.2018
-
-Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (08:14)
-02. New Morning (07:49)
-03. The End (Mollono.Bass Remix) (07:52)
-04. New Morning (The Micronaut Remix) (06:24)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A593CD95BF51604E9A470B4BE258423EEC455CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286676   (711329) от 03.03.2019
-
-Foreign Sequence - Thousand Frustrations (2018) Concrete Collage [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 8-crat_frul35 (03:56)
- 02. Polydub (06:17)
- 03. Kaarw4-- (05:37)
- 04. 101Arpsys3220 (02:08)(   Читать дальше...   )Жанр: Electro, Acid, IDM, TechnoПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399508A7EBF29180FEC2FC09E171F06AA9D84858
 ```
 
 https://mybot314.ru/tekegram_catalog/

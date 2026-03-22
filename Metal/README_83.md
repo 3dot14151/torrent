@@ -1,3 +1,125 @@
+###  Публикация: 1264258   (282663) от 22.11.2018
+
+Accept - Symphonic Terror (Live at Wacken 2017) (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die by the Sword
+02. Restless and Wild
+03. Koolaid
+04. Pandemic(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E07F833FD7F811520C5683602E140E4D36935B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264358   (281155) от 23.11.2018
+
+In The Woods... - Cease The Day (2018) [MP3|320 Kbps] <Doom Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Empty Streets
+2. Substance Vortex
+3. Respect My Solitude
+4. Cloud Seeder(   Читать дальше...   )Жанр: Doom Metal, Atmospheric Black MetalПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75202CC3C05BDE4808E0961FFC470929C414A4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964481   (281058) от 12.12.2015
+
+Overdoze - Supreme Dosage (2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dosed Back To Reality
+02. Way Of The North
+03. Abyssus
+04. Asylum Of Madness(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BE11DEEDA6F500C86AF8A4B5CCFB463A26560B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272671   (279214) от 19.12.2010
+
+Arwen - Memories of a dream (2002) [MP3|320 kbps]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279214.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Transcendental Overture
+2. Dreamland
+3. Between Love And Pain
+4. Time's Gate
+5. Alone
+6. So High
+7. Woodheart
+8. Once Upon A Time
+9. Eternally
+10. At The End(   Читать дальше...)Жанр: Symphonic Power MetalПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8596B2DD7DFB489862CB99E5D67B53750FAA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336689   (278952) от 07.11.2019
 
 Blind Guardian Twilight Orchestra - Legacy Of The Dark Lands (2019) [MP3|320 Kbps] <Power Metal>
@@ -629,122 +751,6 @@ Metal Church - Damned If You Do (2018) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:384A7903680B26E28083F40E97341AA3A0066642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267458   (266519) от 06.12.2018
-
-Apocalyptica - Plays Metallica by Four Cellos - A Live Performance (2018) [MP3|320 Kbps] <Cello Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Sandman
-02. Master Of Puppets
-03. Harvester Of Sorrow
-04. The Unforgiven(   Читать дальше...   )Жанр: Cello MetalПродолжительность: 01:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2739CEF8641106AFAF88C0B822297B1CC47190B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190922   (266035) от 11.12.2017
-
-Nuckin' Futs - Abyss (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266035.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cradle Of Hypocrisy
-2. Force Of Will
-3. Enemy
-4. Abyss(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8474573AFFDC48822979DEE1681C3D17095674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267653   (265801) от 07.12.2018
-
-Clouds - Dor (2018) [MP3|320 Kbps] <Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Forever And A Day
-2. The Last Day Of Sun
-3. When I'm Gone (Feat. Gogo Melone)
-4. Dor(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FE3022EA7A35E83172E0B23CCA105F915B5C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267621   (265799) от 07.12.2018
-
-Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Gospel
-2. Chapter II
-3. Chapter III
-4. Moon Goddess(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

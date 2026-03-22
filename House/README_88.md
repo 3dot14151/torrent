@@ -1,3 +1,148 @@
+###  Публикация: 1814711   (5791) от 26.08.2025
+
+VA - Milk & Sugar Beach Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Kurt - Let It Run (Momo Khani & Meindel Remake) 05:43
+02. T.Markakis - A Beautiful Day (Extended Mix) 04:51
+03. Colorjaxx - In Unity (Extended Mix) 06:10
+04. Casanovy - I Need Your Lovin' (Momo Khani & Meindel Remake) 07:36(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92B416DE06933E80465D904380E36D0E96412D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815023   (5522) от 28.08.2025
+
+VA - Best Driving EDM 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaxRiven - Flight (Original Mix) [2:25]
+02. JLUIS - You're Beautiful (Extended Mix) [3:36]
+03. Deep Emotion - Down For You (Extended Mix) [3:48]
+04. Dani Corbalan - Where Are We Going (Extended Mix) [3:38](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBB875553B8E4B6D8C4CCD34235AFEB77F35796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815883   (4808) от 01.09.2025
+
+VA - Magic Deep-House, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardaze - My Soul 03:29
+02. Marc Hartman - As Time Goes By 04:59
+03. Kenhya - In The Ocean (Extended Mix) 04:42
+04. Tony Sanchez - San Momento (Original Mix) 05:51(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBA74D85F367A8F6375B35991AF442B6EFF16CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816008   (4632) от 02.09.2025
+
+VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calmabohain - Loving 03:11
+02. Allume - Poetry Clouds (Radio Edit) 03:06
+03. Chris Le Blanc, Max Weis & Karmaloft - Escape To Infinity 03:17
+04. Dj Soulstar & Josée Hurlock - Taken (Radio Edit) 03:46(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2253D389B3F84C7375C6E069BBF71A44197F7DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816128   (4522) от 03.09.2025
+
+VA - 25 Years Of Anjuna Mixed By CRi (2025) [MP3|320 Kbps] <Deep House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Sun In Your Eyes (Original Mix) [4:52]
+02. Lane 8 feat. Lulu James - Loving You (Original Mix) [4:02]
+03. Ben Böhmer - After Earth (Original Mix) [7:38]
+04. YOTTO - Personal Space (Extended Mix) [6:52](   Читать дальше...   )Жанр: Deep House, Melodic House & Techno, ElectronicПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89639531E806208E08FC26B8F803C1595A18DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816892   (3878) от 07.09.2025
 
 VA - BC Deep Summer 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>

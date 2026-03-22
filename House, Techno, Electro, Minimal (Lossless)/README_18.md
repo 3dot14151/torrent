@@ -1,3 +1,61 @@
+###  Публикация: 1199655   (800363) от 17.01.2018
+
+Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Abstract, Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Te Olvides De Acordarte (06:06)
+ 02. Today Will Be Tomorrow (feat. Kaelan) (07:00)
+ 03. When I Was With You (02:48)
+ 04. Amazzonia (feat. Aubrey) (05:59)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno/Abstract/Techno/AmbientПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE4BBBEBA993A5ABC4B95ADE60087A3C1AAA9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273449   (799776) от 02.01.2019
+
+Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part Eleven (03:27)
+02. Part Three (03:48)
+03. Part Fourteen (04:50)
+04. Part Seven (03:24)(   Читать дальше...   )Жанр: Electronic, Tech House, TechnoПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED11472E59961CF47CCFA7578E88E987C12E7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506803   (799091) от 02.11.2021
 
 Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Chill House>
@@ -685,64 +743,6 @@ VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011798   (795636) от 29.04.2016
-
-Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Present
-02. Space Between Us
-03. Relax (feat. From P60 & Virag)
-04. Thinkin About(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6104A61135EA7E0B0CF91E46168FA4F0D664F172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200734   (795599) от 21.01.2018
-
-VA - DJ Зорькин - Приключения Электроника (1998) Gagarin Music [FLAC|Lossless|image+.cue] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknown Artist - Intro: Otmychka (01:16)
- 02. Dr. Rockit - Worm In My Food (02:54)
- 03. R.A.C. - Continua (02:32)
- 04. Bomb the Bass - Absorber (Jedi Knights remix) (03:02)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD90E93E32BFFC804DA9BA6DC8F86AAFEAD834CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

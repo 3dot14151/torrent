@@ -1,3 +1,32 @@
+###  Публикация: 1325933   (408692) от 17.09.2019
+
+Liaisons Dangereuses - Liaisons Dangereuses (1981) Reissue CD, 2002, Hit Thing [MP3|320 Kbps] <Electronic, Synth-pop, New Wave, EBM>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystere Dans Le Brouillard (4:27)
+02. Los Ninos Del Parque (5:03)
+03. Etre Assis Ou Danser (3:27)
+04. Aperitif De La Mort (3:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, New Wave, EBMПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3B629C910C3B30E7F606578F46195E06849C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066957   (408022) от 28.10.2016
 
 Empire Of The Sun - Two Vines (2016) Deluxe Edition [MP3|320 Kbps] <Electropop, New Wave>
@@ -717,35 +746,6 @@ Oblivion - Light of a Distant Star (2015) [MP3|320 Kbps] <Synthpop, Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF68B71AD6FC9FE270EB4F33A9B5623C134AD1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580987   (329051) от 03.10.2022
-
-Macrocosm - Second Voyage (2005) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Invasion
-02. Galactic Fighters
-03. Maximum Power
-04. Out of the Ordinary(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4665806A037E1CF7F482F507301E3AEFD24A11F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1131216   (708913) от 05.05.2017
+
+Don Patrol - A Wire, a Deal & the Devil (1992) Japan [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Want Me
+02. Fire in the Night
+03. Call Me
+04. Waiting for You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C39C4883E32CAED979A60867C76A2D72301D18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131532   (706721) от 06.05.2017
+
+The Knack - Get The Knack (1979) 2017, Capitol Records, Universal Music, Mobile Fidelity Sound Lab [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Out
+02. Your Number Or Your Name
+03. Oh Tara
+04. (She's So) Selfish(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6F2F02EEC8BC58B3E9409E5F05591E28198652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025998   (706069) от 14.06.2016
+
+George Lynch - Sacred Groove (1993) [FLAC|Lossless|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory Jack    01:38
+02. Love Power From The Mama Head    05:29
+03. Flesh And Blood    05:02
+04. We Don't Own This World    04:26(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718802E7721A6E24674A5F8529F869EFC2988D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532921   (705001) от 24.02.2022
+
+AC/DC - On The Highway To Melbourne (The 1988 Hometown Broadcast) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Made Who
+02. Shoot To Thrill
+03. Dirty Deeds Done Cheap
+04. Back In Black(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66234BBE51F2EF9757B5959DAABB063FFF4E60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533535   (704841) от 24.02.2022
+
+Scorpions - Rock Believer (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gas In The Tank
+2. Roots In My Boots
+3. Knock 'em Dead
+4. Rock Believer(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBE8CA7740A07D5AE213BD5973843002BB443E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026133   (704081) от 15.06.2016
+
+Forcefield II - The Talisman (1988) [WavPack|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Talisman (5:29)
+02. Year Of The Dragon (3:35)
+03. Tired Of Waiting (4:06)
+04. Heartache (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAE8EBD5AD2F8FA2E5DE9400813783EBC83537B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402130   (703936) от 13.08.2020
 
 Outland - Different Worlds (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -575,181 +749,6 @@ ELF | The Elves (featuring Ronnie James Dio) - 5 альбомов, 8CD (1971-201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85E3350D7A0C6A05DE179176FFD97CD450137560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796268   (685956) от 14.06.2014
-
-GILLAN - Gillan At The BBC (1997) 2 CD Live /1997, Nippon Crown Co. Japan/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchain Your Brain (LIVE) (4:09)
-02. Are You Sure ? (LIVE) (4:42)
-03. Mr. Universe (LIVE) (6:44)
-04. No Easy Way (LIVE) (9:06)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D637A0D9FD3DB0F7E328D73262B0458B210F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897437   (685646) от 13.05.2015
-
-Ted Nugent - Shutup & Jam! (2014) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shutup & Jam! (2:53)
-02. Fear Itself (4:40)
-03. Everything Matters (3:19)
-04. She's Gone (2:58 )
-05. Never Stop Believe (6:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE641550CD4908CDC513FF33849E49152DA4D884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029245   (684419) от 25.06.2016
-
-Laos - We Want It (1990) [FLAC|Lossless|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Want It    02:46
-02.  Why Is A Good Love    03:42
-03.  Now That It's Over    04:15
-04.  Straight To The Top    03:18(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F56C90EDD672A0152A44A80F497D437A424183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535617   (684320) от 07.03.2022
-
-Done Messed Up - Me, Myself And A Few Other People (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fate 06:23
-02. Empty 05:36
-03. Better You Than Me 03:51
-04. No More Mistakes 04:53(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEC3EE2BEBC39D2118F6348D17E761FF6DE0A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535448   (684319) от 07.03.2022
-
-Crazy Lixx - Street Lethal (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Dojo
-02. Rise Above
-03. Anthem For America
-04. The Power(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2066F423A675094AD9E234C202B24DD865DA59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403928   (684272) от 23.08.2020
-
-Lionheart - 3 Studio Albums (1984-2020) 3xCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа LIONHEART - Была основана в конце 1980 года гитаристом Деннисом Стреттоном (экс-IRON MAIDEN), Стивом Мэнном (MICHAEL SCHENKER FEST) и Рокки Ньютоном (ex-MSG), а Клайв Эдвардс (ex-UFO) завершил состав немного позже. Группа начала играть постоянные живые концерты, включая регулярные аншлаговые концерты в лондонском клубе Marquee. В период с 1981 по 1984 год (   Читать дальше...   )Альбомы :
-1984 - Hot Tonight
-2017 - Second Nature
-2020 - The Reality Of MiraclesЖанр: Hard RockПродолжительность: 02:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E68D2748B6CF9B2DA95D32716B6A3C28DE67C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

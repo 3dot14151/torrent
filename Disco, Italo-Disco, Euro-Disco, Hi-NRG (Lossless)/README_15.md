@@ -1,3 +1,38 @@
+###  Публикация: 536465   (514272) от 18.08.2012
+
+VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [FLAC|Lossless]<Pop, Disco, Retro, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick Astley - Never Gonna Give You Up [03:34]
+02. Delegation - Where Is The Love (We Used To Know) [04:18]
+03. OFF - Electrica Salsa [03:34]
+04. Man To Man Meet Parish - Male Stripper [04:06]
+05. Mel & Kim - Showing Out [05:10]
+06. Eddy Huntington - U.S.S.R. [03:26]
+07. Tina Charles - I Love To Love [03:06]
+08. Silver Pozzolli - Pretty Baby (Italo Boot Mix) [01:54]
+09. Albert One - For Your Love (Italo Boot Mix) [01:56]
+10. Solo - Harem (Italo Boot Mix) [00:56](   Читать дальше...   )Жанр: Pop, Disco, Retro, Italo-DiscoПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 375685   (513090) от 14.08.2011
 
 C.C. Catch - Super Disco Hits (1989) [FLAC|Lossless]<Disco, Euro-Disco>
@@ -784,35 +819,6 @@ Bad Boys Blue - 25-The Long Mixes (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88E063E7C36D66DC160A7FCDF2D34DFD2E45DD1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158652   (491996) от 16.08.2017
-
-Mirko Hirsch - Power Of Desire (2015) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Hyde 6:20
-02. Video Night 4:42
-03. Remember September 4:17
-04. Lady Mystery 5:32(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81645F2CA9E6B9DC704CD9AEA827A7426F40BB7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

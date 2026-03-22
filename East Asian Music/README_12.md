@@ -1,3 +1,32 @@
+###  Публикация: 1065196   (420836) от 22.10.2016
+
+Anthem - Blazing Faith - revisited (2015) Deluxe Edition - Blu-Ray + SHM CD [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420836.jpg" />
+</div>
+
+
+###  Подробнее
+
+1st Album Live In Studio:
+01. Wild Anthem 05:01
+02. Red Light Fever 03:09
+03. Lay Down 04:57(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD55145041B9B0CF5F5B6FCF5BDD4DAA473CCF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866238   (417871) от 17.10.2015
 
 Kinema 106 - 2 альбома (2014-2015) KanColle Vocal /Doujin/ [FLAC|tracks] <J-Rock>
@@ -748,35 +777,6 @@ Takahiro Matsumoto/TMG (Tak Matsumoto Group) - 3 albums(2002-2004) [FLAC|lossles
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949016   (371002) от 05.11.2016
-
-SUPER EURO SMASH - 5 альбомов (2012-2013) /Doujin/ [FLAC|tracks] <Eurobeat>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.04.27 (ASES-0003) SUPER EURO SMASH Vol.3 (M3-31)
-2013.08.12 (ASES-0004) SUPER EURO SMASH Vol.4 (C82)
-2013.12.30 (ASES-0005) SUPER EURO SMASH Vol.5 (C83)Тип издания: DoujinЖанр: EurobeatПродолжительность: 00:04:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502AA61631CBAB6EE413F32381F674C56BED4ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

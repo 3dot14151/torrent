@@ -1,3 +1,177 @@
+###  Публикация: 1084982   (217172) от 20.12.2016
+
+Art Farmer-Benny Golson Jazztet - Here and Now (1962) 1998 [WavPack|Lossless|image + .cue] <Hard bop, Post bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217172.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tonk (6:49)
+2. Rue Prevail (4:26)
+3. Richie's Dilemma (5:11)
+4. Whisper Not (5:21)(   Читать дальше...   )Жанр: Hard bop, Post bopПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED744BAE779DF2F9A7A3516D78E6931732D19DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586337   (217058) от 26.10.2022
+
+Sergio Mendes & Brasil '66 - Greatest Hits (1970) 1987, A&M Records [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mas Que Nada [2:42]
+02. Scarborough Fair [3:22]
+03. With a Little Help from My Friends [2:38]
+04. Like a Lover [3:55](   Читать дальше...   )Жанр: Bossa Nova, Latin JazzПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0393F30DCE147A1E41EDAE38BBB22313E474C0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343665   (216947) от 07.12.2019
+
+Marion Meadows - Dressed To Chill (2006) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dressed To Chill
+02. Remember Me
+03. Dance With My Daughter
+04. Miss Know It All(   Читать дальше...   )Жанр: Smooth Jazz, Crossover JazzПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE38A10B2E2CE4D3B0F95C83796AD73F1F72CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426088   (216900) от 23.11.2020
+
+Billie Holiday - Songs For Distingue Lovers (1957) 1997, Classic Compact Discs [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day In, Day Out [6:48]
+02. A Foggy Day [4:42]
+03. Stars Fell on Alabama [4:30]
+04. One for My Baby (And One More for the Road) [5:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E2621A7D890F343E7F493A4348995D7CC7A190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426084   (216856) от 23.11.2020
+
+Beto Saroldi - Venus (2020) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vênus - 04:24
+02. Sensuality (Supernatural) - 04:58
+03. Uma Estrela A Mais (feat. Rosa Marya Colin) - 04:28
+04. Noites E Noites Sem Fim (feat. Frejat) - 04:25(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A7C2801F10EFC716CE392DF27046A004E7A41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270037   (216407) от 17.12.2018
+
+Claude Hopkins - 1932 - 1934 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_216407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (I Would Do) Anything For You [3:17]
+02. Mad Moments [2:54]
+03. Mush Mouth [3:08]
+04. How'm I Doin'? [3:14](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3BA7629C4688B7F338C3226EBE9E4AC764EE51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270036   (216403) от 17.12.2018
 
 Frank Wright Quartet - Blues For Albert Ayler (1974) 2012, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -577,180 +751,6 @@ VA - Jazz Popular Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DA132DDF9D543CCCB305B842C5F0C24D2A3A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653370   (214713) от 16.08.2023
-
-VA - Jazz Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Keast - Let’s Stay Together (3:48)
-02. George Lanza - More Than a Woman (3:55)
-03. Larkster Quartet - As It Was (Mellow Mix) (3:35)
-04. John Burnsby - Don’t Leave Me This Way (4:33)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EEA3FCE5283C13EDD15E654F92C1AFD21453950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653506   (214652) от 16.08.2023
-
-Paul Hardcastle - X (The Eclipse) (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill'n'Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wavelength (Paul Hardcastle feat. Rock Hendricks)
-02. Come to Me (Paul Hardcastle feat. Maxine Hardcastle)
-03. Coastline Crusader (Paul Hardcastle feat. Rock Hendricks)
-04. Why Do We Dream(   Читать дальше...   )Жанр: Smooth Jazz, Chill'n'LoungeПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2E035AB39E5CD771A69EE4A428ACBD1B65EBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270350   (214479) от 18.12.2018
-
-Benjamin Bobenrieth - Travels (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] <Jazz Manouche, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aita Mendi
-02. Space Boy
-03. Hannah
-04. Tiger Rag(   Читать дальше...   )Жанр: Jazz Manouche, SwingПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F774199F5FCAF19D5304F561A302F9E191FCD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270349   (214459) от 18.12.2018
-
-Barbra Lica - You're Fine (2018) Justin Time Records [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before I Do (03:18)
-02. The Birds and the Bees (03:50)
-03. Let You Go (03:42)
-04. Jolie Oiseau (03:45)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72211181490B9A2E960CC15715BFB96D9F1BBAB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967352   (214453) от 20.12.2015
-
-Jerome Richardson - Going To The Movies (1962) 2011, EMI Music[FLAC|tracks+.cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.No Problem [08:45]
- 02.Moon River [04:38]
- 03.Never On Sunday [04:46]
- 04.Tonight [03:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CE761AB5D68548F4EE7B867F33685CE39362C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270327   (214452) от 18.12.2018
-
-Flavio Boltro BBB Trio - Spinning (2018) Anteprima [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natale A Mosca [6:14]
-02. Coccinelle [7:28]
-03. Spinning [4:09]
-04. Catalina [5:10](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33909C2DC997AE274DD655397BD7F3EAC8F456C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

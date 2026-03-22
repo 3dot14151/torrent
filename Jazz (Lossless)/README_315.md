@@ -1,3 +1,177 @@
+###  Публикация: 1707030   (113375) от 15.03.2024
+
+Ranee Lee & Oliver Jones - Just You, Just Me (2005) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just You, Just Me [4:22]
+02. Traveling Man [5:15]
+03. Stardust [6:07]
+04. Sister Sadie [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9A8E9291EC52A479E5C21A06D1BB5450BE99D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707343   (113370) от 16.03.2024
+
+Papik & Laura Lanzillo - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abitudini
+02. Che Ore So'
+03. Nu' Pensiero Felice
+04. Se Mi Vuoi (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Pop Jazz, Nu Jazz, FunkПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB7CCB820FA7767FA4FCA1E796E8B5E9F1E576A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706295   (113347) от 16.03.2024
+
+Naoya Matsuoka - Watermelon Dandies (1985) [FLAC|Lossless|tracks + .cue] <Fusion, Latin Jazz, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wakuwaku Songo! (N.Matsuoka) - 6:12
+02. A First Flight (N.Matsuoka) - 5:43
+03. Tango Rengue (N.Matsuoka) - 4:38
+04. A Midnight Lament (N.Matsuoka) - 5:48(   Читать дальше...   )Жанр: Fusion, Latin Jazz, DiscoПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E321B1F831A91F159C09C01B06EE332A212F66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707291   (113334) от 16.03.2024
+
+John Coltrane - Sheets Of Sound (1962) 2CD, 2002, Snapper Music [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. PC [8:17]
+02. I Want to Talk About You [13:59]
+03. Bye Bye Blackbird [23:28]
+04. Autumn Leaves [10:37](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 01:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2594F6B1A1E822C9B466118E561C7399A35555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707334   (113324) от 16.03.2024
+
+VA - Paramount Jazz Lounge Chilling Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Like a River (5:23)
+02. Chillaxonic - Aurora (5:13)
+03. Love Suggestions - Little Talks (4:59)
+04. Kool&Klean - I Smile (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49676B7614A9D9C6B81DB6B861AF4F557C4C6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707338   (113322) от 16.03.2024
+
+VA - Supreme Lounge Chill Selection Jazzy Vibe Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Cosmic Visions (4:26)
+02. Chillaxing Jazz Kollektion - Have Your Way (5:17)
+03. Kool&Klean - Lost (4:33)
+04. eJazz Artistry - We Belong Together (4:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6D71354118ECD04A52F8BFDD1A50E6C7111307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707288   (113315) от 16.03.2024
 
 Howard Alden Trio - Misterioso (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
@@ -571,180 +745,6 @@ The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708307   (113092) от 20.03.2024
-
-VA - Bar Lounge Costes 8: Chillout Uplifting Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digby Jones - Le Glacier (Dusty Mix) (2:35)
-02. Lennart Richter - Ride Along (3:24)
-03. Gary B - Breakout (2:52)
-04. Marga Sol - Excuses (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9831B8474D7F6DEED508C6832CF37012D91B9D95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708309   (113090) от 20.03.2024
-
-VA - Blueberry Cafe 2024 Soulful House Mood (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Electronic, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lennart Richter - Break of Day (4:24)
-02. Marga Sol - Changes (6:22)
-03. Ivory Coats - Lately (3:48)
-04. Nenad J. - Poolside Vibes (6:46)(   Читать дальше...   )Жанр: Smooth Jazz, Electronic, SoulПродолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641DFE6456C170F83D8263FE46EA16210537648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708311   (113081) от 20.03.2024
-
-VA - Travel & Living Lounge, Vol. 1: Traveling Chillout Moods (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz, Lounge, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Beachside (2:03)
-02. Mathieu - Primavera (4:14)
-03. Living Room - Don't Cry Baby (2:40)
-04. Autonne - Glass Eye (2:45)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary Jazz, Lounge, Easy ListeningПродолжительность: 01:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E905EC735A3C1273F395145A35B32F3C019061D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708304   (113065) от 20.03.2024
-
-Selmi - Last Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nosta (3:58)
-02. Last Dream (2:58)
-03. Selma (3:56)
-04. Nour (5:18)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B7AB3CFF4B469128C681203D7B3383E2D40BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708310   (113062) от 20.03.2024
-
-VA - Happy Easter Jazz (Spring Positive Music) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florian Reach - The Old Cinema (6:54)
-02. Ray Steward - Heaven (7:08)
-03. Don Ruiz - Route 5 (4:44)
-04. Don Ruiz - Good Old Days (5:12)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D87E234AD741EAA947988089246ED0AACC35F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708288   (113051) от 20.03.2024
-
-The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whisper Not [11:30]
-02. Sad to Say [6:11]
-03. Are You Real [8:29]
-04. Autumn Leaves [14:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485B738F98255529604E254314DDE23219F09C93
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,122 @@
+###  Публикация: 1183895   (305422) от 15.11.2017
+
+Primal Fear - Best of Fear (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305422.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. Area 16
+2. Predator
+3. If Looks Could Kill (Heart cover)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 02:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EFDC6D48B03F20EE5DCD2AE3D71A064B455773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077781   (305103) от 29.11.2016
+
+Monomad - The Art of the Broken Mind (2016) [MP3|320 Kbps] <Avant-Garde, Thrash, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roadkills
+02. Runamok
+03. Goose
+04. Violet(   Читать дальше...   )Жанр: Avant-Garde, Thrash, Doom MetalПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9366D457BC5B6CDB54DFC32EC1F791D89DBBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078070   (304826) от 29.11.2016
+
+Napalm Death - The Best of Napalm Death (2016) [MP3|320 Kbps] <Grindcore, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scum
+02. Suffer the Children
+03. Nazi Punks Fuck Off
+04. Breed to Breathe(   Читать дальше...   )Жанр: Grindcore, Death MetalПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF130DF53CA76EFCF24075697D625CC11EB7D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583292   (303596) от 06.12.2012
+
+Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [MP3|320 кб/с]<Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Act I: The First Seal - 09:39
+2. Act II: Beyond the Black Diamond Gates - 07:14
+3. Act III: Carnal Delight in the Vortex of Evil - 06:13
+4. Act IV: Congressus Cum Daemone - 10:24
+5. Act V: The Magic Temple - 04:16
+6. Act VI: The Sixth Seal - 07:50
+7. Bela Lugosi's Dead (Bauhaus cover) - 05:28Жанр: Symphonic Black MetalПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D98AC0E3A926EC9142E1C4A684054D312D3574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184225   (303536) от 16.11.2017
 
 Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
@@ -641,122 +760,6 @@ Saint Asonia - Flawed Design (2019) [MP3|320 Kbps] <Alternative Metal, Modern Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3918729C4727F4C60D87E1CAE739DB776A34E1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078789   (298148) от 02.12.2016
-
-Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories of Tomorrow
-02. Burn It All
-03. A New Dawn
-04. Rise Again(   Читать дальше...   )Жанр: Gothic, Melodic Death MetalПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2369C80FCF2C8C15A98EF872245C0AB8EE6019DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423816   (298072) от 14.11.2020
-
-Light Field Reverie - Another World (2020) [MP3|320 Kbps] <Progressive Metal, Doom Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultraviolet (06:52)
- 02. The Oldest House (06:08)
- 03. Ghost Bird (08:44)
- 04. Another World (05:47)(   Читать дальше...   )Жанр: Progressive Metal, Doom Metal, Female VocalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006A7DE2BCB01FFBC52487F0C9DD7C795A18F2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079053   (298053) от 02.12.2016
-
-Amorphis - His Story - Best Of (2016) [MP3|320 Kbps] <Progressive, Doom, Folk, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karelia
-02. The Gathering
-03. Exile of the Sons of Uisliu
-04. Into Hiding(   Читать дальше...   )Жанр: Progressive, Doom, Folk, Melodic MetalПродолжительность: 02:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF057E84821597F21CCFFD49B25313EEB4D59D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185063   (296945) от 19.11.2017
-
-Helloween - Sweet Seductions (2017) 3CD Compilation [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296945.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Walls of Jericho
-02. Ride the Sky
-03. Starlight(   Читать дальше...   )Жанр: Power MetalПродолжительность: 03:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C613DE34D8E560FCB97DEED7D5000CF74F55DB31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,63 @@
+###  Публикация: 632499   (919817) от 20.03.2013
+
+VA - Electro Life 23 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2-4 Grooves - Rockset 2012 (Extended Club Mix)
+02. Carly Rae Jepsen - Call Me Maybe (FuzzDead Remix)
+03. DB Pure - Fire & Passion (Original Extended Mix)
+04. Diego Logic & Carlo Dall Anese & Glasgo - Arms Wide Open (Ready2Go Remix)
+05. DJane HouseKat ft. Rameez - All The Time (Bodybangers Remix)
+06. DJ M.E.G & N.E.R.A.K ft. Karina Koks - На краю земли (Original Mix) -Жанр: Electro House, Progressive House, Electro Progressive, HouseПродолжительность: 02:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AE3AEA64FE2B2EA0EBB76E050AFD2519CA6470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988919   (919196) от 21.02.2016
+
+VA - House Nation Volume 3 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Dumont feat. AME - Need U (100%) (05:53)
+02. Hard Rock Sofa - Quasar Noch breathe (Antony Rolls & Gladunov Mash Up) (06:26)
+03. Jacob Plant - Fire (04:17)
+04. Kronic & Krunk! - 3 Percent (04:51)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988240   (919187) от 21.02.2016
 
 VA - February Top 100 - Collection Trance (2016) [MP3|320 кб/с] <Trance>
@@ -685,64 +745,6 @@ VA - Electro Life Best 100 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:931FF4D86E6EBAD899C1E705D34FD918C2BFCC83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097063   (915874) от 26.01.2017
-
-VA - Intergalactik Highway: Space Mix (2017) [MP3|201-320 Kbps] <SpaceSynth, SynthPop, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alphawave - Underwater World
-002. Camouflage - Shine
-003. Cosmologia - Eternal Seeker
-004. DMC - Noisy Pillars(   Читать дальше...   )Жанр: SpaceSynth, SynthPop, ElectronicПродолжительность: 10:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81362E9F71817A62BBFB5770B5560E0CBAE8D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989586   (915833) от 23.02.2016
-
-VA - Sexy House, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915833.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Audio Jacker - By My Side (Anthem Mix) [07:05]
-2. Soul Power - No Diggity (Soul Power Classic Club Mix) [05:17]
-3. Martin Thomas - Love Has A Way (Original Mix) [07:00]
-4. Audio Jacker - Rotate (Original Mix) [05:39](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64ABFD221A5B935A19C02BBE7043E16E3D8A0601
 ```
 
 https://mybot314.ru/tekegram_catalog/

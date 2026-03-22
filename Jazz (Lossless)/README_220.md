@@ -1,3 +1,177 @@
+###  Публикация: 960904   (305568) от 29.11.2015
+
+Duke Ellington - Ellington At Newport 1956 Complete 2CD, 2014, Sony Music[FLAC|tracks+.cue]<Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305568.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Star Spangled Banner [01:15]
+02.Father Norman O'Connor Introduces Duke & The Orchestra [03:40]
+03.Black and Tan Fantasy [06:21](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F13EC56204A6D3A53B3DB0CDA95D6E908879D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333275   (305523) от 24.10.2019
+
+Charlie Byrd - Christmas Carols for Solo Guitar (1966) 1997, Columbia Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Holy Night [3:21]
+02. The Bells of Bethlehem [2:10]
+03. God Rest Ye Merry, Gentlemen [2:54]
+04. Silent NIght, Holy Night [1:54](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85979D5E26D2A7DCF62D7C93E88B9E70AECE8A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333280   (305521) от 24.10.2019
+
+Stan Getz - Out Of Nowhere (1960) 1994, FourStar [FLAC|Lossless|tracks + .cue] <Cool, Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born to Be Blue [6:25]
+02. Ack Varmeland du skona [6:11]
+03. Ah-Moore [4:44]
+04. Move [5:20](   Читать дальше...   )Жанр: Cool, Bop, Mainstream JazzПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8AEF2AEB5EBFA67D40D06361F7216BDECC189E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423008   (304295) от 11.11.2020
+
+Clifford Brown & Max Roach Quintet - The Complete Study In Brown (1954 - 1956) 2016, 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304295.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cherokee [5:46]
+02. Jacqui [5:14]
+03. Swingin' [2:55](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8B84AE09388B06C757A226E6AF76D23C13661B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184135   (303617) от 16.11.2017
+
+Roger Kellaway - Live At The Jazz Standard (2006) 2CD, 2008, IPO Recordings [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303617.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cottontail [06:44]
+02. C Jam Blues [10:16]
+03. Someday My Prince Will Come [08:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D07778DA870ED8EA90E1B0FED78250C69DA53D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184133   (303609) от 16.11.2017
+
+Louis Prima - The Wildest! (1956) 2000, DCC Compact Classics [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley: Just A Gigolo / I Ain't Got Nobody [04:50]
+02. (Nothing's Too Good) For My Baby [02:43]
+03. The Lip [02:23]
+04. Body And Soul [03:29](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D813C84B26F26D1DCDC9C2FD66897BD93ABEADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183828   (303604) от 16.11.2017
 
 Sam Taylor Quartet - Along The Way (2017) [FLAC|Lossless|WEB-DL|tracks] <Saxophone Jazz>
@@ -577,180 +751,6 @@ Milt Jackson - Opus De Jazz (1955) 2017, Columbia [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:036BC0EC1C3B2F931B8199B415404DF434BCC11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961156   (301420) от 01.12.2015
-
-The Australian Jazz Quintet - Selections Of Rodgers & Hammerstein (1957) 2014, Solid Records[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Surrey With The Fringe On Top [04:00]
- 02.March Of The Siamese Children [03:57]
- 03.Hello Young Lovers [02:21]
- 04.I Have Dreamed [05:12](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EC56FF4FB371495C0193AA90339EBF614717FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961358   (301419) от 01.12.2015
-
-Elvin Jones - Genesis (1971) 2014, Universal[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.P.P. Phoenix [05:02]
- 02.For All The Other Times [10:09]
- 03.Slumber [05:35]
- 04.Three Card Molly [08:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CCBB4FF93A916DD83B8D8B77CDC801E802FC6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261764   (301362) от 12.11.2018
-
-Eric Alexander - Song Of No Regrets (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Here's the Thing [6:12]
-02. These Three Words [6:00]
-03. Grinder [5:49]
-04. Corazon Perdido [2:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B8540B9EBA18C4BC1C4645D01EF80D2719AB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261771   (301361) от 12.11.2018
-
-Billy Eckstine Sings with Benny Carter special guest Helen Merrill (1987) EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'd Be So Nice to Come Home To [5:26]
-02. My Funny Valentine [3:36]
-03. Here's That Rainy Day [3:55]
-04. Summertime [3:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29E2987E2FE554645AD63B578EA4B86AFC1E3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261768   (301288) от 12.11.2018
-
-Anita O'Day - Jazz 'Round Midnight (1954 - 1962) 1997, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Eyes [3:41]
-02. A Nightingale Sang in Berkeley Square [4:04]
-03. We'll Be Together Again [3:39]
-04. I Cover the Waterfront [3:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26BA653FC760473357B1547631CA000E1257F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261775   (301277) от 12.11.2018
-
-Ella Fitzgerald - Jazz 'Round Midnight Again (1956 - 1966) 1995, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Flower Is a Lovesome Thing [5:04]
-02. Easy to Love [3:27]
-03. Embraceable You [4:54]
-04. Midnight Sun [4:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B684C3634D2CDB9FB719020EE7F2F77ED15B899D
 ```
 
 https://mybot314.ru/tekegram_catalog/

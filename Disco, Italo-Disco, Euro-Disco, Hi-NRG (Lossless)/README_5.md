@@ -1,3 +1,32 @@
+###  Публикация: 1491529   (898842) от 01.09.2021
+
+MFSB - Philadelphia Freedom & Summertime   (2010)  2CD [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Picnic In The Park (04:16)
+02. Summertime (04:54)
+03. Plenty Good Lovin' (04:35)
+04. Sunnin' And Funnin' (04:17)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A7F2A87D5E024066ED8930D8B236BE35178EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992979   (898586) от 03.03.2016
 
 Gazebo - The Collection (1998) [FLAC|Lossless|tracks + .cue] <talo-Disco, Electro, Synth-pop>
@@ -714,35 +743,6 @@ VA - 80's Revolution Dance Movement (2006) [FLAC|Lossless|WEB-DL|tracks] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:380D00ED7A52553DB08DDF9CFAAB5402D20132B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376315   (858677) от 18.04.2020
-
-Spatial Vox - Cause Of Shining In Your Eyes (The 1'st Album) (2019) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cause Of Shining In Your Eyes (4:09)
-02. Right To My Self (3:17)
-03. Call My Name (3:38)
-04. Love Will Never Die (4:06)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F0BF952A9A079225B95E38DE43CF2960DDC4B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

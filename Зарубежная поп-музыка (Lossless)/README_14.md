@@ -1,3 +1,206 @@
+###  Публикация: 1095571   (924392) от 21.01.2017
+
+Emma King - Emma King (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Devil City  (03:16) 
+02|  All The Other Fools  (03:16) 
+03|  Keep It Coming  (04:17) 
+04|  Rollin' In  (03:59) (   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5372D88602A614DA1EE0893862C56B900EE3766F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988029   (922729) от 19.02.2016
+
+VA - I Saw You Dancing (2001) S&V #03/2001 [FLAC|Lossless|tracks + .cue] <Euro-Disco, Disco, Mambo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaft - Mucho Mambo (3:29)
+02. Q-pow! - Summer Holiday (3:19)
+03. Loona - Bailando (3:36)
+04. Crystal Waters - 100% Pure Love (4:40)(   Читать дальше...   )Жанр: Euro-Disco, Disco, Mambo, Euro HouseПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1263673D52D449F83CA47E20DB30F7F0917736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987933   (922568) от 19.02.2016
+
+VA - DJ Hits (1998) (S&V #01/99) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dana International - Diva (3:02)
+02. TNN - La Cucamarcha'98 (3:28)
+03. Whigfiel - Baby Boy (3:34)
+04. T-Spoon - Sex On The Beach (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2087A9928FE5C82CDBBAD45AF744541C873FED01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366748   (922436) от 12.03.2020
+
+Yumi Zouma ‎ - Yoncalla (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barricade (Matter of Fact)
+02. Text From Sweden
+03. Keep It Close to Me
+04. Haji Awali(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE287CA5CAC3564D0A492C8116B61F90D8E9F3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095945   (922377) от 22.01.2017
+
+VA - 2017 Grammy Nominees (2017) [FLAC|Lossless|tracks + .cue] <Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922377.jpg" />
+</div>
+
+
+###  Подробнее
+
+59-я ежегодная церемония вручения Grammy Awards пройдет 12 февраля 2017 года. Телесеть CBS будет транслировать шоу в прямом эфире из Staples Center в Лос-Анджелесе. На церемонии будут определены лучшие записи композиций и альбомов года в различных номинациях (записанных или воспроизведенных с 1 октября 2015 года по 30 сентября 2016 г.). Номинанты были объявлены 6 (   Читать дальше...   )01. Beyonce - Don't Hurt Yourself (Feat. Jack White)  (3:54)
+02. Twenty One Pilots - Stressed Out  (3:11)
+03. Sia - Cheap Thrills (Feat. Sean Paul)  (3:42)
+04. Drake - Hotline Bling  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C46E910EB4429E5CAA1656A6AC7F3CD4BBBC3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366738   (922359) от 12.03.2020
+
+Yumi Zouma - Truth or Consequences (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely After (03:40)
+02. Right Track / Wrong Man (02:56)
+03. Southwark (03:22)
+04. Sage (03:01)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA0C0A8C4F6943C76AF89FA2936ED791AB8CE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366507   (922240) от 12.03.2020
+
+Mandy Moore - Silver Landings (2020) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’d Rather Lose (03:45)
+02. Save A Little For Yourself (03:39)
+03. Fifteen (04:09)
+04. Tryin' My Best, Los Angeles (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23D45153915BAE068BE31299C058764BC4BA882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288535   (921587) от 29.01.2011
 
 Lara Fabian - Best Of (2CD, Edition Limitee) (2010) [FLAC|Lossless]<Pop, French pop, Adult contemporary>
@@ -546,209 +749,6 @@ VA - Rock Party (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Ol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE1823E7795DDCE3B8776387ED5524F1C430042D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490818   (913847) от 23.08.2021
-
-Billie Eilish - Happier Than Ever (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Indie Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Getting Older
-02. I Didn't Change My Number
-03. Billie Bossa Nova
-04. My Future(   Читать дальше...   )Жанр: Indie Pop, RockПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5547787306AADDB28B4D770849E71E13C189E76B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098048   (912661) от 28.01.2017
-
-Joe South - Introspect / Don't It Make You Want To Go Home? (2003) [FLAC|Lossless|image + .cue] <Pop, Southern Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912661.jpg" />
-</div>
-
-
-###  Подробнее
-
-ntrospect (1968)
-01. All My Hard Times (2:53)
-02. Rose Garden (2:50)
-03. Mirror Of Your Mind (4:40)(   Читать дальше...   )Жанр: Pop, Southern Rock, SoulПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F5A4209D68DE6B21DB860A594774B047FEAAB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097765   (912196) от 28.01.2017
-
-VA - KONTOR TRAPICAL (2017) [FLAC|Lossless|tracks] <Dance, House, Dubsteр>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starley - Call On Me (Ryan Riback Remix) (3:47)
-02. Lost Frequencies - What Is Love (Neptunica Remix) (2:52)
-03. Major Lazer & Showtek - Believer (3:32)
-04. Armin Van Buuren - Caught In The Slipstream (Galavant Remix) (2:54)(   Читать дальше...   )Жанр: Dance, House, DubstepПродолжительность: 03:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8FA8D83A7E697455E80FD867F8A9A52CF3D3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758346   (912062) от 19.02.2014
-
-VA - Pure... singer/songwriter (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Singer - Songwriter, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное singer/songwriter нужно было бы перевести как барды-песенники или сочинители-исполнители, но прослушав эти 4 диска из серии Pure (ссылку на серию см. ниже) решил, что скорее это хороший сборник поп музыки. Тем более, что и allmusic.com его определил также. Интересно, что во всех поисковиках (в том числе и на нашем трекере в мр3) альбом значиться как singer/songwriters, (   Читать дальше...   )CD1:
-01. Bob Dylan-It.s all over now  (4:17)
-02. Simon & Garfunkel - Bridge over troubled water  (4:53)
-03. John Denver - leaving on a jet plane  (3:39)(   Читать дальше...   )Жанр: Pop, Rock, Singer - Songwriter, FolkПродолжительность: 04:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7B7A8588CBBA6A94373E40D132D6AD304D34A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097747   (912049) от 28.01.2017
-
-VA - NOW That's What I Call Music! 61 (US series) (2017) [FLAC|Lossless|tracks] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - 24K Magic (3:45)
-02. Maroon 5 feat. Kendrick Lamar - Don't Wanna Know (3:33)
-03. Alessia Cara - Scars To Your Beautiful (3:46)
-04. Ariana Grande feat. Nicki Minaj - Side To Side (3:42)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F0B9DA1AADED0356F208D529F6137B140A10C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990843   (909992) от 26.02.2016
-
-VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rahmaj - Fly to India (1:59)
-02. Gitan Suite - Spanish Dream (1:54)
-03. Lya Cannes - Vuela Vuela (3:00)
-04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368674   (909199) от 20.03.2020
-
-VA - FETENFETZER Oldies Party (2002) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - I Get Around (2:14)
-02. Barry Blue - Dancing on a Saturday Night (3:13)
-03. The Byrds - Mr. Tambourine Man (2:22)
-04. The Rubettes - Juke Box Jive (3:05)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A6F6C35E34B85599B7C196314960F197DD06EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

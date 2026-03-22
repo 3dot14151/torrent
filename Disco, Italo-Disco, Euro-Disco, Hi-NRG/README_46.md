@@ -1,3 +1,32 @@
+###  Публикация: 1749537   (104347) от 14.09.2024
+
+Barock Disco Band - Disco Classical Fever (1979) LP [MP3|320 Kbps] <Funk Soul, Classical, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Can Can (2:57)
+02. Toreador's Boogie (3:27)
+03. Sabre Dance Salsoul (2:59)
+04. Tonight We Love (2:38)(   Читать дальше...   )Жанр: Funk Soul, Classical, DiscoПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18B1D66F356E3133E1651C8C3C0FEC864230B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765932   (101312) от 15.12.2024
 
 Purple Disco Machine - Club Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
@@ -732,35 +761,6 @@ VA - I Love ZYX Italo Disco Collection 5 (2006) 3 CD [OGG Vorbis|480 Kbps] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7C57945411AB3EAB25DCBAFB3C1D2D7C6C88EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788055   (68662) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Mine - Hypnotic Tango (Extended Player '89)
-02. Robert Camero - Lady Suprise (12'' Version)
-03. Broken Dreams - Broken Dreams (12'' Version)
-04. Taco - Got To Be Your Lover (Special D.J. Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91BF17B07CA365F63E4C61489EBCCE9008665AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

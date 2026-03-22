@@ -1,3 +1,119 @@
+###  Публикация: 944476   (435846) от 09.10.2015
+
+Schubert - Piano transcriptions (Antti Siirala ) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Recitals, Modern, Suite, Song, Post-Romantic, Variations, Overture, Waltz, Fugue, Transcrip ...
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winterreise: Gute Nacht (Leopold Godowsky) (06:51)
+02. Der Lindenbaum (Franz Liszt) (04:54)
+Winterreise (12), transcription for piano (after Schubert, D. 911), S. 561 (LW A50)
+03. Winterreise: Der sturmische Morgen - Im Dorfe (Franz Liszt) (05:59)(   Читать дальше...   )Жанр: Classical, Romantic Period, Recitals, Modern, Suite, Song, Post-Romantic, Variations, Overture, Waltz, Fugue, Transcription, PassacagliaПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21649EDEDA03C0489BC4874A103292223E068F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410379   (435814) от 21.09.2020
+
+Ludovico Einaudi - Undiscovered (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuori Dal Mondo (Remastered 2020) (4:59)
+ 02. Other Nature (Remastered 2020) (4:39)
+ 03. Due Tramonti (Remastered 2020) (4:55)
+ 04. In Un'altra Vita (Live / Remastered 2020) (6:55)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 01:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D11E83C8D1546C81DFC4ED07BAFEA910B8D9FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 207019   (435492) от 21.09.2020
+
+VA - Weekend classics series by Deutsche Grammophon (11 CD из 35) (2006) [APE, FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список дисков:
+a Beethoven Piano Weekend
+a Guitar Weekend
+a Johann Strauss weekend(   Читать дальше...   )Жанр: ClassicalПродолжительность: 12:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2955CF654747B2606B32581F68086808B5395CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945064   (435265) от 09.10.2015
+
+David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous
+02. Explosive
+03. Serenity (feat. Nicole Scherzinger)
+04. Lose Yourself(   Читать дальше...   )Жанр: Classical, CrossoverПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7406012F7635D26B0EC79AC6648120A8270F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062766   (434675) от 16.10.2016
 
 Arianna Savall - Peiwoh (2009) [FLAC|Lossless|tracks + .cue] <Classical, Vocal Music, Chamber Music>
@@ -623,122 +739,6 @@ Nicolo Paganini (1782-1840) The 6 Violin Concertos (3CD) [MP3|320 kb/s]<Classica
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325109   (416067) от 13.09.2019
-
-Lindsey Stirling - Artemis (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underground
-02. Artemis
-03. Til the Light Goes Out
-04. Between Twilight(   Читать дальше...   )Жанр: Instrumental, Classical CrossoverПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2495A82F7A8A90F12DC11209678FB9CC397A4991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251501   (415494) от 02.10.2018
-
-The New London Chorale - Live In Concert (2012) A Tom Parker Project [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415494.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Say Goodbye
-2.	Stay With Me Till The Morning
-3.	In The Land Of Zion
-4.	Worthy Is The Lamb(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B896DE38450B3CBFD3B05D8589E311C1480AC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251032   (415493) от 02.10.2018
-
-V.A. - Anita Meyer, Rob de Nijs, Amy Vanmeenen, Edward Reekers - The Commandments (1990) A Tom Parker Project [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad, Religious>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415493.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Overture	       –Tom Parker
-2.	Loving Only You	–Edward Reekers
-3.	All I Need	–Anita Meyer
-4.	Don't Take My Name	–Rob De Nijs(   Читать дальше...   )Жанр: Сrossover Classical, Pop, Ballad, ReligiousПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3049D6925782AA378B6F5294EAA39148B2EDDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250974   (415425) от 02.10.2018
-
-The New London Chorale - The New Amadeus Mozart (1997) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415425.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	My Love
-2.	Stay With Me 'Til The Morning
-3.	No. 39
-4.	A Plan Gone Astray(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301F9C0949DF704BE5486C60FE5886A04A54D7FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

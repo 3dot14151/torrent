@@ -1,3 +1,438 @@
+###  Публикация: 1474639   (1012881) от 03.06.2021
+
+Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless|tracks+.cue] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Day In Your Life (4:17)
+02. Rockin Robin (2:33)
+03. People Make The World Go Round (3:14)
+04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474932   (1012727) от 04.06.2021
+
+VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Sweat$ - At My Worst (2:50)
+02. Joel Corry, MNEK - Head & Heart - Acoustic Version (3:38)
+03. Charlie Puth, Selena Gomez - We Don't Talk Anymore (3:37)
+04. Griff - Good Stuff (3:13)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474886   (1012694) от 04.06.2021
+
+Little Big - COVERS (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Everybody (Little Big Are Back)
+2. Blitzkrieg Bop
+3. Barbie Girl
+4. Koldunya(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5291EDB78FFF255BAED487615DDDC1E70CB65C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475251   (1012439) от 06.06.2021
+
+Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muñequita Linda
+02. Solamente Una Vez (con Israel Fernández)
+03. Esta tarde vi llover (feat. Rusowsky)
+04. Perfidia(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4C3270352C53C5915A5925354C38E39C42FBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475158   (1012429) от 06.06.2021
+
+Anabel Englund - Messing With Magic (2021) Deluxe Edition [FLAC|LOSSLES-Web-DL] <Dance, Synth-pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Hot (MK x Nightlapse Remix) [00:03:45]
+02. Float [00:03:32]
+03. Picture Us [00:02:37]
+04. Spell My Name [00:02:53](   Читать дальше...   )Жанр: Dance, Synth-pop, Dance-popПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77650AEC1A9704894B59DA37BE41D635F3E6ECC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475214   (1012407) от 06.06.2021
+
+VA - Сборник 15-NP-Love Songs. Vol.1 (1994) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Libitum - Поздно уже...
+02. М. Катаева – Боль
+03. Д. Медведев – Осень
+04. Л. Сегида – Последний поцелуй(   Читать дальше...   )Жанр: РорПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D56C59346C3BCAF63E32741AA826CBF5BE33F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475015   (1012398) от 06.06.2021
+
+VA - 100 Greatest Women in Pop (2021) Explicit [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012398.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cher - Believe (3:59)
+002. Ashnikko - Daisy (2:26)
+003. Jess Glynne - Don't Be So Hard On Yourself (3:31)
+004. All Saints - I Know Where It's At (4:53)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4CBCD25618CCF6BA61AAB9A10BAAFEEE4DAD6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475223   (1012392) от 06.06.2021
+
+Little Big - Covers (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rave>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody (Little Big Are Back) [00:02:44]
+02. Blitzkrieg Bop [00:02:37]
+03. Barbie Girl [00:02:28]
+04. Koldunya [00:02:30](   Читать дальше...   )Жанр: Pop RaveПродолжительность: 00:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804E6FCC0C1EDE7B016FA334228D215296591356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475688   (1012125) от 08.06.2021
+
+VA - Mastermix DJ Edits 23 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stevie Wonder - Sir Duke (DJ Edit)
+02. Shapeshifters - Lola's Theme (DJ Edit)
+03. Blue - One Love (DJ Edit)
+04. Psy - Gangnam Style (DJ Edit)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6AC017A7E16A28F191CB0624899203CE753AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475703   (1012111) от 08.06.2021
+
+Michael Bolton - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012111.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. How Am I Supposed To Live Without You (4:16)
+02. How Can We Be Lovers (3:56)
+03. When I'm Back On My Feet Again (3:49)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 03:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25EA1FDE087520C8E0EAD7E44272DD5140AB198D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475935   (1011974) от 09.06.2021
+
+VA - Щит и меч России-Песни горячего сердца (1999) [FLAC|Lossless|tracks + .cue]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. М. Бернес - С чего начинается Родина!
+02. М. Ножкин - Трудная работа
+03. П. Глубокий - Щит и меч России
+04. А. Моксяков - Песня о Дзержинском(   Читать дальше...   )Жанр: РетроПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256184C26AD5DDDE026B856BD42C42E1C4902B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476098   (1011844) от 10.06.2021
+
+Pastel Coast - Hovercraft (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eau (2:09)
+02. Always (3:44)
+03. Aquarius (3:55)
+04. La Nuit (4:46)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF96B97A6B422F65605C8CDB3EA64F433F1D7F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476416   (1011648) от 11.06.2021
+
+Катя Чехова - Супергерои (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011648.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Космонавты
+2. Тает снег (feat. Артём Татищевский)
+3. Дура
+4. Феллини (Radio Edit)Жанр: PopПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42B7DB2BFCB14B7387462E2626A2B5F3473F0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476348   (1011629) от 11.06.2021
+
+Maroon 5 - JORDI (2021) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011629.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maroon 5/Megan Thee Stallion - Beautiful Mistakes
+2. Maroon 5 - Lost
+3. Maroon 5/blackbear - Echo
+4. Maroon 5 - Lovesick(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7760E1E0C44DDFE4C367071AFD7969F91B7BCD5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476799   (1011513) от 12.06.2021
+
+Ivan Cattaneo - Ivan Il Terribile (1982) [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toro! Torero! (2:41)
+02. Bassa Quota (3:10)
+03. Italian Slip (3:06)
+04. Odio & Amore (3:47)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DAE388FD70CE43DE4D1DD81C0C9C91850BD5E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477636   (1010831) от 16.06.2021
 
 Ryan Adams ‎ - Big Colors (2021) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -310,441 +745,6 @@ VA - Acoustic Pop 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37DE311485477A0D300A34A41150651B9E08BB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479524   (1009600) от 24.06.2021
-
-Melanie C - In And Out Of Love (Acoustic) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In And Out Of Love (Acoustic)
-02. Who I Am (Acoustic)
-03. Never Be The Same Again (Acoustic)
-04. Too Much (Acoustic)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881360CD3407F5280DDF17F0D7D616CEAA3FE235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479490   (1009586) от 24.06.2021
-
-VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart - You're In My Heart (The Final Acclaim)
-02. Tamia - Officially Missing You
-03. Jess Glynne - I'll Be There (Acoustic)
-04. Donna Lewis - I Could Be the One(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E4D548DFCBC86E8270840F7BD4C4186B297238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479598   (1009559) от 24.06.2021
-
-VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo - drivers license (04:02)
-02. Hailee Steinfeld - Let Me Go (02:54)
-03. Selena Gomez - Lose You To Love Me (03:26)
-04. Bülow - Revolver (02:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ACE4757128EFAF306585D303EF1E4BD37B4265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479926   (1009298) от 26.06.2021
-
-Andy Williams - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Vocal, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Howard Andrew Williams (3.12.1927 - 25.09.2012) - американский певец, который провел на музыкальных подмостках 74 года своей жизни и активно занимался музыкальной индустрией вплоть до своей смерти в 2012 году. За свою карьеру он записал 43 альбома, 18 из них стали золотыми и 3 получили платиновый сертфикат. По всему миру было продано более 100 млн пластинок с его (   Читать дальше...   )CD - 1:
-01. Can't Get Used To Losing You (2:21)
-02. Music To Watch Girls By (2:31)
-03. Speak Softly Love (Love Theme from ''The Godfather'') (3:03)(   Читать дальше...   )Жанр: Pop, Vocal, OldiesПродолжительность: 03:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34B1B2749C17246DBBDF340AF5D36D028E911B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479375   (1009259) от 26.06.2021
-
-Винтаж (Анна Плетнева) - 9 альбомов, 4 сборника, 1 концерт, 23 сингла (2007-2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009259.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Криминальная любовь
-2009 - Sex
-2011 - Анечка
-2013 - Very DanceЖанр: PopПродолжительность: 13:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCADEA3489214F0425094D29B5339AA54FFCD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480204   (1009196) от 27.06.2021
-
-VA - Песня года Беларуси (2004) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алексей Хлестов - Ворваться в небо
-02. Лариса Грибалёва - Что-нибудь
-03. гр. J_Mopc - Альбион
-04. Ирина Афанасьева - Было бы(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA55265855ECD9DAFE00C48C46F7F01749024599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480227   (1009128) от 27.06.2021
-
-VA - The Best 2000s Album In The World… Ever! (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - The Nights (2:56)
-02. Plain White T's - Hey There Delilah (3:52)
-03. Zedd, Foxes - Clarity (4:31)
-04. Norah Jones - Don't Know Why (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC4B07E9497DC29ECE008786667CDFD5A059A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480910   (1008737) от 30.06.2021
-
-Trinity - We'll Make It Together (1976) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Of June (3:51)
-02. Who Are You (3:42)
-03. Wise Guy (2:58)
-04. 002.345.709 (That's My Number) (4:30)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114B04E3EFB6A9E9E917E93FD3101747FE60A70A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480699   (1008718) от 30.06.2021
-
-Johnny Warman - Walking Into Mirrors (серия "Другие восьмидесятые") (1981) CD, Album, Enhanced, Reissue, Remastered, 2002, Angel Air Records [MP3|320 Kbps] <Space Pop Rock, Synthpop, N ...
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking Into Mirrors
-02. Radio Active
-03. Searchlights
-04. Martian Summer(   Читать дальше...   )Жанр: Space Pop Rock, Synthpop, New Wave, Avant-Pop, RockПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EB0A242B3C8C4E8165E3AA38C398A612B1702A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481201   (1008448) от 02.07.2021
-
-Frank Duval - Lonesome Fighter (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Fighter Prologue
-02. Lonesome Fighter
-03. Om Mani Padme Hum
-04. Mysterious Call(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8425F2D37E86CEB138B0611D659C99848512CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645848   (1008401) от 02.07.2021
-
-Николай Сличенко - Любимые песни.ru (2004) [FLAC|Lossless]<Pop, Romance, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отговорила роща золотая
-02. Милая
-03. Шел мэ верстэ
-04. Лошадка(   Читать дальше...   )Жанр: Pop, Romance, RetroПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA3A9647D46EF1B7151569007482A0616DEBCEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481439   (1008304) от 03.07.2021
-
-Richard Marx - Stories To Tell (2021) 2CD [FLAC|Lossless|image + .cue] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008304.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Don't Mean Nothing
-02. Should've Known Better
-03. Endless Summer Nights(   Читать дальше...   )Жанр: Pop, Pop-Rock|Продолжительность: 02:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADED79E0004F159B91DE6DB8EF1E9A7828123AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481416   (1008303) от 03.07.2021
-
-Кристина Орбакайте - Свобода (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я - Кристина Орбакайте
-2. Пьяная вишня
-3. Свобода
-4. Она(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57672394BBC66740C6582D48506AE9938AC181EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481739   (1008168) от 04.07.2021
-
-VA - Calming Acoustic Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Lost (03:41)
-02. Karizma Duo - Moonlight Shadow (02:48)
-03. John Burnsby - Easy (03:29)
-04. Meg Birch - Falling (Acoustic Version) (03:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C0E22A6CED72501502A41ADDCD262A1C95623C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481563   (1008075) от 04.07.2021
-
-Modern Talking - Collection (1985-2011) 109 CD [FLAC|Lossless|image + .cue] <EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Talking - немецкий англоязычный музыкальный дуэт, исполнявший танцевальную музыку в стиле диско и состоявший из Томаса Андерса и Дитера Болена. В конце своего существования дуэт развился в до сих пор коммерчески самую успешную немецкую поп-формацию. Образован в 1984 г.Список альбомов:
-1985.The First Album
-1985.Let's Talk About Love (The 2nd Album)
-1986.Ready For Romance (The 3rd Album)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 03:12:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D6ACCD42235592DC8174DB7E337305117915E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

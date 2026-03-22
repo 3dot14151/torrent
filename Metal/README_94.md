@@ -1,3 +1,119 @@
+###  Публикация: 1646511   (231899) от 14.07.2023
+
+Ontborg - Following the Steps of Damnation (2023) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Steps of Damnation
+02 - Purgatory
+03 - Echoes of Time
+04 - Nightfall(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A74112B0D978523DD017AC3EE3FEFA0CF22694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646697   (231779) от 17.07.2023
+
+Undead Killer - Awakening of the Undead Killers (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Despescueznarizorejamiento
+02. Doom Knight
+03. Undead Awake
+04. Reign of Terror(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4077704BC49F4D4B4593FAD2FF7C74789C729994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646901   (231772) от 17.07.2023
+
+Frenzy - Blind Justice (2019) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Justice (feat. Frenzy)
+02. From Hell
+03. Killing With A Smile
+04. Save Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1130181CCDF2CA7D33F11609DA8B52C8393904E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646999   (231759) от 17.07.2023
+
+Vansidian - Reflecting the Shadows (2023) [MP3|320 Kbps] <Melodic Death, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dive
+02. Code Of Shame
+03. Reflecting The Shadows
+04. Stormweaver(   Читать дальше...   )Жанр: Melodic Death, Power MetalПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8717A9B320615190013E138CDB2A59E881F5AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646830   (231730) от 17.07.2023
 
 Unsoulicited - Reflections (2023) [MP3|320 Kbps] <Symphonic Metal, Rock>
@@ -629,122 +745,6 @@ Lachaise - Silent Cries for Help (2009) [MP3|320 Kbps] <Symphonic Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EF8EC1092AF684938746A0A911DD65E87C1EABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648147   (231138) от 22.07.2023
-
-Mystfall - Celestial Vision (2023) [MP3|320 Kbps] <Symphonic Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resisting Heaven
-02. Celestial Vision
-03. Centuries
-04. Endless(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E566DA0A50DF7A361F5AFD3D69D79F8AF5383D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648161   (231131) от 22.07.2023
-
-Lachaise - In a State of Oblivion (2012) [MP3|320 Kbps] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tuska
-02. Awaking
-03. When She Decided to Die
-04. Frost(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CA71098D77A2E824E71AAE1E6E0AB9A130EEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648820   (231016) от 25.07.2023
-
-Desolator - Sermon of Apathy (2020) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portal Tomb
-02. Adversarial Doctrine
-03. Creatures of Habit
-04. Methods of Self-Deception(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB16459AB1B2E01769F73B012754DA58AEB75139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648243   (231008) от 22.07.2023
-
-Mortemia - The Pandemic Pandemonium Sessions (2022) [MP3|320 Kbps] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Enigmatic Sequel (feat. Madeleine Liljestam)
-02. Death Turns a Blind Eye (feat. Marcela Bovio)
-03. The Hour of Wrath (feat. Alessia Scolletti)
-04. Decadence Deepens Within (feat. Liv Kristine)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7EE418E0035E1E03621063C63B6BBDA17CD856
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,318 @@
+###  Публикация: 1203955   (785381) от 04.02.2018
+
+VA - Vanilla Kiss: Clubland Eurodance 90s (2018) [MP3|320 Kbps] <Club, Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785381.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. X-Session - Lucky Number
+002. Dean Martin - Please Don't Talk About Me When I'm Gone
+003. Missing Heart - Charlene (Extended)
+004. Music Instructor - Super Fly(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 07:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661731EA4FCE92F91C9D85522D007E455B16863A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277389   (785375) от 20.01.2019
+
+VA - Громкие новинки месяца Vol.21 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Макс Барских - Странная
+02. Ariana Grande - 7 rings
+03. HammAli & Navai - Как тебя забыть
+04. Inna - Sin Ti(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABB1FFAED2B3F73759E57AD7DA16C53907742D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203257   (785177) от 04.02.2018
+
+Queen - The Show Must Go On (2018) Hot Dance Remix [MP3|320 Kbps] <Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Queen - The Show Must Go On ★ Hot Dance Remix ★Up Music
+
+Видеоклип для ознакомления:Жанр: ElectropopПродолжительность: 00:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322A8D8400B9D7F5A862C643EE0A641E0557861B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277743   (785059) от 21.01.2019
+
+VA - German Top 50 Party Schlager Charts 21.01.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Andrea Berg - Ja Ich Will
+04. Kerstin Ott - Regenbogenfarben(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904A3C752ACE2E852C968F6C33A6A7CAA4657B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204411   (784799) от 05.02.2018
+
+Daft Punk - Technologic (2017) Remix [MP3|320 Kbps] <G-House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daft Punk - Technologic ★ G-House Remix ★ Tony Ferrera ♫ Up MusicЖанр: G-HouseПродолжительность: 00:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87283D589CD1DCA00E50335611D068B2CF8D0AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388516   (784772) от 09.06.2020
+
+VA - Music News vol.16 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abee - Way Back (03:13)
+ 002. Aexcit feat. Hilla - High (Aexcit vs. Mande Remix) (02:28)
+ 003. Armin Van Buuren & Brennan Heart feat. Andreas Moe - All On Me (MOTi Remix) (03:06)
+ 004. Arno Cost & Norman Doray - One Night (02:59)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F991A6C18B347130D6038C8EDD6FA9C94FECE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204530   (784673) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0013 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonfeel Electro Band - Your Eyes ( 2014 )
+02. Jaco - Hey Operator ( Rum Version 2014 )
+03. Brand Image - Night Of Ecstasy ( 1984 )
+04. Images - Corps A Corps ( 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BBC04906458EAB9F5DE5B8C467CE05821D95AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204537   (784672) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0015 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twins - Tonight ( Long Version 1993 )
+02. Boris Zhivago - Sovjet D'Amour ( 2016 )
+03. George Aaron - Heaven ( L-Ectro Vox Mix 2008 )
+04. Etienne Tulet - Boy ( 1991 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F868466746452191D03E5BFB2284FF870EB6376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204529   (784671) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0012 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Touch - The Fire Of Love ( 1986 )
+02. Nation In Blue - Dancing On My Own ( 2017 )
+03. Petr Kotvald - Big City Calling ( 1987 )
+04. Proxyon - The Shuttle ( 1993 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBDBFED3CC4B184F08477321F28FB2E579202AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204540   (784668) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0016 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baccara feat. Maria Mendiola & Cristina Sevilla - I Belong To Your Heart ( Ext. Version 2017 )
+02. Chip Chip - So Close To Heaven ( 1987 )
+03. Max Coveri - Guy Guy ( Full Power Version 2003 )
+04. Peter Wilson (3) - Love Into Action ( 2017 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177B4876F9E407816D2DDAA062270A8B7F02E82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204536   (784664) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0014 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ankie Bagger - Where Were You Last Night ( Remix 1989 )
+02. Diux - Comet ( 1986 )
+03. Synth Dimension - Way To New Start ( 2013 )
+04. Danielle Deneuve - Love Is Free ( 1984 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CDCE11E0B0E3B8B447C37B38E4E789D087DD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204556   (784661) от 06.02.2018
 
 VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0017 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
@@ -420,324 +735,6 @@ Alan Walker - Faded (2017) Remix, Cover Sara Farel [MP3|192 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A60C2348DFD3821CBD12703BF0D6162778643F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204615   (784225) от 07.02.2018
-
-VA - Наши песни (2017) от DON Music [MP3|256/320 Kbps] <Русский Рок, Авторская Песня>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784225.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Пилот - Нет иного рая (05:23)
-002. Lumen - Домой (05:37)
-003. СерьГа - Сказочный лес (03:20)
-004. Сплин - Тепло родного дома (03:51)(   Читать дальше...   )Жанр: Русский Рок, Авторская ПесняПродолжительность: 06:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BC340A1C07472F7F314E28FF6DA50CA875C6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204922   (784223) от 07.02.2018
-
-VA - Зайцев.Нет: Февраль (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Сергия  -  Я хочу быть только с тобой  3:42
-02.  ТЕО и Ольга Рыжикова  -  По тонкому льду  3:10
-03.  X Ambassadors  -  Don't Stay  3:10
-04.  Sting & Shaggy  -  Don't Make Me Wait  3:34(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23798AF9C0DCE0D9A23B5CB4CFF3A078DD613A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389467   (784178) от 11.06.2020
-
-VA - 2000s Party Hits (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784178.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Eyed Peas - Pump It (3:33)
-2. Shakira - Hips Don't Lie (3:38)
-3. M.I.A. - Paper Planes (3:25)
-4. Eric Prydz - Call On Me (Radio Edit) (2:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C47978203B44E59C1DF4D3BFF8F816809BE6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204985   (784070) от 08.02.2018
-
-VA - Cosmotronica & Space Disco Vol.7 (2018) [MP3|320 Kbps] <House, Spacesynth, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rodg & Roovel - Fast Lane
-02. Zschet - Wuoarping Kicks (First Mix)
-03. Sosysos - Essentials of Magic
-04. DJ Eef - Allright (Original Mix)(   Читать дальше...   )Жанр: House, Spacesynth, OtherПродолжительность: 05:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFC63D5AEB6C21D85C0C31F936989BE3EC25D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204982   (784028) от 08.02.2018
-
-VA - Музыка, Которая То, Что Надо (Sound Clinic - Just Relax Edition) (2018) [MP3|320 Kbps] <Jazz-Hop, Jazzy, Chill-Hop, Trip-Hop и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784028.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2Late - Beneath The Funk
-2. 2Late - Kickit
-3. 40 Bliss - Alone
-4. 9th Wonder - FightGood(   Читать дальше...   )Жанр: Jazz-Hop, Jazzy, Chill-Hop, Trip-Hop и другиеПродолжительность: 10:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7534E82B2C4DC05B45061C3B05890BADF57CAB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205316   (783691) от 09.02.2018
-
-Demo - Солнышко (2017) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783691.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Солнышко
-2. Dj Apollo
-3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C09FB402795417642A17ACBFD8D8D5338ECAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205248   (783687) от 09.02.2018
-
-VA - Дискотека 2000х Dance Club - The Best! Лучшие танцевальные хиты от NNNB (2018) [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Kane - Club Sound (Radio Edit)
-02. Benny Benassi - Satisfaction (Isak Original)
-03. Ida Corr & Fedde Le Grand - Let Me Think About It
-04. Pakito - Livin On Video(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 17:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67F7C55F80FBDF9CECD36FEA89895E0152ACD19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390023   (783658) от 13.06.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 12.06.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32
-02. NRD1 - All Good Things (Come To An End) 3:27
-03. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
-04. Cream Soda & ХЛЕБ - Плачу на техно 2:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258421C335BED0EFC1FA9344C8C3511E0CBAE75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389942   (783565) от 13.06.2020
-
-VA - Music News vol.19 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вера Брежнева - Хорошие Новости (KM & Alex Davia Remake) (02:46)
- 002. 6ix9ine feat. Nicki Minaj - Trollz (03:23)
- 003. 24kGoldn - Valentino (Imanbek Remix) (02:58)
- 004. 410 - Мотылек (03:00)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 11:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A893AD9B4553E83F7345BBA6244AC57BFE49EA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205676   (783475) от 10.02.2018
-
-VA - Fitnes Hits (2018) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Miss Bass  -  Palm Shot  3:33
-02.  The Chainsmokers feat. Halsey  -  Closer (Wuki Remix)  4:04
-03.  Will.i.am feat. Justin Bieber  -  That Power (Matt Nevin Extended Mix)  5:25
-04.  Alok & Vinne  -  Free (Original Mix)  5:59(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 04:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1027F4DD94A2CDB53FCEF5126C26A079832DD4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390137   (783413) от 14.06.2020
-
-VA - The Official UK Top 40 Singles Chart 12.06.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaBaby Feat Roddy Ricch - ROCKSTAR
-02. Lady Gaga Feat Ariana Grande - Rain On Me
-03. S1mba Feat DTG - Rover
-04. Topic Feat A7S - Breaking Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D137780941FB27FB61E24A0043682430F5F4689
 ```
 
 https://mybot314.ru/tekegram_catalog/

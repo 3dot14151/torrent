@@ -1,3 +1,32 @@
+###  Публикация: 1036370   (620850) от 20.07.2016
+
+Steven Osborne - Beethoven: Bagatelles (2012) [FLAC|Lossless|image + .cue] <Classical, Keyboard>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seven Bagatelles, Op. 33
+01.  Op. 33 - #1 in E flat major: Andante grazioso, quasi allegretto    03:46
+02.  Op. 33 - #2 in C major: Scherzo - Trio    03:11
+03.  Op. 33 - #3 in F major: Allegretto    01:48(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC0A2B5F33C09957FC3CFDE453CD5BFE5B8F601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298460   (601860) от 27.04.2019
 
 Sergey Slavsky - Gone (2015) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
@@ -737,35 +766,6 @@ Craig Armstrong - Piano Works (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D521CB9F723E204E0AA2F713C8901954143392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249073   (437337) от 22.09.2018
-
-Annelie - After Midnight (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Night
-02. Full
-03. Of
-04. A World(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F088464272F6247DA36C71EF490A6E8B9564AB74
 ```
 
 https://mybot314.ru/tekegram_catalog/

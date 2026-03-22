@@ -1,3 +1,119 @@
+###  Публикация: 1806775   (65335) от 14.07.2025
+
+Black Majesty - Oceans of Black (2025) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragon Lord
+02. Set Stone on Fire
+03. Hold On
+04. Raven(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9203E6527D55A569202A9893778CF8999A1CE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806776   (65334) от 14.07.2025
+
+Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts and Minds (00:52)
+02. Raven (05:34)
+03. Divine Calling (03:58)
+04. Hold Your Fire (06:36)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165067DA25949259743FAFDD3E4B85AAFF9BE974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807213   (65288) от 17.07.2025
+
+Anapilin - Dezintegracija (2021) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeternum
+02. Oderint Dum Metuant
+03. Postmortem
+04. Vox Nihili(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6922A978A6EEAA7CC47A23C53F95A1551711BF51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807349   (65270) от 18.07.2025
+
+As the Sea Parts - Psychosis (2025) [MP3|320 Kbps] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Paradise Lies
+02. The Search Within
+03. Among the Shadows
+04. Psychosis(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62287DDBCB4526420C7BDCAF58D1CAC122EB1A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807753   (65100) от 20.07.2025
 
 Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
@@ -623,122 +739,6 @@ Tokyo Blade - Night of the Blade ...The Night Before (2024) [MP3|320kbps|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06DA520E086FF8C6A72D01FE1D3CEF8971E21B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746074   (45236) от 29.08.2024
-
-Roses Of Thieves - Gateway To Utopia (2024) [MP3|320 Kbps] <Melodic Power Metal, Folk Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Perilous Journey [00:03:03]
-02 - Seize The Sky [00:03:21]
-03 - Blunderbuss [00:03:17]
-04 - Be The Captain [00:03:46](   Читать дальше...   )Жанр: Melodic Power Metal, Folk Metal, Female VocalПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54D9A1D551FC27FA93D4815D77650424C9A0FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746844   (44723) от 03.09.2024
-
-Lyran Lions - Star Rider (2024) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born for Metal [00:03:14]
-02. Outbreak [00:03:03]
-03. Abandoned and Abused [00:03:00]
-04. Star Rider [00:04:04](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D732DE679F4B3AACB93AE8108339C060A913D151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748618   (43985) от 10.09.2024
-
-Massacration - Metal Is My Life (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Macetation Apocalypse (03:44)
- 02 - Revenge of the Bull (03:39)
- 03 - November Gay (04:51)
- 04 - Metal Milf (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7B9D030A5C69C01DAD6D1E98B3BCDF1C1001ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750341   (43021) от 19.09.2024
-
-Nightwish - Yesterwynde (2024) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterwynde (2:43)
-02. An Ocean Of Strange Islands (9:26)
-03. The Antikythera Mechanism (5:55)
-04. The Day Of... (4:35)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CBF7E6AEA7FA1FC702052717C8F270AA6EE6F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1808509   (64940) от 25.07.2025
+
+VA - Ori Uplift - Uplifting Only Episode 650 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tony Magic & Yuri Melnikov - Message from the Past
+02. Tycoos & Daisy Lou - Darkness Into Light (Daniel Kandi Remix)
+03. Cedric Paul & Rowan van Beckhoven - Elysium
+04. Michael Angelo, Lokka Vox - Take Me To The Stars(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6732C5200EBD3E9A762EF031578D857E7665169C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806461   (64910) от 26.07.2025
+
+VA - Live @ Mainstage, Ultra Europe, Croatia (2025) [MP3|320 Kbps] <Trance, Techno, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren ft. JAI RYU – Let It Be For Love (Intro Edit)
+02. Travis Scott & Playboi Carti vs. Armin van Buuren & Omnia – FE!N vs. Love (Armin van Buuren Mashup)
+03. Armin van Buuren & The Stickmen Project – No Fun (ID Remix)
+04. Armin van Buuren & JOA – Heavy(   Читать дальше...   )Жанр: Trance, Techno, Tech HouseПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D065EEC47C64E1AE914950454DF9106CB73F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809754   (64650) от 01.08.2025
+
+VA - Armin van Buuren - A State Of Trance 1236 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & JOA – Heavy (Future Favorite)
+02. Markus Schulz & Ahmed Helmy ft. Sarah Howells – Tempted
+03. Calvin Harris ft. Clementine Douglas – Blessings (Cassian Remix)
+04. Bolier & Yasmin Jane – Airwaves (Ørjan Nilsen Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5111A17F668F209F7887E09FCB1928B8C08B31B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809759   (64634) от 01.08.2025
 
 VA - Ori Uplift - Uplifting Only Episode 651 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -653,92 +740,6 @@ Space 92 - Live @ Drumcode, Awakenings, Gashouder, ADE, Netherlands (2024-10-17)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F3725B69BD73F9CE694520DE58859CF5D00FBB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761639   (36552) от 21.11.2024
-
-Frank Walker - Live @ Mainstage, Veld Music Festival, Canada (2024-08-03) [MP3|320 Kbps] <Dance, Electro Pop, Mashup>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Walker & Ella Henderson vs. DubVision - I Go Dancing vs. P.R.O.G.2 (Frank Walker Intro Edit)
-02. Teddy Swims & Tiësto vs. Breathe Carolina & Ryos & SGNLS & Faybl - Lose Control vs. Novocaine
-03. Becky Hill & Chase & Status & Tiësto vs. Fred Again.. & Baby Keem vs. Sentinel - Disconnect vs. leavemealone vs. Get (   Читать дальше...   )Жанр: Dance, Electro Pop, MashupПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6B687456E88FCFFE38BAE4D84670B0A3511E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761737   (36469) от 22.11.2024
-
-RetroVision - More Bass More Good, ADE, Netherlands (2024-10-18) [MP3|320 Kbps] <Bass House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RetroVision - ID
-02. Skrillex & Mr. Oizo ft. Missy Elliott - RATATA w/RetroVision - ID
-03. Benny Benassi pres. The Biz - Satisfaction w/Dog Blood - Break Law (ID Remix)
-04. RetroVision - Take Me Higher w/Gotye ft. Kimbra - Somebody That I Used To Know (Acappella) w/RetroVision & Seth Hills - Bass w/Katy Perry ft. Snoop Dogg - California Gurls (Acappella)Жанр: Bass House, Big RoomПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2821C7D8D316A03D63DE7790E10685180F770BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761767   (36453) от 22.11.2024
-
-VA - Armin van Buuren - A State Of Trance 1200 (Vinyl Special) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synergy – Hello Strings
-02. Probspot – Blueberry
-03. Filterheadz – Yimanya
-04. St. John vs. Locust – Mind Circles (Perry O’Neil Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B4D8199374CC7A2A4FCF4F95DDDC016B1258F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,122 @@
+###  Публикация: 1543184   (627903) от 12.04.2022
+
+Voices Of Grief - Verses About Sin And The Guise Of Sorrow (2022) [MP3|320 Kbps] <Black, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purgatory [00:01:23]
+02. Whores (The Curse Is Exorbitant Pride) [00:06:47]
+03. In Ominous Reverie [00:09:33]
+04. Don't Blame Me For My Cold Skin [00:06:23](   Читать дальше...   )Жанр: Black, Doom MetalПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0717B086F12040765BA3C52055635CE41E6F7208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521014   (627216) от 11.07.2012
+
+Power Theory - An Axe To Grind (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627216.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Edge Of Knives (4:59)
+2. Deceiver (6:43)
+3. Puresteel (5:03)
+4. An Axe To Grind (5:29)
+5. A Fist In The Face Of God (3:59)
+6. The Seer (5:39)
+7. On The Inside (5:26)
+8. Colossus (3:54)
+9. The Hammer Strikes (Mjolnir's song) (7:28)Жанр: Heavy MetalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0B7489D75EA22A52E4BCC438B0A4D5DE0BE4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035734   (626644) от 17.07.2016
+
+Despised Icon - Beast (2016) [MP3|320 Kbps] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Aftermath (03:37)
+02. Inner Demons (03:12)
+03. Drapeau Noir (03:07)
+04. Bad Vibes (02:57)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B51D51784F842ECB5588260A7C242655D4E4036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909766   (626521) от 18.06.2015
+
+In Cauda Venenum - In Cauda Venenum (2015) [MP3|320 кб/с]<Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ωlpha (21:02)
+02. Θmega (21:06)Жанр: Post-Black MetalПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8AB3DF613EC5BE4A13AF5391CFF71112591A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909757   (626520) от 18.06.2015
 
 Amrinan - Songs To Son (2015) [MP3|320 кб/с]<Power / Progressive Metal>
@@ -629,122 +748,6 @@ Shaman - Rescue (2022) [MP3|320 Kbps] <Progressive, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D822FB518E74412B62549F0F9EE9126AC78DF449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910606   (622021) от 20.06.2015
-
-Unheilig - Gipfelkreuz (2015) [MP3|320 кб/с]<Gothic Rock, Metal, NDH>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gipfelblick (Intro)
-02. Where Are You (Feat. Licky)
-03. Brief An Dich
-04. Schmetterling(   Читать дальше...   )Жанр: Gothic Rock, Metal, NDHПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1FB57C75A28B2705C7153FEE3A7F795B93940B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910158   (621347) от 20.06.2015
-
-Lindemann - Skills In Pills (2015) [MP3|320 кб/с]<Industrial Metal>
-
->>След.
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skills In Pills
-02. Ladyboy
-03. Fat
-04. Fish On(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03D7A54773C617D1F795D66B6AB6987C8A95FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036272   (621163) от 20.07.2016
-
-Dust Bolt - Mass Confusion (2016) Japanese Edition [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SickxBrain
-02. Mass Confusion
-03. Allergy
-04. Turned to Grey(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271A041F4FA6A15327CCCEC4CC249477D3560ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036114   (621161) от 20.07.2016
-
-Orden Ogan - Vale (2007) Reissue, Remastered, 2015 [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Graves Bay    01:16
-02.  To New Shores Of Sadness    06:14
-03.  Winds Of Vale    03:27
-04.  Farewell    03:50(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A0A20ABAB631A916248EFBA822F552719F457C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1780531   (70424) от 18.02.2025
+
+VA - Date Night Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roberta Flack - Killing Me Softly with His Song (4:47)
+02.  Guillaume Vincent - Summertime (3:44)
+03.  Rumer - Some Lovers (2:31)
+04.  Michael Bublé - When I Fall in Love (4:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E3F0EAB266C203FFC366C17F7714AD19B24855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780453   (70423) от 18.02.2025
+
+J.J. Johnson - Vivian (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together [5:35]
+02. Frankie and Johnnie [5:19]
+03. I Thought About You [8:01]
+04. I Love You [8:20](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E57606B5BEDB2B22764D4D18532A7532C8011B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780445   (70422) от 18.02.2025
+
+Richard Davis, Sir Roland Hanna, Frederick Waits - Persia My Dear (1987) DIW Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manhattan Safari [7:50]
+02. Southpark and Richard [6:02]
+03. Summer in Central Park [5:06]
+04. Brownie Speaks [6:26](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C719AED81CE9FF20079EE46BC2422EB6D6C5AB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780458   (70421) от 18.02.2025
+
+Woody Herman - The Jazz Collector Edition (1991) Laserlight [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caldonia [2:54]
+02. Wildroot [3:18]
+03. Curbstone Scuffle [3:09]
+04. The Good Earth [2:40](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54271223338FF103D7F76F9C49CA9426B356DA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780455   (70420) от 18.02.2025
+
+Nick Brignola - Things Ain't What They Used to Be: Last Set At Sweet Basil (1992) 2003, Reservoir Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things Ain't What They Used to Be [9:22]
+02. You Go to My Head [9:06]
+03. Tadd's Delight [7:48]
+04. In So Many Words [9:22](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAC475D78DAEBF18DC7B0BA3D17BE6D79B249F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780630   (70382) от 19.02.2025
+
+Kenny Burrell - Prestige Profiles (1956 - 1963) 2005, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Close My Eyes [4:51]
+02. Montono Blues [4:47]
+03. All of You [6:21]
+04. It's a Wonderful World [5:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Guitar JazzПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D749DD8B82D2474218AB7B380285D84540D24695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780627   (70381) от 19.02.2025
 
 Nick Brignola & Sal Salvador - A Tribute To Gerry Mulligan (1982 - 1984) 1993, Stash Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -570,180 +744,6 @@ Robert Hurst - One For Namesake (1994) Columbia [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8656744A3F532F7EC62EC7F11C542D5A86AD0FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781463   (70191) от 23.02.2025
-
-Les Paul Trio - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy River [1:51]
-02. Short Circuit [1:34]
-03. Wasted Tears [1:52]
-04. Melodic Meal [1:52](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DA734CCC648AFB64AE20AB76007ACA8A4781BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781627   (70171) от 24.02.2025
-
-Michael Weiss Quartet - Power Station (1997) DIW Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Station [8:50]
-02. Atlantis [8:16]
-03. Orient Express [5:53]
-04. Soul Journey [4:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0CA7CE673C4A5ACE6FDD42A125BD56D14503D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781629   (70170) от 24.02.2025
-
-Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation [3:01]
-02. Dear Heart [3:19]
-03. Watching the World Go By [3:07]
-04. Quiet Nights [2:51](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian Jazz, Bossa NovaПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EC9F680441C492DA0AAEF57666ED0BC1217ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781633   (70167) от 24.02.2025
-
-Abdullah Ibrahim - Water From An Ancient Well (1985) 1992, Enja [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandela [4:59]
-02. Song for Sathima [6:12]
-03. Manenberg Revisited [6:11]
-04. Tuang Guru [5:26](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61A6EC26961508066350B688FC8AB13E4E553F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781816   (70154) от 25.02.2025
-
-Abdullah Ibrahim - Dollar Brand Plays Sphere Jazz (1960) 2015, Phono [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boulevard East [6:51]
-02. Khumbula Jane [5:57]
-03. Sad Times, Bad Times/King Kong [5:27]
-04. Blues for B [3:30](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD32A25B5F3578BF21761A55DF0165999D62C572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781864   (70150) от 25.02.2025
-
-Peter White - Light of Day (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовясь к выпуску своего долгожданного 17-го альбома Light of Day в начале 2025 года, британский ветеран-гитарист и икона современного джаза Peter White отмечает ряд ключевых личных и профессиональных вех. Музыкант, которому только что исполнилось 70, говорит о новом сборнике: "Я думаю, что эта запись - одна из лучших, которые я когда-либо делал. У меня столько (   Читать дальше...   )01. Catalonia (4:42)
-02. Cityscape (feat. Rick Braun) (6:17)
-03. Carefree (4:08)
-04. Till I See You Again (3:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDFE517376C2C69B8A5218DEDE47580BC745254
 ```
 
 https://mybot314.ru/tekegram_catalog/

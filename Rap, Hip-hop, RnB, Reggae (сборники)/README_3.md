@@ -1,3 +1,32 @@
+###  Публикация: 1281252   (753360) от 07.02.2019
+
+VA - 150 Best Songs RnB Nation (2019) [MP3|320 Kbps] <RnB, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_753360.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shесk Wеs - Mо Bаmbа
+002. Axеl Tоny - Mylа
+003. Cаmilа Cаbеllо - Hаvаnа
+004. Dаyсеm - En Mаlа(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 08 :52 :54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF47192E9956779469208B5EE940973ABEC9B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281901   (748299) от 10.02.2019
 
 VA - Rapper's Delight (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -284,6 +313,35 @@ Stick Figure - Compilation (2022) [MP3|320 Kbps] <Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B46833C2C332D49F11DDFB2B6DF6F430C8B99F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398739   (735217) от 27.07.2020
+
+VA - Summer Reggae Song (2020) [MP3|320 Kbps] <Reggae, Ska, Dancehall, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_735217.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chango - Anvi
+002. Fortunate Youth - Vibration Dub
+003. Gato Negro Soundsystema - Queen
+004. Bumpin Uglies - Mid-Atlantic Dub(   Читать дальше...   )Жанр: Reggae, Ska, Dancehall, ReggaetonПродолжительность: 06:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766A80B6F7CB0773E4461BB0B6619BCF47524194
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,64 +749,6 @@ VA - German Top 40 DBC Deutsche Black Charts 08.03.2019 (2019) [MP3|320 Kbps] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A7A91D9C56A5DA70573BCCBC5E802B493A77B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403586   (688464) от 21.08.2020
-
-VA - Honey Baby (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688464.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aaryan Shah - Still Alive
-002. Xavier Omär - Say It
-003. Chloe X Halle - Do It
-004. Roy Woods - Cool J(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 10:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CABD92811B7A9A1B34F021D3C9A2FCD8AD96F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222380   (686883) от 28.04.2018
-
-VA - Самые Вкусные Треки c Сочным Вокалом (Sound Clinic - R B Edition) (2018) [MP3|320 Kbps] <R&B, Rap, Hip-Hop, Other>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9 Theory, Eligh - Just A Piece
-02. 88Glam - 12
-03. 808Ink - Top Flow
-04. A.Chal - Bedroom Riots(   Читать дальше...   )Жанр: R&B, Rap, Hip-Hop, OtherПродолжительность: 24:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05151D6AC76F2C9D25A2B03E6C7B898358E5D5B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,151 @@
+###  Публикация: 1307426   (555071) от 09.06.2019
+
+VA - Ibiza House Top 100 (2019) [MP3|320 Kbps] <House, Progressive House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  DJ Falk & Luca Debonaire feat. Kiki Doll  -  Get Started (Original Mix)
+002.  Roger Sanchez x Park & Sons feat. Julie McKnight  -  This Feeling (Low Steppa Remix)
+003.  Kevin Courtois  -  Craving (Original)
+004.  AU-1  -  You Got Me (Ladebare Remix)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 09:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827D2C577039EB3DD01D3F8E9C4E2240DDBA5492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236823   (553842) от 20.07.2018
+
+VA - Witness The Fitness 5 (2018) [MP3|320 Kbps] <Future House, Bigroom, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Witness The Fitness 5 (Continuous Mix)
+02. Sj feat. Emma Gatsby - Hung Up (Nathan Rux Remix)
+03. Madison Mars - Shuffle Shuttle (Original Mix)
+04. Tritonal feat. Skyler Stonestreet - Electric Glow (Arston Remix)(   Читать дальше...   )Жанр: Future House, Bigroom, DanceПродолжительность: 02:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15FF950E681DC368E8858CB0735269F14AE0A816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046272   (553124) от 26.08.2016
+
+VA - EDM Summer Closing (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmiel - Every Hour Of Every Day (Kooky Electro Funk Remix) 03:15
+02. Massimo Vanoni - I See You 08:30
+03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
+04. Luke Meyers - Play House (Vocal Edit) 05:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEED170FC1CBD4115404D8D2DEB43484209DE3F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237201   (552478) от 23.07.2018
+
+VA - Workout Summer '18 (2018) [MP3|320 Kbps] <Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattew Collins - Turn Back Time (Club Mix)
+02. Justin Berger - Ohh My (Club Mix)
+03. Frank Diablo - Break It Down (Club Mix)
+04. Ricky Alvarez - Do You See (Club Mix)(   Читать дальше...   )Жанр: Future HouseПродолжительность: 01:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9B8403623863FB2392FFE8F148DD7ECF944230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237147   (552475) от 23.07.2018
+
+VA - Nature One 2018: All You Need To Be (2018) [MP3|320 Kbps] <Disco, Dance, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552475.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+
+01. NATURE ONE INC. - All You Need To Be (Prod. By Cuebrick)
+02. Armin Van Buuren - Blah Blah Blah(   Читать дальше...   )Жанр: Progressive House, Disco, DanceПродолжительность: 01:25:52
+
+01. Blank & Jones - One
+02. Butch - Countach (Kölsch Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A32094A0610D7FE231921D7410C6C5C86752930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046383   (552206) от 27.08.2016
 
 VA - Farewell Summer Tech House Tunes (2016) [MP3|320 Kbps] <Electronica, House>
@@ -600,145 +748,6 @@ VA - Planeta Mix Hits 2019 Summer Edition [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2D4D4DD1C37CEDA978430ACBD6C9FEF475EE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311244   (543686) от 28.06.2019
-
-VA - Time Traveler-Chapter 4 (2019) [MP3|320 Kbps] <Downtempo, Minimal, Deep Tech>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zazou & Landhouse – La PazЖанр: Downtempo, Minimal, Deep TechПродолжительность: 01:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254AEB81A8F9673E0AA73E422DF01F3AD44FC044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311247   (543619) от 28.06.2019
-
-VA - Fresh Out Of The Box, Vol.4 (2019) [MP3|320 Kbps] <House, Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camille & CEV's – Done Again
-02. Bonetti & Housego – From Chicago
-03. DJ Dashcam – Late Night Groove
-04. Arminoise – Germany(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 01:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC555993509E5221E0E140A207118A6AE233A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311261   (543601) от 28.06.2019
-
-VA - French Cafe Lounge - Downtempo & Deephouse Favourites (2019) [MP3|320 Kbps] <Electronica, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dual Sessions & Natalie Renoir – Too Much HeavenЖанр: Electronica, DowntempoПродолжительность: 02:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46D89F86B1697B97FF22769DA4A94A3CDE5D287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153897   (542962) от 29.07.2017
-
-VA - Raw Ibiza Tunes, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antonio Casertano - Downtown
-02. PhonkworX - Night Fever
-03. Jamie Antonelli - Civilian (feat JazzyFunk - Thomas Atzmann remix)
-04. Detroit Project - Diamonds(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8713EE083AC4CEBE85A1F8DB4AB9CCEA961843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154027   (542890) от 29.07.2017
-
-VA - Todd Terry, Mark Brown & Cr2 Allstars - Ibiza 2017 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toyboy & Robin - Tristis 06:15
-02. Flume feat. Little Dragon - Take A Chance (Kolsch Remix) 09:36
-03. DJ Wady - Hulk (Camelphat 2017 Re-Fix) 06:13
-04. Skapes - Hold It 05:42(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 09:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AD14426071599E4B9E8616BF96DFEC10E20708
 ```
 
 https://mybot314.ru/tekegram_catalog/

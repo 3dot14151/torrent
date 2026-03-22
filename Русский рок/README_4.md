@@ -1,3 +1,119 @@
+###  Публикация: 1614043   (1039096) от 20.02.2023
+
+Новый Гражданский - Горящий город (2023) [MP3|256 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Горящий город [00:02:56]
+02 - Ориентиры [00:03:38]
+03 - Хочу [00:03:08]
+04 - Сука [00:03:04](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5550B4AEF0F764DFCE1E851CAF8907AAF90CACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613980   (1039094) от 20.02.2023
+
+Субботний Вечер - Русский воин (2023) [MP3|320 kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Русский воин [00:02:25]
+02. Магазин [00:03:38]
+03. Пьянь [00:03:14]
+04. Баллада о звезде [00:04:53](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CDDE1A4638B66CD2470585DF4AC2C1BD76122F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613840   (1039093) от 20.02.2023
+
+Дом Медичи - Властелин Колец (1992) [MP3|192 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Слово [00:04:53]
+02-Я бреду наугад [00:05:23]
+03-Цифра 6 [00:03:25]
+04-Господи, где взять мне силы [00:03:15](   Читать дальше...   )Жанр: RockПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F2DE1F0AF72B1ADD12BE3AC006CCB3D70B048C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613618   (1039056) от 20.02.2023
+
+LP.PROD - 6 Albums (2021-2023) [MP3|320 Kbps] <Electronic Cinematic Music>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Across the Horizon
+2021 - Black Flag
+2022 - Civil War(   Читать дальше...   )Жанр: Electronic Cinematic MusicПродолжительность: 6 CD, 02:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E60A892943E6ADA186B7BB30A00B476C49E1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614066   (1038900) от 21.02.2023
 
 Dig 'Em Down - Ребуха (2023) [MP3|280-290 kbps VBR] <Rock, Hard Rock>
@@ -624,122 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A11FE99D75EF4DF6EB8947D02FDA8FE82993CF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616620   (1036158) от 03.03.2023
-
-Хроноп - Между никогда и всегда (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Люди, в общем-то, не так плохи [00:04:34]
-02 - Крылья, что режут сталь [00:05:19]
-03 - Через поле пронести свечу [00:05:51]
-04 - Молодые как нефть [00:04:12](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06092FFAC4959D3D89DCA866E3142A34B173C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443289   (1035754) от 28.01.2021
-
-April Rain - Mirror of Ether (2021) [MP3|320 Kbps] <Progressive Rock, Post Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince Rupert's Drop (05:57)
- 02. Tin Woodsman (06:59)
- 03. Chiral Allergy (06:51)
- 04. Towards the Native Uvalas (07:49)(   Читать дальше...   )Жанр: Progressive Rock, Post Rock, InstrumentalПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BA874FB49FF45D82B67416BF1130D9EA281BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443477   (1035444) от 29.01.2021
-
-Танцы Минус - 8 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035444.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мне б уснуть в твоих руках
-2. Девочка
-3. Лыжи
-4. Скриншот(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04191DC8D42A6EE1E150398F258774683B10485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443543   (1035435) от 29.01.2021
-
-Мумий Тролль - Ecosystem (2021) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035435.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мумий Тролль - Экосистема
-2. Lucius - Ecosystem
-3. K7 - Ewigkeit
-4. Mustii - What about Ecosystem?Жанр: RockПродолжительность: 00:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BB82708ACEE38DC31111C3A57875F372A6C90D
 ```
 
 https://mybot314.ru/tekegram_catalog/

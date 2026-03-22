@@ -1,3 +1,235 @@
+###  Публикация: 1690127   (124212) от 05.01.2024
+
+VA - Electronic compilation part 41 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_124212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koloko - Falling Stars
+02. Jazz Connection - Tranquility Station
+03. Dj Maretimo - I Love the Night
+04. Koloko - Sway(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA99344FDA1BE0379D81EF72E90AE0CED8AAE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690573   (123803) от 08.01.2024
+
+Muvi - Compilation (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zara
+ 02.  Paradise
+ 03.  Kiss Me
+ 04.  Need Help Me Friend(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E5B9FD9298EE8B6DA0C8B7A8900BDD3C4C036B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691673   (123154) от 13.01.2024
+
+VA - Club Beats (2024) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supermode - Tell Me Why - MEDUZA Remix (8:28)
+02. Maddix - My Gasoline (5:46)
+03. Mochakk - Jealous (5:45)
+04. Matt Sassari - Give It To Me (5:39)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 03:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E0A39349ED0396BB3C38778AF1BCB4A6136839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691847   (123133) от 13.01.2024
+
+VA - Trance In Motion Vol.370 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_123133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doppenberg - Illusions (Extended Mix)
+02. Nikolauss - Rhythm Of The Universe (Extended Mix)
+03. Luke van Ness - Greed (Extended Mix)
+04. Doppenberg - After All These Years (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0746957A4B6011EA43AEE41DD04C9EC12F773E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692115   (122808) от 15.01.2024
+
+VA - Contact: People & Machines (2024) [MP3|320 Kbps] <Minimal, Tech House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mesa & Boss - Wake Me Up (3:47)
+02. Alpha Sky - I´m not coming home (3:30)
+03. Kölsch - All That Matters - ARTBAT Remix Radio Edit (8:49)
+04. Kevin de Vries - Metro (3:59)(   Читать дальше...   )Жанр: Minimal, Tech House, OtherПродолжительность: 06:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558A2277F38A441A03B560F40A470F2FDB96EDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692056   (122773) от 15.01.2024
+
+VA - Electronic compilation part 42 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Somebody
+02. Davit Bargaia - My Destiny
+03. Dndm - Lost Emotions
+04. Dndm - Love is Pain(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DE65D452C70D58A7002E42A643E59B05056E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692920   (122052) от 19.01.2024
+
+Davit Barqaia - Compilation Version 2 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Trust Me
+ 02.  Kiss Me
+ 03.  Don't Leave Me
+ 04.  Around You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 07:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563DBAE16FB3EBA8F1FB201BE32AFFF56407A2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692446   (122048) от 19.01.2024
+
+VA - Electronic compilation part 43 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davit Barqaia - Trust Me
+02. Riltim - Nona
+03. Akmalov - Te Deseo
+04. Riltim - Vintage(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C17AF94752C1FAB4480F7F42241A6581D3DCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693282   (121882) от 20.01.2024
 
 VA - Aquarelle Chilled (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
@@ -513,238 +745,6 @@ VA - Compilation Electronic part 52 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9383D33F8523AE0D32CD2EA5876BD42FBD77E8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698786   (118130) от 11.02.2024
-
-VA - Compilation Electronic part 54 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imazee - You Got Me
-02. Hayit Murat - In This Life
-03. Adik - Morning Star
-04. Kenzo - Maybe(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787C1222FD01A425596F518262B4463E0BA7F779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700136   (117214) от 16.02.2024
-
-VA - Trance In Motion Vol.371 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Exo - Pretty Lies (Original Mix)
-02. Allen Watts - Lost In The Music (Extended Mix)
-03. Sam Laxton - Butterfly (Extended Mix)
-04. Mario Moon & Dave AirmaX - Butterflies (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7163C4118765C7BD1C64BB64B255177CBE1EBF4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700805   (116900) от 18.02.2024
-
-VA - Serene Vibrations: Deep House Mix (2024) [MP3|320 Kbps] <Deep, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timmy Regisford - Track Simm
-02. Asti - Forget The Stress
-03. Moon Boots - Hot Minute
-04. A-Mase & Natune - I'll Find You(   Читать дальше...   )Жанр: Deep, House, ElectroПродолжительность: 06:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5ACCBED383F8E6C5026823208A17CB7DEB4E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700821   (116881) от 18.02.2024
-
-VA - Bassline Anthems (2024) [MP3|320 Kbps] <DnB, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lowriderz & Steppa Style - Jungle A Buss
-002. Ozma - Trampoline March
-003. Dez - Full A Ganja
-004. Sounds Of Red Bull - Kick Back(   Читать дальше...   )Жанр: DnB, Bassline, ElectroПродолжительность: 07:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E221916E26438269FDF7FF8E78D7871A3984DAF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700432   (116874) от 18.02.2024
-
-VA - Electronic compilation part 56 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Soul
-02. Roudeep - I Miss You
-03. Adik - One Love
-04. Riltim - Desert(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C95D3CA21764A159C43F84E36A3A3A6A3B4F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701805   (116045) от 23.02.2024
-
-VA - Electronic compilation part 57 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adik - Unusual
-02. Dndm - Love is Pain
-03. Limora - Viola
-04. Akmalov - Only You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5117AA607057B18E6DA79914EA9B11F7B548756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701742   (116021) от 23.02.2024
-
-VA - 60 minutes. Old School Dance Music vol.23 (mixed by Dj V) (2024) [MP3|320 Kbps] <Euro Trance, Progressive Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren feat. Victoria Horn - Sunburn (Walk Through The Fire) (Extended Vocal Mix)
-02. Markus Schulz vs. Andy Moor - Daydream (Ronski Speed Remix)
-03. Rapid Eye - Circa-Forever (Rapid Eye's R.E.Mix)
-04. DT8 Project feat. Roxanne Wilde - Destination (Above & Beyond Extended Remix)(   Читать дальше...   )Жанр: Euro Trance, Progressive Trance, Vocal TranceПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B38816513F7E4F4247D79749FD0F0CEBC517349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702521   (115713) от 25.02.2024
-
-VA - D.Trance 105 (2024) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daxson - The Awakening (Transmission Theme 2023) [2:38]
-02. Dim3nsion - Functionlust (Original Mix) [6:57]
-03. Cold Blue - A Beautiful Mind (Original Mix) [5:57]
-04. Doppenberg - After All These Years (Extended Mix) [6:46](   Читать дальше...   )Жанр: TranceПродолжительность: 05:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F757CA21B575F2494F351173A16AA1C48C29BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,102 @@
+###  Публикация: 599922   (998754) от 08.01.2013
+
+Led Zeppelin - Mothership: The Very Best Of Led Zeppelin (2012) Limited Celebration Day Version [FLAC|Lossless]<Hard Rock, Blues-Rock, Folk-Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Blues-Rock, Folk-Rock, Heavy MetalПродолжительность: 01:09:20
+
+01. The Song Remains the Same (5:32)
+02. Over the Hills and Far Away (4:49)
+03. D'Yer Mak'er (4:24)
+04. No Quarter (7:00)
+05. Trampled Under Foot (5:36)
+06. Houses of the Holy (4:04)
+07. Kashmir (8:30)
+08. Nobody's Fault But Mine (6:16)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606783   (994762) от 22.01.2013
+
+VA - High Voltage: The Ultimate AC/DC Tribute (2008) 2CD [FLAC|Lossless]<Hard Rock, Blues Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Bang Tango Feat. Fred Coury – 	Shoot To Thrill 	5:25
+02. 	The Vibrators – 	Rocker 	2:47
+03. 	Sister Machine Gun – 	T.N.T. 	3:49
+04. 	Stephen Pearcy With Tracii Guns – 	Whole Lotta Rosie 	4:22
+05. 	Day Glo Abortions – 	The Jack 	3:29
+06. 	16 Volt – 	Dirty Deeds Done Dirt Cheap 	4:40
+07. 	Dave Meniketti – 	Night Prowler 	5:45
+08. 	Genitorturers – 	Squealer 	4:39
+09. 	Groovie Ghoulies – 	Rock 'N' Roll Damnation 	3:06
+10. 	Whitfield Crane & Claus Eichstadt – 	Live Wire 	5:52(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Heavy MetalПродолжительность: 02:07:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162448   (991954) от 01.01.2010
+
+Foreigner - The Best Ballads (1995) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starrider 04:01
+“Foreigner” (1977)
+02. I Want To Know What Love Is 04:58
+“Agent Provocateur” (1984)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432774   (989807) от 07.01.2012
 
 Bon Jovi - CrossRoad - The Best Of (1994) [FLAC|Lossless]<Rock>
@@ -663,93 +762,6 @@ Viikate - XII - Kouvostomolli (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11F8E96759798B5F2F80D405537E14B28AB7D4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362489   (949609) от 23.02.2020
-
-H.e.a.t - H.e.a.t II (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rock Your Body [4:04]
-02 - Dangerous Ground [4:07]
-03 - Come Clean [3:44]
-04 - Victory [4:28](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA8E09A840E0B0EB4F7F187376DAB1BF4D8F5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982044   (946732) от 04.02.2016
-
-Deep Purple - The House Of Blue Light (1987) Remastered, 1999, Mercury [WavPack|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bad Attitude 4:43
-2. The Unwritten Law 4:34
-3. Call Of The Wild 4:50
-4. Mad Dog 4:29(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A7D5CBDB86153890E8AD869BFC8AA08F05EAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090854   (944367) от 08.01.2017
-
-Black Star Riders - The Killer Instinct (2015) Deluxe Edition, 2CD [FLAC|Lossless|tracks]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944367.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:32] 01. The Killer Instinct
-[04:54] 02. Bullet Blues
-[03:56] 03. Finest Hour
-[04:49] 04. Soldierstown(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31064ED36719CD2432492C35E2C24D8BEC247D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

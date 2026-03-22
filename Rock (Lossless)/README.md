@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1860270   (1061713) от 
+
+Aerosmith - Aerosmith (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It (3:40)
+02. Somebody (3:45)
+03. Dream On (4:27)
+04. One Way Street (7:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E8632621879C78765F1CAF5DB0F21917334073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859968   (1061612) от 
+
+Ron D Bowes - ooh la la. (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fried Brains 3:39
+02. Jinx 4:17
+03. Backyard Blues 4:04
+04. Honey Bee 3:16(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBC4BC7E9F1A65F13DE67AF03FC590A36038DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859610   (1061205) от 
+
+VA - Rockin' 70s (2004) 3 x CD, Compilation [FLAC|Lossless|image + .cue] <Blues Rock, Classic Rock, Country Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ted Nugent - Cat Scratch Fever (3:40)
+02. Ram Jam - Black Betty (3:57)
+03. Boston - More Than A Feeling (4:43)
+04. Blue Oyster Cult - (Don't Fear) The Reaper (5:08)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Country Rock, Garage RockПродолжительность: 02:47:13.867 (442 493 520 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F6E6F0C05D5D860E93B4253BC50C8D159FB0DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859659   (1061204) от 
+
+VA - Rock (93 Original Hits) (2009) 6 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1061204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poison - Unskinny Bop (3:49)
+02. Thunder - Backstreet Symphony (4:23)
+03. Gary Moore - Empty Rooms (4:16)
+04. Saxon - Wheels Of Steel (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:36.880 (940 956 408 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC949E7420372957FBE2081278F6F89140A81D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858584   (1060619) от 12.03.2026
 
 VA - This Is... 1973 (2008) [FLAC|Lossless|tracks + .cue] <Classic Rock, Soft Rock, Hard Rock>
@@ -630,122 +746,6 @@ Ben Folds Five - Whatever and Ever Amen (1997) [FLAC|Lossless|tracks + .cue] <So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03F1FF602753EE587FCA1DC7232305813A35D406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852564   (1055959) от 08.02.2026
-
-Various - The Best Of '70s Rock (2009) 4 x CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родившись в 50-х, заавоевав мир в 60-х, именно в 70-х рок-музыка достигла своего пика. Глэм, фолк, психоделика, хеви-метал, постпанк - ежегодно выходили выдающиеся альбомы, открывались новые горизонты и формировался классический жанровый канонн. Это было время экспериментов и бессмертных хитов. Представленный здесь 4-х дисковый сет - это не суммирующий эпоху плейлист, (   Читать дальше...   )Disc 1:
-01. Foghat - Fool For The City (5:03)
-02. The Outlaws - Green Grass & High Tides (7:51)
-03. Badfinger - No Matter What (3:00)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 02:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F203A76E7161D41C9712D2E3CE8BA8166D831DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851893   (1055572) от 04.02.2026
-
-VA - This Is... 1970 (2008) [FLAC|Lossless|tracks + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - Cotton Fields (The Cotton Song) - (02:57)
-02. The Hollies - I Can't Tell the Bottom From the Top - (03:51)
-03. Dave Edmunds - I Hear You Knocking - (02:48)
-04. Herman’s Hermits - Years May Come Years May Go - (03:38)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA94289A66018E85B5A233466E346D28118B7A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851199   (1054980) от 01.02.2026
-
-Cast - Yeah Yeah Yeah (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison Vine [00:04:59]
-02. Don't Look Away [00:04:42]
-03. Calling Out Your Name [00:03:50]
-04. Free Love [00:04:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED147D90B402D8E43BA5198245B0611A89D036AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851321   (1054979) от 01.02.2026
-
-Lady Moscow - Barrel Dance (2008) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Giver [00:02:27]
-02. Pow Pow [00:03:16]
-03. The Song of Gregers Grahm [00:02:46]
-04. Keep It Real [00:03:33](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3843E670AE8858794C991E8BA9BA14BC660089A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

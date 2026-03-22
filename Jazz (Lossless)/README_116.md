@@ -1,3 +1,177 @@
+###  Публикация: 1138247   (664557) от 29.05.2017
+
+Alice Babs - Early Recordings 1939-1949 (2005) Vax Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Hundred to One [02:48]
+02. Shoo Shoo Baby [03:12]
+03. I'm Beginning to See the Light [03:09]
+04. Don't Get Around Much Anymore [03:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16C4FC52EC1465207B822802782F8F780A7A02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138236   (664500) от 29.05.2017
+
+Alice Babs - Far Away Star (1973 - 1976) Bluebell [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away Star [03:12]
+02. Serenade to Sweden [03:10]
+03. Spaceman [03:09]
+04. Jeep's Blues [04:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27981A7CA625F63CE0E76E37AD8D5EC74F4DFFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138447   (664485) от 29.05.2017
+
+Gato Barbieri - The Shadow Of The Cat (2002) Peak Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Chico [05:01]
+02. The Shadow Of The Cat [05:19]
+03. Last Kiss [05:13]
+04. If I Was Your Woman [04:37](   Читать дальше...   )Жанр: Ethnic Jazz, Latin JazzПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998219E4116BF5FBD6689587A584FE9D1B96F7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224794   (664017) от 12.05.2018
+
+Harry Allen Quartet - French Lullaby (2018) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Wait For You [06:37]
+02. La Mer [06:36]
+03. C'est Si Bon [05:15]
+04. The Summer Knows [05:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C94EF52E1DD253A4D62AE226E5E59FDE67A772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138683   (663249) от 30.05.2017
+
+Terri Wells - Just Like Dreamin' (1984) 2012,  Big Break Records [FLAC|Lossless|tracks + .cue] <Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Givin' All My Love (6:33)
+02. Just Like Dreamin' (5:16)
+03. Falling Leaves (4:42)
+04. Can't Stop (4:11)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57EE7E5427A04D99A92C3B826A7AD55CB7997A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138643   (663248) от 30.05.2017
+
+Al Cohn & Zoot Sims - Al And Zoot / You 'N' Me (1957, 1960) 2002, Азбука Звука [APE|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Wonderful World [06:30]
+02. Brandy and Beer [03:50]
+03. Two Funky People [04:30]
+04. Chasing the Blues [06:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA29AD42BEC864E99CF4D6ED4E206C0943462F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138718   (663247) от 30.05.2017
 
 Jeff Kashiwa - Let It Ride (2012) Native Language Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
@@ -568,180 +742,6 @@ Lonnie Liston Smith - Loveland (1978) 2016, Sony Music [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A7C8BA435076038F044895DBD607E9BBF51EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225362   (660748) от 15.05.2018
-
-Swingrowers - Outsidein (2018) [FLAC|Lossless|image + .cue] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Strings Attached
-02. Follow Me
-03. Selfie Face
-04. My Mood(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E91AC22BE0CD76DF8D3ADD90BF2DB98DD6FB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902931   (660364) от 29.05.2015
-
-Bobby Hutcherson - Live At Montreux (2012) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton's Bail [13:44]
-02. The Moontrane [10:49]
-03. Farallone [13:25]
-04. Song Of Songs [14:04]Жанр: Jazz, Post-BopПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A64020C83768CE4AE44213B6CFE78D25742027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538982   (660331) от 23.03.2022
-
-Junior Mance Trio - Happy Time (1962) 1999, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Time [6:18]
-02. Jitterbug Waltz [5:22]
-03. Out South [5:28]
-04. Tin Tin Deo [4:42](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD75948E074A2282A8A6D25A081D8E80D51E228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902759   (660282) от 29.05.2015
-
-Billie Holiday - Cheek To Cheek (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheek to Cheek [03:31]
-02. Let's Call the Whole Thing Off [03:23]
-03. A Fine Romance [03:32]
-04. April in Paris [03:01](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221B1BF0F201C2B597BDE4D0A30388D612DD37E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139382   (660277) от 02.06.2017
-
-Tom Schuman - Designated Planets (2013) Jazzbridge Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Designated Planets [04:34]
-02. A Piece Of Me [04:01]
-03. Against The Odds [04:52]
-04. Sweet Surrender [04:25](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0A9495086405EDBB7CF9654B184C4E6F7F5AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902771   (660226) от 29.05.2015
-
-Bill Evans - Autumn Leaves (1969) /2015, Studio Songs Japan/ [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emily (5:51)
-02. A Sleeping Bee (5:00)
-03. Alfie (5:31)
-04. Who Can I Turn To (6:00)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18F3CA4324FDC64F1FF32ACFF49498128C467E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

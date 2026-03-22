@@ -1,3 +1,146 @@
+###  Публикация: 1251525   (417936) от 01.10.2018
+
+VA - Technoszene Funf (2018) Raumangst Rec [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenchord – Spirit Of The Jungle (07:58)
+02. Insane House – Ah Ah (06:42)
+03. 21 ROOM – Spring GroveЖанр: Techno, Tech HouseПродолжительность: 02:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFA9298951CFC306F9DF888CD61A25C35E91E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251264   (417847) от 01.10.2018
+
+VA - Mega Power Lifting 70S Hits Workout Compilation (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Mama - Get Down on It (Fitness Version)
+02. Don Pablo's Animals - Give Me the Night (Fitness Version)
+03. Thomas - Kung Fu Fighting (Fitness Version)
+04. Steve - Sir Duke (Fitness Version)(   Читать дальше...   )Жанр: House, Dance, DiscoПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4FB2F0642428225142A6D4BDE387E122D7E3C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180438   (417760) от 01.10.2018
+
+Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Electro, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fullness Of Emptyness (01:51)
+ 02. Lektrovision (05:00)
+ 03. Ransom For A Dead Man (04:13)
+ 04. She Likes Dark Hair (06:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/TechnoПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A528ADA72F8AB0E21B7F29FF4495E1FBE84B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947492   (417739) от 17.10.2015
+
+Faithless - 2.0 (Remixes & Hits) (2015) 2CD [FLAC|image+.cue]<House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomnia
+02. Mass Destruction
+03. God Is A DJ
+04. Don't Leave(   Читать дальше...   )Жанр: House, TranceПродолжительность: 02:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECD843D096B4983D81DA6B087682166E581248C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065763   (417047) от 24.10.2016
+
+Quivver - Response (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Response (Original Mix) (07:13)
+02. Call (Original Mix) (07:20)
+03. What Am I Dreaming (Original Mix) (06:28)Жанр: Deep House, Tech HouseПродолжительность: 00:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1703A9F8F846CAB0E8A3CFE0514EA57670A2C094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 710508   (415933) от 14.10.2013
 
 Avicii - True (2013) [FLAC|Lossless|tracks + .cue]<House>
@@ -597,156 +740,6 @@ Khen - One Day Of Independence (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943EDEAA2D64305AA92B80FF797C5532C5042B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574722   (383762) от 06.09.2022
-
-Nils Hoffmann - A Radiant Sign (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Radiant Sign (ft. Niklas Paschburg) (2:49)
- 02. Afterglow (3:27)
- 03. Let Me Go (feat. TENDER) (3:10)
- 04. Far Behind (feat. Panama) (3:55)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262D11826A5D9087651A24FF3B71D86FE7F2B8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326625   (383510) от 21.09.2019
-
-Second Tension - Assembly Point (2017) Monolith Rec [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ally (07:26)
- 02. Assembly Point (06:56)
- 03. Esoteric Flame (07:22)
- 04. Kinetic (09:01)Жанр: Techno, IndustrialПродолжительность: 00:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECCB22CC72A9F441B76623AF981E2FEED4872A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253502   (381700) от 10.10.2018
-
-Maribou State - Kingdoms In Colour (2018) Japan Edition [FLAC|Lossless|tracks + .cue] <Leftfield, Downtempo, Post Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginner's Luck (4:28)
-02. Kingdom (4:10)
-03. Turnmills (5:04)
-04. Nervous Tics (feat. Holly Walker) (4:14)(   Читать дальше...   )Жанр: Leftfield, Downtempo, Post RockПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5AD22BFBCA21B27D7FB9C5EF7860BC2F26C5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574792   (381540) от 07.09.2022
-
-George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Deep House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Further and Further [00:02:02]
-02. Passed Tense [00:04:01]
-03. Rainbows and Dreams [00:04:41]
-04. Cold [00:04:42](   Читать дальше...   )Жанр: Downtempo, Deep House, ElectronicПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD59E837C9B8969A8935CA2F224DEEF52122C590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572187   (380435) от 10.11.2012
-
-Jean Michel Jarre - Complete Oxygene (1997) [FLAC|Lossless]<Ambient,  New Age,  Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_380435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ambient,  New Age,  ElectronicПродолжительность: 00:46:49
-01. Oxygene Part 7 (11:33)
-02. Oxygene Part 8 (3:54)
-03. Oxygene Part 9 (6:13)
-04. Oxygene Part 10 (4:16)
-05. Oxygene Part 11 (4:58)
-06. Oxygene Part 12 (5:41)
-07. Oxygene Part 13 (4:41)
-08. Oxygen In Moscow (Bonus) (5:32)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

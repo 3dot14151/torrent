@@ -1,3 +1,32 @@
+###  Публикация: 1273507   (800625) от 01.01.2019
+
+Mode-One - Melodies Of Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Love You (feat. Lian Ross) (3:48)
+02. The Train Is Coming (3:53)
+03. City Of Angels (4:02)
+04. Come Back To Me (3:18)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7121013BAFE12E1158FD8BDD65E9E49CC15C5191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273505   (800561) от 01.01.2019
 
 Mode-One - Queen Of My Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
@@ -713,32 +742,6 @@ Boris Zhivago - Memories (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C69CD6906618A660241219EB1064C24B128A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660882   (771783) от 25.05.2013
-
-Fancy - Get Your Kicks (1985) [FLAC|Lossless]<Italo Disco, Disco> Первый Альбом!!!
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Italo Disco, Disco
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

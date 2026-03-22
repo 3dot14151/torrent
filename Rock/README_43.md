@@ -1,3 +1,157 @@
+###  Публикация: 359736   (582035) от 06.07.2011
+
+Panzer Princess - Get Off My Back (2011) [MP3|320 kbps]<Sleaze Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panzer Princess - 5:20
+02. Bumville Judge - 4:04
+03. Get Off My Back - 3:08
+04. I’ll Be In Your Way - 5:12
+05. Asshole, Bastard (Son Of A Bitch) - 2:56
+06. A Mess - 3:18
+07. No Good - 4:16
+08. Sadat Bloody Sadat - 3:39
+09. Gag Me, Cuff Me - 3:52
+10. Please Cum Down - 3:43(   Читать дальше...)Жанр: Sleaze GlamПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25E4AC4B619292A9CF88176B0FBFE711F1B4541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358927   (581155) от 07.07.2011
+
+The Souldiers - These Times (2011) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Run (3:42)
+02. Down On Me (3:53)
+03. These Times (3:55)
+04. Volunteers (4:29)
+05. Let Me Take You Away (3:50)
+06. Sarah (3:42)
+07. I Hold Your Life (3:04)
+08. Lonesome George (3:45)
+09. One Night Betty (3:04)
+10. Smoke The Devil (3:24)(   Читать дальше...)Жанр: RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5A114702E0A7A643753FECE586A27A163F9503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919505   (580057) от 22.07.2015
+
+Disciple - Дискография (1995-2014) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580057.jpg" />
+</div>
+
+
+###  Подробнее
+
+1995 - What Was I Thinking
+1997 - My Daddy Can Whip Your Daddy (EP)
+2001 - By God
+2003 - Back Again(   Читать дальше...   )Жанр: RockПродолжительность: 09:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE322D1CB1AD84D1A0100E50AAC4CFC8D0C5C606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358784   (579651) от 08.07.2011
+
+Katzenjammer Kabarett - 3 альбома (2005-2009) + Katzenjammer 1 альбом (2008) [MP3|320 kbps]<Dark Cabaret>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dark Cabaret/Death Rock/AvantgardeПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042636   (578386) от 13.08.2016
+
+The Pineapple Thief - Your Wilderness (2016) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In Exile (5:10)
+ 2. No Man's Land (4:17)
+ 3. Tear You Up (4:52)
+ 4. That Shore (4:53)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D113A0C9A371E06CEF9B1F1DC6DF3398FB179C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 223415   (578228) от 01.08.2010
 
 Y & T - Facemelter (2010) [MP3|320 kbps]<Hard & Heavy>
@@ -621,153 +775,6 @@ Gene Vincent - Les Genies Du Rock - Be-Bop-A-Lula (1993) [MP3|320 кб/с]<Rock 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA79746C5BEE399F00F5EC684648DB612865796C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921663   (571639) от 27.07.2015
-
-Robert Plant - More Roar (2015) Vinyl, EP[MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571639.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Turn It Up [07:44]
-2. Poor Howard [04:58]
-3. Whole Lotta Love (Medley) [05:33]Жанр: RockПродолжительность: 00:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B228CB0F1283C0FE3BF3CADBDD4B75F4C7398E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362277   (571273) от 13.07.2011
-
-Rod Stewart - You Wear It Well. The Collection (2011) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3FF6573827A2EBB18972C39981D58F71C77206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234552   (569296) от 06.07.2018
-
-Piper - Piper (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569296.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Out Of Control
-2. Whatcha Gonna Do
-3. The Road
-4. Sail Away(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC60EE3372F37273D996830F992D46CE349BDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529107   (568711) от 30.07.2012
-
-The Beatles - Tomorrow Never Knows (2012) (Compilation)[MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Revolution (3:25)
- 2. Paperback Writer (2:18)
- 3. And Your Bird Can Sing (1:59)
- 4. Helter Skelter (4:31)
- 5. Savoy Truffle (2:54)
- 6. I'm Down (2:31)
- 7. I've Got a Feeling (Naked Version) (3:37)
- 8. Back in the U.S.S.R. (2:44)
- 9. You Can't Do That (2:34)
- 10. It's All Too Much (6:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7450AE5413C8FDC53921BF3A45FDDABED8A1844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922565   (568349) от 29.07.2015
-
-Magma  - Art Zoyd - Les Génies Du Rock - Mekanik Destruktiv Kommandoh (1993) [MP3|320 кб/с]<Prog Rock, Experimental, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magma - Otis (5:21)
-02. Magma - Nono (6:46)
-03. Magma - Ehn Deiss (5:13)
-04. Magma - I Must Return (6:40)(   Читать дальше...   )Жанр: Prog Rock, Experimental, SoulПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C51F45880708F939A2BED85EC927231141A0CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

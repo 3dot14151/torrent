@@ -1,3 +1,61 @@
+###  Публикация: 997613   (873764) от 17.03.2016
+
+Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pop Kids (Offer Nissim Drama Mix) (06:30)
+02. The Pop Kids (MK Dub Radio Edit) (03:35)
+03. The Pop Kids (PSB Deep Dub Radio Edit) (03:17)
+04. The Pop Kids (MK Dub) (07:18)Жанр: Progressive House, Electro HouseПродолжительность: 00:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133D09C4277A7376E519EBFEF0AD33992EE55934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643636   (873464) от 14.04.2013
+
+David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helpe Through
+02. For Eternity
+03. Phenomena
+04. Anthem(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374920   (871199) от 11.04.2020
 
 Paolo Lucchi - The Dusk Sessions (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -684,64 +742,6 @@ Jan Blomqvist - Remote Control (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBC016F8B9678EC876DBAB37AF2215CD94287114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001750   (852052) от 29.03.2016
-
-Drexciya - Journey Of The Deep Sea Dweller I - IV (2011-2013) [FLAC|Lossless|tracks + .cue] <Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (The Unknown Aquazone) (00:56)
- 02. Depressurization (05:05)
- 03. Water Walker (03:40)
- 04. Mantaray (03:12)(   Читать дальше...   )Тип издания: CD, Compilation, RemasteredЖанр: Techno, Electro •Продолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20824BC7B9CEE49A245F57744BCCE67225BDCF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001660   (850564) от 30.03.2016
-
-Supermayer (Superpitcher & Michael Mayer) - Save The World (2007) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey  [01:03]
-02. The Art Of Letting Go [05:39]
-03. Saturndays [07:14]
-04. Superbrain Transmission [02:34](   Читать дальше...   )Жанр: Techno, Minimal, AmbientПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45768A4B2037A2803B50D4A1D23467C79F9D072A
 ```
 
 https://mybot314.ru/tekegram_catalog/

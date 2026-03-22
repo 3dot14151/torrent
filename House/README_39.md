@@ -1,3 +1,148 @@
+###  Публикация: 1233006   (595085) от 27.06.2018
+
+VA - The Gold Of Ibiza (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Of Love - Sixthy (Sugar & Club Saxy Mix) 2:56
+02. Jay Beach - Mr. DJ (Fine Gold Mix) 3:02
+03. House Defrag - Fight (Red Zone Mix) 2:47
+04. The Philosopher - Trumpet Ring (Vocatrumpa Ibiza Mix) 3:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19D9A1E4568FA9073BD11A2E8362C463025342B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232966   (595015) от 27.06.2018
+
+VA - 50 Hot Summer Tunes For Your Beachday (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leed - Clary 3:12
+02. Laura Nes - Crocodile 3:12
+03. Larry Hyde - Queen 3:12
+04. Klinikum - Barnet 3:12(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D1020258A2F63C1503EEDD1779F7327F6C15E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232790   (595006) от 27.06.2018
+
+VA - Italo Disco: Essential House Music (Compiled and Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <Euro-House, Eurodance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Martina - 1985 (Radio Dance Mix)
+02. Casarano - Long Ago (BCR Extended Version)
+03. Tommy Sun - Dance With Me (Italo Radio Mix)
+04. Automat 428 - Silence Is Magic (Radio Mix)(   Читать дальше...   )Жанр: Euro-House, EurodanceПродолжительность: 02:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937D97663A64DBB5F2D0799FBC7DAB6E6A441D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039617   (594569) от 02.08.2016
+
+Groove Armada - Greatest Hits (2007) Compilation [MP3|320 Kbps] <Trip Hop, Downtempo, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song 4 Mutya    03:39
+02. Get Down    03:24
+03. I See You Baby    04:04
+04. Superstylin'    06:32(   Читать дальше...   )Жанр: Trip Hop, Downtempo, HouseПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08CEF03F5FC4BCD56480DDD260C5023CED12938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150391   (594070) от 15.07.2017
+
+VA - One Night In St. Tropez 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benny Camaro – Roxanne (Extended Mix) 06:16
+02. Leony! - Loving You (Deep mix)
+03. Francesco Gomez – Keep on Bringing Me (Original Mix) 05:12
+04. Chris Marina – Ready to Rock (Club Mix) 05:58(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98F6A7E90FB5B47454C5CB0096B8DB228086956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150410   (594069) от 15.07.2017
 
 VA - Destination Ibiza 2017 [MP3|320 Kbps] <Progressive House>
@@ -603,151 +748,6 @@ VA - Weekend Workout Hits (2016) [MP3|320 Kbps] <House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C973C87334F1375177C591E2E58FB79B503079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302286   (581308) от 15.05.2019
-
-VA - Vintage Deep House '19 (2019) [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Carroll - In Da House (Original Mix) 4:58
-02. Kevin Fishler - What Is House (Original Mix) 4:38
-03. Sebastian Grey - Lets Move On (Original Mix) 4:57
-04. Soul Masters - Look Back (Original Mix) 4:40(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 03:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B197456BA8EA943E23134EC35FFE7ECCEF90B23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041928   (580592) от 11.08.2016
-
-VA - La Nuit (Delicious Chill House Lounge Vol 2) (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Mar y carino (Eivizzards Mix) (6:22)
-02. Hein+Klein - Sylt (7:03)
-03. Mark Oakland - Something Beautiful (5:27)
-04. Aandra - Sunset Deep (5:34)(   Читать дальше...   )Производство: KarmawhiteЖанр: Deep House, Chill HouseПродолжительность: 01:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95A045825AE33341034C8490AF890BDAFE575D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042064   (580587) от 11.08.2016
-
-VA - Poolside Ibiza (Mixed by Ghassemi & Televisor) (2016) [MP3|320 Kbps] <Electro House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghassemi - Saturate (Feat. River) 03:49
-02. Televisor - Sound Of Love (Feat. River) 02:58
-03. Satin Jackets - Feel Good (Feat. Scavenger Hunt) (Keljet Remix) 04:38
-04. Sneaky Sound System - All I Need (Club Mix) 05:40(   Читать дальше...   )Жанр: Electro House, Deep HouseПродолжительность: 05:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F6A59C82376B9DF938463767AB3EDE0AB93D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042309   (579594) от 12.08.2016
-
-VA - Anjunadeep In Ibiza 2016 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yotto - The Owls (07:56)
-02. Cubicolor - Mirror Play (05:57)
-03. Way Out West - Tuesday Maybe (I:Cube's Sunrise Remix) (07:11)
-04. Lane 8 - Fingerprint (06:45)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69F49DA09CCBD8B4AC5CE427A3FB1C05C5BFB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042744   (578516) от 13.08.2016
-
-VA - Super Duper Deep House Tunes Vol.4 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkadeluxe - Insanity - Waxston & Astoria Mix
-02. Patrick Bee - Down and Deep - Monroe & Johnson Mix
-03. Faber Vegas - Sleep Walk - Tenerife's Beats Mix
-04. Lola's Park - Memories - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB85CB88349F8823CC833B27BC8AF4998F505076
 ```
 
 https://mybot314.ru/tekegram_catalog/

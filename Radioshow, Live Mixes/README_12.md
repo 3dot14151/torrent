@@ -1,3 +1,90 @@
+###  Публикация: 1563958   (501573) от 17.07.2022
+
+Tiesto - Big Beat Radio 200 (Hot In It Summer 2022 Mix) (2022-07-11) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto & Charli XCX - Hot In It
+02. Imanbek & BYOR - Belly Dancer
+03. Sigala - Melody (Tiësto Remix)
+04. Obskür - In Da Club Quarantined X(   Читать дальше...   )Жанр: Dance, Electro Pop, Tech HouseПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826EEE632556A5F14F897D4AB7EAD1D0F862974A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317899   (492849) от 07.08.2019
+
+Paul Denton - Live @ Trance Room, Bahrein Club Buenos Aires, Argentina 2019-06-22 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key4050 - Intersect
+02. Mike Oldfield - Far Above The Clouds (Jam & Spoon Deep Inside The Club Remix)
+03. Ruben de Ronde & PROFF ft. Deirdre Mclaughlin - Fade Away With Me (Key4050 Remix)
+04. Paul Denton - Curtain Call(   Читать дальше...   )Жанр: TranceПродолжительность: 02:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732798C780E766532790C040CAF31747244129DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158807   (490183) от 17.08.2017
+
+VA - Ori Uplift & Kevin 3Ngel - Uplifting Only 235 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.BREAKDOWN OF THE WEEK: Suplifth - Victory (AirLab7 Remix)
+02.PRE-RELEASE PICK: New World - Ikigai
+03.Follow Focus - Synchronous Idle (EXCLUSIVE PREMIERE)
+04.James Kelly & Craig Johnstone - Return To Reality(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC21A01AD96DA8A279E984767E8376FF655AA2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159005   (488128) от 18.08.2017
 
 VA - Ori Uplift & Bryan Summerville - Uplifting Only 236 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -653,93 +740,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7109F81F242C54F2E7070B9F9282B0BEFC190FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164787   (439692) от 10.09.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 512 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kamilo Sanclemente - Another Earth (Original Mix)
-02. Orsen - Cloudspotting (Original Mix)
-03. Havoc & Lawn Anderblast - Genesi (Original Mix)
-04. Kidnap Kid - Where The Sea Swings In Like An Iron Gate (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE2756BB1B973190B8A09357800B0894C440AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410239   (438336) от 20.09.2020
-
-VA - Armin van Buuren - A State Of Trance Episode 982 (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elysian - Water
-02. Kyau & Albert - What It Takes (Maywave Remix)
-03. Super8 & Tab - Cova
-04. Ando - Vega(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2004A176295C8B81C39C48298B7E3DC22B9B0B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165780   (430788) от 14.09.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 513 (Beyond The Lights Album Special) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Matan Caspi - Shiny Coral Reefs (Alex Vidal Remix)
-02.Fat Sushi - Metropolis (Original Mix)
-03.Stan Kolev & Matan Caspi - Eternity (Original Mix)
-04.Dominic Manns - Lucid Dream (Vocal Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A8D22B5409B290B18E26158EF3735F1F0633DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1287309   (705069) от 06.03.2019
+
+Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Blue
+02. Magic Fly
+03. Symphony
+04. Souvenir from Rio(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 05:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77DB4BEDFEB10C6A82BFD07BCA794BFA1B4E15A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220375   (704320) от 19.04.2018
 
 VA - Night City Tribute - The Songs of Secret Service (2018) [MP3|320 Kbps] <Synthpop, Italo-Disco, Electropop>
@@ -719,35 +748,6 @@ NeoSpace - Flying to the Stars (2022) [MP3|320 Kbps] <Spacesynth, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1F78D669E092F89F24C1322A292F19277D6EF2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294438   (628109) от 08.04.2019
-
-Toyah - Desire (серия "Другие восьмидесятые") (1987) Reissue, Remastered, 2015, Vertical Species [MP3|320 Kbps] <Avant-Pop, New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echo Beach (Martha and the Muffins cover)
-02. Moonlight Dancing
-03. Revive the World
-04. The View(   Читать дальше...   )Жанр: Avant-Pop, New Wave, SynthpopПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B3309EE54EC663137B11B56B9302A5ED908198
 ```
 
 https://mybot314.ru/tekegram_catalog/

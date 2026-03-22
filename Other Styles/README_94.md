@@ -1,3 +1,148 @@
+###  Публикация: 1045776   (552701) от 26.08.2016
+
+VA - Stranger Things / Очень странные дела (Original Series Soundtrack + Unofficial Soundtrack) (Season 1) (2016) [MP3|128-320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Things (01:08)
+02. Kids (02:39)
+03. Nancy and Barb (01:06)
+04. This Isn’t You (02:24)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 04:59:12 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15594791D8FA16B9699BC6C285DEB2A2D0826280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237401   (552355) от 23.07.2018
+
+Hummingbird - This Sacred Love (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Sacred Love
+02. Dream the Dream
+03. Lullaby
+04. Heart of Grace(   Читать дальше...   )Жанр: New Age, Relax, VocalПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DD2D372A25B6793E32ABA51ADE09C02D081DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046470   (551930) от 27.08.2016
+
+Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbin' Trains 03:25
+02. Put Me In A Box 02:44
+03. Kinda Don't Care 04:21
+04. Hell On A Highway 04:21(   Читать дальше...   )Жанр: CountryПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64F614DFFD052D6D14ED70677E84009E6560687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046289   (551851) от 27.08.2016
+
+Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Murray, Juliet Lyons & Roger Shah – Miracle of Life
+02. Nick Murray, Roger Shah & Tori Letzler – Future Fighter
+03. Nick Murray & Roger Shah – Enter the Heroes
+04. Nick Murray & Roger Shah – Singularity(   Читать дальше...   )Жанр: Soundtrack, ClassicПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04205CA385B145EEAA41109D6F36ED973A08B33C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046461   (551850) от 27.08.2016
+
+Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551850.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Smooth
+2. Dig Your Roots
+3. Life Is a Honeymoon (Feat. Ziggy Marley)
+4. H.O.L.Y.(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD88A5BD4398DEF34FDB254AF247FBAA3F6A54DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046163   (551799) от 27.08.2016
 
 VA - Rock of Ages (2012) [FLAC|Lossless|tracks + .cue] <Rock, Stage & Screen>
@@ -600,151 +745,6 @@ Stive Morgan - Flights In Dream (2016) [MP3|320 Kbps] <New Age, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D511CACD621DB88FBE2F838B8ECACF260C4BF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238633   (545449) от 31.07.2018
-
-Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <country, southern rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dream You (Craig Wiseman, Jerry Phillips) – 2:47
-2. I Quit Lyin' in 1986 (Roger Murrah, John Schweers, Mark Wright) – 3:01
-3. The Night They Rocked the Grand Ole Opry (Rich Alves, Gary Harrison) – 4:19
-4. The Wild Side of Life (Arlie Carter, William Warren) – 2:41(   Читать дальше...   )Жанр: country, southern rockПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07254E5E757E15209592F3BE5B24AD3ECD7223F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048444   (544847) от 04.09.2016
-
-VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|256 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544847.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hopp & Nelson Beato-End of Time-Hopp
-2. Cassie-Joint (No Sleep)
-3. Incredible Bongo Band-Apache (Grandmaster Flash Remix)-Incredible Bongo Band
-4. Dawin-Dessert(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DC59701D585233C79F955F368F39444D8A51E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049164   (544784) от 04.09.2016
-
-Medwyn Goodall - Kissed by the Sun (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Shadow of the Mountains
-02. Sinking Sun
-03. Peace of Mind
-04. Day in the Sun(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4016CF4ABDB4B1A8A92795F341E7C662002B99A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238784   (544605) от 01.08.2018
-
-7and5 - The Lost Voice (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer to Heaven (4:41)
-02. Life at Once (3:46)
-03. Father (4:37)
-04. Mi Deh Yah (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDEC78E89A467A0CF269761A806EC609E9FCE4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238815   (544603) от 01.08.2018
-
-Simon Daum - Of One Heart (2018) [MP3|320 Kbps] <Instrumental, Piano, New age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Matter What (3:21)
-02. A New Life (5:08)
-03. Set Free (2:48)
-04. Distant Call (2:27)(   Читать дальше...   )Жанр: Instrumental, Piano, New ageПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74938CD824FC976A810920DA7AEBF13A1D1EB66
 ```
 
 https://mybot314.ru/tekegram_catalog/

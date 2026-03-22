@@ -1,3 +1,119 @@
+###  Публикация: 1644852   (232957) от 08.07.2023
+
+The Raven Age - Blood Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Groove-Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changing of the Guard (2:36)
+02. Parasite (3:58)
+03. Serpents Tongue (3:59)
+04. Essence of Time (4:42)(   Читать дальше...   )Жанр: Melodic-Groove-Metal, MetalcoreПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27F1C3C9EFB4FF87D0FBD3152CCB128579FF580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645530   (232621) от 10.07.2023
+
+Coma Waves - Coming To Your Senses (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Alt.Metal, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming To Your senses (1:18)
+02. Dissolve (3:41)
+03. Shattered (4:06)
+04. Numb & Ache (3:50)(   Читать дальше...   )Жанр: Nu-Metal, Alt.Metal, Post-GrungeПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979FF16F846FB77DF67EBB92C12E872CB7653CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618757   (232299) от 12.03.2023
+
+Coridian - Hava (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Algorithm 02:18
+02. State Of Mind 04:26
+03. Dunes 04:08
+04. Rakshasa 03:53(   Читать дальше...   )Жанр: Alternative, Progressive-RockПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF9564D8C2D8A2F20D3C29F86D48106454A3929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621906   (232214) от 27.03.2023
+
+Cave In - Until Your Heart Stops (1999) Deluxe Edition, 2023, Relapse Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Emo, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_232214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moral Eclipse (2023 Remaster) [00:02:05]
+02. Terminal Deity (2023 Remaster) [00:03:13]
+03. Juggernaut (2023 Remaster) [00:05:35]
+04. The End of Our Rope is a Noose (2023 Remaster) [00:08:09](   Читать дальше...   )Жанр: Metalcore, Emo, AvantgardeПродолжительность: 02:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECC3B1008C48117CB98097C7F5223C201E56E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580034   (232148) от 30.09.2022
 
 Darko US - Darko (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
@@ -629,122 +745,6 @@ Blue October - Spinning the Truth Around (Part I) (2022) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46D31A272DECD0DFD57D93BA9801F95E2C54BB8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650060   (227806) от 30.07.2023
-
-Not A Toy - Prblms (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Punk, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PRBLMS [00:02:06]
-02. grown folk problems [00:02:47]
-03. Nervous [00:02:08]
-04. BAD MOOD [00:02:09](   Читать дальше...   )Жанр: Alternative Pop Punk, Indie PopПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EB169FD730082EA3D8626B31B07ECD89E459E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649781   (227752) от 30.07.2023
-
-Gator, The Alligator - Laminar Flow (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Way [00:02:18]
-02. Can't You See? [00:05:11]
-03. Life You Dreamed [00:04:05]
-04. Morning Light [00:05:06](   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Psychedelic RockПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB1F8DB66C6B22B352A792CEB72B629C9434FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342029   (227577) от 30.11.2019
-
-!!! - Wallop (2019) Chk Chk Chk [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Change U (03:18)
-02. Couldn't Have Known (03:35)
-03. Off the Grid (feat. Meah Pace) (03:48)
-04. In the Grid (01:26)(   Читать дальше...   )Жанр: Electronic, Rock, Post-PunkПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E788A4AF00E9E14359688BD75B35969FF0DC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342032   (227551) от 30.11.2019
-
-White Reaper - You Deserve Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Garage, Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headwind (02:38)
-02. Real Long Time (03:17)
-03. Saturday (02:57)
-04. 1F (03:00)(   Читать дальше...   )Жанр: Garage, Indie-RockПродолжительность: 00:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9B38145F839BC01E1A3DD5F7095FFA5F2A5030
 ```
 
 https://mybot314.ru/tekegram_catalog/

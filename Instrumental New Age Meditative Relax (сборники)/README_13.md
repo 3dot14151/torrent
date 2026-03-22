@@ -1,3 +1,61 @@
+###  Публикация: 949078   (379146) от 22.10.2015
+
+VA - Волшебные Инструментальные Мелодии (2015) [MP3|320 кб/с]<Instrumental, Pop>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379146.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fausto Papetti - Strangers In The Night
+002. Gipsy Kings - Michael
+003. Acoustic Alchemy - Jamaica Heart Beat
+004. Francis Goya - Exodus(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 09:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141692780049CEA21AF928BC720E0E5D8C482514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576049   (370693) от 12.09.2022
+
+Paul Mauriat - L'ete Indien (2003) Compilation, Unofficial Release, Not On Label [OGG Vorbis|485 Kbps] <Jazz, Pop, Easy Listening>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brasilia Carnaval
+02. L'ete Indien 'Africa'
+03. Melisa
+04. C'est Mieux Comme ca(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95388519ED652B99FD38778E553F7E96203DEF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950698   (367887) от 27.10.2015
 
 VA - Breathing Earth (2015) [MP3|320 кб/с]<Chillout, Lounge, Ambient>
@@ -685,64 +743,6 @@ VA - Piano Music for Concentration (2016) [MP3|320 Kbps] <Downtempo, Chillout, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E072C2C063F3175DBA00ABDC92449957928EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075971   (315982) от 24.11.2016
-
-VA - Acoustic Pop Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thom Cooper - Hey, Soul Sister 3:29
-02. Karizma Duo - Against All Odds 3:08
-03. Alice Lamb - Have a Nice Day 2:57
-04. Landa - Brown Eyed Girl 3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210E06FB5EAFB4700F5B9987049286671921655C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076583   (311732) от 26.11.2016
-
-VA - Christmas Play Chill: Chill and Christmas (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lounge Unlimited Orchestra - Last Christmas 5:34
-02. Faith - It's the Most Wonderful Time of the Year 3:04
-03. Maurice Cannon - Navidad 3:52
-04. Brazilian Love Affair Project - All I Want for Christmas Is You 3:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D429D47D61AB900801906AC44E73D361E30756
 ```
 
 https://mybot314.ru/tekegram_catalog/

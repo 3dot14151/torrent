@@ -1,3 +1,177 @@
+###  Публикация: 1711272   (112531) от 29.03.2024
+
+Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Release: Home: Beyond This Rage [7:51]
+02. Sweet Release: Church: Renewing Vows [7:19]
+03. Sweet Release: Church Basement: Party [5:28]
+04. Sweet Release: Street: Make Room for Me [4:24](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Modern Big BandПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922B882014D8E69E9A8F531A7DFDD78931A5AAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711345   (112530) от 29.03.2024
+
+Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anything
+02. Too Forever
+03. Chicken Shack
+04. It Hits Different(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FE9604A33B6055D3FAB881B51F5A7619F08E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711376   (112451) от 30.03.2024
+
+Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out Of Town [2:58]
+02. S'Wonderful/They Can't Take That Away From Me [4:07]
+03. Just The Way You Look Tonight [5:41]
+04. Honeysuckle Rose [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCD3B83A262E0F63D4F13A2697835C2B96CDA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371280   (112436) от 31.03.2024
+
+Mop Mop - Lunar Love (2016) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alfa
+02. Adhara
+03. Totem (feat. Anthony Joseph)
+04. Spaceship: Earth (feat. Anthony Joseph)(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8C3AB632676B09B0890979F19FE1968B2B15B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371286   (112435) от 31.03.2024
+
+Mop Mop - Ritual Of The Savage (2010) [FLAC|Lossless|image + .cue] <Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Return Of The King
+02. Destination
+03. Ash
+04. Mr.Know It All(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1220B55BD2CE0EE8FCF6597F7165BB110F856E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711621   (112333) от 31.03.2024
+
+Mike Mainieri - An American Diary: The Dreamings (1997) 1999, NYC Records [APE|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R  Is for Riddle [6:28]
+02. Los Dos Lorettas [5:21]
+03. The Dreamings [6:32]
+04. Schecharchoret [5:28](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD3884F40B0164DF076FD69EDE855EF58AC37EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711616   (112329) от 31.03.2024
 
 Halie Loren - Live At Cotton Club (2016) Victor [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -571,179 +745,6 @@ Chris Connor - Sings Lullabys of Birdland (1956) 2007, Victor Entertainment [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1D76761384FB677759CFD6B0FA8CFE7ECF6F4F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714768   (111673) от 10.04.2024
-
-Keely Smith - Little Girl Blue, Little Girl New (1963) 2017, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Girl Blue [3:57]
-02. Here's That Rainy Day [3:20]
-03. Gone with the Wind [3:13]
-04. Willow Weep for Me [3:51](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22004DBC7FFCAEB9F62F14BD5FFDFC3DB9CA6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714745   (111654) от 10.04.2024
-
-Harold Alexander - Are You Ready? (1971) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watermelon Man [10:21]
-02. High Heel Sneakers [10:11]
-03. Quick City Revisited [16:05]Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8691ADCAB5FFC56C8A4BB0DE408D17C739CC830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714757   (111651) от 10.04.2024
-
-Jo Stafford - Jo + Jazz (1960) 2004, Corinthian [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Squeeze Me [3:00]
-02. For You [2:57]
-03. Midnight Sun [4:40]
-04. You'd Be So Nice to Come Home To [3:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9250396C17D2D7587FDFF206DF82C4485F3D5301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715002   (111609) от 11.04.2024
-
-Lolly Allen - Coming Home (2016) 2019, OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hippest Cat in Hollywood [5:42]
-02. Coming Home [6:04]
-03. Little Hummingbird [3:49]
-04. Emily [5:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C2BFFC297AA5B215A0FACF399A3AABD6A171DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715001   (111591) от 11.04.2024
-
-Dorothy Donegan - Sophisticated Lady (1980) 1991, Ornament [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumpin' at the Woodside [7:36]
-02. Medley (In the Mood) [5:29]
-03. Medley (Sophisticated Lady) [11:08]
-04. Smile [4:58](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F2F9E96FC42AFC16B3124C916AD69752C084F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715003   (111588) от 11.04.2024
-
-Keely Smith - The Essential Capitol Collection (1950-e - 1960-e) 2007, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things You Are [3:27]
-02. It's Been a Long, Long Time [2:06]
-03. That Old Black Magic (with Louis Prima) [2:57]
-04. Stormy Weather (Keeps Rainin' All the Time) [3:12](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8A15F373508529CF367A682E810BEDB9967D97
 ```
 
 https://mybot314.ru/tekegram_catalog/

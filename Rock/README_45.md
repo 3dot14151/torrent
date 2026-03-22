@@ -1,3 +1,148 @@
+###  Публикация: 1153791   (556870) от 28.07.2017
+
+The Isley Brothers & Santana - Power Of Peace (2017) [MP3|320 Kbps] <Soul, Funk, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready
+02. Total Destruction to Your Mind
+03. Higher Ground
+04. God Bless the Child(   Читать дальше...   )Жанр: Soul, Funk, Blues RockПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD4E50E116225E93A528F1F48B4BB0B8A42240E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235895   (556613) от 14.07.2018
+
+Axcraft - Dancing Madly Backwards (1974) Reissue, 1999, Akarma [MP3|320 Kbps] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. So Far Away
+2. Astral Love
+3. 727 Suite
+4. Firewheel(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AAA34FD2D7FB9643E1B872B00F62BD34D74FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235867   (556609) от 14.07.2018
+
+The Running Man - The Running Man (1972) Reissue, 2000, Akarma [MP3|320 Kbps] <Psych-Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556609.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Higher And Higher
+2. Hope Place
+3. Nicholas
+4. Another(   Читать дальше...   )Жанр: Psych-Prog RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D2A1DF2A506DA6407D41440DE914A832FA15AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236184   (556279) от 15.07.2018
+
+The Real Gone Tones - Backseat Bingo (2018) [MP3|320 Kbps] <Rockabilly, Rock&Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piglet (03:07)
+02. Stick With It (02:26)
+03. Watch Out (02:22)
+04. Black Coffee (02:13)(   Читать дальше...   )Жанр: Rockabilly, Rock&RollПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0077AFE4F8BE56A8A22FD02D25CFB2B9077D5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306178   (555834) от 03.06.2019
+
+Chrome - Addictions (2019) [MP3|320 kbps] <Progressive Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive Again (06:45)
+02. Heart on Fire (06:00)
+03. Rhody (03:50)
+04. Addiction (05:18)(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C69CE0F70EC882FF3D0FEC72A0190948D71168F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306322   (555831) от 03.06.2019
 
 The Dead Deads - The Dead Shall Dance: Live (2018) [MP3|320 Kbps] <Rock>
@@ -597,151 +742,6 @@ Anthony Green - Pixie Queen (2016) [MP3|320 Kbps] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A620DF63E24CB5EC5FD61D2F72217B33CFAC2392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048442   (546527) от 02.09.2016
-
-Blues Pills - Golden Treasures (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady In Gold
-02. Elements And Things
-03. Bliss
-04. High Class Woman (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51626D3980D07B57CAE7834A8558F5D9366FFBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048457   (546462) от 02.09.2016
-
-Mark Wood - Voodoo Violince (1991) [MP3|320 Kbps] <Melodic Rock, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkeybats
-02. I Want to Take You Higher/Stand
-03. VooDoo Violince
-04. Right-Engl-Boogie(   Читать дальше...   )Жанр: Melodic Rock, Instrumental RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10A246B85ECAAEF8FF7895AAEBF7A8ADB8BC61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048430   (546379) от 02.09.2016
-
-A Day To Remember - Bad Vibrations (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Vibrations 03:33
-02. Paranoia 03:20
-03. Naivety 03:19
-04. Exposed 03:38(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2772F7926968D53EAFB19A70225504C72C64CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238558   (546235) от 30.07.2018
-
-The Wolverhinos - Love Runs Out! (2017) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Runs Out (02:54)
-02. Budapest (02:31)
-03. Rock And Roll (04:18)
-04. Blame It On The Boogie (04:08)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA27EB0AF58A6544616AFCD1B032FF5C05A84B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048651   (545795) от 03.09.2016
-
-The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torn & Frayed
-02. Ghost Train
-03. Killing Time
-04. Twisted Love (Album Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
 ```
 
 https://mybot314.ru/tekegram_catalog/

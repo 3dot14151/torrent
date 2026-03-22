@@ -1,3 +1,32 @@
+###  Публикация: 972056   (981848) от 06.01.2016
+
+VA - The Best Of Alterportal HITS (2015) [MP3|256- 320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981848.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Enter Shikari - Anaesthetist
+2. Periphery - Alpha
+3. Папа Роач - Дьявол
+4. Blue Stahli - Not Over Til We Say So (feat. Emma Anzai of Sick Puppies)(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEC7DA452A0AC451A45714AC6FE6C78E5CE1648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356531   (977533) от 31.01.2020
 
 VA - Рок 2019 Главные Хиты (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
@@ -716,35 +745,6 @@ VA - Рок впрок 5 (2016) [MP3|320 kbps] <Рок, Поп-Рок>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E1A4A08D1906D64DB2C4D1C0F1FA02F96E2E509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986272   (930707) от 14.02.2016
-
-VA - Live For Today: Classic Rock 9 (2016) [MP3|320 кб/с] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Giant - Stay 04:49
-002. Suicidal Tendencies - Send Me Your Money 03:25
-003. The Gun - Race With The Devil 03:37
-004. Lita Ford - Kiss Me Deadly 04:04(   Читать дальше...   )Жанр: Classic RockПродолжительность: 06:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D584A4633384A00E1CFBE74D99A2C103E5CA075
 ```
 
 https://mybot314.ru/tekegram_catalog/

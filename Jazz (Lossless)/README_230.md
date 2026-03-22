@@ -1,3 +1,177 @@
+###  Публикация: 1188715   (273668) от 03.12.2017
+
+Ella Fitzgerald - The Verve Recordings 1956 - 1959 (2014) 3CD, Not Now Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273668.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I get a Kick Out of You [04:03]
+02. Let's Do It (Let's Fall in Love) [03:35]
+03. Just One of Those Things [03:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93E6FFC2E9012907DA7FEF10DCC3BCF988BFBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188722   (273591) от 03.12.2017
+
+Vince Guaraldi Trio - A Charlie Brown Christmas (1965) 2003, Fantasy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Tannenbaum [05:09]
+02. What Child Is This [02:26]
+03. My Little Drum [03:13]
+04. Linus and Lucy [03:07](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D80930C563F8A5103B7DB7B6A85C0CC56E782EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265791   (273054) от 29.11.2018
+
+Cannonball Adderley - The Complete Albums Collection 1958-1960 (2016) 4CD, Enlightenment [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273054.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Minority [7:06]
+02. Straight Life [5:32]
+03. Blue Funk [5:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C06B4B540C592E599C1D4A1EBD588E24491BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337861   (272712) от 12.11.2019
+
+D.E.W. East - Introducing D.E.W. East (1999) [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Every Man His D.E.W. (Wallace) - 6:27
+02. Mr. B.C. (Dean) - 7:42
+03. The Thruster (Elmes) - 10:41
+04. It's Easy to Remember (Hart-Rodgers) - 7:17(   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37442FA0C9690774036F355E56A92896D8DE608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337658   (272710) от 12.11.2019
+
+Steve Grossman - Katonah (1989) [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katonah (Grossman) - 11:04
+02. Afternoon in Paris (Lewis) - 8:52
+03. I Hear a Rhapsody (Fragos-Baker-Gasparre) - 6:44
+04. Taurus People (Grossman) - 9:02(   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2320FE2EC576CB8ACDA9E0F4A27D555CC996DC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337746   (272703) от 12.11.2019
+
+Charlie Watts Meets The Danish Radio Big Band (2017) Impulse! [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvin Suite, Part 1 [9:16]
+02. Elvin Suite, Part 2 [5:54]
+03. (Satis) Faction [6:11]
+04. I Should Care [8:01](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D86E0C045C2170BC40B3D30E6409A179806390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337762   (272702) от 12.11.2019
 
 The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
@@ -571,180 +745,6 @@ Charlie Haden & Brad Mehldau - Long Ago And Far Away (2007) 2018, Universal [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1E0E3748062C83C59C2B854F6FD7EC4FA33B3DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266272   (271159) от 01.12.2018
-
-Bebo Valdes - Bebo de Cuba (2004) 2CD, Calle 54 Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271159.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Suite Cubana:
-01. Ar Ni Froken Pehrson? (Intro) [0:30]
-02. Cachao, creador del Mambo [7:44]
-03. Devocion [4:02](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, World FusionПродолжительность: 01:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7431ED30D386F60F94022ABC4D601C2F39EB32F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266362   (270994) от 01.12.2018
-
-Bryan Ferry And His Orchestra - Bitter-Sweet (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphaville
-02. Reason Or Rhyme
-03. Sign Of The Times
-04. New Town(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B7659B2AA6B6777D3F62B9F195CFB227D13A21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337965   (270688) от 14.11.2019
-
-James Williams, Richard Davis, Ronnie Burrage - I Remember Clifford (1990) DIW [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As I Live and Breathe [9:01]
-02. I Remember Clifford [6:29]
-03. Take the Coltrane [5:29]
-04. Simone [7:48](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B13233326B077226E9DBC44DB61E6EEA904D1B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338216   (270682) от 14.11.2019
-
-Jay Thomas With The Oliver Groenewald Newnet - I Always Knew (2018) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yama [7:29]
-02. Ernie's Tune [4:12]
-03. I always Knew [4:26]
-04. Deep Passion [5:42](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC3315359DCC9129F990A72F587D0DA2490C21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189550   (270491) от 06.12.2017
-
-Floris Kappeyne Trio - Interchange (2017) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [02:03]
-02. Interchange [05:05]
-03. Counter [03:02]
-04. Bliss [05:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0B7F3DD66729733641679124B171E5F4A18329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189554   (270487) от 06.12.2017
-
-Lou Levy - By Myself (1993) 1995, Verve [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Walked In [04:53]
-02. Embracable You [05:15]
-03. By Myself [03:36]
-04. Everything Happens to Me [04:42](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90E57A2DB28A2AA1118C1D346F2568ED68392BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

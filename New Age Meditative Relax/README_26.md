@@ -1,3 +1,30 @@
+###  Публикация: 587265   (217768) от 12.12.2012
+
+Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217768.jpg" />
+</div>
+
+
+###  Подробнее
+
+(34:06) 1. Hidden Beauty
+(35:20) 2. Kiss Good NightЖанр: Ambient, Relax, HealingПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC52E2BF5D87EACB5D5392AD05C9C9F57B15ADF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084832   (216991) от 20.12.2016
 
 Frank Squillante - Take Me There (2016) [MP3|320 Kbps] <New Age>
@@ -720,35 +747,6 @@ Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1B2E292E098B3263739848901B130FC91D6EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195370   (142320) от 29.12.2017
-
-Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadness (Reprise) (02:53)
-02. Honour Thy Father and Thy Mother (04:25)
-03. Time Will Pass (04:00)
-04. Rise Above the Bustle (04:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

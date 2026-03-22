@@ -1,3 +1,128 @@
+###  Публикация: 481866   (88077) от 12.04.2012
+
+VA - Super Classic Hits (2006) 2 CD [FLAC|Lossless]<Classic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88077.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006Жанр: Classic
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB22B9B37B68C01D5552CD8EE2AC74720DAA3365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478475   (87474) от 09.04.2012
+
+Roberto Cacciapaglia - 4 albums (2007-2011) [MP3|320 кб/с]<Neoclassical, New age, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87474.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (00:53:15):
+(4:47) 01. Seconda navigazione
+(4:29) 02. Floating
+(4:19) 03. Tema celeste
+(3:04) 04. Sarabanda
+(6:04) 05. Luminous Land - Outdoor
+(2:41) 06. Ancient Evenings
+(4:10) 07. Viaggio di notte
+(4:39) 08. Oceano
+(3:52) 09. Olimpica(   Читать дальше...   )2007-2011Жанр: Neoclassical, New age, InstrumentalПродолжительность: 01:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D1E88F21DCC93608EED43776CEEE008CFD198B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479895   (87381) от 09.04.2012
+
+Wolfgang Amadeus Mozart - Requiem in D minor, K 626 Transposition for a string quartet: VA, Quatuor Debussy (1791) /2009/[APE|Lossless]<Classsical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87381.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Requiem 2:00
+2.Dies Irae 1:48
+3.Tuba Mirum 3:29
+4.Rex Tremendae Majestatis 1:58
+5.Recordare 5:53
+6.Confutatis 2:27
+7.Lacrimosa 3:11
+8.Domine Jesu 3:33
+9.Hostias 4:02
+10.Sanctus 1:35(   Читать дальше...   )2009Жанр: ClassicalПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB17F687EB2C616C9E9D83C558DADDE5D0EA0CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479274   (87163) от 08.04.2012
+
+Antonio Vivaldi - 5 Concerti for Bassoon, Strings & Continuo: Milan Turkovic & I Solisti Italiani (1990) /1994, Mastersonic, CO-78921/ [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in E minor, RV484, F. VIII-6
+1.	I - Allegro poco	4:30
+2.	II - Andante	3:08
+3.	Ill - Allegro		3:031994Жанр: BaroqueПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A86C20ACD93F35DD8E0F79210A2E0925FA504BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479872   (87153) от 08.04.2012
 
 Johann Friedrich Fasch - Johann Friedrich Fasch Oboe Sonatas: Burkhard Glaetzner& Ingo Goritzki etc. (1989)/2008/[WavPack|Lossless]<Classical>
@@ -714,141 +839,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:011858B532EFDCB7E1C8EFCBA87E6D721057EA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466309   (81452) от 11.03.2012
-
-VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Л.Керубини, Introitus et Kyrie.mp3 - 7,14
-02 Л.Керубини, Dies Irae.mp3 - 10,26
-03 Г.Берлиоз, Agnus Dei.mp3 - 11,38
-04 Дж. Верди, Requiem aeternam.mp3 - 5,12
-05 Дж. Верди, Dies Irae.mp3 - 2,04
-06 Г. Форе, Agnus Dei.mp3 - 7,03
-07 Г. Форе, In Paradisum.mp3 - 3,55
-08 А. Моцарт, Lacrimosa.mp3 - 3,36
-09 А. Моцарт, Hostias.mp3 - 5,00
-10 А. Моцарт, Agnus Dei.mp3 - 10,542005Жанр: Классическая музыкаПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F911E1ABFF38DC59A08092B2C256D1984EF895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465228   (80970) от 09.03.2012
-
-Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<Classical, Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80970.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 'O sole mio (02:40)
-2. Funiculi, funicula (01:22)
-3. Libiamo ne lieti calici (Brindisi) (03:06)
-4. Sous le ciel de Paris (01:59)
-5. Torero quiero ser (01:09)
-6. Parlami d'amore Mariu (02:52)
-7. Manha de Carnaval (02:33)
-8. Lolita (02:38)
-9. Dicitencello vuie (03:37)
-10. Core 'ngrato (03:37)(   Читать дальше...   )2002  |Жанр: Classical, VocalПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB49B563E52B71EF620BEDB692B7D41BA2315F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458979   (78761) от 27.02.2012
-
-Ludwig Van Beethoven - Missa Solemnis (1990) [FLAC|Lossless]<камерная>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78761.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kyrie
-2. Gloria
-3. Credo
-4. Sanctus / Praeludium / Benedictus
-5. Agnus Dei1990Жанр: камернаяПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0F2795AB8100CC44245DEA2815A10A0CC9F08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453154   (77225) от 19.02.2012
-
-Jon Schmidt & Steven Sharp Nelson (The Piano Guys) - Hits Volume I: Limited Founders Edition (2012) [FLAC|Lossless]<Rock, Classical Music, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Meets Mozart (5:19)
-02. Moonlight (3:29)
-03. Without You (3:39)
-04. The Cello Song (3:19)
-05. Rolling In The Deep (3:54)
-06. Cello Wars (Radio Edit) (3:11)
-07. O Fortuna (From Carmina Burana) (3:22)
-08. Bring Him Home (From Les Miserables) (4:18)
-09. Charlie Brown Melody (3:03)
-10. Rock Meets Rachmaninoff (3:22)(   Читать дальше...   )2012 |Жанр: Rock, Classical Music, InstrumentalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,381 @@
+###  Публикация: 1147848   (605744) от 04.07.2017
+
+Roger Clyne And The Peacemakers - Native Heart (2017) [FLAC|Lossless|tracks + .cue] <Rock, Alternativecountry>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowerin'
+02. Every Kind of Lucky
+03. Sunday Drivin'
+04. Arizona Night(   Читать дальше...   )Жанр: Rock, AlternativecountryПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977C85738F599CDC40368D6B292B93DDB1C95EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294771   (605670) от 24.04.2022
+
+Green Grey (Грин Грей) - 7 Albums + 6 Singles + 1 Maxi-Single + 1 Compilation (1997-2021) [FLAC|Lossless|image + .cue, tracks + .cue, tracks] <DubRock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Green Grey (рус. Грин Грей, Зелёно-серые) — украинская рок-группа, основанная в Киеве весной 1993 года. В творчестве прослеживается смесь разнообразных стилей и музыкальных направлений: рок, поп, фанк, трип-хоп, дабстеп, техно, электро и др. Дизель и Мурик в шутку назвали свой стиль «укр-попом» по аналогии с «брит-попом». С 2012 года Green Grey экспериментируют с (   Читать дальше...   )1997 - Грин Грей
+2000 - 550 MF (550 Метров Фанка)
+2002 - Эмигрант
+2004 - МетаморфозаЖанр: DubRockПродолжительность: 09:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A50FF9C6F5C79EC499CD3661D2C65C5BEA5AFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061088   (605602) от 24.04.2022
+
+Creedence Clearwater Revival - Best Of (2008) 2CD [APE|Lossless|image + .cue] <Folk Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born on the Bayou
+02. Green River
+03. Tombstone Shadow
+04. Don't Look Now(   Читать дальше...   )Жанр: Folk Rock, Classic RockПродолжительность: 02:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1AF78D11A7303E6F019C39465C477911F8F632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061721   (605596) от 24.04.2022
+
+John Fogerty - The Long Road Home (2005) The Ultimate John Fogerty/Creedence Collection [APE|Lossless|image + .cue] <Blues Rock, Southern Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Reviva - Born on the Bayou
+02. Creedence Clearwater Revival - Bad Moon Rising
+03. John Fogerty - Centerfield
+04. Creedence Clearwater Revival - Who’ll Stop the Rain(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, Classic RockПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9C76F35EF57BFE9FEB229C2E40CB216EB46F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546657   (604297) от 25.04.2022
+
+Joe Satriani - The Elephants of Mars (2022) [FLAC|Lossless|image + .cue] <Instrumental Guitar Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный гитарист-виртуоз Джо Сатриани анонсировал свой новый студийный альбом. "The Elephants Of Mars" знаменует собой 19-й студийный альбом легендарного гитариста за его 35 с лишним лет музыкальной карьеры. Этот альбом также знаменует собой дебют его нового партнерства с лейблом earMUSIC.
+У Сатриани был восхитительно продуктивный рабочий отпуск, с (   Читать дальше...   )01. Sahara (4:36)
+02. The Elephants of Mars (5:21)
+03. Faceless (4:48)
+04. Blue Foot Groovy (5:10)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA34C3F55D3023DDF9AF522925C22849F3350A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062073   (604248) от 25.04.2022
+
+Simon & Garfunkel - The Hit Collection Part 1 (1990) [APE|Lossless|image + .cue] <Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am A Rock
+02. The Sounds Of Silence
+03. Homeward Bound
+04. 59th Street Bridge Song - Feelin' Groovy(   Читать дальше...   )Жанр: Pop Rock, Folk RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC9E5BFD46394C4A10AD8BE0A7CAF2F5C212BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546888   (603956) от 26.04.2022
+
+Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD, The Complete Recordings [FLAC|Lossless|WEB-DL|tracks] <Glam, Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Never Been In Love (2017 Remaster) (3:03)
+02. Mind Demons (2017 Remaster) (2:28)
+03. She's in Love with You (2017 Remaster) (3:33)
+04. Hollywood (2017 Remaster) (3:00)(   Читать дальше...   )Жанр: Glam, Pop Rock, Soft RockПродолжительность: 7CD, 07:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EFA334D01D2694A32E68E96E7DA23766153C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297648   (603578) от 23.04.2019
+
+Queen - Hot Space (1982) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staying Power (04:12)
+02. Dancer (03:50)
+03. Back Chat (04:35)
+04. Body Language (04:31)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D94DAE95F6F9F70C8051D96FD374C81BBD2C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297650   (603575) от 23.04.2019
+
+Queen - The Works (1984) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Ga Ga (05:49)
+02. Tear It Up (03:28)
+03. It's A Hard Life (04:08)
+04. Man On The Prowl (03:30)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403A7F574545DD58E19736A7755DE22A43C04945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297550   (603572) от 23.04.2019
+
+The Hardkiss - Залізна ластівка (2018) [FLAC|lossless|tracks + .cue] <Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Привіт (00:51)
+02. Журавлі (02:50)
+03. Коханці (04:03)
+04. Forever More (03:49)(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AA5DA9BED91DA9B997909F93B4AC0A397A7E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547175   (603420) от 27.04.2022
+
+Ringo & His New All-Starr Band - King Biscuit Flower Hour Presents (2002) [FLAC|Lossless|image + .cue] <Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photograph[4:22]
+02. Act Naturally[2:33]
+03. Logical Song (Performed by Roger Hodgson)[3:56]
+04. No One Is To Blame (Performed by Howard Jones)[6:12](   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C592CE72ADAB7A20FA633840B6D0A0C570DD032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231888   (603158) от 21.06.2018
+
+The Ventures - The Ventures Best Hit Collection 30 (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Instrumental Rock, Surf Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Don't Run (2:09)
+02. Memphis (2:31)
+03. Rebel Rouser (2:44)
+04. Apache (3:02)(   Читать дальше...   )Жанр: Instrumental Rock | Surf RockПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638C9DB41AAAFAB423D352CE52EF0931B6276C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297737   (603100) от 24.04.2019
+
+Prefab Sprout - Jordan: The Comeback (2013 Blu-spec CD 2 edition) (1990) 2013, Sony Music (Epic) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking for Atlantis 04:03
+02. Wild Horses 03:44
+03. Machine Gun Ibiza 03:43
+04. We Let the Stars Go 03:39(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-PopПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4645C82DDCB034BAF1397016F9B521DC042F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297795   (603083) от 24.04.2019
 
 Queen - A Kind Of Magic (1986) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
@@ -367,381 +745,6 @@ Queen - Made in Heaven (1995) Japanese Edition, 2019 [FLAC|lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136047EB01BDEEF07F158649F7424A7C59979146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298682   (601769) от 28.04.2019
-
-Prefab Sprout - The Gunman and Other Stories (2001) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cowboy Dreams 05:19
-02. Wild Card in the Pack 03:41
-03. I’m a Troubled Man 03:19
-04. The Streets of Laredo-Not Long for This World (trad. / arr. by Paddy McAloon) 04:38(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-Pop, CountryПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B37B77D356B088DD45DE21A2476E495B763932E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298825   (601623) от 29.04.2019
-
-Red Sand - Forsaken (2019) [FLAC|lossless|image + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forsaken Part 1 (01:48)
-02. Forsaken Part 2 (12:37)
-03. All The Life (08:22)
-04. Hello To The Last Goodbye (13:04)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF12DE87F62953A20A05A8EAAAFBC1AC10283A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298820   (601606) от 29.04.2019
-
-Queen - Flаsh Gоrdоn: Original Soundtrack (1980) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flash's Theme (03:29)
-02. In The Space Capsule (The Love Theme) (02:42)
-03. Ming's Theme (in the Court of Ming the Merciless) (02:40)
-04. The Ring (hypnotic seduction of Dale) (00:57)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CAA16FD62ACCE3F2DEEF6C06A19DC58C2105C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298817   (601587) от 29.04.2019
-
-Queen - Queen II (1974) Japanese Edition, 2018 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Procession (01:12)
-02. Father to Son (06:13)
-03. White Queen (As it Began) (04:35)
-04. Some Day One Day (04:22)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06B2A2B4BFAB7FD1A7C88CCCA190F540B13B905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298688   (601574) от 29.04.2019
-
-Alan Parsons - The Secret (2019) [FLAC|Lossless|tracks + .cue] <Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sorcerer's Apprentice (5:47)
-02. Miracle (3:25)
-03. As Lights Fall (3:59)
-04. One Note Symphony (4:43)(   Читать дальше...   )Жанр: Rock, Symphonic RockПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8EA2DBCFE09E029D1714C87A34DE6B2623B7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298823   (601553) от 29.04.2019
-
-Queen - Greatest Hits (2001) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bohemian Rhapsody (05:55)
-02. Another One Bites The Dust (03:35)
-03. Killer Queen (03:01)
-04. Fat Bottomed Girls (03:23)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1ABDA5B25FADF4DAB992AAE439C44036189863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548040   (601015) от 01.05.2022
-
-This Raging Silence - Broken Oceans (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timeless Machines
-02. Save Me
-03. 2 Hours Too Far From The Sun
-04. Broken Oceans(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12985B41287BE202228734A4ACF354C87DAAFD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913715   (601000) от 30.06.2015
-
-Emerson, Lake & Palmer - Once Upon A Time In South America (2015)  (4CD) [FLAC|Lossless]<Progressive / Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction Fanfare (live Satntiago, Chile - April 1, 1993)
-02. Tarkus (live Satntiago, Chile - April 1, 1993)
-03. Knife Edge (live Satntiago, Chile - April 1, 1993)
-04. Paper Blood (live Satntiago, Chile - April 1, 1993)(   Читать дальше...   )Жанр: Progressive / Art-RockПродолжительность: 04:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB624467A9E56F077F66C7731C5E2CA7D76A4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299063   (600744) от 30.04.2019
-
-Queen - Queen (1973) Japanese Edition, 2018 [FLAC|lossless| image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Yourself Alive (03:46)
-02. Doing All Right (04:09)
-03. Great King Rat (05:42)
-04. My Fairy King (04:13)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F71898B4F3A25F9C5622ADCDDB985DF4CE84C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548095   (600254) от 02.05.2022
-
-Siberian Tusk - Reapers By Trade (2022) [FLAC|Lossless|WEB-DL|tracks] <Physical, Stoner Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rich&Poor
-02. Goes Around
-03. Desert Sun
-04. Fucked Up(   Читать дальше...   )Жанр: Physical, Stoner Rock, Punk RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9006259F28DE16D767AD0837B2FE7FBA930EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356609   (598816) от 28.06.2011
-
-Marillion - Best Of Both Worlds (1997) [FLAC|Lossless]<Symphonic Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_598816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 1982-1988
-1-01Жанр: Symphonic Rock, Classic RockПродолжительность: 02:29:11 (01:12:52+01:16:18)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232659   (598376) от 25.06.2018
-
-VA - Magna Carta Guitar Greats Volume 1 (2007) Licensed From – Magna Carta [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Petrucci - Fate Speaks
-02. Derek Trucks - Cat's Squirrel
-03. Michael Romeo - Analog Kid
-04. Steve Stevens - Roadside America Medley(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B594433ABFF8B947982C293947D36F81177764B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548474   (598219) от 03.05.2022
-
-The Gathering - Beautiful Distortion (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock, Alternative Rock, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Colour (5:50)
-02. When We Fall (5:24)
-03. Grounded (6:53)
-04. We Rise (6:48)(   Читать дальше...   )Жанр: Atmospheric Rock, Alternative Rock, Post RockПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF53F93235793F092A8E9A59C270DBDB79DB646E
 ```
 
 https://mybot314.ru/tekegram_catalog/

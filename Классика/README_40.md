@@ -1,3 +1,119 @@
+###  Публикация: 1260077   (313975) от 06.11.2018
+
+VA - Classical Romance, Vol. 1  (Famous Classical Music) (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silvano Sant Agata - Turandot, III, Scene 1: "Nessun Dorma"
+02. Slovak Philharmonic Orchestra - Peer Gynt Suite No.1, Op. 46 "Morning Mood": 1
+03. Capella Weilburgensis - Clarinet Concerto in A Major, K622: II. Adagio
+04. Staatsopernchor Stuttgart - Madame Butterfly: Humming Chorus(   Читать дальше...   )Жанр: Classical, Instrumental, Easy ListeningПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C578BB25B28C38C1CD24849C2347F1307B14F47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076128   (313530) от 25.11.2016
+
+Julian Bream - Dances of Dowland (1967-1976) 1993 BMG Music [FLAC|Lossless|image + .cue] <Classical, Instrumental, Lute.>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Earl of Essex Galliard (1:58)
+02. Lachrimae antiquae (5:52)
+03. Galliard to Lachrimae (4:02)
+04. My Lady Hunsdon's Puffe (1:30)(   Читать дальше...   )Жанр: Classical, Instrumental, Lute.Продолжительность: 01:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C9ABC4878A7EBBA4C253FCEB34E2BCDD28597B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075875   (313342) от 25.11.2016
+
+Julian Bream - The Golden Age of English Lute music (1960-1963) 1993 BMG Music [FLAC|Lossless|image + .cue] <Classical, Instrumental, Lute & Guitar>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Johnson - Two Almaines (2:17)
+02. John Johnson - Fantasia (4:15)
+03. Francis Cutting - Walsingham (3:28)
+04. John Dowland - Mignarda (4:15)(   Читать дальше...   )Жанр: Classical, Instrumental, Lute & GuitarПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C0BAB17747AC11FD9B75C4A9486CF3CF66B983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959763   (311741) от 26.11.2015
+
+Шуберт - Гении классической музыки (2011) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria, D839
+02. Серенада ре минор, D957
+03. Allegretto, 'Октет для духовых и струнных'
+04. Антракт №3, 'Розамунда'(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5F63BC1A495597462F4A1B898E6280E6455C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332778   (311690) от 21.10.2019
 
 Piano Novel - Fendre l'ecorce (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Miscellaneous, Piano>
@@ -654,122 +770,6 @@ David Garrett - Unlimited: Greatest Hits (Deluxe Version, Digipak) (2018) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:880CD09798CFC2C13680E2451AE25D30BF8E892A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960542   (302748) от 30.11.2015
-
-Бетховен - Гении классической музыки (2011) [FLAC|image+.cue]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Симфония No. 5 - Allegro con brio
-02. Эроика - Scherzo
-03. К Элизе
-04. Увертюра «Эгмонт»(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A6D14BF4A8FBE9666D06705D17631A6ACD505D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960537   (302713) от 30.11.2015
-
-Бетховен - Гении классической музыки (2011) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Симфония No. 5 - Allegro con brio
-02. Эроика - Scherzo
-03. К Элизе
-04. Увертюра «Эгмонт»(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6E9943D17A296C2548B6048CB84112EA4C81BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078024   (302629) от 30.11.2016
-
-Carlo Bergonzi - Carlo Bergonzi - Grandi Voci (1958-1967) 1994 Decca Records [FLAC|Lossless|image + .cue] <Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Se quel guerrier - Aida - Verdi (5:07)
-02.  Oh! fede negar potessi - Luisa Miller - Verdi (4:59)
-03.  La vita e un inferno - la forza del destino - verdi (6:02)
-04.  Ah si, ben mio - il trovatore - verdi (3:03)(   Читать дальше...   )Жанр: OperaПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C222755990F13C297BF2E0925534A575078E1224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077436   (302462) от 30.11.2016
-
-Handel;  Academy of St. Martin in the Fields Chorus, Sir Neville Marriner - Messiah (1992) Philips Classics [FLAC|Lossless|image + .cue] <Oratorio in 3 parts>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part II: No. 25. Accompagnato (Tenor) 'All they that see Him' (0:41)
- Part II: No. 26. Chorus 'He trusted in God' (2:02)
- Part II: No. 27. Accompagnato (Tenor) 'Thy rebuke hath broken His he... (1:33)
- Part II: No. 28. Arioso (Tenor) 'Behold, and see' (1:17)(   Читать дальше...   )Жанр: Oratorio in 3 partsПродолжительность: 02:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F682E4925E8805D25256F4B97F9FF13933ADD2E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

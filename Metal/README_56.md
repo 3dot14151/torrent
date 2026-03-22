@@ -1,3 +1,119 @@
+###  Публикация: 920874   (573796) от 26.07.2015
+
+Wolves Den - Deus Vult (2015) [MP3|320 кб/с]<Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Via Iustorum
+2. Gedeih Und Verderb (Feat. Winterherz Van Pänsen)
+3. Schwarzes Firmament
+4. Deus Vult(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E84E0C3328B377E0E80A5096D7E3F52362CEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921953   (573244) от 26.07.2015
+
+Manowar - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of Steel
+02. Warriors Of The World United
+03. Return Of The Warlord
+04. Fighting The World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FA36CD4A9CC52A801D42D1566D9004E8704C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528053   (573190) от 28.07.2012
+
+Testament - Dark Roots Of Earth (2012) Deluxe Edition [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Up (4:18)
+02. Native Blood (5:21)
+03. Dark Roots Of Earth (5:45)
+04. True American Hate (5:27)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0055484BA7D577A1BD4A6F54CA9602C24D7692E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151532   (572563) от 19.07.2017
+
+Wintersun - The Forest Seasons (2017) [MP3|320 Kbps] <Epic Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Awaken From The Dark Slumber (Spring)
+2. The Forest That Weeps (Summer)
+3. Eternal Darkness (Autumn)
+4. Loneliness (Winter)(   Читать дальше...   )Жанр: Epic Metal, Melodic Death MetalПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E1BD94B399E408244E0C89AA36677B465EEB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921251   (571868) от 27.07.2015
 
 I Spit Ashes - 99942 (2015) [MP3|320 кб/с]<Modern Melodic Death Metal>
@@ -630,122 +746,6 @@ Wings of Destiny - Time (2015) [MP3|320 кб/с]<Melodic Progressive, Heavy, Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E37BC48710FC59492264A682AA47B0347A7E9C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924214   (558952) от 03.08.2015
-
-Xandria - Fire & Ashes (2015) EP [MP3|320 кб/с]<Symphonic Metal, Power Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558952.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Voyage Of The Fallen
-2. Unembraced
-3. In Remembrance
-4. I Would Do Anything For Love (But I Won't Do That) (Meatloaf Cover)(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Gothic MetalПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E5C0DD0CAC2597A9BFBDD6DBFDE0F8DD16BE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235591   (558668) от 12.07.2018
-
-Chelsea Grin - Eternal Nightmare (2018) [MP3|320 Kbps] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Rose
-02. The Wolf
-03. Across the Earth
-04. See You Soon(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEF6D5DA29340733CED87ABCBFE6DAFF58269E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045841   (557827) от 24.08.2016
-
-Running Wild - Rapid Foray (2016) Limited Edition [MP3|320 Kbps] <Heavy, Power, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Skies, Red Flag
-02. Warmongers
-03. Stick to Your Guns
-04. Rapid Foray(   Читать дальше...   )Жанр: Heavy, Power, Speed MetalПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F063237E7C68F27DF801D139DFF12C7C911D11BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153699   (557811) от 27.07.2017
-
-Paradise Lost - Medusa (2017) Limited Edition [MP3|320 Kbps] <Doom-Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fearless Sky
-2. Gods Of Ancient
-3. From The Gallows
-4. The Longest Winter(   Читать дальше...   )Жанр: Doom-Death Metal, Gothic MetalПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9AAB627A11F1819A99096CC7B9E74EBB50E970
 ```
 
 https://mybot314.ru/tekegram_catalog/

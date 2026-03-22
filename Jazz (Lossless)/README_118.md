@@ -1,3 +1,177 @@
+###  Публикация: 1226230   (657138) от 19.05.2018
+
+Curtis Peagler & The Modern Jazz Disciples - Disciples Blues (1959, 1960) 2001, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone [06:06]
+02. Disciples Blues [07:16]
+03. Slippin' & Slidin' [05:11]
+04. A Little Taste [06:44](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3CEA803AF54FAF89507BF76F6DC9C9CF7C98CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903782   (657094) от 01.06.2015
+
+Francesca Palamidessi - In Other Words I Am Three (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz, Contemporary>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Tide
+02. Eclipse
+03. Sue's Changes
+04. Portrait(   Читать дальше...   )Жанр: Vocal Jazz, ContemporaryПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE05915B6AABA35545DDE2033D58FF86BD48D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903993   (657090) от 01.06.2015
+
+Dave Holland Big Band - What Goes Around (2002) [FLAC|Lossless]<Jazz, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triple Dance [09:53]
+02. Blues for C.M [09:05]
+03. The Razor's Edge [06:19]
+04. What Goes Around [17:25](   Читать дальше...   )Жанр: Jazz, Post-Bop, Big BandПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D13BD771DC0F8AAE04FF8A111AB2F992649AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903640   (657089) от 01.06.2015
+
+Milt Jackson & Coleman Hawkins - Bean Bags (2012) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close Your Eyes [06:57]
+02. Stuffy [05:47]
+03. Don't Take Your Love From Me [04:55]
+04. Get Happy [05:33](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B71B56297B713FECC7303559B37DAC344E70E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226034   (657080) от 19.05.2018
+
+Dave Brubeck - Interchanges '54 (1991) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audrey
+02. Jeepers Creepers
+03. Pennies From Heaven
+04. Why Do I Love You(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570B1331275DC10BD61D0204B8ADEB2F8BADFA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226103   (657076) от 19.05.2018
+
+Hubert Laws - Say It With Silence (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Baron [05:55]
+02. False Faces [06:20]
+03. Love Gets Better [05:09]
+04. It Happens Everyday [07:42](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35A5B9AC36DC8C3FF7362AC110D7308870AE205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140263   (657006) от 05.06.2017
 
 The Bud DeTar Big Band - Live At S.U.N.Y. Brockport (1999) Self Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -583,197 +757,6 @@ Bob Alberti Quartet Featuring Harry Allen - Everything I Love (1998) Dolphin Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F7C86A47EBBE595F711BD53D016550288E4657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226574   (654868) от 21.05.2018
-
-Isao Suzuki & Sunao Wada - Now's The Time (1974) 2014, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polka Dots And Moonbeams [09:30]
-02. Midnight Sugar [16:05]
-03. Now's The Time [26:32]Жанр: Post-BopПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C387FAEC87D38E7466975F9116FA1D8BBD4B14C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226573   (654778) от 21.05.2018
-
-Diana Krall - Wallflower: The Complete Sessions (2014) Universal [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Dreamin' [03:18]
-02. Desperado [03:33]
-03. Superstar [04:18]
-04. Alone Again ( Naturally)(duet with Michael Buble) [03:51](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE316FF6FFC964360D00EC9A1D07A1727691D55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140775   (654762) от 07.06.2017
-
-David Gilmore - Transitions (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End of Daze [06:29]
-02. Beyond All Limits [05:32]
-03. Blues Mind Matter [07:07]
-04. Bluesette [05:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E108FA1CFEF2018CB6E2F58FDAFCDF97AA9EE28F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516225   (654672) от 27.06.2012
-
-VA - Jazz Women (1999) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassandra Wilson - Hellhound On My Trail  [04:37]
-02. Cassandra Wilson - Strange Fruit  [05:30]
-03. Dianne Reeves - Never Said (Chan's Song)  [05:35]
-04. Dianne Reeves - How High The Moon  [04:07]
-05. Denise Jannah - Bye Bye Blackbird  [04:55]
-06. Bobbi Humphrey - Harlem River Drive  [07:50]
-07. Renee Rosnes - Upa Neguinho  [06:16]
-08. Caecilie Norby - Summertime  [04:56]
-09. Caecilie Norby - Just One Of Those Things  [03:56]
-10. Holly Cole Trio - Honeysuckle Rose  [02:22](   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516238   (654654) от 27.06.2012
-
-VA - Women of Jazz (2008) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melody Gardot - Goodnite [03:06]
-02. Madeleine Peyroux - Dance me to the end of love [03:57]
-03. Cassandra Wilson - Lover come back to me [04:16]
-04. Sophie Milman - Lonely in New York [03:15]
-05. Hope Waits - I'll be satisfied [02:55]
-06. Kate Paradise - Mean to me [04:28]
-07. Jennifer Hartswick - Lover man [03:10]
-08. Stacey Kent - Shall we dance [03:41]
-09. Della Griffin - It could happen to you [004:12]
-10. Etta Jones - Since I fell for you [06:02]Жанр: JazzПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516087   (654574) от 27.06.2012
-
-Bill Evans Trio Featuring Scott La Faro - Sunday At The Village Vanguard (1997) [FLAC|Lossless]<Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria's Step (take 2) [06:13]
-02. My Man's Gone Now [06:27]
-03. Solar [08:57]
-04. Alice in Wonderland (take 2) [08:38]
-05. All of You (take 2) [08:22]
-06. Jade Visions (take2) [03:47]
-07. Gloria's Step (take 3) [06:57]
-08. Alice in Wonderland (take 1) [07:06]
-09. All of You (take 3) [08:07]
-10. Jade Visions (take 1) [05:13]Жанр: Jazz, BopФормат: CD XRCD 20bit K2 SuperCodingПродолжительность: 01:09:47
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

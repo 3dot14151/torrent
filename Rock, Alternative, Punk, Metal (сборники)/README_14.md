@@ -1,3 +1,61 @@
+###  Публикация: 876793   (789216) от 13.01.2019
+
+Rammstein & VA - Unofficial Compilations (2001-2005) [MP3|320 кб/с]<Industrial, NDH, Rock, Metal, Alternative>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein Die Schwarze Tanzen (Remix Album)
+Rammstein Presents Vol.2 (2001)
+Rammstein Presents Vol.3 (2001)
+Rammstein Presents (Special 2002)(   Читать дальше...   )Жанр: Industrial, NDH, Rock, Metal, AlternativeПродолжительность: 21:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BAE0C34B852754FB63A5B5FC3B9EA7B34C224EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202864   (789015) от 31.01.2018
+
+VA - За Полшага До Зимы (2018) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789015.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Кипелов - Косово Поле
+002. БИ-2 feat. John Grant - Виски
+003. Сплин - Храм
+004. 25-17 - Она не такая, как все(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6297466B124669DFCC54FC9FED23310192DD04ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203132   (788564) от 01.02.2018
 
 VA - Return To The 80's and 90's (2018) [MP3|320 Kbps] <Metal, Hard Rock>
@@ -693,64 +751,6 @@ VA - Союз. Rock 4 (2018) [MP3|256-320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24B953F346ED6F16C45EF87FD43CC23126811868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013026   (777642) от 04.05.2016
-
-VA - Strictly Pop Classics (2016) [MP3|320 кб/с] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MC5 - Kick Out The Jams
-02. Velvet Underground The - I'm Waiting For The Man
-03. Stooges The - No Fun
-04. Doors The - L.A. Woman(   Читать дальше...   )Жанр: RockПродолжительность: 03:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636ADFFBD29F0B3922EA498F539344781A93978D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013767   (777261) от 05.05.2016
-
-VA - Crazy Crazy Nights [2CD] (2016) [MP3|320 кб/с] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777261.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Пpодолжительность: 01:18:55
-
-01. Kiss - Crazy Crazy Nights(   Читать дальше...   )Жанр: RockПродолжительность: 2:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FE61AC018977C8B1CEFF041900774BC5E354BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

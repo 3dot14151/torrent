@@ -1,3 +1,119 @@
+###  Публикация: 1602278   (1046142) от 05.01.2023
+
+Aerovokzal - Пропасть (2022) [MP3|320 Kbps] <Alternativo, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мечта [00:04:22]
+02 - Я знаю [00:02:44]
+03 - Двери [00:03:20]
+04 - Письмо [00:03:15](   Читать дальше...   )Жанр: Alternativo, New WaveПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD08FC8631C50DF4FE6EBBE90BE1CCD89D119D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602286   (1046141) от 05.01.2023
+
+Viky Abyss - В голове (2022) [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - В путь! [00:00:54]
+02 - Болен мечтой [00:03:45]
+03 - Весна [00:04:14]
+04 - Взрыв [00:03:30](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABEFA12C670E078EF755698B4C565E663050718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602271   (1046139) от 05.01.2023
+
+24x96 - Toxic Indie (2023) [MP3|320 Kbps] <Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Древесные слухачи [00:02:28]
+02 - Ксв [00:02:33]
+03 - Руморэ латино [00:03:36]
+04 - Редько-хреновый джем [00:01:14](   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC29C4CA5DCA1DA3973BDAC7558155F29A03281E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602300   (1046133) от 05.01.2023
+
+Замшелые Ягодицы - 3 Albums (2019-2022) 3 EP [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Интервенция отсев
+2021 - Энтропия
+2022 - Пытки музыкойЖанр: Progressive RockПродолжительность: 3 CD, 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48D485AD5C1756EE2784C5ACC5F8A488B19A19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602303   (1046130) от 05.01.2023
 
 Нет Крови - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
@@ -627,122 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:648BE70184C86B39524E59CC27EE94A643C64087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606365   (1044548) от 21.01.2023
-
-Действуй! - Грустно и пусто (2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044548.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Разрыдается заря
-2. Снегом нас укутает зима (feat. Мёртвые Осы)
-3. Тёмная улица
-4. Ты больше не моя (feat. EVO)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F856EA1DB3817A699CE3AEF3792AA49CFE679C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590426   (1044428) от 22.01.2023
-
-Включай Микрофон! - 8 Albums (2012-2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Василеостровские пляски
-2012 - Цинично и весело
-2015 - Приступы гуманизма(   Читать дальше...   )Жанр: Punk RockПродолжительность: 8 CD, 03:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE853ABEA8B18BE3A2E42108A1C7BE6B4EE8C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606844   (1044330) от 23.01.2023
-
-Встретимся завтра? - Wдоль стен (2022) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Александра [00:04:16]
-02 - Long _ Shot [00:03:20]
-03 - И о тебе [00:03:18]
-04 - Малыш [00:04:27](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274568A875FF7B396CB76AE8BF6D6F9B3E8600EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606732   (1044326) от 23.01.2023
-
-Kiberspassk - 2 Albums (2021-2023) [MP3|320 Kbps] <Industrial Rock, Breakcore, EDM>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коза Рогатая (03:54)
-02. Смородина (04:03)
-03. Голытьба (04:15)
-04. Вий (05:27)(   Читать дальше...   )Жанр: Industrial Rock, Breakcore, EDMПродолжительность: 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9047E34E10CA3112A94CCEC5FCE87122C035844
 ```
 
 https://mybot314.ru/tekegram_catalog/

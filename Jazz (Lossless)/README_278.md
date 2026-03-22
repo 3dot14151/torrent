@@ -1,3 +1,177 @@
+###  Публикация: 1670576   (171956) от 21.10.2023
+
+Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Come Back to Me [3:28]
+02. I'm Getting Sentimental Over You [5:05]
+03. Like Someone In Love [5:43]
+04. My Funny Valentine [3:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719983F099B4164A0C46035F3891DC8202AF65F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670572   (171955) от 21.10.2023
+
+Anita O'Day - I Get A Kick Out Of You (1975) 1993, Evidence [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Song for You [3:06]
+02. Undecided [4:17]
+03. What Are You Doing the Rest of Your Life? [6:15]
+04. Exactly Like You [4:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22C526217F91B793BBEBC74ED9C4E5764054BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670569   (171954) от 21.10.2023
+
+Anita O'Day - There's Only One... (1978) 2011, Essential Media Group [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean A Thing (If It Ain't Got That Swing) [3:24]
+02. I'm Getting Sentimental Over You [5:12]
+03. Old Folks [3:00]
+04. What Is This Thing Called Love [5:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BAC17E09607EC7ADAE510FD9B48953E67BB1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670561   (171953) от 21.10.2023
+
+Grant Green Quartet - Nigeria (1960, 1962) 2014, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airegin [7:35]
+02. It Ain't Necessarily So [10:25]
+03. I Concentrate on You [5:53]
+04. The Things We Did Last Summer [6:00](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C32CD80F08ECBA25AB311CAD175B06951E3EA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670566   (171951) от 21.10.2023
+
+Orrin Evans - The Red Door (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Red Door [4:05]
+02. Weezy [7:12]
+03. Phoebe's Stroll [7:36]
+04. The Good Life [9:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9C68A12B45073DCC91EB3E6D7EBD515D70D775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670810   (171782) от 22.10.2023
+
+Julius Hemphill - Big Band (1988) Elektra Musician [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Harmony [9:04]
+02. Leora [6:02]
+03. C/Saw [8:30]
+04. For Billie [8:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-Bop, Big BandПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A959ABBBFA1EE5B4B267F96CFE679B6B004504D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670832   (171781) от 22.10.2023
 
 George Van Eps & Howard Alden - Keepin' Time (1994) 1996, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
@@ -571,180 +745,6 @@ VA - 30 Pleasing to the Ear, Elegant, Cozy and Comforting Tunes (2023) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:662024F67F2EE26F9F27B89A231715D5ABEA991E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671377   (171407) от 24.10.2023
-
-Papik & Nicole Magolie - Montecarlo Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greatest Part of You
-02. Montecarlo
-03. My Love Is True
-04. I'm Letting Go (Tenderly)(   Читать дальше...   )Жанр: Pop Jazz, Nu JazzПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91E12C3BFE2C0DADCF8F94795CD9C07622C8920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671561   (171271) от 25.10.2023
-
-Sonny Clark - Quintets (1957, 1958) 2000, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Flush [9:03]
-02. Lover [7:02]
-03. Minor Meeting [6:53]
-04. Eastern Incident [8:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB860253F746F1F398370EC8897CAC2D337599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671550   (171270) от 25.10.2023
-
-The Clare Fischer Latin Jazz Big Band - Ritmo! (2012) Clavo Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Francisco P.M. [5:59]
-02. Funquiado [8:18]
-03. Canonic Passacaglia, Blues and Vamp 'Til Ready [10:00]
-04. Machaca [8:22](   Читать дальше...   )Жанр: Latin Jazz, World Fusion, Big BandПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4EB5A89905C86AB98986D53D120C848CF17F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671553   (171267) от 25.10.2023
-
-Grant Green - His Majesty, King Funk (1965) 2004, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Selma March [8:27]
-02. Willow Weep for Me [10:02]
-03. The Cantaloupe Woman [4:56]
-04. That Lucky Old Sun (Just Rolls Around Heaven All Day) [5:20](   Читать дальше...   )Жанр: Hard Bop, Jazz-FunkПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334E5A9EE2F72BD87CF1D27C21BDC4A8AB38398C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671556   (171265) от 25.10.2023
-
-Thad Jones, Kenny Burrell, Frank Wess - After Hours (1957) 1992, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steamin' [9:29]
-02. Blue Jelly [11:27]
-03. Count Down [7:56]
-04. Empty Street [12:42]Жанр: Bop, Hard BopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59493F695EEFBA43FD6C17A2267E74CD34F4469F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671566   (171263) от 25.10.2023
-
-Ruby Braff - The Mighty Braff (1954, 1955) 1989, Charly Records [FLAC|Lossless|image + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue And Sentimental [2:41]
-02. This Can't Be Love [2:38]
-03. Mean To Me [3:02]
-04. Ellie [2:28](   Читать дальше...   )Жанр: SwingПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E832D4EB2225C180A75201D50B60AD984D1C834E
 ```
 
 https://mybot314.ru/tekegram_catalog/

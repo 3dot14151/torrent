@@ -1,3 +1,267 @@
+###  Публикация: 1286394   (712747) от 02.03.2019
+
+Би-2 - Нечётный воин 4. Часть 2 (Retro Edition) (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сон про снег (feat. Настя Полева)
+02. Песня для героя (памяти Пипа) (feat. Варя Демидова)
+03. Унисон
+04. Для тех, кто в танке(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB59474F1B59183CF04A7F7ED362008FA5901B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 670253   (711145) от 21.06.2013
+
+...И Друг Мой Грузовик - Еще Маленький (2005) [FLAC|Lossless]<Rock, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Внутренний Гринпис [07:00]
+ 02. Хороший [05:37]
+ 03. Del Piero [04:01]
+ 04. Пневматика [04:01](   Читать дальше...   )Жанр: Rock, Alternative Rock, Indie RockПродолжительность: 00:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BB642B986DD9BC1054BBFF36F0E0BE00BD0FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209401   (709522) от 12.06.2010
+
+Андрей Макаревич - Лучшее (2009) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709522.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Перекресток
+02. Тонкий шрам на любимой попе
+03. Лет 30 тому назад
+04. Начало
+05. Универсальная песня на день рождения
+06. Песенка про счастье
+07. Из-за угла
+08. Брассенс и Бернес
+09. Моя любовь(   Читать дальше...   )Жанр: Фолк-Рок, Авторская песняПродолжительность: 02:39:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533258   (707318) от 23.02.2022
+
+Авентайл - Поиск пути (2008) [FLAC|Lossless|image + .cue] <Melodic Death, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город, которого нет [5:35]
+ 02. Кладбище надежд [4:53]
+ 03. Миг на жизнь [5:19]
+ 04. Новый день [4:14](   Читать дальше...   )Жанр: Melodic Death, Power MetalПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4D590B07FA7E4EAD810202A3F17CB21B8EF4C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533256   (707215) от 23.02.2022
+
+Emerald Night - Король эльфов (2011) [FLAC|Lossless|image + .cue] <Symphonic Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Король Ольхи
+02. Дрема
+03. Сердце Королевы
+04. Руна Победы(   Читать дальше...   )Жанр: Symphonic Melodic Black MetalПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7001DC2AFEEAF5C10EC222A9F9207ECA32E3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026142   (705787) от 14.06.2016
+
+Земфира - Спасибо (2007) [FLAC|Lossless|tracks + .cue] <Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705787.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Спасибо» — пятый альбом певицы Земфиры. Вышел 1 октября 2007 года. В России альбом разошёлся тиражом более 200 000 экземпляров; ещё около 50 000 копий было продано на территории СНГ. Песни для альбома сочинены и записаны в течение одного года: с осени 2006 до осени 2007 (по словам самой Земфиры, первая песня была написана 24 сентября 2006 года). Запись происходила (   Читать дальше...   )01. В метро (2:52)
+02. Воскресенье (2:30)
+03. Дом (3:51)
+04. Мы разбиваемся (3:22)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F7881009C01D13CA7A5FAC5F3081B86EF7C787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287147   (705369) от 06.03.2019
+
+Ignis - Sic Transit Gloria Mundi (2018) Remastered [FLAC|Lossless|tracks + .cue] <Black Metal, Post-Metal, Crust>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primus Inter Pares (06:21)
+02. Sic Transit Gloria Mundi (12:35)
+03. Wild Hunt (05:08)
+04. To the Shining of Black Spheres (07:14)(   Читать дальше...   )Жанр: Black Metal, Post-Metal, CrustПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87E6C1D59667E30FE1AA5B4424949F9B22BEBE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533403   (705352) от 24.02.2022
+
+Крест - Дыхание (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственный альбом питерской группы КРЕСТ1. Последний билет
+2. Для тебя
+3. Свобода
+4. Капля росы(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA7A343BD9F700134A71E4153528B3A14EEB9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149228   (704640) от 24.02.2022
+
+Группировка Ленинград - Лучшее (2CD) (2008) [FLAC|Lossless]<Ска, Психоделический рок, Пост-панк, Регги, Хардкор>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ска, Психоделический рок, Пост-панк, Регги, ХардкорПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10195A93A85CC5967872F056C99B8CE08E9768DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533643   (703085) от 25.02.2022
 
 Кипелов - Легенды русского рока (2022) LRR edition [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -480,279 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB8A32EEECB5DB668B3AC16C643C9FA72180F5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028631   (686112) от 24.06.2016
-
-Би-2 - Spirit (2012) 2CD [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Main CD
-01.Девушки 	03:45
-02.Оптимист 	05:22
-03.Заноза 	04:03(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:47+00:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE636A18CFD5515FBC4999CCCBD68543E47E289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404189   (684016) от 23.08.2020
-
-КняZz - Домашний альбом (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684016.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сексуальный Гитарист
-2. Безбородыч
-3. Пиво-Пиво-Пиво
-4. Шепчущий(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830E0B0C1E7BA168F8015BF4F410D4E7793C0DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289945   (683993) от 17.03.2019
-
-МультFильмы (Мультфильмы) - Лучшее и неизданное (2019) Remastered [FLAC|lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На всех солнце светит (02:27)
-02. Магнитофон (03:08)
-03. За нами следят (02:23)
-04. Марочка (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B3461EFC46A139F4762FD6E344BA4A0AE734B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289582   (681986) от 18.03.2019
-
-Замотаев Бэнд - Пластичная (2017) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свадебная (3:03)
-02. Захарий (2:53)
-03. Как летаю я (3:36)
-04. Пластичная (2:29)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57137907351BFE09013F0B893BDA0EAD49CBF1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535678   (680519) от 09.03.2022
-
-Auto-De-Fe - Стихия (2010) [FLAC|Lossless|image + .cue] <Doom Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Грёзы
-02. Страх
-03. Высота
-04. Сон(   Читать дальше...   )Жанр: Doom Gothic MetalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0B20F1901FBE8FA50E4740D8D99BC7827FC519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535673   (680515) от 09.03.2022
-
-Ермак! - Исход (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Hardcore, Chaotic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тварь (feat. Oligarkh)
-02. Жатва
-03. Аггел
-04. Ехидна(   Читать дальше...   )Жанр: Post Hardcore, Chaotic HardcoreПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55064384E3DB42A2517D90F6C34D7D74F1009BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213727   (677346) от 29.06.2010
-
-Бахыт-Компот - Самые лучшие телки (2009) [FLAC|Lossless]<Punk-Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Самые лучшие телки (Папа)
-02. Мне ничего не сниться
-03. Маленький мой котенок
-04. Полупустая дискотека
-05. Эдик
-06. Ребенок заболел
-07. Сейшелы, банкиры, модели
-08. Песня узника
-09. Чурбано-латино
-10. Gute Nacht, meine Liebe(   Читать дальше...   )Жанр: Панк-рок, АльтернативаПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290823   (676456) от 21.03.2019
-
-Чайф - Шекогали (1999) Reissue, 2018, Kapkan Records [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо известное вам содержание альбома дополнено первоначальной фанковой версией песни "Время не ждёт" (она была написана именно для "Шекогали") и версией песни "Кошка" 1998 года.1. Кончается век (Не проспать бы)
-2. Мой фильм
-3. В ее глазах
-4. ....................(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B25E90E3A7147E8DF3B31F3D3065EF00BA57CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509110   (675084) от 12.06.2012
-
-Реанимация - 2 альбома (2006 - 2008)  [Monkey's Audio|Lossless] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года выпуска: 2006-2008О группе:Жанр: Heavy MetalПродолжительность: 01:00:47
-
-01. Письмо (05:31)
-02. Волк (05:43)
-03. Моя земля (06:12)
-04. Было время (06:45)
-05. Козацька (06:06)
-06. Я вернусь (04:54)
-07. Характерник (05:33)
-08. Проклятье Богов (05:33)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

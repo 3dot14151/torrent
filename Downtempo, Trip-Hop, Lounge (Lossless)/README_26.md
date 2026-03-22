@@ -1,3 +1,61 @@
+###  Публикация: 1598023   (160090) от 22.12.2022
+
+VA - Soulful Downtempo, Vol. 1 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig McKnight - Reach Out (03:22)
+02. Wonderphazz - Every Time You Call Me (02:37)
+03. Silk Factory - Summer Dream (Radio Mix) (02:40)
+04. Climaxx - Slow It Down (Radio Edit) (02:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9E682A8122CDCC9F3205C4958A9E7482A2C61D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675785   (159862) от 10.11.2023
+
+VA - Sweet Soulful: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss Deep Sound Lab - Je Sais (French Version) (6:24)
+02. Schwarz & Funk - Phil Me (Original Mix) (5:26)
+03. Lounge Groove Avenue - Hold You Tight (3:45)
+04. Soul Trend - Before It Gets Too Late (4:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D987330D4C108A857F8F6B621FEBEF8EDD08DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599526   (159829) от 23.12.2022
 
 VA - Uplifting Serenity: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -687,64 +745,6 @@ Harold Budd & Hector Zazou - Glyph (1995) MTM [FLAC|tracks +.cue]<Trip Hop, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3854870677A077830FF5689259FEE9811E640572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348579   (141626) от 29.12.2019
-
-VA - Cafe Del Mar Ibiza (2010) 8 CD [FLAC|Lossless|tracks + .cue]<Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goldfrapp - Utopia ( New Ears Mix )
-02. Thomas Newman - Any Other Name
-03. Afterlife - Sunrise ( DJ Thunda & K-20 Allstars Remix )
-04. Dido - Worthless(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 10:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EF130DA11DA75C6FF9CA4941CC69497C9E3CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934467   (140298) от 29.12.2018
-
-VA - FreeZone vol. 1-7 (1994-2001) SSR Records [FLAC|Lossless|tracks+.cue]<Downtempo, Ambient, Future Jazz, Trip Hop, D&B, Deep House, New Age>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Of Apples - Prairie Oyster (05:04)
- 02. Audiomontage Vs Shur-I-Kan - The Freezone (07:17)
- 03. The Ananda Project Feat. Terrance Downs - Justice, Mercy (06:02)
- 04. dZihan & Kamien - Nargileh (05:01)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Future Jazz/Downtempo/AmbientПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3962E389D47896D82A1111991EE2A97F858133D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

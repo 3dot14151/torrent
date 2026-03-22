@@ -1,3 +1,32 @@
+###  Публикация: 1266741   (268387) от 04.12.2018
+
+W O L F C L U B - Chasing The Storm (2018) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 84 (2:45)
+02. Summer Lights (3:13)
+03. Things Were Simpler Then (3:00)
+04. Chasing the Storm (3:36)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59A60E426303E9A01BF177FA4D3FE7B6A730A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266733   (268384) от 04.12.2018
 
 W O L F C L U B - Infinity (2018) [MP3|320 Kbps] <Synthpop, New Wave>
@@ -716,35 +745,6 @@ VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B966DE0A8FE6C976B444A7162B680857A9012E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584239   (225356) от 18.10.2022
-
-Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Amour, l'Amour
-02. Bossa fragile
-03. Le Retour
-04. Voyage, voyage(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B295C1A246C6C965625BEC822A17AF8C9FAEDF64
 ```
 
 https://mybot314.ru/tekegram_catalog/

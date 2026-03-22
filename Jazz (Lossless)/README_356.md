@@ -1,3 +1,177 @@
+###  Публикация: 1802603   (66015) от 18.06.2025
+
+Seth MacFarlane - Blue Skies (2022) Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's You or No One [2:50]
+02. No Moon at All [2:23]
+03. You'll Get Yours [2:46]
+04. A Hundred Years from Today [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00221FFCD21171E19E4EF76459612EFF89608147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802686   (66014) от 18.06.2025
+
+Pieces Of A Dream - We Got This (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heading Out (4:02)
+02.  We Got This (4:37)
+03.  I'm On My Way (3:56)
+04.  Take A Stroll (4:03)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943C896EDA0C6F3733D272963C8349159E65891D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802777   (65971) от 19.06.2025
+
+Eliane Elias - Dance Of Time (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O Pato [4:19]
+02. You're Getting to Be a Habit with Me [3:52]
+03. Copacabana [5:22]
+04. Coisa Feita [5:02](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F7BF5AB6F0104AD914DECB6006C0E7264EBDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802838   (65969) от 19.06.2025
+
+VA - Sunny Day Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Peter De Girolamo - Sunny (3:48)
+02.  Lo Greco Bros Quartet - Naima (4:40)
+03.  Domenico Sanna - Fly Me to the Moon (4:18)
+04.  P. A. Jeron - Hiems (4:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE19089B5D67E76A8BC6FF25F0FE212156B1ED8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802924   (65966) от 20.06.2025
+
+Eliane Elias - So Far So Close (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At First Sight [4:53]
+02. Bluestone [5:33]
+03. Barefoot [4:40]
+04. Nightimer [6:10](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C81368F6742641EACC855C992868EBC0C2C38B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802905   (65963) от 20.06.2025
+
+Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicago    [0:02:50.00]
+02. The Lady Is a Tramp    [0:02:56.00]
+03. Day In Day Out    [0:02:39.00]
+04. I Didn't Know What Time It Was    [0:02:14.00](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D064E95EDE322F3393512637E0DBA131EB675273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802980   (65961) от 20.06.2025
 
 Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Modal>
@@ -571,180 +745,6 @@ TJ Edit - Disco Funk Archive (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B526CDCF81290063CA14DCBCB9C8B1CA173672C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804654   (65577) от 01.07.2025
-
-VA - Sunset Jazz Mood (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Flower Buds - Flower Buds (3:25)
-02.  A Warm Summer Evening - A Warm Summer Evening (5:14)
-03.  Keep the Soul Alive - Keep the Soul Alive (6:58)
-04.  Relaxed Sunset - Relaxed Sunset (6:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7E1DA0F48A68900010633AC579F10168651331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804653   (65574) от 01.07.2025
-
-VA - Cool Jazz Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jazzy Restaurant Background - Jazzy Restaurant Background (5:01)
-02.  Don't Hesitate - Don't Hesitate (5:00)
-03.  Dinner Jazz - Dinner Jazz (4:41)
-04.  Have A Break - Have a Break (5:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5B41B7966CE66553DAC3B03202345C8AC699DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804710   (65562) от 01.07.2025
-
-Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paper Moon [5:35]
-02. When You Wish Upon A Star [6:42]
-03. One For Amos [5:12]
-04. Take Five [6:42](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6E69A301E8991B7A2654D0241C7B82BB3E6D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804649   (65561) от 01.07.2025
-
-Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Funk In The Jungle (Dub Mix) (3:35)
-02.  Free In The Jungle (3:58)
-03.  Energizer (3:14)
-04.  Esotick (4:20)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF37D8D4985453E47EE1F780CE1F3B13A00903A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804652   (65556) от 01.07.2025
-
-VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Mister Funk - Beat Stuff (3:24)
-02.  Afro Dub - 7 Free To Travel (3:20)
-03.  Afro Dub - Afro Funk Beach (3:12)
-04.  Afro Dub - First Night (3:30)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805037   (65543) от 03.07.2025
-
-VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lo Greco Bros - Folk Song Bass (4:46)
-02.  Joe Allotta - Leave Me Alone (2:43)
-03.  Tallulah Rose - Friends (4:16)
-04.  Pomante - Dancing Feet (3:54)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 01:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

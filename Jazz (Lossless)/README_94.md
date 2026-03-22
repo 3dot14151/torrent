@@ -1,3 +1,119 @@
+###  Публикация: 1283447   (739669) от 17.02.2019
+
+Detour Doom Project - Nothing Remains of Us (2016) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Doom Jazz, Jazz Noir>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sky is Endless (5:24)
+02. Motel of Broken Heart (2:31)
+03. Nightfall (4:54)
+04. Red Doom Room (7:00)(   Читать дальше...   )Производство: Aquarellist - aquarel 37-16Жанр: Dark Jazz, Doom Jazz, Jazz Noir, Experimental, Dark AmbientПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D757C576803B02880577BED6F418F0692F2A980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397582   (739378) от 22.07.2020
+
+Ray Alexander Sextet - Rain In June (1992) Nerus [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dizzy Atmosphere [5:34]
+02. A Nightingale Sang in Berkeley Square [7:35]
+03. The Lamp Is Low [5:56]
+04. Our Love Is Here to Stay [7:33](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC6900F6BB53B218F34E257AE12BB1C9BDDFBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397713   (739373) от 22.07.2020
+
+Benny Goodman - The Quintessence: New York - Los Angeles - Stockholm (1935 - 1954) 2007, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739373.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. King Porter Stomp [3:16]
+02. Sometimes I'm Happy [3:51]
+03. Goodbye [3:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C0F0B52A40DE56E4F0F0446F4E299F7E1DB85E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525843   (739082) от 22.01.2022
+
+Charlie Ventura - Runnin' Wild (1956) 1998, Simitar [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin' Wild [2:47]
+02. Honeysuckle Rose [2:28]
+03. Exactly Like You [3:27]
+04. I've Got You Under My Skin [3:11](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA6DDC6C7B922C67EE334363A13D3BC0DA3B866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526114   (738819) от 23.01.2022
 
 Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952) 2001, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
@@ -404,6 +520,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776709   (735487) от 02.02.2025
+
+Frank Morgan - A Lovesome Thing (1991) Antilles [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_735487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Wish Upon a Star [2:05]
+02. Footprints [7:01]
+03. Ten Cents a Dance [5:26]
+04. Everything Happens to Me [7:05](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B8F4729380B38254A7207383F582BE9A3B6849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776707   (735486) от 02.02.2025
 
 Alex Sipiagin - Destinations Unknown (2011) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -600,151 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D0D1DB584192B259288C91AB5F45D68231E7FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398835   (734803) от 28.07.2020
-
-Vince Guaraldi - The Complete Warner Bros.-Seven Arts Recordings (1968 - 1969) 2018, 2CD, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734803.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Linus and Lucy [2:59]
-02. You're in Love, Charlie Brown [3:09]
-03. Peppermint Patty [2:40](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 02:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185C7A77E9226F7B6C0EC107FA213598A64D914D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528488   (734467) от 02.02.2022
-
-Count Basie - Live At The Savoy (1954) 1989, LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One O' Clock Jump [4:14]
-02. Dance Of The Gremlins [4:19]
-03. Basie Talk [3:59]
-04. Blee Blop Blues [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A1828CA1F0527C2A642A124666B442F8A93F14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528703   (734028) от 03.02.2022
-
-Artie Shaw - 1945 - 1946 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One But You [3:03]
-02. They Didn't Believe Me [2:56]
-03. Dancing On The Ceiling [3:10]
-04. I Can't Get Started [3:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F095A6EBDC256AF9A995F33C3BFFCEF72EBC0195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528980   (733586) от 04.02.2022
-
-Count Basie And His Orchestra - Swingin' At The Chatterbox (1937) 2001, Stardust Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoe Shine Boy [3:58]
-02. Oh, Lady Be Good [4:43]
-03. St. Louis Blues [5:26]
-04. Tattersfield Stomp [2:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5C9C15EF6CABEF95DF53B154ECD2258635F4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529130   (733178) от 05.02.2022
-
-Artie Shaw - 1951 - 1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Kinda Love [2:53]
-02. Dancing On The Ceiling [2:58]
-03. I Waited A Little Too Long [2:55]
-04. I May Hate Myself In The Morning [2:38](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F66BD436F62144E5A8F8AD99FDC8FC89A51FAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

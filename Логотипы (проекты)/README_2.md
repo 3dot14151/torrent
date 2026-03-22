@@ -1,3 +1,56 @@
+###  Публикация: 984454   (940082) от 08.02.2016
+
+Проекты - VideoBlocks - Groundbreaking [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания текстового логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CF29DE59F116CCF7835CD3DA72AFF62067DEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092328   (939568) от 11.01.2017
+
+Проекты - Sony Vegas Pro - Minecraft Logo [VEG]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и стильный проект для демонстрации логотипа.Формат: VEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CE4AC7A0B8FAE8215065D6BE81F246E37F854B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092229   (938195) от 12.01.2017
 
 Проекты - VideoHive - Light Flash Neon Energy Logo - 17938158 [AEP]
@@ -629,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76D46C02093C76EC2D673489E38DAF56472FCA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989812   (915147) от 23.02.2016
-
-Проекты - RocketStock - Alluvion [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alluvion-стильный проект After Effects, который сделает Ваш логотип в 3D без каких то ни было сторонних плагинов. Проект легко настраивается в цветовую гамму, в соответствии с вашим брендом.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FBFE9C59F0A84AC2ED3163584B3D90A119970E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989892   (914904) от 23.02.2016
-
-Проекты - VideoHive - Flat Bird Quick Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8F64380791AEE7BD5F8422D1D58BCBD7C4D56C
 ```
 
 https://mybot314.ru/tekegram_catalog/

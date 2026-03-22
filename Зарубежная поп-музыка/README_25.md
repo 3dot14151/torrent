@@ -1,3 +1,90 @@
+###  Публикация: 1217341   (743234) от 04.04.2018
+
+Kylie Minogue - Golden (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing (02:59)
+02. Stop Me from Falling (03:02)
+03. Golden (03:08)
+04. A Lifetime to Repair (03:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9185BB285687A31BB19BD8AB1BFF077703539F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397113   (742607) от 18.07.2020
+
+VA - Ultimate Workout Music Hits (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aden Phoenix Forte - In My Mind (02:59)
+02. Drake - Passionfruit (04:13)
+03. Shelly Peiken - I'm a Mess (03:15)
+04. Dua Lipa - Kiss and Make Up (03:09)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B91C6A43B0F81B3F5305BE22845D3DAFD6EB182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282849   (742464) от 14.02.2019
+
+VA - NRJ Just Hits (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742464.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01.  Calvin Harris feat. Rag'n'Bone Man  -  Giant
+02.  Redbone  -  Come And Get Your Love
+03.  Boulevard Des Airs feat. Vianney  -  Allez Reste(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DD18C11191DCA79A84B1FD29E6A92B1F7CCC62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282892   (742459) от 14.02.2019
 
 Patricia Paay - 4 Albums (1975-1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Disco, Ballad>
@@ -578,6 +665,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399026   (733841) от 30.07.2020
+
+Sheila - Tendances (серия "Другие восьмидесятые") (1988) CD, Album, Enhanced, Reissue, Remastered, 2006, Wea Music [MP3|320 Kbps] <French Pop, Electronic Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_733841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le tam-tam du vent
+02. Pour te retrouver
+03. Fragile
+04. Le Dieu de Murphy(   Читать дальше...   )Жанр: French Pop, Electronic Pop RockПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55EEB05CE27269CD630DD477FC800C006979B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399469   (732906) от 01.08.2020
 
 VA - Home Gym (2020) [MP3|320 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - 100 Greatest 80s Pop Songs (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997AAD150406F459C578B5D4E484C2759D4E8D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127396   (732173) от 21.04.2017
-
-Al Caiola - Bonanza! 1960-1969 (2002) CD [MP3|320 Kbps] <Instrumental, Easy Listening, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alexander Emil Caiola (1920 - 2016) - американский гитарист, композитор и аранжировщик, охвативший множество музыкальных жанров, включая джаз, кантри, вестерн, рок  и поп. Известен как студийный музыкант и актер. Записал более пятидесяти альбомов, работал с некоторыми из самых больших звезд 20-го века. Гастролировал на регулярной основе со Стивом Лоуренсом.01. The Magnificent Seven (1:58)
-02. Bonanza! (2:20)
-03. The Lonely Rebel (2:37)
-04. The Bounty Hunter (2:25)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, PopПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FD1B7DAAEEA4B15199E6CCEAFC4709F824A18B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021812   (732097) от 30.05.2016
-
-Mads Langer - Reckless Twin (2016) [MP3|320 кб/с] <Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight (04:02)
-02. Amy (04:37)
-03. Blondie (05:19)
-04. 3AM (03:22)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93265CD1D8228F741968725A91569B4F4966B93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021753   (732087) от 30.05.2016
-
-CLAVVS - Feel It All (2015) [MP3|320 кб/с] <Indie Pop, Soul, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gold
-02. Give Up
-03. Body Parts
-04. Kill Me Soft(   Читать дальше...   )Жанр: Indie Pop, Soul, Trip HopПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C111F1BE2EA675BBC6A459B503EAB30A6673C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529776   (731980) от 08.02.2022
-
-VA - Inner Light - Retrowave Sounds (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Moses - Inner Light (4:18)
-02. Michelle - THE BOTTOM (3:39)
-03. Coldplay - Adventure of a Lifetime (4:23)
-04. Little Boots - Earthquake (4:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7171F612825E710E2EE7B420FD6F3746D30782A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

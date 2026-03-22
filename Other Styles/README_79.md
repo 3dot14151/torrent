@@ -1,3 +1,145 @@
+###  Публикация: 1143627   (633024) от 19.06.2017
+
+Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .cue] <New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andalu (5:32)
+02. Quiver (5:12)
+03. Field Of Tears (3:13)
+04. Eros (5:35)(   Читать дальше...   )Жанр: New Age, Electronic |Продолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5BDDCC3E4081008AC38896F2E3D9BC6C6DF6D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034563   (632438) от 14.07.2016
+
+Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisters [00:04:46]
+02. Free At Last [00:05:18]
+03. Butterfly [00:05:07]
+04. Relax and Enjoy [00:04:54](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BA070049B746FE8889B3A922E010680B699A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349866   (632031) от 12.06.2011
+
+Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental,Saxophone JazzПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F811CA289070C9D33F4287F64E1462F5CA5C648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143890   (631485) от 20.06.2017
+
+John Denver - The Real... John Denver (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Rocky Mountain High
+02. Leaving On A Jet Plane
+03. Rhymes And Reasons(   Читать дальше...   )Жанр: CountryПродолжительность: 03:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114ADBEC23D15614F3CCBA115358CD22248A2C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143896   (631481) от 20.06.2017
+
+Oliver Scheffner - Traum vom endlosen Himmel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams of Sunbeams
+02. Cloud Pictures Passing By
+03. Spring Break
+04. Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6C1D6BFA9A09A22E380BEDCEAF7FDA19AE9519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520364   (631131) от 09.07.2012
 
 VA - Romantic Guitar (2002) [MP3|320 кб/с]<Instrumental>
@@ -630,154 +772,6 @@ David Wright - Beyond the Airwaves Vol. 1 (2014) [MP3|320 кб/с]<Electronic, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA2547FCAF8D71925BF85491BE527A98D1E0852F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908372   (627635) от 17.06.2015
-
-Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobilly>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Party (2:30)
-02. Magneto (2:50)
-03. Moonrace (2:41)
-04. Flesh and Blood (2:21)(   Читать дальше...   )Жанр: Surf, PsychobillyПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E65F8FC0B6004EE564A6F1EB323D0A4C9BF866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909522   (627629) от 17.06.2015
-
-Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World music>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake
-02. Taxi Brazil
-03. Once
-04. Bombay Slam(   Читать дальше...   )Жанр: Flamenco, New Age, World musicПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D471CC896BAD3BE1DCADADDC863B3990653BD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350824   (627296) от 14.06.2011
-
-Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55CFB65A89F5BC02BB3534E372BEB9521C33058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637601   (627138) от 22.06.2017
-
-Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с]<Game OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mass Effect Theme
- 02. The Normandy
- 03. Eden Prime
- 04. Battle At Eden Prime(   Читать дальше...   )Жанр: Game OSTПродолжительность: 06:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F6CBEBC13C9D03FBBB87DF3312A1854F0EC468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219555   (626959) от 17.07.2010
-
-Era - Greatest Hits 2 CD (2008) [MP3|320 kbps]<New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_626959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, EnigmaticПродолжительность: 01:10:58
-
-01. Divano
-02. Dark Voices
-03. Hymne
-04. Enae Volare Mezzo
-05. Devore Amante
-06. Misere Mani
-07. If You Shout
-08. Come Into My World(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

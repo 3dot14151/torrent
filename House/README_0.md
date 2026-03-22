@@ -1,3 +1,148 @@
+###  Публикация: 1849596   (1053626) от 24.01.2026
+
+VA - Planeta Mix Hits 2026: Winter Edition (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Corbalan - Where Are We Going 02:36
+02. JLUIS - Breathe You In 03:02
+03. DJ Helder Cunha, R.I.O & Tony T - Body Love 03:40
+04. Deep Emotion - Follow You 02:28(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C420DEC7F00AB5B70B4002677A463BBA1EDA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849048   (1053329) от 20.01.2026
+
+VA - Deep House Diamonds (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ikki (ITA) - Destination X 06:40
+02. Gianmarco Staccone DJ - Into Paradise (Extended Mix) 05:26
+03. Most People - Let You Know 03:44
+04. Leftdeck - Climax 05:41(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 01:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127B445896BB021B06669CD875DBFE4B8757BC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848419   (1052663) от 17.01.2026
+
+VA - Black Hole House Music 01-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milkwish & Solange Uk - Citadel (Extended Mix) 06:16
+02. Kryder - Time (Extended Mix) 05:23
+03. Ferry Corsten & Matt Fax - Blueprint (Matt Fax Extended Reprint) 07:48
+04. P.O.U, Stone Van Brooken & Susie Ledge - Missing Piece (Extended Mix) 05:49(   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 01:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A91BD795A80A7C078A17B6DF36872C8658B296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845927   (1051100) от 04.01.2026
+
+VA - Christmas Deep House: Best for the Year 2026 (2025) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sharapov & The Bestseller - All Day And Night (Original Mix) 03:56
+02. VetLOVE - Dream Of The Sea (Original Mix) 04:36
+03. Maha Apaya - Shanti (Original Mix) 05:00
+04. Sharapov - Space Moving (St.Ego Remix) 06:33(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 02:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37FFB320107397C357F88F2F590E8C67450CF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845950   (1051084) от 04.01.2026
+
+VA - Summer Melody - Best of 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bvgsy Del Mar - Ineffable (Mixed) 04:26
+02. Codema - Down The Road (Hagen Hdm Remix / Mixed) 04:40
+03. Sunset Vision - Meant To Be (Mixed) 03:36
+04. Kirill Maxsimoff - Loneliness (Mixed) 05:08(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E266D991B95A7E812747C350B0DDD399F6DD5018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845236   (1050598) от 30.12.2025
 
 VA - Progressive Vibes Light 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
@@ -597,151 +742,6 @@ VA - Kontor Top Of The Clubs 2023.01 (2023) [MP3|320 Kbps] <House, Club, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B4A6D528CE8C00F74F83704F1E400AEC27C248B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610063   (1042669) от 06.02.2023
-
-VA - Move Ibiza Radio Annual: Progressive House (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B-Liv - That Hill (A Deal With God) (Extended Mix) [06:56]
-02. Xenso - Dives [06:49]
-03. Andrea Mirgone - Astral [07:30]
-04. Leon De Haro - Never Again (Instrumental Mix) [06:54](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA707160F5B583FC8221D3DFB57E9C36486A340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437201   (1042270) от 04.01.2021
-
-VA - Motivation Training Music 2021 Explicit [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Absinth - Follow My Lead (3:34)
-02. Eddy Chrome - Beg (3:25)
-03. Mykel Mars, Diandra Faye, Moox - King & Queen (3:16)
-04. Michael Ruland - Everything (3:07)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1204DF0C4BB89B3C094CB6BB5732FEBAC20830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610378   (1042193) от 08.02.2023
-
-VA - Winter 2023 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hyunji-A - This Too Shall Pass (Hakan Ozurun Remix) [7:36]
-02. Manuelo & Joan Dik - High Skies (Tojogo Remix) [7:36]
-03. XSPANCE - Hope (Nic Rinaldi Remix) [6:56]
-04. Matías Delóngaro - Espuma En Sal (Maxi Welchen Remix) [7:50](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62F475384C6FD629152E1522E990BEEB51CDCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437886   (1041707) от 06.01.2021
-
-VA - Running Music 2021 Explicit [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - What Do You Mean (03:28)
-02. CLMD - DANCE (02:54)
-03. No Others - Broken Strings (03:21)
-04. Shawn Mendes - There's Nothing Holdin' Me Back (03:19)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D906F6372D3795E8E73212F98C1524BA999DD7B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611165   (1041677) от 10.02.2023
-
-VA - Pogo House Classics Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech House, Classic House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altered Feast - alita
-02. T.Markakis - forever (extended garage mix)
-03. Dan Laino - that feeling
-04. Gustaf Tamm - in a house mood (nikita k remix)(   Читать дальше...   )Жанр: Soulful, Tech House, Classic House, FunkyПродолжительность: 01:25:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC4A84025D7E60A1B69CB3BFAFF762A17184187
 ```
 
 https://mybot314.ru/tekegram_catalog/

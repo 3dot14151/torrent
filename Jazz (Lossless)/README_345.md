@@ -1,3 +1,177 @@
+###  Публикация: 1777456   (70989) от 06.02.2025
+
+The Buddy Rich Big Band - Mercy, Mercy (1968) 1997, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mercy, Mercy, Mercy [5:35]
+02. Preach and Teach [4:07]
+03. Channel 1 Suite [12:50]
+04. Big Mama Cass [3:22](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0795046B0B694D972E056907C36F82451CDC4CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777459   (70985) от 06.02.2025
+
+Dick Hyman - Face The Music: A Century Of Irving Berlin (1988) Musicmasters [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady of the Evening [5:31]
+02. Let's Face the Music and Dance [2:31]
+03. The Night Is Filled with Music [3:02]
+04. Soft Lights and Sweet Music [3:32](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC47447E064C8191648AFFA4ACC2AB87C1D81DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777841   (70958) от 07.02.2025
+
+Buddy Rich And The Big Band Machine - Speak No Evil (1976) 2008, Wounded Bird Records [FLAC|Lossless|image + .cue] <Jazz-Funk, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak No Evil [3:48]
+02. Yearnin' Learnin' [5:40]
+03. Storm at Sunup [6:37]
+04. Love Me Now [4:27](   Читать дальше...   )Жанр: Jazz-Funk, Big Band, SwingПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC2B8064B0F3CD508238B67A04A447965F4F88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777839   (70945) от 07.02.2025
+
+Art Farmer Quintet - Live At Sweet Basil (1992) 1994, Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fairy Tale Countryside [14:38]
+02. Modulations [10:37]
+03. Yesterdays [9:56]
+04. Straight No Chaser [9:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693DD8CE09FA8BCDE8A4CF85F2849F602D593ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777843   (70942) от 07.02.2025
+
+John Hicks & Elise Wood - Beautiful Friendship (2000) Hi Wood [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn in New York [5:30]
+02. Beautiful Friendship [4:58]
+03. But Beautiful [6:43]
+04. Corcovado [6:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC4F596375DD857C13F02E61E17A0F7EFC0671B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778329   (70921) от 08.02.2025
+
+Julee Cruise – Floating Into The Night (1989) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Downtempo, Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating
+02. Falling
+03. I Remember
+04. Rockin' Back Inside My Heart(   Читать дальше...   )Жанр: Smooth Jazz, Downtempo, AmbientПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1CD4FC39BB814154B20669210E605366B70731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778288   (70910) от 08.02.2025
 
 Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -569,180 +743,6 @@ Dave Stryker Organ Trio - One For Reedus (2008) 2010, SteepleChase [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:680A8CAD26A719DD43E106D939CAD91CFB082B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779071   (70757) от 11.02.2025
-
-Sivuca & Guitars Unlimited - Let's Vamos (1987) Sonet Records [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coisa No 10 [4:09]
-02. Vassourinhas [3:08]
-03. Chorinho p'ra Ele [2:24]
-04. Trem Caipira [3:31](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA5320141245E70F9AE9746F1ADA58558D7ADB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779097   (70755) от 11.02.2025
-
-LAHR.(ex-De/Phazz) – Lyrical Amusement (Limited Edition) (2002) [FLAC|Lossless|tracks + .cue] <Future Jazz, Downtempo>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backyard Rising
-02. Back From Paris
-03. Laughing Song
-04. Love Set You Going(   Читать дальше...   )Жанр: Future Jazz, DowntempoПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A4E2E8674446E81741E89B40CDC7AC9F9D110B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779234   (70731) от 12.02.2025
-
-Eliane Elias - Time And Again (2024) Candid [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At First Sight [5:24]
-02. Falo do Amor [3:58]
-03. It's Time [3:57]
-04. How Many Times [5:27](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662EA6CD98C20C69218398AB66A2F9F0523938A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779232   (70714) от 12.02.2025
-
-Eliane Elias - Quietude (2022) Candid [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voce e Eu (You and I) [4:54]
-02. Marina [3:37]
-03. Bahia com H (Bahia with H) [4:17]
-04. So Tinha Que Ser Com Voce (This Love That I've Found) [3:03](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF74F5624E5786DC995FB7676FCEC32F8FFDE9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779397   (70675) от 13.02.2025
-
-Carmen McRae - Milestones Of A Jazz Legend (1954 - 1961) 10CD, 2019, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Could Write a Book [3:11]
-02. Body and Soul [4:26]
-03. Thou Swell [1:33]
-04. Round Midnite [4:52](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 11:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF55E57746EEC57D39B5518E7AD2DE3A5A96A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779418   (70662) от 13.02.2025
-
-VA - Jazz Funk Instrumentals Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Venus Ship - Tupac Amaru (4:32)
-02.  Black & Brown - P-Lainz (6:23)
-03.  Soulstance - Wine Shop (5:59)
-04.  The Smoke Orchestra - God Make Me Funky (Instrumental) (4:12)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 02:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F2CD9AB23497EAFBC22E561848C0319A9A1D56
 ```
 
 https://mybot314.ru/tekegram_catalog/

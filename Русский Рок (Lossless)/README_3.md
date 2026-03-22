@@ -1,3 +1,32 @@
+###  Публикация: 1616864   (1035855) от 04.03.2023
+
+Нэил Шери - Громче (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стать смелей [00:03:21]
+02. Живём один раз [00:02:26]
+03. Такая игра [00:03:17]
+04. С тобой [00:03:25](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF25192429614BE2D1D270BE0B8477B3590A41AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616866   (1035852) от 04.03.2023
 
 Краснознаменная Дивизия Имени Моей Бабушки - Знаки любви (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4DB9F1DFB10B1BB0EF74EB81C51EF545428C526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619281   (1033000) от 16.03.2023
-
-Корпорация абсурда - Корпорация абсурда (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Корпорация абсурда [00:01:49]
-02. Ультраомегашлюха [00:02:11]
-03. Мы не лохи [00:02:00]
-04. Драка на ножах за гаражами [00:02:51](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1FF0BD90DB32EBAF4A86155864585E97342956
 ```
 
 https://mybot314.ru/tekegram_catalog/

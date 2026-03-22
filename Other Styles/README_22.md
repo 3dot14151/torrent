@@ -1,3 +1,32 @@
+###  Публикация: 1366622   (922135) от 12.03.2020
+
+Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922135.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:54| 01. Интро
+|01:33| 02. Лаборатория ВКС
+|00:55| 03. Эксцесс в лаборатории
+|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7E635338EEF2EDBBABCCAA32B9E81BDD1C4569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366610   (922133) от 12.03.2020
 
 Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -714,35 +743,6 @@ Michael Afanasyev - Балканский рубеж (Оригинальный с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA263DEFE40A10B02424BE584213CDD35E06BE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366743   (915664) от 16.03.2020
-
-Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915664.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:57| 01. Intro
-|01:37| 02. Helicopter
-|01:05| 03. Tribunal
-|02:05| 04. Serbian Theme(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64E1585F33A1CB8C9CD00A6C918881569EF3423
 ```
 
 https://mybot314.ru/tekegram_catalog/

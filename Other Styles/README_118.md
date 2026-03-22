@@ -1,3 +1,159 @@
+###  Публикация: 1172131   (393924) от 07.10.2017
+
+Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Deal With The Devil
+02. Don't Deal With The Devil (Instrumental)
+03. Introduction
+04. Tutorial(   Читать дальше...   )Жанр: Score / Jazz, Stage & ScreenПродолжительность: 02:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF54F5712F7A5197C9EEBCC355F5FF90483DB00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171826   (393706) от 07.10.2017
+
+Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по лезвию 2049 (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_393706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2049 (03:37)
+02. Sapper's Tree (01:36)
+03. Flight to LAPD (01:47)
+04. Summer Wind (02:54)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D319390D819994669DC890EB4553B645D45D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172136   (392902) от 08.10.2017
+
+Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Deal With The Devil
+02. Don't Deal With The Devil (Instrumental)
+03. Introduction
+04. Tutorial(   Читать дальше...   )Жанр: Score / Jazz, Stage & ScreenПродолжительность: 02:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340C29F5700769848F3D079CC5F558A91FD55DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149390   (391971) от 05.11.2009
+
+Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 kbps]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_391971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 My Guardian Angel 07:31
+02 Just Harmony 06:52
+03 Heart of Love 05:07
+04 Light Touch 06:50
+05 Space of Peace 07:01
+06 Deep in My Soul 08:27
+07 Heavenly Spheres 07:51
+08 Heaven and Earth 04:47
+09 Sun Salutation 10:53Жанр: New age, MeditativeПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569447   (391533) от 03.11.2012
+
+Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391533.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Awakening (05:40)
+2. Belly Of The Beast (02:38)
+3. Requiem (02:15)
+4. Legacy (02:29)
+5. Faithless (05:02)
+6. Haven (05:44)
+7. Nemesis (03:31)
+8. Ascendancy (04:19)
+9. Solace (04:45)
+10. To Galaxy (04;57)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC5F1F9FC0B9ECC98877D3C7FE8673749AB969C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173031   (391239) от 10.10.2017
 
 Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
@@ -611,150 +767,6 @@ Junichi Kamiyama - The Best Musics for Overcoming Anxiety and the Stress Managem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CF0744CFAB5B72C909E1FBD43991399690CE494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174543   (385325) от 15.10.2017
-
-Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beneath an Autumn Moon 10.20
-2. Whispers in the Trees 8.56
-3. To Dance with Falling Leaves 10.44
-4. Between Two Worlds 10.32(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7438BE386621625A59994911D554B6EC6BF1F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174635   (385250) от 15.10.2017
-
-Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing on Water
-02. Waterfall
-03. Rainfall to Rivers
-04. Reaching for You(   Читать дальше...   )Жанр: New Age, Piano, AmbientПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60AB1AA32780EBF99C30F14351A942CEF070058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572932   (383646) от 06.09.2022
-
-Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le Roi Est Mort, Vive Le Roi!	1:57
-02. Morphing Thru Time	5:47
-03. Third Of Its Kind	0:19
-04. Beyond The Invisible	5:00(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419659B5305E843B52266522C5B2D2273178233A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248905   (383563) от 09.10.2018
-
-Covarino/Incorvaia - Chiodi (2018) [FLAC|Lossless|tracks + .cue] <Acoustic, Ambient, Experimental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I (16:23)
- 02. II (14:39)
- 03. XI (6:46)Жанр: Acoustic, Ambient, Experimental, Modern Classical, Guitar, Free ImprovisationПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3065B6AA03A1E71BCA4B08EA307F95AFC3391F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572830   (383547) от 06.09.2022
-
-Paul Mauriat - The Ultimate Paul Mauriat (2013), (3CD) [OGG Vorbis|485 Kbps] <Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Blue	2:33
-02. Toccata	2:39
-03. Minuetto	2:27
-04. Amore Grande Amore Libero	2:57(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F426B14B04B9476B79D4B9CE68FB7B09F967306
 ```
 
 https://mybot314.ru/tekegram_catalog/

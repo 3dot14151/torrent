@@ -1,3 +1,56 @@
+###  Публикация: 1263965   (284177) от 21.11.2018
+
+Проекты - VideoHive - Window - 19520308 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Window - проект для создания слайд-шоу, с широким кругом применения.
+Автор проекта: berybubФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AB1056DB50A8E74AD0083B7A36F42482714820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081118   (284120) от 09.12.2016
+
+Проекты - Pond5 - Magic Love Story-Double Exposure - 58973458 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Love Story-Double Exposure - проект для создания слайдшоу с двойной экспозицией.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726E5D8249771159CDEA8B32730D1246C1B2D05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081107   (284115) от 09.12.2016
 
 Проекты - Pond5 - Minimal Slideshow [AEP]
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CE2DAE7A9CBCC124DC48854ACACC02D82289775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082493   (278756) от 12.12.2016
-
-Проекты - Motion Array - Slideshow - 21413 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот чистый, динамичный и современный проект для создания слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712F0E08D8E597A8092710EA7B030A46D3CB5602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336526   (278571) от 07.11.2019
-
-VideoHive - The History Slideshow - 23471196 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278571.jpg" />
-</div>
-
-
-###  Подробнее
-
-The History Slideshow - отличный проект для вашего уникального исторического слайд-шоу или трейлера к фильму. Этот проект так же поможет вам создать отличное интро, вступление, тизер.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAFF07A30FE6C9B79C3FACFA14F043FC1B85301
 ```
 
 https://mybot314.ru/tekegram_catalog/

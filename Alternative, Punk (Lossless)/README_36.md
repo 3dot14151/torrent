@@ -1,3 +1,119 @@
+###  Публикация: 939592   (475587) от 21.09.2015
+
+Shinedown - Threat To Survival (2015) [FLAC|tracks+.cue]<Alternative Metal, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asking For It
+02. Cut The Cord
+03. State Of My Head
+04. Outcast(   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, Post-GrungeПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3DD8453D270BBC61886C8945C798BE573926D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567367   (474433) от 02.08.2022
+
+The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life's a Bitch (but I like it so much) (2:51)
+02. Hung Up (3:25)
+03. Reeling (3:09)
+04. Old Friends Die Hard (2:18)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FE884451D2A91758C1584C3AFB06D21AA2C642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567363   (474250) от 02.08.2022
+
+Sex Pistols - The Original Recordings (2022) [FLAC|Lossless|tracks + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Vacant (3:18)
+02. God Save The Queen (3:19)
+03. Bodies (3:03)
+04. No Feelings (2:51)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7F892AB9CFFC43E63B359A1071E9EC2A91D274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320078   (473267) от 17.08.2019
+
+King Gizzard And The Lizard Wizard - Infest the Rats' Nest (2019) [WEB] [FLAC|Lossless|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet B (03:56)
+02. Mars for the Rich (04:11)
+03. Organ Farmer (02:39)
+04. Superbug (06:43)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520DEABA08B016B74E628DCD1CE4121731C1E18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320577   (468904) от 19.08.2019
 
 Keane - The Best Of Keane (2013) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock, Britpop>
@@ -629,123 +745,6 @@ CD - 1 - The Overload:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E00092B0B4BDE44E31EFC7A5B83AE9362772FA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568994   (455809) от 11.08.2022
-
-Coal Chamber - The Complete Roadrunner Collection 1997–2003 (2013) box set [FLAC|Lossless|image + .cue] <Alternative, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Headstones And The Walking Dead
-02 - Big Truck (Hand-On-Wheel Mix)
-03 - Pig (Original Version)
-04 - Bradley (Going Postal Mix)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 01:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DF7B0918E8D9446E68166F5E03B18B0E9EEA25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 825227   (455375) от 29.09.2014
-
-Ляпис Трубецкой - Капитал (2007) [FLAC|image + .cue]<Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Золотая Антилопа   (3:38)
-02.   Капитал   (3:16)
-03.  Гойко Митич   (3:37)
-04.  Керчь-2   (3:23)(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C78B79703C04E7B8A10A0EDB5F48ED4AAA9DA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247114   (454942) от 14.09.2018
-
-Zoot Woman - Redesigned (2018) Anthology [FLAC|Lossless|tracks + .cue] <Acoustic, Alternative Rock, Folk Rock >
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than Ever (03:12)
-02. Grey Day (02:49)
-03. Ordinary Face (02:52)
-04. Holiday Home (02:35)(   Читать дальше...   )Жанр: Acoustic, Alternative Rock, Folk RockПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB118798E377762F4E36206C4FB57742EE82EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247299   (454937) от 14.09.2018
-
-Frank Zappa - Finer Moments (2012) 2CD [FLAC|Lossless|tracks + .cue] <Avantgarde, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454937.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Intro (1:20)
- 02. Sleazette (3:33)
- 03. Mozart Piano Sonata In B♭ (6:22)(   Читать дальше...   )Жанр: Avantgarde, Psychedelic Rock, Prog RockПродолжительность: CD1 - 00:41:54
-CD2 - 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D6D06A35C91A2EA5661D388C5ADFA373966A2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

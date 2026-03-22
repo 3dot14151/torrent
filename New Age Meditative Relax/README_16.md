@@ -1,3 +1,32 @@
+###  Публикация: 1052618   (528075) от 14.09.2016
+
+Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Go [00:04:47]
+02. Falling Slowly [00:03:42]
+03. Love Me Like You Do [00:05:03]
+04. Jacob's Theme [00:02:32](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF21B4B4DACB22D4E8C1B510E5B401A929E7D0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052938   (526692) от 16.09.2016
 
 Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
@@ -756,35 +785,6 @@ Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AA631367D74ECE1A1F6FF2953EA90B530BD5CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316920   (503284) от 29.07.2019
-
-Valefim Planet - India (2015) [MP3|192 Kbps] <New age, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening
-02. I Miss You India
-03. Temple Of The Sun
-04. Undergraund Source(   Читать дальше...   )Жанр: New age, ChilloutПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1460CDE8A281209113D1AA3353F5C13019D687DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

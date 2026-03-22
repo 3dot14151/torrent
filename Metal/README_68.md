@@ -1,3 +1,119 @@
+###  Публикация: 945310   (433934) от 10.10.2015
+
+Vreid - Solverv (2015) [MP3|320 кб/с]<Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433934.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Haust
+2. Sólverv
+3. Geitaskadl
+4. Ætti Sitt Fjedl(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E833BD5DAEF7079CBF0E0678AF1E2DF6A6187563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571351   (433848) от 21.08.2022
+
+Arch Enemy - Deceivers (2022) [MP3|320 kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Handshake with Hell (05:38)
+02. Deceiver, Deceiver (03:51)
+03. In the Eye of the Storm (04:09)
+04. The Watcher (04:58)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2997F2101E3A00F2B75BD44B0C41376950549152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410778   (431989) от 23.09.2020
+
+Vous Autres - Sel de Pierre (2020) [MP3|320 Kbps] <Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onde [00:09:14]
+02. Vesuve [00:07:20]
+03. Ecueil [00:05:17]
+04. Sans Sèves [00:04:13](   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A0A8FB7A55D696F9661F0DD444F31AF03B6C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410766   (431930) от 23.09.2020
+
+Corrupt-R - Awakening (2020) [MP3|320 Kbps] <Modern Metal, Djent Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Vivification [00:04:45]
+02 -  Cognizance [00:02:53]
+03 -  Terminus Attempt (feat. Andromida) [00:05:00]
+04 -  The Culmination of All Things [00:03:45](   Читать дальше...   )Жанр: Modern Metal, Djent InstrumentalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952132ACA3B73256FC2732C2BF1C85A7B30D1D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555348   (431782) от 03.10.2012
 
 AxeWound - Vultures (2012) [MP3|320 кб/с]<Metalcore>
@@ -633,122 +749,6 @@ Anaal Nathrakh - Endarkenment (2020) [MP3|320 Kbps] <Black Metal, Grindcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB32DD9E9211A13612E26B95121C91CEE7A01E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947124   (420384) от 16.10.2015
-
-Saxon - Battering Ram (2015) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battering Ram (00:04:56)
-02. The Devil's Footprint (00:04:08)
-03. Queen Of Hearts (00:05:08)
-04. Destroyer (00:03:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6847B4D4630F4F1885FB39CD4E32E30FCF00A93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065585   (419547) от 23.10.2016
-
-Subscaria - Afterwrath (2016) [MP3|320 Kbps] <MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Is Your God...and How Are Your God Now
-02. Revenge of the Blacksmith
-03. You Only Live Once
-04. The Dark Side Within...(   Читать дальше...   )Жанр: MDMПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AB55BC78E3622BC47F482285C97295933F377E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572764   (419478) от 28.08.2022
-
-Metallophobia by Peterson - Metallophobia (2022) [MP3|320 Kbps] <Old School Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed Division (04:00)
-02. Dagger Day (04:07)
-03. Dig This Inferno (04:14)
-04. Eve Of Destruction (05:21)(   Читать дальше...   )Жанр: Old School Heavy MetalПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDC8A1D1D5A84F059536E1F3BE9CCDB9066B2A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572635   (419462) от 28.08.2022
-
-Dynazty - Final Advent (2022) [MP3|320 Kbps] <Power Metal, Hard Rock, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Power of Will [00:03:54]
-02 - Advent [00:03:47]
-03 - Natural Born Killer [00:03:25]
-04 - Yours [00:04:24](   Читать дальше...   )Жанр: Power Metal, Hard Rock, Melodic MetalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE13D937AD375DCD02988B2C590BD32B38A1884
 ```
 
 https://mybot314.ru/tekegram_catalog/

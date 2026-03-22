@@ -1,3 +1,61 @@
+###  Публикация: 1018675   (753943) от 21.05.2016
+
+VA - Sleep Deep Piano Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Amadeus Mozart - Sonata no8 rondo allegro D major
+02. Johann Sebastian Bach - Goldberg Variations BWV988 Aria
+03. Richard Strauss - The Blue Danube
+04. Wolfgang Amadeus Mozart - Sonata No. 11 A major (Alla Turca) , KV 331(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDB23DB4D314EB651AE623F656216D435FCCB8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523471   (751429) от 11.01.2022
+
+Dj kolhoz - Compilation (2021) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последние поцелуи
+02. Вечер в Париже
+03. Вспомни...!!!
+04. Ласковый май(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1134F9E50019D4257B6BCE2053C51A1BAB2EFCB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523467   (751119) от 11.01.2022
 
 Сергей Грищук - Compilation (2022) [MP3|320 Kbps] <Instrumental>
@@ -684,64 +742,6 @@ VA - Music Of Dreams: Original Relax Mix (2017) [MP3|320 Kbps] <Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5FBCB06225BF76480A8009B7EBA71D379865F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024340   (718047) от 08.06.2016
-
-VA - Pure Instrumental Music (2016) [MP3|320 кб/с] <Electronic,Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ac G - Summer Lawns (03:53)
-02. BGPONE - Introspektiv (04:33)
-03. Da Jungle - Mystical Fever (05:01)
-04. Christian Loeser - Sternenlied (03:07)(   Читать дальше...   )Жанр: Electronic,InstrumentalПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A964E716F2FCDBC1735E7F1BF298734334B5518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024449   (718041) от 08.06.2016
-
-VA - 10s Acoustic Covers (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Josh Franklin - A Thousand Years
-02. Karizma Duo - One Last Time
-03. Max Tanner - The One
-04. Chelsea Hart - Papaoutai(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1558DE259C762690009B4E7BA754CF32DC5A29
 ```
 
 https://mybot314.ru/tekegram_catalog/

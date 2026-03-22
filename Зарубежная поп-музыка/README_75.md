@@ -1,3 +1,119 @@
+###  Публикация: 1616623   (205967) от 03.03.2023
+
+VA - Romantic Collection. Golden Woman Voices (2000) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_205967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Myers - Should I Call You Jesus
+02. Aretha Franklin - Respect
+03. The Staple Singers - I'll Take You There
+04. Gladys Knight  The Pips - If I Were Your Woman(   Читать дальше...   )Жанр: Rock, Funk / Soul, BluesПродолжительность: 01:20:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E08F8D2784AC5C507B5762671ACDEB15176E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653447   (205475) от 16.08.2023
+
+VA - Zumbadance Workout (2023) [MP3|320 Kbps] <Pop, Latin, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Omar - Zumba (4:24)
+02. Feid - Niña Bonita (3:07)
+03. Daddy Yankee - Con Calma (3:13)
+04. J Balvin - In Da Getto (2:10)(   Читать дальше...   )Жанр: Pop, Latin, DanceПродолжительность: 02:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE5B615F5A259695930AF37D26CF6792CDE2E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610211   (203007) от 07.02.2023
+
+VA - Romantic Collection. More Gold (1998) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_203007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moody Blues–	Night In White Satin
+02. Chris De Burg–	Moonlight And Vodka
+03. Tanita Tikaram–	Twist In My Sobriety
+04. Styx–	Boat On The River(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFF844C7817BCC5A6B025EA163D2C4A55E4E2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612687   (202656) от 16.02.2023
+
+Demis Roussos - Complete 28 Original Albums (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September (I'm On My Way)
+02. On My Pillow
+03. Love Is
+04. What They Say(   Читать дальше...   )Жанр: PopПродолжительность: 27:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F06B69EA9A59EE855AF6589D81E9B094F3C56F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 6708   (202264) от 22.08.2023
 
 Toto Cutugno (Тото Кутуньо) [Сборник] <Pop>
@@ -631,122 +747,6 @@ Ola Hakansson (pre Secret Service) - 3 Albums (1976-1979) LP [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C62D4FB13C311F2ADA17E7D547EE76B28C4D1DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664789   (183966) от 28.09.2023
-
-Fantasy - Das Beste (2023) Deluxe Edition [MP3|320 Kbps] <Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_183966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ein weisses Boot (2023)
-2. Darling (2023)
-3. Blinder Passagier (2023)
-4. Bonnie & Clyde (2023)(   Читать дальше...   )Жанр: Dance PopПродолжительность: 02:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77766E170DBF111AF561A73D789052E0AD65C2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592304   (183123) от 23.11.2022
-
-Mariah Carey - Greatest Hits (2001) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vision Of Love
-02. Love Takes Time
-03. Someday
-04. I Don't Wanna Cry(   Читать дальше...   )Жанр: Hip Hop, Funk / Soul, PopПродолжительность: 02:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72BA3BA0806DB1EDE0BF76C19BA83C69D71D543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592153   (183113) от 23.11.2022
-
-Mylene Farmer - Cendres De Lune (1986) Reissue, Repress, 1994, Polydor [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Libertine
-02. Au bout de la nuit
-03. Vieux bouc
-04. Tristana(   Читать дальше...   )Жанр: Electronic, Pop, 	ChansonПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9986FA7A4FA83E30DB31218F6AE5AB7A528F573C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191518   (182726) от 23.11.2022
-
-Secret Service - 8 Studio Albums (1979-2022) [MP3|320 Kbps] <Electronic, Pop Rock, Euro-Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182726.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Secret Service» (с англ. - «Тайная служба») - одна из наиболее известных музыкальных групп Швеции в жанре популярной музыки в 80-х годах. Более полная информация о группе предложена в ..Список альбомов:
-1979 - 'Oh Susie
-1981 - Ye Si Ca
-1982 - Cutting Corners(   Читать дальше...   )Жанр: Electronic, Pop Rock, Euro-Pop, Synth-popПродолжительность: 04:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32747B6EFD086E59266F7DF4894F03DC5F7BDB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

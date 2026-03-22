@@ -1,3 +1,32 @@
+###  Публикация: 1119754   (805741) от 29.03.2017
+
+Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thanks So For Pushing Record Button [00:04:15]
+02. Deep Inside [00:06:16]
+03. Don't look at him [00:04:32]
+04. Forest Soul [00:05:34](   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B541FD1F308343275FE907325489D01ADCE1E311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010059   (805670) от 23.04.2016
 
 Leo Rojas - Spirit Of The Hawk (2012) [FLAC|Lossless|tracks + .cue] <Panflute, New Age, Folk>
@@ -715,35 +744,6 @@ Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198731   (802711) от 14.01.2018
-
-Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dislodged (4:03)
- 02.  Distant (2:36)
- 03. Absent (2:28)
- 04. Healing (1:58)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFBF0B7039CCF736D8A79E5819FAB0EFA413067
 ```
 
 https://mybot314.ru/tekegram_catalog/

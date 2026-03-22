@@ -1,3 +1,145 @@
+###  Публикация: 741387   (694165) от 20.06.2016
+
+Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat, Rautalanka>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Guitar, Beat, RautalankaПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF414FCD78CF4246A59D487924AB18710EE8BEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027678   (694052) от 20.06.2016
+
+Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture Soundtrack) (1984) (Remastered 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title (02:40)
+02. Terminator Arrival / Reese Chased / Sarah On Motorbike (07:09)
+03. Terminator Gets Guns / Search For Sarah (01:13)
+04. Reese Dreams Of Future War (01:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F8C30A5FAEE09CDAB6B54ACD973506B981C43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221131   (692994) от 25.04.2018
+
+David Osborne - Best of David Osborne: Solo Piano Performances (2018) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen to Your Heart
+02. On the Wings of Love
+03. When I Was Your Man
+04. To Where You Are(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D560EF3C1693AA3DB845E156C4E04E8F8D0CF9D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221154   (692993) от 25.04.2018
+
+George Toward - Red Fantasies - Rhythms of Pure Romance (2018) [MP3|256 Kbps] <Instrumental, Jazz, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Compilation (3:22)
+02. Open Your Heart (3:23)
+03. Slow Seduction (2:55)
+04. Champagne (3:25)(   Читать дальше...   )Жанр: Instrumental, Jazz, Easy ListeningПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD9C9D76DC0573E0F90404A1FE25CCFF4F2C1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027961   (692964) от 21.06.2016
+
+Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vietnam War IV (01:41)
+02. Trials of the Blood Dragon (03:37)
+03. Bullet Proof (01:51)
+04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028206   (692960) от 21.06.2016
 
 Jupiter Panic - Distant Tomorrow (2016) [MP3|320 кб/с] <Electronic, New Age>
@@ -614,149 +756,6 @@ George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288919   (690230) от 14.03.2019
-
-LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690230.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Cowboy's Sweetheart 	2:32
-2 	I Will Always Love You 	4:38
-3 	Blue Moon Of Kentucky 	3:17
-4 	River Of Love 	3:19(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D0C8B896F71EF3B6BD1F0178A8917D488EF2A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288907   (690228) от 14.03.2019
-
-Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Girl Goin’ Nowhere (03:25)
-2. Radioland (03:05)
-3. American Scandal (04:02)
-4. Southern Babylon (04:05)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52655093183FD8E5219EBDA3021F7B53BDBD9984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289028   (690225) от 14.03.2019
-
-Montgomery Gentry - Here's To You (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shotgun Wedding (03:21)
-2. Better Me (03:26)
-3. Needing a Beer (03:44)
-4. What’cha Say We Don’t (03:40)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC778595E97BC036E41EBB4003CCAA2E06F4A9C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289021   (690220) от 14.03.2019
-
-Patty Griffin - Patty Griffin (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690220.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mama's Worried (03:23)
-2. River (05:23)
-3. Where I Come From (04:44)
-4. Hourglass (03:22)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A8F1D4A01213F0E1D55AE954CA457902E6A360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 249652   (690143) от 20.08.2020
-
-VA - Aroma Therapy. Complete 10 CD Collection (2006) [FLAC|Lossless|tracks] <Relax, Sounds Of Nature, Instrumental, Ambient, Chill>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка музыкальных композиций, гармонирующих определенному аромату.
-Воздействие запаха и звука тождественны по результату. Естественно включение в процедуру ароматерапии и специально подобранного музыкального сопровождения, отвечающего вибрациями выбранному аромату. Совместное применение арома и аудио терапии создаст более сильный эффект гармонизации вашего организма (   Читать дальше...   )Жанр: Relax, Sounds Of Nature, Instrumental, Ambient, ChillПродолжительность: 08:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7AFDEB9D4EDE11417394F7BF229AC319F9F3D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

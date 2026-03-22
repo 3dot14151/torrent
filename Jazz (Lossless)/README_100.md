@@ -1,3 +1,180 @@
+###  Публикация: 1531952   (716633) от 18.02.2022
+
+Bill Charlap Trio - Street Of Dreams (2021) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Duke [6:49]
+02. Day Dream [6:16]
+03. You're All the World to Me [4:49]
+04. I'll Know [5:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF674E7C8CA35FC4D5F1FD82AC2E4364DF8AE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130229   (716328) от 01.05.2017
+
+Nicki Parrott - Unforgettable ~The Nat King Cole Songbook (2017) [FLAC|Lossless|image + .cue] <Easy Listening, Smooth Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nicki Parrott (Ники Парротт), ныне всемирно известная контрабасистка, родилась в городе Ньюкасл, Австралия. Начала свое музыкальное обучение на фортепиано в возрасте четырех лет. Она также изучала игру на флейте и продолжала играть на ней всей ее школьные годы. В возрасте 15-и лет, Ники переключила свое внимание на бас, создала группу со своей старшей сестрой Лизой (   Читать дальше...   )01. Walkin' My Baby Back Home (2:57)
+02. Let's Fall In Love (4:50)
+03. The Very Thought Of You (5:17)
+04. Hit That Jive Jack (3:20)(   Читать дальше...   )Жанр: Easy Listening, Smooth Jazz, Vocal JazzПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E62162748B792BB6400AEF13779B67C7091B922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024433   (716215) от 09.06.2016
+
+Masabumi Kikuchi - Black Orpheus (2012) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tokyo Part I [05:53]
+ 02.Tokyo Part II [03:58]
+ 03.Tokyo Part III [05:34]
+ 04.Tokyo Part IV [07:28](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2358137E7BF219478D1F90B47286204980DF9727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024618   (716210) от 09.06.2016
+
+Art Blakey And The Jazz Messengers - In My Prime Vol. 2 (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lift Every Voice And Sing [02:17]
+ 02.Free For All [04:58]
+ 03.Hawkman [09:39]
+ 04.People Who Laugh [06:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB54CCCABBEBB02200CC369406476336ABEF45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024326   (716134) от 09.06.2016
+
+Shirley Bassey - That's What Friends Are For (1993) Re-Recordings [APE|Lossless|image + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's What Friends Are For
+02. I Am What I Am
+03. I (Who Have Nothing)
+04. I Want To Know What Love Is(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADA4A21A4403C3433143A298887BAB230875022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024411   (715947) от 09.06.2016
+
+Tony Levin (King Crimson) & Pete Levin - Levin Brothers (2014) [FLAC|Lossless|image + .cue] <Cool jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bassics (3:12)
+02. Brothers (3:36)
+03. Mysterioso (3:18)
+04. Not So Square Dance (2:50)(   Читать дальше...   )Жанр: Cool jazz, FusionПродолжительность: 00:56:15
+
+Pete Levin: Piano, organ (model:Nord C-1)
+Tony Levin(King Crimson): cello, bass(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32C5BB237DD6E99E27CFE5F029A30474334E50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400846   (715273) от 07.08.2020
 
 Catherine Russell - Alone Together (2019) Dot Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -571,180 +748,6 @@ Nicki Parrott - The Songs Of Four Seasons (2013) Venus Records [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C337868F6D5A2DD246BB1A8E2F2212AA5B11FECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219628   (711981) от 15.04.2018
-
-Ed Jones - For Your Ears Only (2018) Impossible Ark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nomadology [07:36]
-02. Pandoras Box [04:57]
-03. Starbright (for Wayne Shorter) [07:46]
-04. Marielyst [12:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C349092A9E59F431329EA160264384D9F8438CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219626   (711841) от 15.04.2018
-
-Dave Brubeck - His Greatest Hits: Take Five (1990) 1995, Sony Music [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Five [05:26]
-02. I'm In A Dancing Mood [03:00]
-03. In Your Own Sweet Way [04:59]
-04. Trolley Song [03:04](   Читать дальше...   )Жанр: CoolПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A4FAE95E8D0849A1063B8A912346AC891ECE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286576   (711361) от 03.03.2019
-
-Jan Johansson - Spelar Musik Pa Sitt Eget Vis (1964 - 1966) 1995, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm gonna go fishin' [2:49]
-02. Joshua fit the battle of Jericho [3:35]
-03. Django [4:47]
-04. Arap Kapero och Nanda mundani [4:05](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAA67409F1ED5175CD9369F5CF62F8D2A688452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286573   (711355) от 03.03.2019
-
-Jan Johansson - 300.000 (1967, 1968) 1994, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Free Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Visa fran Jarna [4:21]
-02. Kiswahili [6:22]
-03. Willow weep for me [6:56]
-04. Staden mellan broarna [11:18](   Читать дальше...   )Жанр: Hard Bop, Free Jazz, Piano JazzПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E4436B20D5ED2E3AD62644CF835D535938F5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130579   (710828) от 04.05.2017
-
-Actis Dato Quartet - Swingin' Hanoi (2003) Splasc(H) Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perestroika [05:49]
-02. Companero [07:17]
-03. Cocodi [10:05]
-04. Josephine Baker [04:47](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB02875A06292DFEA8BD70A8C2F45278FAF06CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130819   (710824) от 04.05.2017
-
-Jimmy Cobb's Mob - Cobb's Groove (2003) Universal [APE|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cobb's Groove [07:05]
-02. I Miss You, My Love [05:30]
-03. Willow Tree [05:29]
-04. Sweet and Lovely [06:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670D1C714188806CBD21D66DD41937DBAF59FE4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 605995   (994931) от 22.01.2013
+
+Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoreline (Original Mix) (7:04)
+02. Tucano (Original Mix) (7:15)Жанр: Progressive HouseПродолжительность: 00:14:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353259   (992681) от 17.01.2020
+
+The Midnight - The Midnight Remixed 02 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House, Synthwave, Dreamwave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcade Dreams (Timecop1983 Remix) (5:34)
+ 02. Crystalline (Dan Sieg Remix) (6:26)
+ 03. Kids (PROFF Remix) (6:10)
+ 04. Nocturnal (Nox Vahn Remix) (8:14)(   Читать дальше...   )Жанр: Deep House, Progressive House, Synthwave, DreamwaveПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE840FFF2C7CEA3848C1AB488B4D1A858F7D2D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353411   (991814) от 18.01.2020
 
 Gioli & Assia - Night Experience (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House>
@@ -684,63 +740,6 @@ Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:947B24B6624A4FF321088B4175F45C80972607BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358617   (967138) от 09.02.2020
-
-Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paranoia (Original Mix) (5:35)
- 02. Lush Dance (Original Mix) (4:30)
- 03. The Police (Original Mix) (3:58)
- 04. Music Box (Original Mix) (5:38)(   Читать дальше...   )Жанр: Electronic, Deep House, DownbeatПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B073873EB893074FC9AC1918D5BB18CFBFEF2B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977278   (965547) от 21.01.2016
-
-VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cut Up Boys - Shine (a cappella) vs. The Creeps (Get on the Dancefloor) (Vandalism remix) (Booty Luv vs. Freaks) (6:14)
-02. The Cut Up Boys - Let Me Think About It (a cappella) vs. The Creeps (Ida Corr vs. Fedde Le Grand vs. Camille Jones vs. Fedde Le Grand) (5:16)
-03. The Cut Up Boys - Rapture (a cappella) vs. Love on My Mind (feat. Amanda Wilson) (iiO vs. (   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A26BD8878D73EEEC4455610404697A8FEC3545
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1227459   (646928) от 26.05.2018
+
+Alan Pasqua - Twin Bill: Two Piano Music of Bill Evans (2012) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Very Early [7:54]
+02. Nardis [5:21]
+03. Time Remembered [5:33]
+04. Gloria's Step [6:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A65E4CE3519F190108AC1219A981FF8B0DDCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292421   (646921) от 29.03.2019
+
+Dizzy Gillespie - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Algo Bueno (Woody 'n You) [3:02]
+02. Cool Breeze [2:47]
+03. Cubana Be [2:42]
+04. Cubana Bop [3:16](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77241668229A4C9263C0C972AAC78FCAF1BA1036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292419   (646919) от 29.03.2019
+
+Mitsuaki Kishi & Hiro Minowa - Time For Life (2018) Swingbros [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Been a Long Long Time [3:37]
+02. As Time Goes By [8:11]
+03. Just in Time [5:54]
+04. This Time the Dreams on Me [5:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1086DA4EAC4A7278F5EF7EF42F3A1A969924EDA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141822   (646608) от 12.06.2017
+
+Aretha Franklin - The Real... Aretha Franklin (2014) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulville
+02. Nobody Knows The Way I Feel This Morning
+03. Evil Gal Blues
+04. Make Someone Happy(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 03:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D0F03FA7BB1265CE48B04A686C7CBD67E7F6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032359   (646178) от 07.07.2016
+
+Nat Adderley - Live At Memory Lane (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.On My Journey Now [04:40]
+ 02.Fun [06:43]
+ 03.Good Old Summertime [09:50]
+ 04.Lavender Woman [08:17](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2D49CF1E262FDED45E660EBCCF40690D531D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032357   (646177) от 07.07.2016
+
+Denny Zeitlin - Cathexis (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Repeat [03:21]
+ 02.I-Thou [05:58]
+ 03.Stonehenge [05:18]
+ 04.Soon [05:14](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93F67623F68F026D9664CED1F70E9FD8ABCF741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032364   (646171) от 07.07.2016
 
 Darji & Hank Jones - Darji Meets Hank Jones (1982) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -589,186 +763,6 @@ Sonny Stitt - Kaleidoscope (1950 - 1952) 1992, Original Jazz Classics [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B36CC503CEB3F692D3E6E6586FB939034BBCF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292774   (643385) от 31.03.2019
-
-Sonny Clark Trio - The 1960 Time Sessions (2018) 2CD, Tompkins Square [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643385.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Minor Meeting [3:48]
-02. Nica [6:16]
-03. Sonny's Crip [6:17](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994A0F53AC51B042862028B2548E2C588D883675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292776   (643378) от 31.03.2019
-
-Django Reinhardt - 1942 - 1943 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclats De Cuivres [3:04]
-02. Django Rag [2:35]
-03. Dynamisme [2:45]
-04. Tons d'Ebene [2:53](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011B1C0CC3C28C74DE4CB49A94087B67510F0F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227844   (643244) от 28.05.2018
-
-Greg Abate - Straight Ahead (1993) Candid [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Ahead [6:26]
-02. Kelly Blue [7:34]
-03. Denise Marie [7:13]
-04. Nica's Dream [8:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D81E1EBD664F237FE6C690F20F1375B09392FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142435   (643112) от 14.06.2017
-
-Kapok - Flatlands (2012) Kytopia [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [01:54]
-02. Missing Link [05:24]
-03. Up [03:00]
-04. Nausicaa [07:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Modern CreativeПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA203BA1731709DDA461BF00274DB70AD5B3BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142429   (642980) от 14.06.2017
-
-Chick Corea - Rendezvous In New York (2003) 2CD, Stretch [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642980.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Armando's Rhumba (feat. Bobby Mcferrin) [04:59]
-02. Blue Monk (feat. Bobby Mcferrin) [05:35]
-03. Concierto De Aranjuez / Spain (feat. Bobby Mcferrin) [08:15](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 02:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349C1288AC618D4174D4A23E6BDF56607728EEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518201   (642759) от 03.07.2012
-
-Marcus Miller - Renaissance (2012) Victor Entertainment [FLAC|Lossless]<Jazz, Jazz fusion, Rhythm and blues, Rock, Funk, Smooth jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_642759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detroit (5:46)
-02. Redemption (6:10)
-03. February (4:15)
-04. Slippin' Into Darkness (9:17)
-05. Setembro (Brazilian Wedding Song) (6:39)
-06. Jekyll & Hyde (6:31)
-07. Interlude: Nocturnal Mist (1:16)
-08. Revelation (4:47)
-09. Mr. Clean (5:01)
-10. Goree (Go-ray) (5:39)(   Читать дальше...   )Жанр: Jazz, Jazz fusion, Rhythm and blues, Rock, Funk, Smooth jazzПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

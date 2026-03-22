@@ -1,3 +1,177 @@
+###  Публикация: 691073   (561731) от 19.08.2013
+
+Aerosmith - Rock For The Rising Sun (2011/2013) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Draw the Line
+02. Love in an Elevator
+03. Livin' on the Edge
+04. Hangman Jury(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97348087A59F9C241EC2E879293C2D09019DBCA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923955   (560803) от 02.08.2015
+
+Dragonforce - In The Line Of Fire ... Larger Than Live (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съемка проводилась во время выступления группы в 2014 году на фестивале Loud Park festival, который проходил под сводами Saitama Super Arena в Токио.01. Fury Of The Storm
+02. Three Hammers
+03. Tokyo Party*
+04. Black Winter Night(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0CBF9930457EC40CABD492AFCDA2CCE6579E245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924105   (560600) от 02.08.2015
+
+Cliff Richard - Still Reelin' and A-Rockin' (Live at Sydney Opera House) (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Клиффа Ричарда "Still Reelin' and A-Rockin'" прошедший 11 февраля 2013 года в австралийском Sydney Opera House. Сэр Клифф Ричард - британский исполнитель популярной музыки, который одним из первых среди англичан начал исполнять рок-н-ролл. Его называют королём британских чартов по той причине, что он возглавлял таковые 25 раз, а национальный хит-парад (   Читать дальше...   )01. Reelin' and Rockin' (Chuck Berry cover) /My Kinda Life
+02. Dreamin'
+03. Living Doll
+04. Poetry in motion(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4195C461B870A32F73648F3392790645E7D3B7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924392   (558963) от 03.08.2015
+
+The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558963.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПервыЙ концерт всемирного тура по случаю 30-й годовщины основания M.S.G., Nakano Sun Plaza, Токио, 13 января 2010 г. Один из лучших составов M.S.G. 1980-x, партнеры Шенкера по дебютному альбому "The Michael Schenker Group" Гари Барден и Саймон Филипс.01. Welcome Howl
+02. Feels Like A Good Thing
+03. Cry For The Nations
+04. Let Sleeping Dogs Lie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477356BFC5439FB6BD7C7C5DD266F495769780B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924684   (557402) от 04.08.2015
+
+Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557402.jpg" />
+</div>
+
+
+###  Подробнее
+
+После землетресения в 2011году на Фукусиме, Япония. Рок - группа Aerosmith дала ряд концертов в Японии в 2011году, об этом туре Eagle Rock Entertainment выпустил в 2013году фильм - концерт Aerosmith - Rock For The Rising Sun.01. Draw the Line
+02. Love in an Elevator
+03. Livin' on the Edge
+04. Hangman Jury(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97D161FE845994026EDE91F57F7B209A16E966B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153903   (556798) от 28.07.2017
+
+The Who - Live At The Isle Of Wight 2004 Festival (2017) Blu-ray [H.264/1080i ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556798.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2004 году The Who вернулась на фестиваль Isle Of Wight впервые после их легендарного выступления 1970 года. После долгого отсутствия фестиваль был возрожден в 2002 году. Концерты Who's UK в 2004 году были первыми в их родной стране со времени смерти основателя Джона Энтвисла.1. I Can’t Explain
+2. Substitute
+3. Anyway, Anyhow, Anywhere
+4. Who Are Youhide=Производство: Великобритания / Eagle Rock EntertainmentЖанр: RockПродолжительность: 02:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F72C8DDB18599BF432C4996CD454CEC9809F738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236052   (556270) от 15.07.2018
 
 Квартирник на НТВ у Маргулиса. Мгзавреби (07.14.2018) WEBRip [H.264/1080p-LQ]
@@ -538,184 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9C9282B948F026D78909DE44679B52880FE9D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817803   (541333) от 03.09.2014
-
-The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Start a War
-02. Fight Back
-03. UK 82
-04. Chaos is My Life(   Читать дальше...   )Жанр: Street punk/Hardcore-punk/Crossover thrashПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28248BC873D9937C39B8A0C03D11225BA1193A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696312   (540141) от 03.09.2013
-
-Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540141.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aura
-2. MANiCURE
-3. ARTPOP
-4. Jewels & Drugs (Ft. TI Ft. Too $hort Ft. Twista)(   Читать дальше...   )Жанр: Комедия, ток-шоу, музыкаПеревод: ОтсутствуетПродолжительность: 01:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32975DF2A9EE7463093430F2C6A8CBA8F065CA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819298   (535660) от 06.09.2014
-
-Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наикрутейшее выступление легендарных Slayer на фестивале
-Wacken Open Air в 2014 году.01. Hell Awaits
-02. The Antichrist
-03. Mandatory Suicide
-04. Hate Worldwide(   Читать дальше...   )Жанр: Концерт, Thrash metal/Speed metal/Death metalПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8AF17A8514E1BC927997AAA4C4E297F161ABF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926002   (535277) от 09.08.2015
-
-The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535277.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Rolling Stones: Let's Spend the Night Together - оригинальное японское blu-ray издание приуроченное к 30-летнему юбилею североамериканского гастрольного тура Rolling Stones начавшегося в сентябре 1981 года и проходившего в поддержку только что вышедшего альбома Роллингов "Tattoo You", в последствии ставшего в штатах четырежды мультиплатиновым. Фильм (   Читать дальше...   )1. Under My Thumb - (Tempe, Arizona, 13 December 1981 (outdoor stadium show))
-2. Let's Spend the Night Together - (Tempe, 13 December 1981)
-3. Shattered - (Tempe, 13 December 1981)
-4. Neighbours - (Tempe, 13 December 1981)(   Читать дальше...   )Жанр: RockРежиссер: Хэл ЭшбиПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A255957CAA6F375584BB419F7E934AC202ECD114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533082   (534223) от 09.08.2012
-
-The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534223.jpg" />
-</div>
-
-
-###  Подробнее
-
-• «Sex Pistols» — легендарная британская панк-рок группа. В основу этой программы легли 5 концертов, которые прошли с аншлагом в ноябре 2007 года в Лондонской Brixton Academy. Концерты были приурочены 30-летнему юбилею выхода дебютного альбома группы Sex Pistols «Never Mind the Bollocks».color]1. There'll Always Be An England (intro)
-2. Pretty Vacant
-3. Seventeen
-4. No Feelings
-5. New York
-6. Did You No Wrong
-7. Liar
-8. Beside the Seaside
-9. Holidays in the Sun
-10. Submission(   Читать дальше...   )Жанр: Rock, Рunk-rockРежиссер: Жюльен ТемплФормат: BDMVПродолжительность: 01:10:53 + 00:34:06 + 0:23:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311872   (533969) от 03.07.2019
-
-Квартирник НТВ у Маргулиса. Алексей Романов и группа Воскресение (29.06.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533969.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришли Алексей Романов и рок-группа «Воскресение». В этом году коллектив празднует 40-летний юбилей на сцене: своими песнями они создали образ рок-музыканта как вечного странника и борца со злом. Для хозяина «Квартирника» «Воскресение» — не пустой звук, ведь в далеком 1979-м Маргулис был участником группы и играл на бас-гитаре. Музыканты (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC5D6E17868E49C8B5507548867235C07A8BEB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

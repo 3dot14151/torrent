@@ -1,3 +1,261 @@
+###  Публикация: 1803413   (65784) от 25.06.2025
+
+КняZz - Батька Махно (Любэ 35. Всё опять начинается. Трибьют) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Батька Махно (Любэ 35. Всё опять начинается. Трибьют) [00:02:48]Жанр: PopПродолжительность: 00:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1429558B2B60F332FD1EDAADF462A7E80C98B0BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804901   (65545) от 03.07.2025
+
+Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lock, Stock & Two Smoking Barrels [00:03:40]
+02. One Day in Prison [00:03:45]
+03. Who's Your Neighbour? [00:03:45]
+04. Love Me Deadly [00:04:49](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A0011A0F97B98C411B96FA7BC4A222B80FA2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805040   (65505) от 04.07.2025
+
+гРУСтЪ - чучела (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. школа [00:03:40]
+02. братья [00:03:31]
+03. чучела [00:03:52]
+04. аврора [00:03:07](   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D709D2998F0E2503216C6A9F7C27D065316C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805316   (65472) от 05.07.2025
+
+Nosłeep - Trauma (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Blackened Doom, Female Fronted>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trauma I [00:06:45]
+02. Trauma II [00:06:00]
+03. Trauma III [00:05:57]
+04. Trauma IV [00:06:19](   Читать дальше...   )Жанр: Doom Metal, Blackened Doom, Female FrontedПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904A170A067861FDA44F93A8008A03808AA20734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805313   (65453) от 05.07.2025
+
+Bosphorus Night - Heart Of Your World (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 'n' Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart of Your World
+02. Runner
+03. Into the Sky
+04. For Love(   Читать дальше...   )Жанр: Melodic Hard 'n' Heavy MetalПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE90C53049420D994AEC364BE2815FA25783F1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805405   (65434) от 06.07.2025
+
+Rusty Sharks - Long Way to Freedom (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65434.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. - Maniac [00:03:26]
+2. - Psychobilly Town [00:03:22]
+3. - Walking Dead [00:02:01]
+4. - Bored with Your Tattoos [00:03:03](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EA5A3AD954947E4E39DA2BD2FD7AA2ECF89F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807167   (65303) от 17.07.2025
+
+Kerosin - Через тернии к монстрам (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 101 Troubles [00:01:57]
+02. Кружок [00:03:33]
+03. Doggone Life [00:02:12]
+04. Плохо быть мной [00:02:32](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A96256C03DB6AB9D7DB30E6A179B4813805DF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807361   (65207) от 19.07.2025
+
+Игра Миров - Времени река (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Метро [00:05:13]
+02. Времени река [00:04:20]
+03. Лечу [00:06:42]
+04. До последнего боя [00:03:40](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5D988F03E76541AE9CDDB08A09E6B2416AFA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808087   (65043) от 22.07.2025
+
+Cyanide Grenade - Cannibal Era (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychic Driving [00:02:06]
+02. Cannibal Era [00:04:33]
+03. No Place For Me [00:03:34]
+04. Keep Running [00:04:05](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CFAC92ED1DE033EB0D2A6D335DB9847EF59FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808084   (65032) от 22.07.2025
 
 Oleg Stalker - Star Wanderer (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -476,281 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2AF6DF3DF857E14797880EAAF9C8740715DB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559916   (59872) от 13.04.2024
-
-Виктор Зинчук - Формула позитива (2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Potpourri (03:41)
-02. Tico-Tico (04:13)
-03. Bouree (03:39)
-04. Klarinettenmuckl (03:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A440AD845BBD68C29ACB7437DC536EBECCDE353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 263423   (59870) от 13.04.2024
-
-Калевала - Ведьма (2010) [FLAC|Lossless]<Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ведьма (04:43)
-02. Таусень-Рада (03:34)
-03. Воротись Домой (04:53)
-04. Больше Нечего Терять! (04:51)(   Читать дальше...   )Жанр: Pagan Folk MetalПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D88556631086FD2754E67A204C773B6251FAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 262664   (59869) от 13.04.2024
-
-Несчастный Случай - Тоннель в конце света (2010) [FLAC|Lossless]<Рок, Панк, Альтернатива>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Тоннель в конце света
-02.Улица Вавилова
-03.Шла Саша по шоссе
-04.Слезы мужчин(   Читать дальше...   )Жанр: Рок, Панк, АльтернативаПродолжительность: 00:58:43
-
-Дорогие друзья! Вашему вниманию представляется альбом "Тоннель в конце света", плод наших тяжёлых (и весёлых) трудов на протяжении нескольких последних лет. 19-го ноября 2010 года состоялась его официальная презентация в клубе "Арена", и теперь мы, как и обещали, выкладываем его в формате FLAC. Cлушайте на здоровье! Надеемся, вам понравится!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DEC2D679894ED89F86ABCFDD4B5AF33AF3B84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 111757   (59865) от 13.04.2024
-
-Мегаполис - The Best (1998) [APE | Lossless] <Rock / Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59865.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Новое московское сиртаки
-2. Женское сердце
-3. Белка и стрелка
-4. Москвички(   Читать дальше...   )Жанр: Rock / PopПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194AE8050818D4B7FFB38FCF8544D1D3A744487E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204322   (59864) от 13.04.2024
-
-Мегаполис - Супертанго (2010) [FLAC|Lossless]<Русский рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Супертанго
-02. Dark waltz
-03. Мария Египетская
-04. Одиночка
-05. Посвящение Деннису Силку
-06. Ангел
-07. Наступает январь
-08. Один одна
-09. Раны на стекле
-10. Тихий гимнЖанр: Русский рокПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:295EE2B23BE523634726718C442BE01AFEBB4591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405532   (59860) от 13.04.2024
-
-Symphonian - Incarnation Of Reality (2011) [FLAC|Lossless]<Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden (Der ApFel Aus Gold) 08:03
-02. Betrayal 05:39
-03. Last Words 08:07
-04. Path Of A Soul 06:33(   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AF9CFD5F735E72DF2BAC7D9313B4720A9AAEBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285393   (59855) от 13.04.2024
-
-Фактор Страха - Мертвые Сны (2010) [FLAC|Lossless]<Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты просто жил - 04:02
-02. Мертвые сны - 03:32
-03. Жизнь не вечна - 03:53
-04. Поколение - 04:05(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6D89161AD6A367CBB12C3D503B47E77609594D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381188   (59854) от 13.04.2024
-
-Олег Мишин - Бестия (EP) (2011) [APE|Lossless]<Symphonic metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бестия
-02. Содом
-03. Искупление
-04. Между двух огней(   Читать дальше...   )Жанр: Symphonic metalПродолжительность: 21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF1C3217BB682FA0F1D9561099B4452367D687B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360667   (59845) от 13.04.2024
-
-Обе Две / Obe Dve - Знаешь, что я делала (2011) [FLAC|Lossless]<Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гонщики - 2:19
-02. Яблони - 4:29
-03. Выше Всех - 2:22
-04. Море - 2:25
-05. Уведомление - 2:36
-06. Северо-Запад - 2:47
-07. Десантник - 3:11
-08. Улицы - 2:49
-09. Пачка - 3:32
-10.Милый - 3:23(   Читать дальше...)Жанр: Pop-RockПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9663A4876995CDBA853D44D56968D44C7B503051
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1289686   (684341) от 17.03.2019
+
+Reptilian Death - The Dawn Of Consummation And Emergence (2013) [MP3|320 Kbps] <Brutal Death Metal, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PrimEvil (1:46)
+ 02. Inchoate (2:16)
+ 03. Stimulate. Hike. Impel. Tear (3:04)
+ 04. Soaked With The Imperfections Of Puerile Blood (2:32)(   Читать дальше...   )Жанр: Brutal Death Metal, Technical Death MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3614844116F399037EEA3C07FF0D10697FD72A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289741   (684339) от 17.03.2019
+
+Nargaroth - Era of Threnody (2017) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn of Epiphany (8:08)
+ 02. Whither Goest Thou (6:23)
+ 03. Conjunction Underneath the Alpha Weel (7:07)
+ 04. ...as Orphans Drifting in a Desert Night (5:34)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8E6FB3E6790560C9A7150C22448F4B87844797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028961   (684302) от 25.06.2016
+
+Doro - Strong and Proud (2016) Live [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Run (4:10)
+02. Save My Soul (3:37)
+03. Raise Your Fist (3:11)
+04. Fear of the Dark (feat. Blaze Bayley) (6:33)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51F44E0A0432FC2E4B70423D74FCBFF226AB9AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289732   (684232) от 17.03.2019
+
+Limbonic Art - Spectre Abysm (2017) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demonic Resurrection (10:21)
+ 02. Ethereal Traveler (7:06)
+ 03. Omega Doom (7:46)
+ 04. Requiem Sempiternam (2:44)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3343B6100181E07A9D617C6EEBB22F588AC57297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 125768   (682644) от 26.06.2010
 
 Danzig - 12Albums+2Live+EP (1988-2010) [MP3|320 kbps]<Heavy Metal/Hard Rock/Industrial>
@@ -630,130 +746,6 @@ Gojira - Magma (2016) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0992D166BD00B8C01665A45108E76EE8CD48956D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508373   (673169) от 13.06.2012
-
-Kasan - Drown (2012) [MP3|320 кб/с]<Instrumental Post Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drown 01:48
- 02. The Battling Eels Of Antibes 08:57
- 03. An Emerald Dream 10:39
- 04. Mindshelter 11:48
- 05. Hydroman Vs That Sea 09:26
- 06. Float 02:472012Жанр: Instrumental Post SludgeПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED2B3DC02AA4FD193912A0AD67FDFCAE483985C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291284   (672234) от 23.03.2019
-
-Aephanemer - Prokopton (2019) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prokopton
-2. The Sovereign
-3. Dissonance Within
-4. Snowblind(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91181B906218E4F3826318576FE4A799B9FC12B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030784   (672058) от 01.07.2016
-
-Wolf Hoffmann (Accept) - Headbangers Symphony (2016) [MP3|320 Kbps] <Progressive Metal, Heavy Metal, Neo-Classic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scherzo (L. v. Beethoven)
-02. Night On Bald Mountain (M. Mussorgsky)
-03. Je Crois Entendre Encore (G. Bizet)
-04. Double Cello Concerto In G Minor (A. Vivaldi)(   Читать дальше...   )Жанр: Progressive Metal, Heavy Metal, Neo-ClassicПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40D2BBB5A7B22F81E99C4EE6CBEAF45E8834F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510307   (670654) от 14.06.2012
-
-Children of Bodom - Holiday at Lake Bodom: 15 Years of Wasted Youth (2012) Compilation [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hate Crew Deathroll (3:36)
- 02. Shovel Knockout (4:04)
- 03. Hate Me (4:45)
- 04. Eveyrtime I Die (4:01)
- 05. Needled (4:09)
- 06. I'm Shipping Out To Boston (Dropkick Murphy's Cover) (2:50)
- 07. Sixpounder (3:24)
- 08. Warheart (4:01)
- 09. Roundtrip To Hell And Back (3:48)
- 10. Trashed, Lost & Strungout (4:02)(   Читать дальше...   )2012Жанр: Melodic Death MetalПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2C35D1B719DF98CF28B95E9FA0E90B35EA3FAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

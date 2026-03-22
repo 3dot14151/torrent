@@ -1,3 +1,32 @@
+###  Публикация: 1361719   (954126) от 20.02.2020
+
+Ногу Свело! - Хочу Бодаться! (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хочу Бодаться!
+02. Фол
+03. Эротические Сны (feat. 25/17)
+04. Самурай(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5488E9296A63964570709AAEEB9B7E6BB67B71E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981132   (952792) от 31.01.2016
 
 Project NT - Ottobre Nero (2016) [FLAC|Lossless|image + .cue] <Dark Ambient, Experimental, Minimal, Psychedelic>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36CF48B248EBD3C5429B7981CFBA4F824ABD18BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364627   (933688) от 05.03.2020
-
-Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|image + .cue] <Power Metal, Sympho Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я вернусь
-02 - Время потерь
-03 - Лечу за тобой
-04 - Зеркало Судьбы(   Читать дальше...   )Жанр: Power Metal, Sympho Power MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B32C9A8C82196C9F7E89204BB1D21D5FBBFC390
 ```
 
 https://mybot314.ru/tekegram_catalog/

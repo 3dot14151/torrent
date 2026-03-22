@@ -1,3 +1,119 @@
+###  Публикация: 1580846   (328059) от 04.10.2022
+
+Seething Akira - 3 Albums (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternatove Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Monster from Brussels (Instrumental) [00:03:27]
+02. Matching Poles of Magnets (Instrumental) [00:03:01]
+03. Half Empty (Instrumental) [00:03:49]
+04. Backlash (Instrumental) [00:03:31](   Читать дальше...   )Жанр: Alternatove Metal, RapcoreПродолжительность: 4 CD, 02:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999990AC05CDFAA77C4F5A4EA22E48561E972992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581855   (325588) от 07.10.2022
+
+Bush - The Art Of Survival (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Is The Ocean [00:05:12]
+02. Slow Me [00:03:48]
+03. More Than Machines [00:03:21]
+04. May Your Love Be Pure [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0589E4619B0F5CE4BBEB4528A5DA5588311B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843221   (325380) от 21.11.2014
+
+In This Moment - Black Widow (Best Buy Deluxe Edition) (2014) [FLAC|Lossless]<Alt.Metal | Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325380.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Infection
+02. Sex Metal Barbie
+03. Big Bad Wolf
+04. Dirty Pretty(   Читать дальше...   )Тип издания: АльбомЖанр: Alt.Metal | Female VocalПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5172BB727AA955E910DC02A6722C320855F96D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957898   (324959) от 20.11.2015
+
+The Wallflowers - Breach (2000) [FLAC|tracks+.cue]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Letters From The Wasteland
+ 2. Hand Me Down
+ 3. Sleepwalker
+ 4. I've Been Delivered(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0FEA293278E8EB05CFC9CB9ECB7AB5401E41FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582225   (324685) от 08.10.2022
 
 Get The Shot - Merciless Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Thrash Metal>
@@ -622,122 +738,6 @@ Primus - Pork Soda (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9752CAD57729DA2A63D3B3532E8FFD777DE362D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259988   (316786) от 05.11.2018
-
-Primus - Frizzle Fry (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Defy The Laws Of Tradition (6:42)
- 02. Ground Hog's Day (4:58)
- 03. Too Many Puppies (3:58)
- 04. Mr. Knowitall (3:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7275F89C0B819A409BFFA37BC4AE1B753FECA810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259976   (314695) от 06.11.2018
-
-Primus - Brown Album (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Return of Sathington Willoughby (5:05)
- 02. Fisticuffs (4:25)
- 03. Golden Boy (3:06)
- 04. Over the Falls (2:42)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C99878CEF299D21BD41392D907C5802875401D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259975   (314673) от 06.11.2018
-
-Primus - The Desaturating Seven (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Valley (4:43)
- 02. The Seven (3:08)
- 03. The Trek (7:50)
- 04. The Scheme (2:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D960C6294DFF59A34A6588A0B868F21018E622AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583110   (314669) от 13.10.2022
-
-Dagger Threat - Weltschmerz (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue [00:02:36]
-02. Jaded [00:02:53]
-03. Scum Will Rise [00:01:55]
-04. Wither [00:03:47](   Читать дальше...   )Жанр: Nu-Metal, Metalcore, HardcoreПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4889ABF1D19687E76C91E99549B3172F3CE048
 ```
 
 https://mybot314.ru/tekegram_catalog/

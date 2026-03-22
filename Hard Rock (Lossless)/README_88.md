@@ -1,3 +1,177 @@
+###  Публикация: 1347097   (154224) от 22.12.2019
+
+Badhoven - 3 альбома Discography (2001-2013) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2001 - Behind The Masquerade
+2005 - Believe
+2013 - ObsessionЖанр: Melodic Hard RockПродолжительность: 02:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A7E0E48DF996B0E3E6C14F3606C3C63FB6C5EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346994   (154199) от 22.12.2019
+
+Casablanca - 3 альбома Discography (2012-2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Apocalyptic Youth
+2013 - Riding A Black Swan
+2015 - Miscatonic GraffitiЖанр: Melodic Hard Rock/Glam RockПродолжительность: 02:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90EE512B0EE3DF53161D353B2677FB168E29F717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518690   (154135) от 20.12.2021
+
+Lost Circus - Lost Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Shadows
+02. Come To Me
+03. She's A Fire
+04. Ashes In Rain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97EF29EEB3FF3A1EE8B602FCD2530A8E42F9D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347055   (154072) от 22.12.2019
+
+Heartland - 13 альбомов Discography 14CD (1991-2011) [FLAC|Lossless|image + .cue] <Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1991 - Carrie Ann (EP)
+1991 - Fight Fire With Fire (EP)
+1991 - Heartland(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 11:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7AE57668D41FDBB8B910C86D6833E041813F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347079   (154056) от 22.12.2019
+
+Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1990 - Strength Of Heart
+1992 - Gary Hughes
+1998 - In Your Eyes (EP)(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 06:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786524471CEF3543DD932E297A11FECE72DC39CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346758   (153992) от 22.12.2019
+
+Pink Cream 69 - 18 альбомов Discography 20 CD (1989-2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1989 - Pink Cream 69
+1991 - 36° / 140° (EP)
+1991 - 49° / 8° (EP)(   Читать дальше...   )Жанр: Melodic Hard Rock/MetalПродолжительность: 15:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25965B27FDF83B7E721FF87DC646923985FC258E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 452970   (153867) от 22.12.2020
 
 Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossless]<Hard Rock>
@@ -583,179 +757,6 @@ Deep Purple - Machine Head (1972) SACD, 2003 EMI [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB19FF5ED5A2363325919737D9409CD930A0A275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678776   (142572) от 23.11.2023
-
-Midnight Dreams - Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Hard Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oddments [00:05:18]
-02. Last Farewell [00:07:40]
-03. Discharged [00:07:29]
-04. Journey [00:10:50](   Читать дальше...   )Жанр: Psychedelic Hard Rock, Art RockПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738EE9F46F84AF6CB5A1311E575F6B41F3052D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678774   (142260) от 23.11.2023
-
-Joker's IV - Pink World (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:09]
-02. Put Your Trust In Me [00:04:04]
-03. You Got Me Running [00:03:48]
-04. When We Were Kids [00:03:57](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54ECB3544EA525BC8BADEC7813913B016168E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348372   (141849) от 29.12.2019
-
-Rydell & Quick - 2 альбома Discography (2006-2012) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2006 - R.O.C.K.O.H.O.L.I.C
-2012 - R.O.A.D.T.R.I.PЖанр: Melodic Hard RockПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4509E2C93B2F1B4833A26BDA93016BC72022B276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435750   (141196) от 29.12.2020
-
-Sweet - Isolation Boulevard (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141196.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fox on the Run [3:21]
- 2. Still Got the Rock [3:41]
- 3. Action [3:19]
- 4. Love Is Like Oxygen [6:51](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946AED832547A5519DAA0E9847A866E3D8BD7D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520629   (140873) от 29.12.2021
-
-Bad Montana - Crazy Game (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride on Wheels 05:23
-02. Doing Time 04:30
-03. Piano Man 05:31
-04. Broken Promise 04:38(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF66DD95FC24C43B22BB438D1078F1480C0ABDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087500   (140567) от 30.12.2016
-
-Dare - 8 Albums (1988 - 2016) 8CD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home (4:45)
-02. I'll Hear You Pray (4:20)
-03. Strength (4:17)
-04. Every Time We Say Goodbye (4:01)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 06:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7713C7796F193170AA8BB469FE187BDDF79E7071
 ```
 
 https://mybot314.ru/tekegram_catalog/

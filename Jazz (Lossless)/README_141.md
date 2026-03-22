@@ -1,3 +1,177 @@
+###  Публикация: 810422   (583481) от 05.08.2014
+
+Ella Fitzgerald, Count Basie, Joe Williams - One O'clock Jump (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Close for Comfort [03:05]
+02. Smack Dab in the Middle [03:38]
+03. Amazing Love [03:31]
+04. Only Forever [03:37](   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, Big BandПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE533845A1D9C2255F8AE602A150B0AA4DE2E0CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041293   (583463) от 08.08.2016
+
+Don Wilkerson - The Texas Twister (1960) 2001, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Twister [06:33]
+ 02.Morning Coffee [07:53]
+ 03.Idiom [05:22]
+ 04.Jelly Roll [07:45](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA409AFD3392752B697D78FEA3F1B0D7CF0F31DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041009   (583458) от 08.08.2016
+
+Steve Hooks - No More Rock and Roll (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Rock and Roll
+02. Same Old Song
+03. It's Just a Wonderful Song
+04. C-Drive(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDB38745E2C9C96DCD84820721C149FBBCE79E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301940   (583384) от 13.05.2019
+
+Phil Dwyer & Don Thompson - Look For The Silver Lining (2013) Triplet Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Were a Bell [6:18]
+02. Guess I'll Hang My Tears Out to Dry [8:05]
+03. Just You Just Me [6:11]
+04. Autumn Nocturne [6:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56784C3C730FC63A848D2C59B301E80AE13F470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342689   (583257) от 08.08.2016
+
+John Coltrane - Blue Train (2007) 10CD Box Set [APE|Lossless|image + cue]<Jazz, Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_583257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на относительно короткую карьеру (он стал известен широкой публике только в возрасте 33 лет, а умер, не дожив до 41 года), Джон Колтрейн до сих пор является одной из самых известных и противоречивых фигур джазового мира. Он играл в разных, чуть ли не противоположных, стилях и это служило причиной столь же противоположных отзывов критиков о его музыке. Однако (   Читать дальше...   )01. On It (Hope) (9:05)
+02. Polka Dots And Moonbeams (Van Heusen - Blake) (8:40)
+03. Weeja (Hope) (11:10)
+04. Avalon (Jolson - Desylva - Rose) (9:41)(   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 09:57:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553325   (582968) от 25.05.2022
+
+Freddie Hubbard - Red Clay (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Clay [12:12]
+02. Delphina [7:23]
+03. Suite Soux [8:39]
+04. The Intrepid Fox [10:45](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8901479E55CD28EFF970AE9F8B7C11AE551AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553356   (582960) от 25.05.2022
 
 Brad Mehldau - Jacob's Ladder (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Prog Rock>
@@ -569,192 +743,6 @@ George Howard - Personal (1997) MCA Records[FLAC|Lossless|tracks + .cue] <Smooth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A52E71542FCCD3A56CCB148A10941B5B3B092E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920470   (580196) от 22.07.2015
-
-Art Blakey - Jazz Messengers!!!!! & A Jazz Message (1961/1964) /2011, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alamode [06:47]
-02. Invitation [07:29]
-03. Circus [05:14]
-04. You Don't Know What Love Is [07:02](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B717C49BA530A07E5FDAAAF39C56E946E4041D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553804   (580088) от 28.05.2022
-
-Kenny Davern - And The Rhythm Men (1996) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Rhythm Man [8:07]
-02. Out of Nowhere [9:27]
-03. Three Little Words [7:06]
-04. Say It Isn't So [6:19](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DDD2B674067DBBC91C00CCA1B3EE77E81813D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360349   (579868) от 08.07.2011
-
-Joe Sample And The Soul Committee - Did You Feel That? (1994) [FLAC|Lossless]<Jazz, Smooth-jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystery Child    [05:54]
-02. The Sidewinder    [06:00]
-03. Viva De Funk    [05:43]
-04. While It's Good    [04:27]
-05. Brother, Can You Spare Your Car    [04:03]
-06. Dirty Rice    [05:25]
-07. Did You Feel That    [04:45]
-08. The Last Buzz    [07:06]
-09. Give It Here    [04:35]
-10. Just Chillin'    [04:57]Жанр: Jazz, Smooth-jazzПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360409   (579833) от 08.07.2011
-
-Alain Caron - Rhythm'n Jazz (1995) [FLAC|Lossless]<Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579833.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Bump (Caron)  (05:37)
-2. Fat Cat (Caron)  (07:21)
-3. District 6 (Caron)  (05:13)
-4. Slam the Clown (Caron)  (07:37)
-5. Little Miss Match (Caron)  (07:39)
-6. I.C.U. (Caron)  (06:47)
-7. Cherokee Drive (Caron)  (08:29)
-8. Flight of the Bebop Bee (Caron)  (07:01)
-9. Donna Lee (Parker)  (04:12)
-10. Intuitions (Caron)  (06:25)Жанр: Jazz-Rock, FusionПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 197499   (579739) от 22.07.2015
-
-Richard Cheese & Lounge Against The Machine - 9 дисков (2000-2009) [APE,FLAC|Lossless]<Jazz,Lounge,Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_579739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ричард Чиз (Richard Cheese) — американский певец, фронтмен группы «Richard Cheese and Lounge Against the Machine» из Лос-Анжелеса (Калифорния). Настоящее имя Марк Джонатан Дэвис (Mark Jonathan Davis). Группа известна своими шуточными кавер-версиями песен известных поп и рок музыкантов, исполненными в манере, напоминающей стилистику Фрэнка Синатра, Дина Мартина и (   Читать дальше...   )Lounge Against The Machine (2000)
-Tuxicity (2002)
-I'd Like A Virgin (2004)
-Aperitif for Destruction (2005)(   Читать дальше...   )Жанр: Jazz, Lounge, PopПродолжительность: 05:14:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042314   (579687) от 12.08.2016
-
-Dafnis Prieto - Absolute Quintet (2006) Zoho[FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Coolest [03:27]
- 02.Sensaciones [06:15]
- 03.The Stutterer [06:42]
- 04.Afrotango [08:20](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADCFE49917F4CAEE3A4CFD7AC44D5FB4E96C545
 ```
 
 https://mybot314.ru/tekegram_catalog/

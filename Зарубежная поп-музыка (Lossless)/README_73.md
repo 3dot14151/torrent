@@ -1,3 +1,236 @@
+###  Публикация: 1634210   (233658) от 19.05.2023
+
+Kesha (Ke$ha) - Gag Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something To Believe In
+02. Eat The Acid
+03. Living In My Head
+04. Fine Line(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C60AA8F31734C4827D2FD2FEFCFEEDF177E78C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634259   (233516) от 19.05.2023
+
+VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Boy - Forget You (2:27)
+02. Felix Jaehn - Call It Love (2:34)
+03. Glockenbach - YEAH (2:38)
+04. badmómzjay - Auf die Party (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 04:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800EE20958AA090381B6673F883E129D233A40A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634234   (233427) от 20.05.2023
+
+Victoria Anthony - New Disaster (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Disaster [00:03:26]
+02. Can't Hold Back [00:02:50]
+03. Better Boyfriend [00:03:19]
+04. Little Secret [00:02:59](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD0363314C2B9E928FD15D926B82D29449DAAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634604   (233236) от 21.05.2023
+
+Lana Del Rey - Say Yes To Heaven (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say Yes To Heaven
+02. Say Yes To Heaven (Sped Up)Жанр: Alternative PopПродолжительность: 00:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0C069D20E2A7DBB682F7C4F788471685C3F955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645663   (233106) от 10.07.2023
+
+Christopher Romberg - Stanna hos mig! (1992) [FLAC|Lossless|WEB-DL|tracks] <Pop, Schlager, Stage & Screen, Musical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skona manniskor - (Ingemar Olsson) - [02:24]
+02. Mitt sommarlov - (Britt Lindeborg) - [02:50]
+03. Musik ska byggas utav gladje - (Lill Lindfors) - [02:43]
+04. Jag skall mala hela varlden, lilla mamma - (Joss Toje) - [03:02](   Читать дальше...   )Жанр: Pop, Schlager, Stage & Screen, MusicalПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A7D7023F0452F193B9609699FF56CC32303289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643434   (232655) от 01.07.2023
+
+Sam Brown - The A&M Years 1988-1990 (2016) 4 x CD, Compilation, Remastered, Caroline International [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Samanhta Brown (7.10.964) - английская певица и автор песен. Ее родители - Joe Brown и Vicki Brown, к моменту рождения дочери, были уже известными фигурами на британской музыкальной сцене, поэтому, видимо, неизбежным стало то, что Samanhta последовала по их стопам. Первой студийной записью, которая принесла Sam первый гонорар, стали ее подпевки на альбоме In The (   Читать дальше...   )CD1 - Stop!:
+01. Walking Back to Me (3:43)
+02. Your Love Is All (4:09)
+03. Stop! (4:56)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 05:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9F82EC790CE3E88C9F21FF42E8333455B37BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635283   (232465) от 25.05.2023
+
+Tina Turner - Foreign Affair (Deluxe) (1989) 2021, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steamy Windows (2021 Remaster) (4:06)
+02. The Best (2021 Remaster) (5:30)
+03. You Know Who (Is Doing You Know What) (2021 Remaster) (3:48)
+04. Undercover Agent for the Blues (2021 Remaster) (5:20)(   Читать дальше...   )Жанр: PopПродолжительность: CD1: - 00:52:39
+CD2: - 01:26:12
+CD3: - 00:47:25
+CD4: - 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63EBD0D2986D6BCE1E2F9D6E68F73FDFC33B6C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643877   (232340) от 03.07.2023
+
+Marc Fruttero - Miracle (2023) [FLAC|Lossless|tracks] <Pop, Euro Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance With Me Tonight (Extended Version) [00:05:18]
+02. Time On Your Mind (Italo New Generation Long Remix) [00:08:01]
+03. Look In My Heart (Extended Version) [00:07:49]
+04. Love Sign [00:05:05](   Читать дальше...   )Жанр: Pop, Euro DiscoФормат: CD, Album, Limited EditionПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47830CF8827C52D51D3DA1808F5DC500D57463A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646404   (232167) от 14.07.2023
 
 Sko/Torp - Radio Songbook "The Best Of" (1998) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -515,244 +748,6 @@ Sabrina - Erase/Rewind - Official Remix (2008) 2CD [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:735C9C2C44E98CA2E5AEC85342EBC2A2F6B947E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342079   (225984) от 01.12.2019
-
-Stars & Belles - Xmax in Harmony (1995) [FLAC|Lossless|image + .cue] <Acapella, Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa claus is coming to town (2:17)
-02. Have yourself a merry little Christmas (3:14)
-03. Jingle bells (2:32)
-04. Everybody  loves somebody sometime (3:01)(   Читать дальше...   )Жанр: Acapella, Pop, FolkПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818BD7AD47B28A706FE36B7F8B109DAC2A3D7F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965510   (225964) от 14.12.2015
-
-Geri Halliwell - Scream If You Wanna Go Faster (2001) [FLAC|Lossless|tracks + .cue] <Electro, Euro House, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream If You Wanna Go Faster (3:38)
-02. Shake Your Bootie Cutie (4:04)
-03. Calling (4:23)
-04. Feels Like Sex (3:24)(   Читать дальше...   )Жанр: Electro, Euro House, BalladПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C019E2FDD7A05CF7217880D144C69D092918B21C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342343   (225952) от 01.12.2019
-
-Party Poppers - Sing-Along Christmas Party (1997) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Christian Men Rejoice-Here We Come A-Wassailing-I Believe in (2:43)
-02. Rockin' Around the Christmas Tree-Mary Had a Baby-Jingle Bell (4:45)
-03. The Twelve Days of Christmas (3:57)
-04. Hark! Herald Angels Sing-O Come All Ye Faithful; Once in Royal David's (4:39)(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985F33E57FAD40CD675B496025AF9446E2E3A478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587074   (225888) от 09.12.2012
-
-V.A. - Суперхиты дискотеки 90-х - Золотые баллады (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - I Miss You
-02. East 17 - Thunder
-03. Seal - Crazy
-04. Simply Red - Stars
-05. Rialto - Monday Morning
-06. Chris Rea - The Road To Hell (Part II)
-07. Coolio - Gangsta's Paradise
-08. Sarah Brightman - Eden
-09. Shakespears Sister - Stay
-10. East 17 ft. Gabrielle - If You Ever(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424862   (225873) от 18.11.2020
-
-The Beloved - Happiness (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, House, Synthpop, 90s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello (Remastered) (4:19)
- 02. Your Love Takes Me Higher (Remastered) (3:40)
- 03. Time After Time (Remastered) (4:13)
- 04. Don't You Worry (Remastered) (3:50)(   Читать дальше...   )Жанр: Electronic, Pop, House, Synthpop, 90sПродолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C06FE18407C660F9C184BDF6D3D07647478E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342334   (225741) от 01.12.2019
-
-VA - Rock'n'Roll Christmas (Unknown) [FLAC|Lossless|image + .cue] <Pop, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Mr. Christmas - Showaddywaddy (3:38)
-02. O Christmas Tree (Oh Tannenbaum) - Claudja Barry (2:50)
-03. Heidschi Bum Beidschi (Country Version) - Tennessee (3:31)
-04. Santa Claus Is Coming to Town - Pattie LaBelle & The Bluebells (2:20)(   Читать дальше...   )Жанр: Pop, OldiesПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4B28184A18F868CB65627BAA7F841FBE91F15D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342326   (225733) от 01.12.2019
-
-VA - Rock'n'Roll Christmas (2011) [FLAC|Lossless|image + .cue] <Pop, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Bring My Baby Back To Me - Elvis Presley (1:57)
-02. Do They Know It's Christmas - Leonardo (3:10)
-03. Have Yourself A Merry Little Christmas - Rockabilly Allstars (2:56)
-04. Sleigh Ride - The Christmas Connection (3:49)(   Читать дальше...   )Жанр: Pop, OldiesПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C057CBE4818746EAD09BB2FA8A7007931FAF8478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965177   (225574) от 14.12.2015
-
-Mylene Farmer - Cendres De Lune (1987) [FLAC|Lossless|tracks + .cue] <Chanson, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Libertine (3:48)
-02. Au bout de la nuit (4:22)
-03. Vieux bouc (5:37)
-04. Tristana (4:35)(   Читать дальше...   )Жанр: Chanson, Synth-popПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C091FB7318D3AF867070704B9CAE968B96867463
 ```
 
 https://mybot314.ru/tekegram_catalog/

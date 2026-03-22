@@ -1,3 +1,177 @@
+###  Публикация: 1590065   (189475) от 12.11.2022
+
+Ethan Iverson Quartet With Tom Harrell - Common Practice (2017) 2019, ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Love [6:27]
+02. Philadelphia Creamer [6:00]
+03. Wee [5:47]
+04. I Can't Get Started [6:36](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E4A5DB89F89310640C35F7F21EC989ADACAA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589961   (189471) от 12.11.2022
+
+Kenny Barron, Dave Holland, Johnathan Blake - Without Deception (2020) Dare2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porto Alegre [5:20]
+02. Second Thoughts [5:51]
+03. Without Deception [6:35]
+04. Until Then [6:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38801DFBD0D08710B2D054607C4D570DB26F9CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589895   (189450) от 12.11.2022
+
+Brandi Disterheft - Blue Canvas (2016) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dis Here [5:41]
+02. Prelude to the Crippling Thrill [2:20]
+03. Cripping Thrill [4:28]
+04. Beehive [5:28](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6216625ADE5C8BCE6425D0E2F3FC1538D3F41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589984   (189448) от 12.11.2022
+
+Jimi Tenor - Multiversum (2022) [FLAC|Lossless|tracks + .cue] <Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Intro (0:52)
+02. Life Hugger (3:23)
+03. Jazznouveau (4:08)
+04. Uncharted Waters (5:22)(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66093C4D08EB0C34C07AE954F0C8E6AB5F12F58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590064   (189446) от 12.11.2022
+
+Joe "Fingers" Webster & The Swing Fever Big Band - Hooked On Big Bands (1993) K-Tel [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hooked on Birdland [7:32]
+02. In the Mood Medley [6:28]
+03. Hooked on Boogie Woogie [7:10]
+04. C'est Magnifique Medley [9:05](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAE88FEB81DB9D691B4411A96A2237ACFEB8D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589890   (189442) от 12.11.2022
+
+Brandi Disterheft Trio With George Coleman - Surfboard (2020) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surfboard [4:03]
+02. Prelude to Coup de foudre [2:58]
+03. Coup de foudre [3:51]
+04. My Foolish Heart [6:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4EF2E993EEFBD48A49B9830CCE8A14EB87331A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660650   (189426) от 13.09.2023
 
 McCoy Tyner - What's New? (1987) 1998, West Wind [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -571,179 +745,6 @@ Four80East - Gonna Be Alright (2023) [FLAC|Lossless|image + .cue] <Nu Jazz, Acid
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9261892E2FCD4DC1206AB9FB67AF74DCDE1B9AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590907   (187573) от 17.11.2022
-
-Timothee Robert - Quarks (2021) La Pluie Chante [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 36 [6:17]
-02. Le chemin du peril [4:56]
-03. C3m4-6 [4:33]
-04. Maelen Diner [5:51](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D861AFEF157F010833C24AA3131BC9EE5F024B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591103   (187564) от 17.11.2022
-
-Phil Woods & The Little Big Band - Real Life (1991) Chesky Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Life [7:33]
-02. Quill [9:52]
-03. Idols [5:52]
-04. Loose Change [8:45](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFADAC746EB5081790446BBB645EBF28A9445D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590892   (187541) от 17.11.2022
-
-Tony Bennett - Sings For You: 40 All-Time Favorites! (1960, 1962) 2CD, 1993, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187541.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Sings A String Of Harold Arlen:
-01. When the Sun Comes Out [2:43]
-02. Over the Rainbow [4:02]
-03. House of Flowers [3:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B3FE2259505E485BB23F1A701E8BAA02DF7D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591465   (187242) от 18.11.2022
-
-Jimmy Cobb - This I Dig Of You (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This I Dig of You [5:46]
-02. Blood Wolf Moon Blues [6:52]
-03. I'm Getting Sentimental over You [6:39]
-04. My Old Flame [4:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0540CC017D73BD408CD393551281E4AFEBAA7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663081   (187203) от 20.09.2023
-
-Dave Liebman - Live At Smalls (2023) Cellar Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning [14:58]
-02. The Middle [33:03]
-03. The End [24:49]Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D1DC6B66F07EA5D048B6EC14C53A8E80B612BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591642   (186930) от 19.11.2022
-
-Joe Pass - Virtuoso #2 (1976) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giant Steps [3:34]
-02. Five Hundred Miles High [6:21]
-03. Grooveyard [4:46]
-04. Misty [5:25](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762F2BE13BFAD90D1B781BDBECB1F61114E152FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1473679   (1013536) от 30.05.2021
+
+VA - Record Super Chart 29.05.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inna - Flashbacks (2:57)
+02. Tiesto - The Business (2:44)
+03. Nessa Barrett feat. jxdn - la di die (3:15)
+04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D95F2F678528B99CF24318F34850C84D41C749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473992   (1013403) от 31.05.2021
+
+VA - Synergetic Nightclub (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013403.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Folklore & Vacce - Krater
+002. Caox & Chris Fielding - Enemy
+003. Andrew Fields - Secret Place
+004. Maph - Ridin Dirty(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473949   (1013402) от 31.05.2021
 
 VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
@@ -687,64 +745,6 @@ VA - Beatport Disco House: Sound Pack #304 (2021) [MP3|320 Kbps] <Funky, Disco H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:369246D5C5F181AB50F7865E18AAB1281B242C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479337   (1009583) от 24.06.2021
-
-VA - Bassline Massive Project (2021) [MP3|320 Kbps] <Bass, Drum And Bass, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009583.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chisel - Boy
-002. DJ Vantigo - Looking For You
-003. Parallel - Communications
-004. Electronics - Retribution(   Читать дальше...   )Жанр: Bass, Drum And Bass, BasslineПродолжительность: 07:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9132BA6CE813F517F947519D03F98F66E870A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478730   (1009582) от 24.06.2021
-
-VA - Audiowarp, Best Of The Mix (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Hard Trance, Hard Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiowarp - All Around Us (Original Mix) (FOOLS FOREST, 2009)
-02. Audiowarp - 31 Seconds (Original Mix) (MOON UP, 2009)
-03. Audiowarp - Summersonic (Original Mix) (Q-DANCE, 2010)
-04. Audiowarp - Power Of The Music (Original Mix) (BENEFACTOR, 2011)(   Читать дальше...   )Жанр: Hard Trance/TechnoПродолжительность: 02:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065F800B8B7C6F2325A3D1A6855EA2D7EF835CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

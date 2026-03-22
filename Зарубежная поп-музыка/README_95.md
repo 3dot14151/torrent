@@ -1,3 +1,119 @@
+###  Публикация: 1782619   (26038) от 01.03.2025
+
+VA - One Shot '80 (1998) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop, Synth-pop, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Buggles - Video Killed The Radio Star
+02. Kajagoogoo - Too Shy
+03. Haven 17 - Let Me Go
+04. Industry - State Of The Nation(   Читать дальше...   )Жанр: Funk / Soul, Pop, Synth-pop, Ballad, DiscoПродолжительность: 01:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD766F152E0C85C39889B26B00ECCE6287068F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782633   (26036) от 01.03.2025
+
+VA - One Shot '80 Volume 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Propaganda - Duel
+02. Talk Talk - It's My Life
+03. Kissing The Pink - One Step
+04. The Twins - Face To Face, Heart To Heart(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004B8D97476D2B7C2F280E067A98FDFC884CC368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783109   (25719) от 04.03.2025
+
+VA - One Shot '80 Volume 8 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys Town Gang - Can't Take My Eyes Off You
+02. Modern Talking - Cheri Cheri Lady
+03. Imagination - Just An Illusion
+04. Gilbert Montagne' - Just For Tonight(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072BA1A8DA940D70D4C87131C8E58754691DA4A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783064   (25718) от 04.03.2025
+
+VA - 101 Dance Hits (2003) [MP3|320 Kbps] <Progressive House, Trance, House, Big Beat, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Nevins Presents U.K.N.Y. - I'm In Heaven - 03:29
+02. X-Press 2 - Lazy - 03:53
+03. Shakedown - At Night - 03:03
+04. Roger Sanchez - Another Chance - 02:52(   Читать дальше...   )Жанр: Progressive House, Trance, House, Big Beat, DiscoПродолжительность: 05:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E89B83FF43B7BFB33A251CE8E35EB4545ED65D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783302   (25631) от 05.03.2025
 
 VA - One Shot '80 Volume 11 (2001) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
@@ -629,122 +745,6 @@ Lady Gaga - Mayhem (2025) [MP3|320 Kbps] <Pop, Dance-Pop, Art Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:410FA1F4FE59CB60F0D9AB12420D0EC4EB86AF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817779   (2932) от 13.09.2025
-
-Sheena Easton - The Definitive 12" Singles, 1983-1987 (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sheena Easton - Telefone (Long Distance Love Affair)  (Club Mix) [00:06:11]
-02. Sheena Easton - Strut  (Dance Mix) [00:05:55]
-03. Sheena Easton - Sugar Walls  (Dance Mix) [00:07:05]
-04. Sheena Easton - Swear  (Dance Mix) [00:05:34](   Читать дальше...   )Жанр: PopПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED7559670BE97D45B1035C1CE79E7DF80E7E380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817999   (2768) от 14.09.2025
-
-Sophie Ellis-Bextor - Perimenopop (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Relentless Love [4:04]
-02 - Vertigo [3:32]
-03 - Taste [2:51]
-04 - Stay On Me [3:08](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AD3325A65A3160E73232BD2067956C3BFCC174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818906   (1985) от 19.09.2025
-
-Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude [2:36]
-02 - Something Beautiful [4:32]
-03 - End of the World [4:11]
-04 - More to Lose [4:36](   Читать дальше...   )Жанр: PopПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0657D4092AFA431BC5E76162355842119E38A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819321   (1569) от 21.09.2025
-
-Damiano David - FUNNY little FEARS (DREAMS) (2025) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Talk to Me (feat. Tyla, Nile Rodgers) [3:14]
-02 - Cinnamon (feat. Albert Hammond Jr) [2:25]
-03 - Naked [2:38]
-04 - Mysterious Girl [3:22](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202D78541E07D69C3427EEF34B2B07B5723F9176
 ```
 
 https://mybot314.ru/tekegram_catalog/

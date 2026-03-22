@@ -1,3 +1,161 @@
+###  Публикация: 1705466   (113895) от 08.03.2024
+
+Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113895.jpg" />
+</div>
+
+
+###  Подробнее
+
+LOVEBITES to release a greatest hits album with songs selected based on a fan vote. The songs are newly mastered by Mika Jussila at the prestigious Finnvox Studios in Finland and are included on the two CDs. Comes with new song(s). Comes with a Blu-ray with all the music videos.Производство: ЯпонияЖанр: Power metalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A250993885860BC41371DE64210B5DD4970F145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712438   (112180) от 02.04.2024
+
+Lovebites: Daughters Of The Dawn (2019) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live at Mynavi Blitz Akasaka, Tokyo, Japan January 27, 2019.Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E96CA168F9C10E983A345C7C1E9F8D3C74BF0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713512   (111874) от 06.04.2024
+
+Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live at Zepp DiverCity Tokyo, Japan February 21, 2020Производство: ЯпонияЖанр: Heavy Metal, Power MetalАктеры: Asami: Singer, Lead Vocals. Watanabe Miyako: Guitar, Piano, Backing Vocals. Tatematsu Midori: Guitar, Backing Vocals. Haruna: Drums, Backing Vocals. Miho: Bass, Backing Vocals.Продолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35019408864125B8788AC8A329FF07C1BBD5786D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714371   (111732) от 09.04.2024
+
+МузЛофт-подкаст / МузLoft. Сборник (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111732.jpg" />
+</div>
+
+
+###  Подробнее
+
+МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки. Присоединяйся к нам. У нас тепло и уютно.Производство: Россия | Y-GenerationЖанр: ПопУчастники: Карина Кокс, 5sta Family, Доминик Джокер, Павел Артемьев, Гузель Хасанова, Асия, Маша Вебер и Ирина ОртманПродолжительность: ~01:10:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B07314425DFC9DB7C32E8245D2AF4530A6EC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714959   (111628) от 11.04.2024
+
+Музлофт-ТУР / МузLoft. Челябинск (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера! МузЛофт-ТУР. Наташа Краснова - про криминальный район. Женя Францева гроулит Анну Асти.
+Челябинск, как мы узнали из выпуска, не только суровый, но и очень даже музыкальный. Экскурсию по нему проведет Наташа Краснова – известный блогер, стендапер и, конечно же, певица. Познакомимся с Женей Францевой, которая круто гроулит и, естественно, поимпровизируем (   Читать дальше...   )Производство: Россия | Y-GenerationУчастники: Наташа Краснова, Женя ФранцеваПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450A21E8A67DC87C9F6B6B7B886E252A1E1F96EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716500   (111348) от 16.04.2024
+
+Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_111348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во главе с мультиинструменталистами Уином Батлером и Режиной Шассань, Arcade Fire - одна из тех групп, благодаря которым инди-рок стал очень представительным в 2000-х годах. Более двух десятилетий канадская группа находится в пути и отличается потрясающими живыми выступлениями. И этот вечер пятницы (22-е число) на Lollapalooza Brasil не был исключением!
+Треклист: (   Читать дальше...   )Производство: Бразилия / Globoplay, Globo MultishowЖанр: концертная программа, поп, рок, индиАктеры: Эдвин Фарнхэм Батлер III, Реджин Александра Шассань, Ричард Рид Пэрри, Тим Кингсбери, Джереми ГараПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC61D778F82D96C6341330D2445F64656ED883F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717985   (111049) от 22.04.2024
 
 МузЛофт-подкаст / МузLoft. Прохор Шаляпин (2024) WEBRip [H.264/1080p]
@@ -556,204 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 02. Клуб одиноких сердец подполковника Пеппера
 03. Зима
 04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485475   (89683) от 20.04.2012
-
-Григорий Лепс: Научись летать Live (2011) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89683.jpg" />
-</div>
-
-
-###  Подробнее
-
-23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
-02. Клуб одиноких сердец подполковника Пеппера
-03. Зима
-04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482481   (88265) от 13.04.2012
-
-Григорий Лепс: Научись летать Live (2011) [1080p] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88265.jpg" />
-</div>
-
-
-###  Подробнее
-
-23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
-02. Клуб одиноких сердец подполковника Пеппера
-03. Зима
-04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476784   (86673) от 05.04.2012
-
-Жан Мишель Жарр / Jean Michel Jarre - Live Port Hercule, Monaco (2011) HDTVRip [1080p]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный концерт Жана Мишеля Жара (Jean Michel Jarre) в порту Монако в честь свадьбы князя Альберта и Шарлин. Телепередача канала NRJ12.
-
-Треклист:
-01. Jean Michel Jarre - Intro (beginning cutted)
-02. Jean Michel Jarre - Chronologie Part 1
-03. Jean Michel Jarre - Oxygene II
-04. Jean Michel Jarre - Magnetic Fields I
-05. Jean Michel Jarre - Equinoxe V
-06. Jean Michel Jarre - Rendez Vous III - Harpe Laser
-07. Jean Michel Jarre - Magnetic Fields II(   Читать дальше...   )Жанр: ТелепередачаПеревод: ОтсутствуетПродолжительность: 02:04:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477542   (86196) от 03.04.2012
-
-Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Red Hot Chili Peppers на фестивале Rock In Rio 2011.01. Monarchy Of Roses
-02. Can't Stop
-03. Charlie
-04. Otherside
-05. Look Around
-06. Dani California
-07. Under The Bridge
-08. Factory Of Faith
-09. Throw Away Your Television
-10. Pea(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477555   (86175) от 03.04.2012
-
-Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86175.jpg" />
-</div>
-
-
-###  Подробнее
-
-30-го августа, в день выхода новой пластинки RHCP “I’m”With You” музыканты исполнят весь альбом полностью на концерте в Кёльне... Посмотреть прямую трансляцию концерта поклонники могли в кинотеатрах 39 стран мира, в том числе в США, Аргентине, Чили, Бразилии и странах Европы. В Москве трансляция шла в клубе «16 тонн»... Red Hot Chili Peppers была основана в Калифорнии в 1983 году. С тех пор коллектив продал более 60 миллионов копий своих альбомов...01. Monarchy of Roses
-02. Factory of Faith
-03. Brendan's Death Song
-04. Ethiopia
-05. Annie Wants a Baby
-06. Look Around
-07. Frankenstein (Edgar Wiliams cover)
-08. The Adventures Of Rain Dance Maggie
-09. Jam
-10. Did I Let You Know (with Michael Bulger on trumpet)(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: Видеокодек: MPEG-2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476909   (85969) от 02.04.2012
-
-B.B. King: Live (2006) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись представляет собой снятый в течение четырех ночей в собственном клубе короля блюза в Нэшвилле и Мемфисе и Теннесси, группы B.B. King Blues Band, которая выступала вместе с ним во всем мире. Сама природа блюза это импровизация, и B.B. King, король импровизации. Он играет то, что он чувствует, и чувствует, что он играет, и публика в восторге от его игры. В своей 52-летней карьере он сделал свыше 15 тысяч представлений, охватывая 300 концертов в год во всем мире.01. Manhattan Blues (by B.B. King's band)
-02. Two I Shoot (by B.B. King's band)
-03. Why I Sing The Blues
-04. I Need You So
-05. Bad Case Of Love
-06. Blues Man
-07. When Love Comes To Town
-08. All Over Again
-09. Ain't That Just Like A Woman
-10. A Whole Lot Of Loving(   Читать дальше...   )Жанр: BluesПродолжительность: 01:52:43
 
 ## Скачать торент
 ```bash

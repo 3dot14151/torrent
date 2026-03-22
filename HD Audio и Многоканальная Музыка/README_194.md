@@ -1,3 +1,321 @@
+###  Публикация: 1732437   (68261) от 05.04.2025
+
+Frantic Amber - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frantic Amber — метал-группа с женским вокалом, в состав которой входят участники из четырех разных стран (Швеция, Норвегия, Дания и Япония)2015 - Burning Insight
+2019 - Bellatrix
+2025 - Death Becomes HerЖанр: Melodic Death MetalПродолжительность: 02:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3058D7D8DF78CC841FE566549FD4E2792F885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789539   (68253) от 05.04.2025
+
+Nightwish - Dark Passion Play (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Poet and the Pendulum
+02. Bye Bye Beautiful
+03. Amaranth
+04. Cadence of Her Last Breath(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A923C525758C4E7ABFEF868315057A498F9C75AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789795   (68252) от 05.04.2025
+
+Heavylution - The Cycle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Exile _ Foundation, Pt.1 (02:00)
+ 02 - The Plan _ Foundation, Pt.2 (07:44)
+ 03 - Sacrifice _ Foundation, Pt.3 (05:06)
+ 04 - Quest or Burden _ Foundation, Pt.4 (06:06)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71DCBB127CD6DABF6357FE690C94D1F79EA4713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789777   (68249) от 05.04.2025
+
+The Nova Revolution - Tour de force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tour de force (2:44)
+02.  Live It Up (2:04)
+03.  Same Wavelength (2:56)
+04.  Wallflower (2:48)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE945F099B736CCAAD0D0DAD434A04F7087A3C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789773   (68246) от 05.04.2025
+
+Night Intruder - Sick Pretty Thing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sick Pretty Thing (3:15)
+02.  Bucket List Of The Heart (3:48)
+03.  Devil In A Red Dress (3:20)
+04.  Born To Burn (4:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFF13B3CDE8D248344975B3376FB03CA1E7290E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789758   (68242) от 05.04.2025
+
+Night Intruder - Hellbound & Free (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ride Or Burn (3:40)
+02.  Hellbound & Free (3:13)
+03.  Burn It Down (3:57)
+04.  King Of The Broken (3:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77EC7EF497A498C377D5A8C89A5A723535FA15FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789769   (68240) от 05.04.2025
+
+Seth Walker - Why The Worry (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Same Love That Made Me Laugh (4:27)
+02.  Why The Worry (3:42)
+03.  Up On The Mountain (3:15)
+04.  I'm Getting Ready (2:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CEFE437285E4655DD853B0B3F1611087181D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789749   (68233) от 05.04.2025
+
+Mulvey's Medicine - Dopamine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jackson Mathod - Little Sticky (5:21)
+02.  Betty (4:34)
+03.  Jolyn - Third Coffee (4:17)
+04.  Interlude III (2:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736F18485D484B56EC4D2EAEE0FB330EB573A050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789587   (68231) от 05.04.2025
+
+Ne Obliviscaris - Studio Albums (6 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ne Obliviscaris - австралийская метал-группа из Мельбурна, сформированная в апреле 2003 года.2012 - Portal Of I
+2014 - Citadel
+2015 - Hiraeth (EP)
+2015 - Sarabande To Nihil (EP)Жанр: Extreme Progressive MetalПродолжительность: 04:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33948BD0E0D92516A1CA929615ABD7B2802C3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789743   (68230) от 05.04.2025
+
+Alliance - Before Our Eyes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tell Somebody (4:18)
+02.  Nothing Can Make You Change (4:45)
+03.  Too Many People (4:07)
+04.  Face Of Justice (4:22)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40BB463FDA3B5FB0DBB171EE4580BF83763A90C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789745   (68229) от 05.04.2025
+
+Jerome Godboo - Deep Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Somewhere Up Above (3:47)
+02.  Guardian Angel (4:11)
+03.  Vulture Culture (4:25)
+04.  Street Detective (3:03)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722D3011A907E7E28FD1D22F464D21A13B2FB143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789776   (68228) от 05.04.2025
 
 The Devil Makes Three - Spirits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -425,323 +743,6 @@ Bright Light Bright Light - Enjoy Youth (2024) Enjoy More: Deluxe Version, 2025,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80AE7687EC0424F2A6AA14C50FC081B8EFB225AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789495   (68197) от 06.04.2025
-
-Grace VanderWaal - Childstar (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Proud (00:02:32)
-02 - Brand New (00:02:51)
-03 - Homesick (00:02:35)
-04 - What's Left Of Me (00:03:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AB5419F5EB0B25ABE35ED4833F5EC6F14ADB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789747   (68196) от 06.04.2025
-
-Manowar - Defender (1983) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Defender (06:30)
-02 - Gloves Of Metal (05:27)Жанр: Heavy MetalПродолжительность: 00:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D361D6122CCDA8366F8180434C9BFDCC89D6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790059   (68166) от 07.04.2025
-
-Manowar - Into Glory Ride (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warlord
-02. Secret of Steel
-03. Gloves of Metal
-04. Gates of Valhalla(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02F775B466B95E010A29E6106B235F5B197E988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790047   (68144) от 07.04.2025
-
-Fear Factory - Demanufacture (1995) Reissue, 2007, Cargo Records [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68144.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Demanufacture
-A2. Self Bias Resistor
-A3. Zero Signal
-B1. Replica(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1634BEE1E7A644DF8A7A6686DBE07CBB0A70BBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790374   (68120) от 08.04.2025
-
-Dream Theater - Metropolis Pt. 2: Scenes from a Memory (1999) Reissue, 2025, Rhino Records [DSD256|Lossless|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68120.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Regression
-A2 Overture 1928
-A3 Strange Deja Vu
-A4 Through My Words(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C74B60F260D1526D8A489986E9C9D5FFA70DCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790358   (68101) от 08.04.2025
-
-Akolyth - Akolyth (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68101.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. A Work of Ages (09:03)
-A2. The Night, the Fog (09:13)
-B1. What Dwells Between Fractured Worlds (09:20)
-B2. To Become His Doorway (09:21)Жанр: Black MetalПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DFAAF0107925A935B648E889FBF2946B2E1467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790262   (68100) от 08.04.2025
-
-Daylight Dies - Studio Albums (5 releases) (2000-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daylight Dies — метал-группа из Северной Каролины, США, образована в 1996 году.2000 - Idle (EP)
-2002 - No Reply
-2006 - Dismantling Devotion
-2008 - Lost To The LivingЖанр: Melodic Doom/Death MetalПродолжительность: 03:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48ADE40EF46ED9C820660A3636C36B9832B7D96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790340   (68096) от 08.04.2025
-
-Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crow, the Owl and the Dove (Radio Edit)
-02. The Heart Asks Pleasure First (Theme From 'The Piano')
-03. The Crow, the Owl and the Dove (Album Version)
-04. The Crow, the Owl and the Dove (Instrumental)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42C39634DEBE05012EDDE53406DD5E490D8ADF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790524   (68087) от 09.04.2025
-
-Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shudder Before the Beautiful
-02. Weak Fantasy
-03. Élan
-04. Yours Is an Empty Hope(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE29F8B9BA0D9429AA0EF54717194E2D7AE47C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790501   (68082) от 09.04.2025
-
-Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - All Men Play On Ten
-02 - Animals
-03 - Thor (The Power Head)
-04 - Mountains(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9A79AEC20990809E3B4ACD9FA7E0A21645188A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790315   (68077) от 09.04.2025
-
-Behind Crimson Eyes - An Exodus From Eden (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up [00:03:16]
-02. Burn It Down (feat. Lunacy) [00:03:21]
-03. A Place In Hell [00:03:07]
-04. You Can’t Save Me [00:02:57](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EE13026CA52E7F0FB16716092D413AECE9BFF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 363543   (566990) от 15.07.2011
+
+Savage - Don't Cry (Greatest Hits) 2CD (1994) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Don't Cry Tonight (Continental Mix)
+02.Only You (Tech Mix)
+03.Don't Cry Tonight (F.O.S. Noise Vocal)
+04.Don't Cry Tonight (E.U.R.O. Mix)
+05.Don't Cry Tonight (Space Mix)
+06.Don't Cry Tonight (Original Version)
+07.Don't Cry Tonight (Mr. Marvin Shadow Mix)
+08.Don't Cry Tonight (Voice Mix)
+09.Don't Cry Tonight (Grand Mix)
+10.Don't Cry Tonight (F.O.S. Noise Dub)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152685   (565162) от 23.07.2017
 
 Digital Emotion - Best Of (2015) Compilation [FLAC|Lossless|tracks + .cue] <Electro, Hi NRG, Disco, Eurodance>
@@ -719,41 +754,6 @@ RSF - RSF (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Leftfield>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29D44F8EAF75B03DA2568B0600F84AE5FD06427E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536465   (514272) от 18.08.2012
-
-VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [FLAC|Lossless]<Pop, Disco, Retro, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Astley - Never Gonna Give You Up [03:34]
-02. Delegation - Where Is The Love (We Used To Know) [04:18]
-03. OFF - Electrica Salsa [03:34]
-04. Man To Man Meet Parish - Male Stripper [04:06]
-05. Mel & Kim - Showing Out [05:10]
-06. Eddy Huntington - U.S.S.R. [03:26]
-07. Tina Charles - I Love To Love [03:06]
-08. Silver Pozzolli - Pretty Baby (Italo Boot Mix) [01:54]
-09. Albert One - For Your Love (Italo Boot Mix) [01:56]
-10. Solo - Harem (Italo Boot Mix) [00:56](   Читать дальше...   )Жанр: Pop, Disco, Retro, Italo-DiscoПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

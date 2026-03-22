@@ -1,3 +1,160 @@
+###  Публикация: 1290019   (682086) от 18.03.2019
+
+VA - Cr2 Records Presents Miami Underground (2 CD) (2019) [MP3|320 Kbps] <House, Tech House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Roger That (UK) - How Does It Feel (Extended Mix) (07:02)
+02. Piem - You Better (Original Mix) (08:08)
+03. Julie McDermott - Don't Go (Ejeca Remix) (06:22)(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 03:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1860032621BD2149B9F1F5F4DDE1D9729F59B89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289983   (682077) от 18.03.2019
+
+VA - Latin Fit 2019-Latin Hits For Aerobic Exercises and Fitness Activities (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luka J Master; Carlo M - El Numerado (Radio Mix)
+02. The Maximum - La Fuerza (Extended Mix)
+03. Alain Deejay - La Isla (feat. Flores Del Sol)
+04. Luka J Master - Conmigo (feat. Mairon Rodriguez & Xent) (Carlo M Extended)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEDF086105CE94AEA4B7BC14EF481BE11C65C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508081   (681536) от 09.06.2012
+
+VA - Ibiza Summer Vibes: The Sound of The Party Island (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - Sweet Dreams - Avicii Swede Dreams Mix (5:53)
+02. Chris Montana - Music - Original Ibiza Mix (6:22)
+03. Jolly - Knock On Your Heart - Vocal Mix (6:27)
+04. Syke'N'Sugarstarr - I Believe - Idriss Chebak Rework (5:37)
+05. Alesso - Loose It - Ibiza Mix (6:37)
+06. Martin Wright - Can You Feel It - Original Mix (5:52)
+07. Voltaxx - Hold Me Close - Original Mix (5:30)
+08. Jason Chance - Ain't Nobody - Vocal Mix (7:31)
+09. Jochen Pash - Rootz - Original Mix (6:52)
+10. Tim Royko - Everlasting Now - Club Mix (6:44)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE51A09D4AE954B5A91FEA7B4D7A0FDA68A99488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508079   (681535) от 09.06.2012
+
+VA - Ibiza Miami 2012 (Very Best Of) (08.06.2012) (2012) [MP3|320 кб/с]<Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dancing Machine - Mazo - Djos's Davis & Cyber Seb Radio Edit (3:27)
+02. Alex Oshean - Jump - Djs from Mars Radio Edit (3:28)
+03. Matt Myer - Rock On - DJ Sign Remix (6:33)
+04. Joshua Grey - Naked in the Rain - King Richard, Etienne Ozborne Mix (6:50)
+05. Vybrate - Getting High - Radio Edit (3:07)
+06. Agent Greg - Body & Soul (7:36)
+07. The Chris Montana Project - Deep Down (6:55)
+08. Felix Wellcom - Talk to Me - Radio Edit (3:12)
+09. Jim X Prods - Renegade Master (5:47)
+10. South Men - The Cell - Radio Edit (3:59)(   Читать дальше...   )2012Жанр: Club HouseПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE43BD7E8BE0121CC9A2825DF6D8B2EDD74850C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135554   (681303) от 19.05.2017
+
+VA - Can You Feel The Stretching? (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Topmodel - Within 02:56
+02. Tempodata - Gems 02:56
+03. Tabish Green - Patch 03:03
+04. Tad Beef - Disclosed 03:03(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F56D6BA46FFBE3902238407C6CC19C3021A54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135307   (681295) от 19.05.2017
 
 VA - Intimacy, Vol. 04 (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -606,151 +763,6 @@ VA - The Sweetest Taboo Vol.1 (Sexy Deep-House Candies) (2019) [MP3|320 Kbps] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A57871B608F1B6C1BD45A39596F15582370684C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223513   (673305) от 05.05.2018
-
-VA - Club Sounds Vol.85 (2018) [MP3|320 Kbps] <Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rudimental Feat. Jess Glynne, Macklemore & Dan Caplen - These Days (Ajr Remix)
-02. Kygo & Miguel - Remind Me To Forget
-03. Felix Jaehn Feat. Marc E. Bassy & Gucci Mane - Cool
-04. The Chainsmokers - Everybody Hates Me(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: Dance, Club
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB95FC4E39F59F3403D74297BDCDD7A1171D334A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136468   (673246) от 23.05.2017
-
-VA - Scarpa Mykonos 2017  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregor V feat. Nina R - With My Soul 04:58
-02. Petros Odin - Sanity (feat Antony Lazos - Sax & Lovers mix) 06:23
-03. V-Sag - Apnoea 06:16
-04. DSF, Dino MFU - The Way I Loved You 05:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883DD7780D8B691D9EDC027FD7DDA5054D1B6D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136485   (673236) от 23.05.2017
-
-VA - Ibiza Opening 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Butler – Avit (Kamil Crush Remix) 06:26
-02. Aaren San – Garuda (Original Mix) 06:50
-03. Elan Myles – Wonderland (Original Mix) 07:11
-04. Javi Garcia – Hot Night In The Beach (Tony Flex Remix) 07:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FE8F8D56CAC79FC4A66B205AAD4890280A9EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136569   (673234) от 23.05.2017
-
-Danger - July 2013 (2014) EP [MP3|320 Kbps] <Electronic, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1:09 (5:12)
-02. 1:13 (3:48)
-03. 1:30 (3:40)
-04. 1:42 (4:53)Жанр: Electronic, HouseПродолжительность: 00:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53F8F34C3E16174E6E6D023FB90710C4E9B91F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128626   (673121) от 23.05.2017
-
-Danger - 09/14 2007 (2007) EP [MP3|320 Kbps] <Electronic, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11h30 (3:40)
-02. 11h30 (DatA Remix) (4:32)
-03. 14h54 (4:51)
-04. 19h11 (5:55)Жанр: Electronic, HouseПродолжительность: 00:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E31C0A9C6EB32BAE615A6CDF0D393CDF7C59D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

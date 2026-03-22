@@ -1,3 +1,119 @@
+###  Публикация: 1233000   (593991) от 28.06.2018
+
+VA - Acoustic Summer (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanis Morissette - You Learn (Acoustic Version)
+02. Baden Powell - Berimbau
+03. Terrorvision - Psycho Killer (Acoustic Version)
+04. The Baseballs - Hot N Cold (Acoustic Version)(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 01:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174A4BABA2F2802646559658CC1C57DEF2450DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548962   (593964) от 06.05.2022
+
+VA - Mastermix Jet Boot Jack Remixes 2: Edits (2022) [MP3|320 Kbps] <Dance, New Wave, Funk, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clash - Rock The Casbah (Jet Boot Jack Remix - Edit)
+02. Corona - The Rhythm Of The Night (Jet Boot Jack Remix - Edit)
+03. Curiosity Killed The Cat - Misfit (Breakdance On The Street) (Jet Boot Jack Remix - Edit)
+04. Doobie Brothers - Long Train Runnin' (Jet Boot Jack Remix - Edit)(   Читать дальше...   )Жанр: Dance, New Wave, Funk, SynthpopПродолжительность: 01:09:01 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D606AD87ECD77D452569ABE1086560775D36D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548963   (593958) от 06.05.2022
+
+VA - Mastermix Jet Boot Jack Remixes 2: Extended (2022) [MP3|320 Kbps] <Dance, New Wave, Funk, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clash - Rock The Casbah (Jet Boot Jack Remix - Extended)
+02. Corona - The Rhythm Of The Night (Jet Boot Jack Remix - Extended)
+03. Curiosity Killed The Cat - Misfit (Breakdance On The Street) (Jet Boot Jack Remix - Extended)
+04. Doobie Brothers - Long Train Runnin' (Jet Boot Jack Remix - Extended)(   Читать дальше...   )Жанр: Dance, New Wave, Funk, SynthpopПродолжительность: 01:45:38 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90F2E288F5A078803F492B45C63A5DC5B9DBC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233031   (593943) от 28.06.2018
+
+Johnny Wakelin - Reggae, Soul And Rock'N'Roll (1976) LP [MP3|320 Kbps] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reggae, Soul And Rock'n'roll (3:17)
+02. Cream Puff (2:22)
+03. In Zaire (3:18)
+04. Me I'm A Capricorn (3:34)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A905BDBB78180FB53579273F3F13F5FDC63B6075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233080   (592997) от 30.06.2018
 
 VA - Bravo Hits Lato 2018 (2CD) (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -629,122 +745,6 @@ R5 - Sometime Last Night (2015) [MP3|320 кб/с]<Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D190D278A0407F0D75397BEDEC9812E0F88F84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918180   (587993) от 14.07.2015
-
-Life In Film - Here It Comes (2015) Deluxe Version [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alleyway
-02. Set It Off
-03. Are You Sure?
-04. Lose Control(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0239846A9DF7968B5E4E56F766E70416306617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918249   (587938) от 14.07.2015
-
-VA - Women’s Stories (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sade – Smooth Operator
-02. Annie Lennox – Why
-03. Beverly Craven – Promise Me
-04. Celine Dion – My Heart Will Go On(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FC6EDC1B4229AC59193BD4DF0665BBF52257D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552587   (586749) от 21.05.2022
-
-VA - Discotech & About Nu Disco (2022) [MP3|320 Kbps] <Nu Disco, Dance, Deep House, Electronica>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTC, Luke Truth, Carrera - Dance Through The Storm (Original Mix)
-02. Gillies - What About Luv (Original Mix)
-03. Moe Turk - Thinking Of You (Original Mix)
-04. Ram J - Indie, 606 (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Dance, Deep House, ElectronicaПродолжительность: 02:28:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1F593550DCB9DDCB134138E63F36CE81865796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040531   (586481) от 05.08.2016
-
-Black Jack - 3 Albums (1979-1982) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586481.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Black Jack" - созданная в Германии "Funk-Disco" группа. Основатель - George Liszt.Список альбомов:
-1979 - Hot Passion
-1980 - Neon Lover
-1982 - White BusinessЖанр: Electronic, Disco, Synth-pop, Pop-RockПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F45669094D9D31CD6FAB933660DBC00CAD7050
 ```
 
 https://mybot314.ru/tekegram_catalog/

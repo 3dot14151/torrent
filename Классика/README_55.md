@@ -1,3 +1,119 @@
+###  Публикация: 1800255   (15835) от 02.06.2025
+
+Il Divo - Siempre (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Classical Crossover, Pop>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nights in White Satin (Notte di Luce)    [0:04:18.10]
+02. Caruso    [0:03:56.52]
+03. Without You (Desde el Dia Que Te Fuiste)    [0:03:51.25]
+04. Come Primavera    [0:03:50.55](   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB371E7EECD5027599A5103902D57A6B4C476AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802316   (14454) от 16.06.2025
+
+VA - The Best Classical Music of All Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Sergey Bryukhno - Sonnet in C Major (1:25)
+04. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryukhno) (4:38)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D834159F5C61C5082646C7BAE21420280108F761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802906   (13975) от 20.06.2025
+
+VA - Ultimate Classical (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonard Slatkin - Le Carnaval des Animaux, R. 125 XIII. Le cygne (Arr. Chris Hazell) (3:18)
+02. André Previn - Swan Lake, Op. 20, Act II No. 10, Scene. Moderato (2:47)
+03. Alex Briger - Suite in D Minor, HWV 437 III. Sarabande (3:26)
+04. Martha Argerich - Piano Sonata No. 16 in C Major, K. 545 I. Allegro (4:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23AF159749A7295F9689C13E2796E95EA1026FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805279   (12426) от 05.07.2025
+
+VA - Classical Music Golden Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - 3 Gymnopédies No. 1, Lent et douloureux (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)
+04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1494993B7E5051742F64A65DF4164F7ED9533BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805829   (12017) от 09.07.2025
 
 VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical>

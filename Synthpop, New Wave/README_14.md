@@ -1,3 +1,32 @@
+###  Публикация: 1771426   (71876) от 06.01.2025
+
+VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amandi - Space Hunter (5:33)
+02. Digital Galaxy - Wind Of Phaeton (5:33)
+03. Laserlight feat. NeoSpace - Flying To The Stars (6:09)
+04. Ray Orion - Synapse (6:05)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8398D1FD5E70B415A62CC4179B8CC8A833825F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772932   (71760) от 12.01.2025
 
 Cosmic Ally - Twin Sun (2005) [MP3|320 Kbps] <Synthpop>
@@ -716,35 +745,6 @@ Yuri Sosnin - New Times (2024) [MP3|320 Kbps] <Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA9C473D82BF3AB974792BA32ECFE656D5B49E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768638   (33031) от 25.12.2024
-
-Yuri Sosnin - Travel into Space (2024) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travel into Space (4:08)
-02. Amazing Space (4:52)
-03. Music of New Vibrations (4:09)
-04. Infinite Space (4:22)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9635FF40EE8A2D95B7F361BC1F988C645F08DD51
 ```
 
 https://mybot314.ru/tekegram_catalog/

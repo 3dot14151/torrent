@@ -1,3 +1,32 @@
+###  Публикация: 1312045   (536234) от 02.07.2019
+
+Братья Грим - Необитаемый остров (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лелею (4:43)
+ 02. Ближе (4:36)
+ 03. Робинзон (4:28)
+ 04. По дороге домой (3:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540ECA4E931F5E7B586509EA740A2D5D29FBC357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312050   (536093) от 02.07.2019
 
 Мот, Zivert - Паруса (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:138CE1832434D326ED819B5F4267C22677E7DB5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244411   (482024) от 01.09.2018
-
-Вячеслав Малежик - Альбом (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вчерашние Дети
-02. Эхо Любви
-03. Утки Крякали
-04. Конотоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E890F6704209D5C9C52BA7BEA899EDFDBEF0283B
 ```
 
 https://mybot314.ru/tekegram_catalog/

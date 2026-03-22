@@ -1,3 +1,32 @@
+###  Публикация: 870359   (886308) от 18.02.2015
+
+Ocean Of Sin - Lie Goes To Hell (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lie Goes To Hell
+02. Fare You Well!
+03. Remains Of Tears
+04. Deadly Bane(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75BDF5B0CB59C61AC5296AF16F0403B6EC556D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995149   (886176) от 10.03.2016
 
 Killswitch Engage - Incarnate (2016) Deluxe Edition [MP3|320 кб/с] <Melodic Metalcore>
@@ -707,35 +736,6 @@ Litterbox Massacre - 2 Album/2 Singles (2019-2020) [MP3|320 Kbps] <Slamming Deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A77C388BCA8B6C7E5E2A507385F08B1999CC62CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374235   (874711) от 09.04.2020
-
-I Miss My Death - Mysto (2020) [MP3|320 Kbps] <Gothic Sympho Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спогад
-02. На Чорних Схилах
-03. Господар
-04. Голоси Сіють Істину(   Читать дальше...   )Жанр: Gothic Sympho Doom MetalПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDB857CA92AF08ED85E301183AF6FEDD7697781
 ```
 
 https://mybot314.ru/tekegram_catalog/

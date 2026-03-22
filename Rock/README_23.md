@@ -1,3 +1,32 @@
+###  Публикация: 1389170   (784492) от 10.06.2020
+
+Mary Magdelena and the Crimes of Passion - Set the Controls - A Unique Tribute to Pink Floyd (2014) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak To Me / Breathe
+02. On the Run
+03. Time
+04. The Great Gig In the Sky(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD5D4CEFC1FEC49252EE9AFEA7FF5410C38156D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389441   (784283) от 11.06.2020
 
 Revolving Door - City of Darkness (2020) [MP3|320 Kbps] <Rock>
@@ -724,41 +753,6 @@ Shocking Blue - 6 Japan Remastered Albums (1968-1984) [MP3|320 kbps]<Classic Roc
 06 | White Rabbit | 02:38
 07 | Venus | 03:45
 08 | Hot Sand | 04:02(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200591   (781151) от 14.05.2010
-
-Shocking Blue - Venus (3 Albums) (1990) [MP3|320 kbps]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 1990Жанр: Classic RockПродолжительность: 01:10:52
-
-01 | Out Of SIght, Out of Mind  | 02:43
-02 | Send Me A Postcard  | 02:40
-03 | Long Lonesome Road | 02:51
-04 | Pickin' Tomatoes | 03:20
-05 | Venus | 03:05
-06 | Hot Sand | 02:40
-07 | Mighty Joe | 03:13
-08 | Shocking You | 03:05(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,119 @@
+###  Публикация: 1577277   (357162) от 18.09.2022
+
+Starcrawler - 3 Albums, 1 Single (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357162.jpg" />
+</div>
+
+
+###  Подробнее
+
+2018 - Starcrawler
+2019 - Devour You
+2022 - If You're Gonna Be Dumb, You Gotta Be Tough (From "Jackass 4.5") Single
+2022 - She SaidЖанр: Alternative RockПродолжительность: 01:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F122DAB9CCBD51B2EAD0EAE6DADE6061D2AB8BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256382   (357051) от 21.10.2018
+
+Carpathian - Nothing To Lose (2006) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Of The 1980's (2:18)
+ 02. Drop It Like It's Hot (2:05)
+ 03. Who The Fuck Taught You Snaps? (2:31)
+ 04. Six Months (2:26)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411E56CC4BD1866A6173E5403C34810441CFFD37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256403   (357049) от 21.10.2018
+
+Carpathian - Isolation (2008) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isolation (1:43)
+ 02. Cursed (3:03)
+ 03. Spirals (2:00)
+ 05. The Cold Front (2:58)(   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D318D19CCA54112AA582C210B53E17774B0F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577323   (357036) от 18.09.2022
+
+The Black Angels - Wilderness of Mirrors (2022) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without a Trace (4:07)
+02. History of the Future (3:45)
+03. Empires Falling (3:31)
+04. El Jardín (3:45)(   Читать дальше...   )Жанр: Alternative Rock, Psychedelic RockПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:909EC80C639AFE2D9BC86C93C16E7E20B0F3B775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071563   (356834) от 11.11.2016
 
 Billy Idol - Essential (2011) Compilation [FLAC|Lossless|tracks + .cue] <Punk-Rock>
@@ -627,122 +743,6 @@ The Rasmus - 1 Single, 1 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E24EFACB0E5EA9288BAB115A5134663CD0BAF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578034   (347747) от 22.09.2022
-
-No Devotion - 2 Albums, 1 EP (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Punk, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break [00:04:17]
-02. Permanent Sunlight [00:04:36]
-03. Eyeshadow [00:03:50]
-04. Why Can't I Be with You [00:04:00](   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, IndieПродолжительность: 3 CD, 01:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFB783448E0AD67D8AE9716338235A5278E0817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578307   (345834) от 23.09.2022
-
-Weezer - 3 EP (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lawn Chair [00:02:04]
-02. Records [00:03:28]
-03. Blue Like Jazz [00:03:12]
-04. The Opposite Of Me [00:03:30](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 3 CD, 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C4DDD207043D43CDFBA15BC9E21FE7A4B569E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953630   (344511) от 06.11.2015
-
-Fish - Acoustic Session (1994) [FLAC|Lossless]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky (04:27) (Dick/Boult/Simmonds)
-02. Internal Exile (04:33) (Dick/Boult/Simmonds)
-03. Kayleigh (04:16) (Dick/Rothery/Kelly/Mosley/Trewavas)
-04. Fortunes Of War (06:11) (Dick/Cassidy/Boult)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC3B85A5B601DF232B1DA443B602B11CF11798A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257751   (343577) от 27.10.2018
-
-Yurcash (Юркеш) - 2 альбома (2006-2007) Дискография [APE|Lossless|image + .cue] <Панк-рок, Ска-панк, Фолк-панк>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343577.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. S..O..S. (3:42)
-2. Бурки чи бутінки?! (3:08)
-3. Патріот (3:04)
-4. Не пара (1:16)(   Читать дальше...   )Жанр: Панк-рок, Ска-панк, Фолк-панкПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADA81EC87A977C2470D905B21E879C014CF5A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

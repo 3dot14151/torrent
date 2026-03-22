@@ -1,3 +1,234 @@
+###  Публикация: 1849804   (1053571) от 24.01.2026
+
+Franck Pourcel And His Orchestra - This Is Pourcel. 14 Tracks From His Fabulous  Full-Price Albums (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Theme, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053571.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dancing In The Sun (Un Rayo Del Sol)
+A2 A Man Without Love
+A3 Love At First Sight (Je T'aime Moi Non Plus)
+A4 Abacachi(   Читать дальше...   )Жанр: Soundtrack, Theme, Easy ListeningПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E2EB7C07B3A7AE5F3CDB5ABC19AE915918628C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849484   (1053468) от 23.01.2026
+
+Serenity In Murder - Studio Albums (5 releases) (2011-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serenity In Murder - японская метал-группа, образованная в 2009 году.2011 - The First Frisson Of The World
+2015 - The Highest Of Dystopia
+2017 - The Eclipse
+2021 - RebornЖанр: Symphonic/Melodic Black/Death MetalПродолжительность: 03:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42CA6C09E62BAC12AAE2907D3C5C4D6FE69B9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849288   (1053389) от 22.01.2026
+
+Orpheus Omega - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orpheus Omega - австралийская метал-группа из Мельбурна, штат Виктория. Основана в 2007 году.2009 - So It Begins... (EP)
+2011 - Bleed The Way
+2013 - ResIllusion
+2015 - Partum Vita MortemЖанр: Melodic Death MetalПродолжительность: 04:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7816492845F92D3F8C883996EACF737A75AAFD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849143   (1053218) от 21.01.2026
+
+Marianas Rest - Studio Albums (5 releases) (2016-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marianas Rest - метал-группа из города Котка, Финляндия, основана в 2013 году.2016 - Horror Vacui
+2019 - Ruins
+2021 - Fata Morgana
+2023 - AuerЖанр: Melodic Doom/Death MetalПродолжительность: 04:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FF6E73649C84AF8530CBDD1BF6A328FEA3694C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848974   (1053180) от 20.01.2026
+
+Deadlock - Studio Albums (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadlock - немецкая метал-группа из Шварценфельда, Бавария, основана в 1997 году.2000 - I'll Wake You, When Spring Awakes (EP)
+2002 - The Arrival
+2005 - Earth.RevoltЖанр: Melodic Death/Groove MetalПродолжительность: 08:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12AACE037EC6CE33DBA11740FE921C0BD82FF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849002   (1053149) от 20.01.2026
+
+Pink Floyd - Animals (2016) Reissue, Remastered, Records 1977 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053149.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Pigs On The Wing (Part One)
+A2 Dogs
+B1 Pigs (Three Different Ones)
+B2 Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Prog RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304FB3254AA568F969537BC00D26F18CEA4B254B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848729   (1052908) от 18.01.2026
+
+The Musicmakers - Party Sing-Along - 20 All Time Greats (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052908.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 For Me And My Gal
+A2 Shine On Harvest Moon
+A3 By The Light Of The Silvery Moon
+A4 The Yellow Rose Of Texas(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF191AEEF168D6CD3F25ACFEACEC26034A7DAB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848629   (1052907) от 18.01.2026
+
+Mario Lanza - Mario Lanza Sings Caruso  Favorites (1960) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Light Music>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052907.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vieni Sul Mar
+A2 Senza Nisciuno
+A3 Musica Probita
+A4 Vaghissima Sembianza(   Читать дальше...   )Жанр: Classical, Light MusicПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0086FC9B535DD7B2ADD5FCB8C19F5145030CD0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848620   (1052906) от 18.01.2026
 
 Gene Pitney - The Many Sides Of Gene Pitney (1962) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Rock & Roll>
@@ -504,238 +735,6 @@ End of Aeon - финская метал-группа, участники кот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C1C3607B2C5BC7F0B53B9EEE2BAA777E8BF4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845291   (1050570) от 30.12.2025
-
-Kaunis Kuolematon - Studio Albums (5 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaunis Kuolematon - метал-группа из Финляндии, образованная в 2012 году.2014 - Kylma kaunis maailma
-2017 - Vapaus
-2020 - Syttykoon Toinen Aurinko
-2023 - Mielenvalta(   Читать дальше...   )Жанр: Melodic Doom/Death MetalПродолжительность: 04:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDA80B9E86F4B9D53C56471ECB828D1554A44EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844998   (1050367) от 29.12.2025
-
-Bloodbath - Studio Albums (6 releases) (2002-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodbath — шведская дэт-метал-супергруппа, объединила в себе множество известных и авторитетных музыкантов шведской метал-сцены, тем не менее, являющаяся постоянно действующей метал-формацией, несмотря на то, что у всех её участников уже есть свои группы. Имеет свой характерный жёсткий, но мелодичный саунд с мужским гроулингом, звучание которого отличается на альбомах, (   Читать дальше...   )2002 - Resurrection Through Carnage
-2004 - Nightmares Made Flesh
-2008 - The Fathomless Mastery
-2014 - Grand Morbid FuneralЖанр: Death MetalПродолжительность: 04:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC42EC026855F347DBC2F135E9EBE88F213CA2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844626   (1050302) от 27.12.2025
-
-Carpenters - The Singles 1969-1973 (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050302.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 We've Only Just Begun
-A2 Top Of The World
-A3 Ticket To Ride
-A4 Superstar(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AF8A127EF27546203157A14F4F1BA87BCD3ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844615   (1050301) от 27.12.2025
-
-ABBA - The Visitors (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050301.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Visitors
-A2 Head Over Heels
-A3 When All Is Said And Done
-A4 Soldiers(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91E3FB510BF65A0C52FE99B98CFC697FDD39927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844286   (1049949) от 26.12.2025
-
-Dreamscape - Studio Albums (5 releases) (1997-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamscape - прогрессив-метал группа из Мюнхена (Бавария, Германия), образованная в 1986 году.1997 - Trance-Like State
-1999 -  Very
-2004 - End of Silence
-2007 - 5th SeasonЖанр: Progressive MetalПродолжительность: 05:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E3CCE75A97E5B4952BB65ED267843CBCAFFE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844277   (1049827) от 25.12.2025
-
-Dreamshade - Studio Albums (5 releases) (2008-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamshade - группа была образована в 2006 году в Лугано, Швейцария. С момента своего создания они никогда не были обычной метал-группой. Их сочетание мелодичности, тяжести и воодушевляющих текстов привлекло внимание современной рок-, метал- и хардкор-сцены.2008 - To The Edge Of Reality
-2011 - What Silence Hides
-2013 - The Gift Of Life
-2016 - VibrantЖанр: Melodic Death Metal, MetalcoreПродолжительность: 03:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7624C1DB80FA39630AA2E41B948FDD0EBFE2C8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843988   (1049800) от 23.12.2025
-
-ABBA - The Best Of ABBA 1972-1981 (1982) 5LP Box Set [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Record 1
-A1 Waterloo
-A2 Voulez-Vous
-A3 Tropical Loveland(   Читать дальше...   )Жанр: EuropopПродолжительность: 04:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81C9135311B9E0D07673FAB4B2608C002284F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843977   (1049799) от 23.12.2025
-
-Orange Goblin - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orange Goblin — британская хэви-метал/стоунер-рок группа, основанная в 1995 году в Лондоне.1997 - Frequencies From Planet Ten
-1998 - Time Travelling Blues
-2000 - The Big Black
-2002 - Coup De GraceЖанр: Stoner MetalПродолжительность: 08:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9C4A014E18603E0FC395CB55632C999C6E724E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1359411   (964191) от 12.02.2020
+
+VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Latin, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bert Kaempfert - A Swingin' Safari (3:07)
+02. Al Hirt - Java (1:56)
+03. Perez Prez Prado - Patricia (2:06)
+04. Henry Mancini - Baby Elephant Walk (2:43)(   Читать дальше...   )Жанр: Instrumental, Latin, JazzПродолжительность: 01:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB96286756BBF00DFBEAD158D64D93EFD3EB50CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978531   (963578) от 23.01.2016
 
 Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, Instrumental, Piano>
@@ -713,35 +742,6 @@ Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:298A5602832D008461627A5F28FFFF93504DAF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360045   (961806) от 14.02.2020
-
-Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961806.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:54| 01. Flying High (Birds of Prey)
-|01:32| 02. The Fantabulous Emancipation Explosion
-|03:06| 03. Harley Quinn (Danger Danger)
-|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

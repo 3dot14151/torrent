@@ -1,3 +1,148 @@
+###  Публикация: 905284   (651195) от 05.06.2015
+
+Wolves at the Gate - Reprise (2015) [MP3|320 кб/с]<Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Man (feat. Michael McGough from Being As An Ocean)
+02. Relief (feat. Toby Morrell from Emery)
+03. The Bird and the Snake (feat. Ryan Leitru from For Today)
+04. The Father's Bargain (feat. Zach Bolen from Citizens & Saints)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0F2E12C8463C6EED84A03BE85D7A5B5BD637BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905331   (650761) от 05.06.2015
+
+Muse - Drones (2015) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Седьмой студийный альбом британской рок-группы Muse. Музыканты заявили, что "Drones", в отличие от альбома 2012 года "The 2nd Law", стал более тяжелым и мощным.01. Dead Inside
+02. Drill Sergeant
+03. Psycho
+04. Mercy(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A1AF000D54B0CB645BE143BEDCE147A2CD32D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031799   (649829) от 05.07.2016
+
+Kevin Max - Broken Temples (2015) Deluxe Edition [MP3|320 Kbps] <Alternative Rock, Pop Rock, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Kings Highway
+02. Light Me Up
+03. Just as I Am
+04. Clear(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Christian RockПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065C9C275B11EB29B9C571629220174A7C131EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031901   (649826) от 05.07.2016
+
+Orianthi - Fire (2011) EP [MP3|320 Kbps] <Alt. Rock, Pop Rock, Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heaven in this Hell    04:33
+02.  If You Were Here With Me    04:10
+03.  How Does It Feel    03:07
+04.  How Do You Sleep    04:14(   Читать дальше...   )Жанр: Alt. Rock, Pop Rock, GuitarПродолжительность: 00:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E978B0364F891C257C54D4AE360B4A465E8C2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031791   (649825) от 05.07.2016
+
+Kevin Max - Playing Games With the Shadow (2016) [MP3|320 Kbps] <Alternative Rock, Pop Rock, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantoms of Terra
+02. Girl With the Tiger Eyes
+03. Election
+04. William Blake(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Christian RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B2CE4B7D2EDF5A807DD92BEC27E689A29FC8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515928   (649728) от 30.06.2012
 
 Fat Janitor - Lurk (EP) (2012) [MP3|320 кб/с]<Shoegaze Mathcore / Noise Rock>
@@ -620,157 +765,6 @@ Das Bluesgericht - Was Besseres (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:466B0AC03E9C225FF7B914707D511E6F91CB8B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517897   (645708) от 02.07.2012
-
-Rod Stewart - Smiler (1974) [MP3|320 кб/с]<Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Little Rock`n`Roller
-02. Lochinvar
-03. Farewell
-04. Sallor
-05. Bring It On Home To MeYou Send Me
-06. Let Me Be Your Car
-07. (You Make Me Feel Like) A Natural Man
-08. Dixie Toot
-09. Hard Road
-10. I`ve Grown Accustomed To Her Face(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C45164D26BD533C0F328A6AA27730B3AD168557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906302   (645659) от 08.06.2015
-
-Brad Wilson - Blues Thunder (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is It Any Wonder (3:36)
-02. Change It Up (3:45)
-03. Blue Shadows (4:43)
-04. Step By Step (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278B887C823E393CA814C2F0E238E3ECAEDE8842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142137   (644720) от 13.06.2017
-
-Elton John - 17-11-70+ (1971) 2LP, Remastered, 2017, UMC [MP3|320 Kbps] <Country Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me to the Pilot
-02. Honky Tonk Women
-03. Sixty Years On
-04. Can I Put You On(   Читать дальше...   )Жанр: Country Rock, Classic RockПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1A33AB03EA3B0E776E0DC812FD10075A49DD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142223   (644717) от 13.06.2017
-
-Suzi Quatro - A's, B's & Rarities (2004) [MP3|320 Kbps] <Rock, Pop Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rolling Stone [02:49]
-02. Brain Confusion (For All The Lonely People) [03:12]
-03. Ain't Got No Home [02:19]
-04. Can The Can [03:37](   Читать дальше...   )Жанр: Rock, Pop Rock, Hard RockПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74E878A32746AB22E535CA39F7975FB6671F786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032615   (643914) от 08.07.2016
-
-Jani Lane - Catch A Falling Star (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You To Want Me (feat. Ryan Roxie, ALICE COOPER)
-02. Panama
-03. Photograph
-04. The Ocean(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C42CA430FA951A38539C4B6922C0A4534D9A64
 ```
 
 https://mybot314.ru/tekegram_catalog/

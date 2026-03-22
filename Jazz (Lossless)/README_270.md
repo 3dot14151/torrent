@@ -1,3 +1,177 @@
+###  Публикация: 1587734   (192398) от 01.11.2022
+
+Rosemary Clooney - The CBS Radio Recordings (1955 - 1961) 5CD, 2014, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192398.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Just You, Just Me [1:27]
+02. Don't Take Your Love from Me [3:03]
+03. I Guess I'll Have to Change My Plan [2:41](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 04:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90ADE174527A83E66EBA88422A8D639D8576ED88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587920   (192122) от 02.11.2022
+
+Nelson Riddle - Eight Classic Albums (1955 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Easy Listening, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192122.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Oh, What a Beautiful Mornin' [6:18]
+02. The Surrey With The Fringe On Top [2:52]
+03. Kansas City [2:58](   Читать дальше...   )Жанр: Easy Listening, Big Band, SwingПродолжительность: 04:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214BED981C3B7C5623024A6C571C7B1F0EF8D23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657845   (191946) от 06.09.2023
+
+Johnny Griffin - The Little Giant (1959) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olive Refractions [4:21]
+02. The Message [7:26]
+03. Lonely One [4:11]
+04. 63rd Street Theme [7:35](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56994C59C4AE7641A9305BE04AC4C2F778114727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588138   (191856) от 03.11.2022
+
+Jack Teagarden - The Complete Capitol Fifties Jack Teagarden Sessions (1955 - 1958) 4CD, 1996, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191856.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Struttin' with Some Barbecue [3:02]
+02. Muskrat Ramble [3:01]
+03. New Orleans [2:54](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 03:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736722FA05A334AB32E657440EB526382257874B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588155   (191848) от 03.11.2022
+
+Julius Rodriguez - Let Sound Tell All (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191848.jpg" />
+</div>
+
+
+###  Подробнее
+
+A true cross-genre phenomenon, pianist Julius Rodriguez is a gifted improviser and composer well-versed in the jazz tradition, but also at home in gospel, funk, and hip-hop settings. Rodriguez, who also goes by his nickname, "Orange Julius," has backed jazz vocalist Carmen Lundy and, most notably, toured with rapper A$AP ROCKY in 2018. He brings this deep (   Читать дальше...   )01. Blues at the Barn (Rodriguez) - 3:34
+02. All I Do (Morris) - 4:41
+03. Interlude (Rodriguez) - 1:08
+04. Gift of the Moon (Rodriguez) - 2:59(   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, R&BПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DDD461F0F20A64766A04656803F4C28F9FEA19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588324   (191650) от 04.11.2022
+
+Jimmie Lunceford - The Complete Jimmie Lunceford Decca Sessions (1934 - 1945) 7CD, 2011, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191650.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sophisticated Lady [3:13]
+02. Mood Indigo [2:57]
+03. Rose Room [3:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 07:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD706B3A9342FC9E43908BBDBC56A69EF80BC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658279   (191636) от 07.09.2023
 
 Mal Waldron & Jackie McLean - Left Alone '86 (1987) Bellaphon [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -571,180 +745,6 @@ John Sneider - The Scrapper (2020) Cellar Music [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0914A60C8DC643364178D5F69B5C0EEC3D531DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590065   (189475) от 12.11.2022
-
-Ethan Iverson Quartet With Tom Harrell - Common Practice (2017) 2019, ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man I Love [6:27]
-02. Philadelphia Creamer [6:00]
-03. Wee [5:47]
-04. I Can't Get Started [6:36](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E4A5DB89F89310640C35F7F21EC989ADACAA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589961   (189471) от 12.11.2022
-
-Kenny Barron, Dave Holland, Johnathan Blake - Without Deception (2020) Dare2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porto Alegre [5:20]
-02. Second Thoughts [5:51]
-03. Without Deception [6:35]
-04. Until Then [6:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38801DFBD0D08710B2D054607C4D570DB26F9CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589895   (189450) от 12.11.2022
-
-Brandi Disterheft - Blue Canvas (2016) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dis Here [5:41]
-02. Prelude to the Crippling Thrill [2:20]
-03. Cripping Thrill [4:28]
-04. Beehive [5:28](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6216625ADE5C8BCE6425D0E2F3FC1538D3F41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589984   (189448) от 12.11.2022
-
-Jimi Tenor - Multiversum (2022) [FLAC|Lossless|tracks + .cue] <Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Intro (0:52)
-02. Life Hugger (3:23)
-03. Jazznouveau (4:08)
-04. Uncharted Waters (5:22)(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66093C4D08EB0C34C07AE954F0C8E6AB5F12F58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590064   (189446) от 12.11.2022
-
-Joe "Fingers" Webster & The Swing Fever Big Band - Hooked On Big Bands (1993) K-Tel [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hooked on Birdland [7:32]
-02. In the Mood Medley [6:28]
-03. Hooked on Boogie Woogie [7:10]
-04. C'est Magnifique Medley [9:05](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAE88FEB81DB9D691B4411A96A2237ACFEB8D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589890   (189442) от 12.11.2022
-
-Brandi Disterheft Trio With George Coleman - Surfboard (2020) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surfboard [4:03]
-02. Prelude to Coup de foudre [2:58]
-03. Coup de foudre [3:51]
-04. My Foolish Heart [6:50](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4EF2E993EEFBD48A49B9830CCE8A14EB87331A
 ```
 
 https://mybot314.ru/tekegram_catalog/

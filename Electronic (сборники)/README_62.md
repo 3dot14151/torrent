@@ -1,3 +1,90 @@
+###  Публикация: 1208860   (779685) от 24.02.2018
+
+VA - Double Environment: Progressive House Garden Music (2018) [MP3|320 Kbps] <Progressive, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779685.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marsh - Face To Face (Airdraw Intro Remix)
+002. Sunlight Project - Tierra Del Fuego (Original Mix)
+003. Zoo Brazil - From A Distance (feat. Wolf & Moon)
+004. Freedome - I Feel You (ReWorked Radio Edit)(   Читать дальше...   )Жанр: Progressive, Tech HouseПродолжительность: 10:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616CFEE8E91C158F8D8126B37063815852A1EDF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209058   (779684) от 24.02.2018
+
+VA - The Official UK Top 40 Singles Chart 23.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake – God’s Plan 3:19
+02. Rudimental – These Days (Feat. Jess Glynne, Macklemore & Dan Caplen) 3:31
+03. Dua Lipa – Idgaf 3:38
+04. Portugal. The Man – Feel It Still 2:43(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220FF452A8450D219384E9E9D0D9669DE6EFD535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209060   (779671) от 24.02.2018
+
+VA - Record Super Chart #525 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maruv & Boosin  -  Drunk Groove (Kolya Funk & Mephisto Radio Mix)  3:43
+02.  Vanotek feat. Eneli  -  Back To Me (DJ Mexx & DVJ Karimov Radio Remix)  3:02
+03.  Holl & Rush  -  Don't Know  3:49
+04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F521F89B167313EA0C9B3AD5E011916106E75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208729   (779655) от 24.02.2018
 
 VA - Vocal Trance Collection Vol.9 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Sunset Lounge Music - Sexual Buddha Lounge Chill Songs Relaxation (2015) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58D01D00B8469DB6EE8A652941E487EAE851A35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211077   (778237) от 05.03.2018
-
-VA - Empire Records - Progressive Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Clouds Testers  -  Inhale The Love (Semenovb Instrumental Remix)  3:58
-02.  Jurgen Paape  -  Whisper Echo (Original Mix)  5:00
-03.  Luke Lucid  -  Black Star (Original)  5:28
-04.  Sebastian Davidson  -  Golden Age (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E6DCFD737F854D79A6B683BEA372697F6847DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211096   (778204) от 05.03.2018
-
-VA - Empire Records - Deep Disco 7 (2018) [MP3|320 Kbps] <Disco, Nu Disco, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Olej & Stereoteric feat. Kristina Tiurina  -  Trust Me (Remix)  3:01
-02.  Robert Cristian  -  My Road (Original Mix)  3:05
-03.  QRVZH  -  Sunshine (Original Mix)  5:24
-04.  Vanotek feat. Eneli  -  Tara (Andrew Brooks Remix)  5:04(   Читать дальше...   )Жанр: Disco, Nu Disco, DanceПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FEA6C0EF30F86661692FE6AE5794A4F0966B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211167   (777896) от 06.03.2018
-
-VA - Empire Records - Blue Line Trance 2 (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonas Blue feat. William Singe - Mama (Kevu Festival Bootleg)
-02. Jon Thomas, DJ Backslash, Johnny Catch - Never Been Honest
-03. Jon Bellion - iRobot (Landis Remix)
-04. Newclaess - Be The One(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98C4EAAF5D2B20B71A31E66FD8045E0F38BF935
 ```
 
 https://mybot314.ru/tekegram_catalog/

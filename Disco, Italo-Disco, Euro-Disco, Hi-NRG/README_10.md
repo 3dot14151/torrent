@@ -317,6 +317,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014563   (776439) от 07.05.2016
+
+Trax - 2 Albums (1977, 1978) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_776439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместная работа Keith Forsey (барабанщик, продюсер и композитор), Pete Bellotte (автор текстов  и продюсер, особенно для  Donna Summer ), известных своей работой при Giorgio Moroder на его студии Musicland в Мюнхене. Последний же, выступил в роли "серого кардинала", дав дорогу друзьям, скрыв свое участие в "исполнителях"  этих альбомов, но не скрыв (   Читать дальше...   )Список альбомов:
+01. 1977 - Watch Out!
+02. 1978 - Dancing In The StreetЖанр: Electronic, DiscoПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC163D19D6A80FFF32FB59A8D67A95EF8ED856EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212633   (775747) от 12.03.2018
 
 New Paradise - 6 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -714,35 +742,6 @@ Take Me To Your Heart(   Читать дальше...   )Жанр: Synth-pop, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD26DD0069647CE7054D3700E6CDC4228C868725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393615   (766936) от 01.07.2020
-
-Enterprise - Enterprise (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago Theme (3:40)
-02. Sky Lights (3:26)
-03. You Make Me Feel Brand New (2:57)
-04. Just When We Start Making It (2:55)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80D1FEFC9120F8179E8A0ED891FA2A7D9BF42D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,117 @@
+###  Публикация: 913241   (607004) от 28.06.2015
+
+Mahler - Symphony no.4 in G Major (Vaclav Neuman & Czech Philharmonic Orchestra) (1988) [FLAC|Lossless]<Classical. Romantic Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No.4 in G major
+01. Bedchtig, nicht eilen  (16:03)
+02. In gemchlicher Bewegung. Ohne Hast (09:20)
+03. Ruhevoll. Poco adagio (20:57)(   Читать дальше...   )Жанр: Classical. Romantic Period, SymphonyПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EF3BB27E1ADCE50DD28FC1F1671FBA9CE4EDFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231387   (606781) от 17.06.2018
+
+Vanessa Benelli Mosell & Henri Demarquette - Echoes - Philip Glass & Сергей Рахманинов (2018) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Philip Glass:
+01. OpeningЖанр: ClassicalПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0A7E21D21CE8E6AD6259896BA46CE0081371C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147713   (605550) от 04.07.2017
+
+The Third group - Ушедшие (2017) [MP3|320 Kbps] <Classical, Neo-classical, Poetry>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иванов Г. Стихотворение 673 - 0:35
+02. Соната 1 - Неправильная (на с. Иванова Г. Судьба одних была страшна...) - 0:58
+03. С. Прокофьев. Менуэт - 2:38
+04. Романс на с. Иванова Г. - 1:00(   Читать дальше...   )Жанр: Classical, Neo-classical, PoetryПродолжительность: 00:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF9B2B62038E1FABD2EA7A039BEB61783C29426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913466   (605014) от 29.06.2015
+
+Brahms - Piano Concertos Nos. 1&2 (Ivan Moravec & Czech Philharmonic Orchestra) (2CDs) (2006) [FLAC|Image+.cue]<Classical, Romantic Period, Recitals, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto For Piano And Orchestra No. 2 In B Flat Major Op. 83
+01. Allegro non troppo (17:59)
+02. Allegro appassionato (09:14)
+03. Andante (13:45)(   Читать дальше...   )Жанр: Classical, Romantic Period, Recitals, ConcertoПродолжительность: 01:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB69A240887365F2CCFFF913A0A8EE55F04BD5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038435   (604756) от 29.07.2016
 
 Danzi - Der Berggeist, Oder Schicksal und Treue (2013) [FLAC|Lossless|tracks + .cue] <Classical>
@@ -632,122 +746,6 @@ Joaquin Rodrigo - The Rodrigo Edition (1992) Concertos & Symphonic Works, 4 CDs 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:771A569A4C35AEBC2D4D8D850E969D74C195EF92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298708   (595976) от 03.05.2019
-
-VA - Classical Voices (2007) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montserrat Caballé - Hijo de la luna (5:22)
-02. José Carreras - Some enchanted evening (3:19)
-03. Charlotte Church - She moved through the fair (3:03)
-04. Ernst Daniël Smid - Like a bird (4:19)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F343BE5DBFDFB05A157E0ABC0058AF5AC291B6ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548583   (594857) от 05.05.2022
-
-Jennifer Bate - British Organ Music - Elgar And His Contemporaries (1995) [FLAC|Lossless|tracks] <Classical, Organ>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir Edward Elgar Organ Sonata No. 1 in G, Op. 28: Allegro maestoso [00:09:01]
-02. Sir Edward Elgar Organ Sonata No. 1 in G, Op. 28: Allegretto [00:05:29]
-03. Sir Edward Elgar Organ Sonata No. 1 in G, Op. 28: Andante espressivo [00:05:41]
-04. Sir Edward Elgar Organ Sonata No. 1 in G, Op. 28: Presto (commodo) [00:07:27](   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4A019E2F422F79C102B34CE8DB6C97F35D495B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039698   (594275) от 02.08.2016
-
-Jose Miguel Moreno - Sylvius Leopold Weiss: Ars Melancholiae (1993) 2008, Glossa Music [MP3|256 Kbps] <Classical, Baroque>
-
->>Классика
->>Камерная
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciaconne for lute    05:36
-02. Sonata in D major - I. Prélude    02:19
-03. Sonata in D major - II. Allemande    04:49
-04. Sonata in D major - III. Courante    03:59(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F102B4F5F7BBBEEF865560F8586BF045D099C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300225   (593778) от 05.05.2019
-
-New London Chorale - The Young Puccini (A Tom Parker Project) (1991) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (3:35)
-02. I only want to stay here (3:31)
-03. What would I do (3:06)
-04. Only words (3:55)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93570C806848040ECB97E77F1AEEC0BE94CD7A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

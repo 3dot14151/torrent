@@ -1,3 +1,148 @@
+###  Публикация: 1668442   (173455) от 13.10.2023
+
+U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lights Out (Live) [00:05:31]
+02 - Gettin' Ready (Live) [00:04:00]
+03 - Love To Love (Live) [00:07:44]
+04 - On With The Action (Live) [00:04:50](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACF61390F5491D36642D39F9A777731BC707ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827103   (173430) от 20.10.2025
+
+David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5 A.M. (Live from the Luck and Strange Concerts) [03:16]
+02. Black Cat (Live from the Luck and Strange Concerts) [02:02]
+03. Luck and Strange (Live from the Luck and Strange Concerts) [05:56]
+04. Breathe (In the Air) (Live from the Luck and Strange Concerts) [03:34](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668599   (173369) от 13.10.2023
+
+Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Records [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Pigs (Live) [08:28]
+02. Behind The Wall Of Sleep (Live) [04:06]
+03. N.I.B. (Live) [06:47]
+04. Fairies Wear Boots (Live) [06:20](   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6096FEF227728888FFD543DF719EA9ADAB1F4A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668657   (173362) от 13.10.2023
+
+Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruby Red [02:54]
+02. Run Runaway [03:42]
+03. 7 Year Bitch [04:16]
+04. Myzsterious Mizster Jones [03:36](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0856B179BFE20413DD4286FA2527F594D7C4F256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668660   (173206) от 14.10.2023
+
+U.F.O. - Lights Out In Babenhausen - Live 1993 (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Natural Thing (Live 1993) [00:04:25]
+02 - Mother Mary (Live 1993) [00:03:41]
+03 - Let It Roll (Live 1993) [00:04:35]
+04 - Out In The Streets (Live 1993) [00:04:59](   Читать дальше...   )Жанр: RockПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D52CD2E23D1C5C82BF39E978D67B6D0CF457575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668961   (173204) от 14.10.2023
 
 The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [MP3|320 Kbps] <Progressive Rock>
@@ -599,151 +744,6 @@ DISC 03(   Читать дальше...   )Жанр: Rock, Singer & SongwriterП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5EE2520F629A36B59DE9DD98E6A21C956162E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431900   (165251) от 16.12.2020
-
-Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine on You Crazy Diamond, Pt. 1
-02. Coming Back to Life
-03. Marooned
-04. Wish You Where Here(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29EBB17D1BDC7142FF473CC5B51EAED7189BE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431804   (165246) от 16.12.2020
-
-Dark Pink Moon - A Chill Out Tribute To Pink Floyd (2002) [MP3|320 Kbps] <Rock, Electro>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiest Days Of Our Lives (Cover Version)
-02. Another Brick In The Wall, Part 2 (Cover Version)
-03. Hey You (Cover Version)
-04. The Great Gig In The Sky (Cover Version)(   Читать дальше...   )Жанр: Rock, ElectroПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1432A566E1FCD47EE162DBB010796021D3DF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432089   (165236) от 16.12.2020
-
-VA - Christmas Rock Legends (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas (2011 Remaster)
-02. Bing Crosby,David Bowie,The London Symphony Orchestra - Peace On Earth / Little Drummer Boy
-03. Rod Stewart,Dave Koz - Let It Snow! Let It Snow! Let It Snow!
-04. Bryan Adams - Merry Christmas(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41D23BDF2B4D6600C9268F13AB7ACB2574D46B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432200   (164506) от 17.12.2020
-
-Atlanta - Nugrybauti (2020) [MP3|320 Kbps] <Psychedelic Rock, Prog Rock, Jam Bands>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marabou Blues (08:10)
- 02. Honolulu Strut (11:36)
- 03. Deventer Kunstweg (07:22)
- 04. Dog Whistle Concert No. 5 in E minor (11:29)(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock, Jam BandsПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563F2B643A2E8B7252C74C65E6A968CB4C3447F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346251   (164472) от 18.12.2019
-
-Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Classic Rock, Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский гитарист, вокалист и композитор прославился как участник знаменитой команды "Moody Blues". Родился в г. Свиндон 14 октября 1946 года. В семь лет парнишка получил первый урок на пианино, затем самостоятельно освоил укулеле и к девяти годам переключился на гитару. Молодой человек сочинил несколько песен и показал их Лонни Донегану.  Летом 1966-го (   Читать дальше...   )Список альбомов:
-1975 - Blue Jays
-1977 - Songwriter
-1980 - Night Flight(   Читать дальше...   )Жанр: Classic Rock, Pop Rock, Soft RockПродолжительность: 06:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184D8B81D9BBD1B5734982257AE3C562DA105573
 ```
 
 https://mybot314.ru/tekegram_catalog/

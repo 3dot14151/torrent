@@ -1,3 +1,177 @@
+###  Публикация: 928720   (521707) от 17.08.2015
+
+Tommy Flanagan - Confirmation (1977/1978) /2005, Landy Star/[FLAC|tracks+.cue]<Jazz, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe September [04:57]
+02. Confirmation [06:53]
+03. How High The Moon [06:07]
+04. It Never Entered My Mind [07:10](   Читать дальше...   )Жанр: Jazz, Hard Bop, Piano JazzПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B490635FBFE3EF8C61BE6320FAF94692634F4E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314073   (521432) от 12.07.2019
+
+Orrin Evans And The Captain Black Big Band - Presence (2018) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Scythe [9:30]
+02. Question [8:31]
+03. Onward [10:34]
+04. When It Comes [3:15](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03D61C603FE250BE2FE89BA33C31A693E422C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314070   (521429) от 12.07.2019
+
+Queen Bee And The Honeylovers - Asheville (2019) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asheville (North Cackalacky) [2:27]
+02. Beacham's Curve [3:47]
+03. Hayes & Hopson [3:27]
+04. Dreamer's Waltz [0:40](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53B1AB8893EA63EF699A683025F869B870B04DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241251   (521274) от 16.08.2018
+
+Andrew McCormack - First Light (2014) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prospect Park [4:11]
+02. Gotham Soul [7:26]
+03. Leap Of Faith [4:20]
+04. First Light [5:23](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC076B154FCC79EDA7D9982EFE8254334E9254C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560336   (520984) от 29.06.2022
+
+Adrian Cunningham & His Friends - Play Lerner & Loewe (2019) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say a Prayer for Me [4:08]
+02. I Could Have Danced All Night [4:24]
+03. Just You Wait [4:15]
+04. I Talk to the Trees [4:31](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CEAC2FF74F22A3E7367AEFECB0879B67A952AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559913   (520893) от 29.06.2022
+
+Buddy DeFranco - Mr. Lucky (1981) 1997, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Lucky [6:50]
+02. Bye, Bye Blackbird [6:30]
+03. Mar Descancado (The Calm Sea) [5:27]
+04. In a Sentimental Mood [4:11](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6639BBCD347CA7A17FD29E04BE1D47C78892EF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560110   (520884) от 29.06.2022
 
 CeCe Gable - More Than A Song (2020) New York Jazz Project [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -579,181 +753,6 @@ Heather Powell - A Haze of Grays and Blue (2015) [FLAC|image+.cue]<Vocal Jazz, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF01F6C217CF67CD5853AD8E9A1524285B550319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241771   (518470) от 19.08.2018
-
-Stanley Turrentine - Up At Minton's (1961) 2CD, 1994, Blue Note [APE|Lossless|image + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518470.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. But Not for Me [11:29]
-02. Stanley's Theme [11:04]
-03. Broadway [10:38](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33A395AE9BC6C5C737FE3D6B3C99B6F62FA5B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929653   (518408) от 20.08.2015
-
-Steve Laury - The Hi-Fi World of Electric Guitar (Denon Test Disc) (1994) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518408.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сути это компиляция с трех альбомов исполнителя: Stepping Out - 1990, Passion - 1991 и Keepin' The Faith - 1993.
-Диск предназначен для тестирования и "прогрева" аппаратуры, но и музыкальный материал весьма качественный.01. Stepping Out
-02. All Because Of You
-03. Kiss Me Goodbye
-04. Walk Your Talk(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD7D9834D90AA692C701705163ED67A9992A97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560946   (517808) от 02.07.2022
-
-Sonny Clark & Buddy DeFranco (De Franco) Quartet - Complete Sessions (1954) 2CD, 2004, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517808.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jack the Fieldstalker [3:08]
-02. Cable Car [4:04]
-03. I Wish I Knew [4:54](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DA49E2860555037FBA32433953D33E9AA5E4A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929618   (517413) от 21.08.2015
-
-Bochinche - Caracas (1990) /Oxymoron/ [FLAC|image+.cue]<Jazz, World Fusion, Latin jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tributo al Bailador [06:20]
-02. Tu Sonrisa [05:44]
-03. Currucuc  [03:48]
-04. Caracas [08:34](   Читать дальше...   )Жанр: Jazz, World Fusion, Latin jazzПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F3EF6A155F80D0312BC48DC8D48D8BEBEC022D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314629   (517272) от 16.07.2019
-
-Marlene Rosenberg - MLK Convergence (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Violet [5:13]
-02. Togetherness [4:30]
-03. Not the Song I Wanna Sing [7:34]
-04. The Line Between [5:40](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42779119882CD5250DB53BA7DAE6EA1337E70600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241984   (517190) от 20.08.2018
-
-Lucky Millinder - 1951 - 1960 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chew Tobacco Rag [2:38]
-02. Georgia Rose [3:05]
-03. I'm Waiting Just For You [2:39]
-04. Bongo Boogie [2:40](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72B9F2A27A60E4BC472F3408214A5848F1C0D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

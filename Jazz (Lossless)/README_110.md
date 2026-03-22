@@ -1,3 +1,177 @@
+###  Публикация: 1289773   (682166) от 18.03.2019
+
+Dizzy Gillespie - Four Classic Albums (1954 - 1957) 2CD, 2009, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682166.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dizzy's Blues [11:53]
+02. School Days [5:40]
+03. Dizzy Speaks [0:48](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FA44F40511FAC1607EC5335C93FC1F5B6DFB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290030   (682165) от 18.03.2019
+
+Janet Seidel - The Way You Wear Your Hat (1998) 2CD, La Brava Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682165.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lazy River [4:04]
+02. Pick Yourself Up [3:00]
+03. My One and Only Love [6:55](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2712B92BC963173576BC300EE19CC611BCAB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289766   (682163) от 18.03.2019
+
+Ray Brown - Something For Lester (1977) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ojos de Rojo [5:16]
+02. Slippery [7:27]
+03. Something in Common [4:49]
+04. Love Walked In [5:24](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49372CEDC20189EE668E27D0FA9AE6DFEAC748B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290025   (682162) от 18.03.2019
+
+Janet Seidel - Little Jazz Bird (1990, 1992) 1994, La Brava Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September in the Rain [2:29]
+02. 42nd Street [3:12]
+03. Embraceable You [4:00]
+04. Skylark [4:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1BFF2AA6FA8357DDC730F9355F70D562F35B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290032   (682161) от 18.03.2019
+
+Ninna Milner - Songs For Sentient Beings (2016) WiMi [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Be Your Favorite Song [3:44]
+02. Back to Wellington [3:45]
+03. Wednesday in October [4:34]
+04. Dear Humans [6:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3A1B1D292710DC623B3C5D3037A326FB09F600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290027   (682159) от 18.03.2019
+
+Janet Seidel - The Art of Lounge 3 (2005) Musictronic Lounge [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonglow [3:40]
+02. If They Asked Me I Could Write a Book [2:16]
+03. Always [4:01]
+04. Midnight Sun [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2D53273D3E2E77C749ED0386F0C8E15755E508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029195   (682135) от 26.06.2016
 
 Grant Green & Baby Face Willette - Trio/Quartet: Complete Recordings (1961) 2CD, 2014, American Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -571,180 +745,6 @@ Duke Ellington - The Duke in Washington (1943 - 1969) 1999, Storyville [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:210B95CECCAA97CB1C2BD50FC0D0B07451442FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135462   (679376) от 20.05.2017
-
-Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dream (2017) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart in Hand [08:20]
-02. Ilimba [09:53]
-03. The Dreamer Is The Dream [08:19]
-04. Memory And Desire [07:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6ABCC508A37E31C7558CCA89ED682B9C006D7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223056   (679369) от 02.05.2018
-
-The Lanny Morgan Quartet - Pacific Standard (1997) Contemporary [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Still of the Night [06:14]
-02. People Will Say We're in Love [07:43]
-03. Stella by Starlight [07:19]
-04. The Song Is You [07:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3D0A8E832B94AFFC04BF35099713A85C82C6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222956   (679368) от 02.05.2018
-
-Mel Lewis & Friends - Gettin' Together (1957) 1987, Vee Jay [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motif [03:59]
-02. My Buddy [02:35]
-03. Neat Foot [03:03]
-04. The Song Is Ended [02:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DCFC4A31E709017D9AF2E2386ECDD48E090DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 212806   (679321) от 28.06.2010
-
-Nicki Parrott - Fly Me To The Moon (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_679321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bei Mir Bist Du Schoen
-02. I Love The Way You're Breakin' My Heart
-03. Do It Again
-04. Fly Me To The Moon(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135551   (679303) от 20.05.2017
-
-The Jazz At The Lincoln Center Orchestra & Wynton Marsalis - The Music of John Lewis (2017) Blue Engine Records [FLAC|Lossless|tracks + .cue] <Modern Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Degrees East, 3 Degrees West [07:09]
-02. Animal Dance [03:56]
-03. Django [04:53]
-04. Jon Batiste Introduces the Band [01:04](   Читать дальше...   )Жанр: Modern Big Band, Post-BopПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BC69DE15AD9A64F10639A2E80708F381CB7F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223112   (679268) от 02.05.2018
-
-Nils - Play (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coast to Coast
-02. We Got Love
-03. Straight Down The Line
-04. Sway(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FEE93CC8EF98608EB435CE15D69920F4083CEB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

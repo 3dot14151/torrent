@@ -1,3 +1,117 @@
+###  Публикация: 1173488   (388973) от 13.10.2017
+
+Deftones - Covers (2011) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Experimental Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/11. Drive (4:51)
+ 02/11. Caress (3:34)
+ 03/11. Please Please Please Let Me Get What I Want (2:04)
+ 04/11. No Ordinary Love (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Experimental Rock, Nu MetalПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CD450A4D55C246721DFED2D131F7F56C1728A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414136   (387882) от 07.10.2020
+
+Girls In Synthesis - Now Here's An Echo From Your Future (2020) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Post-Punk, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arterial Movements [00:03:31]
+02. Pressure [00:01:54]
+03. The Images Agree [00:02:44]
+04. Scrapped [00:02:35](   Читать дальше...   )Жанр: Noise Rock, Post-Punk, Post-HardcoreПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077076646BA9A3E73D897D6C41BB036C93B2613D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574206   (387767) от 04.09.2022
+
+Gorillaz - Cracker Island / New Gold (2022) 2 Singles [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield, Electroniс>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Single 01 - Cracker Island (feat. Thundercat)
+Single 02 - New Gold (feat. Tame Impala and Bootie Brown)Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 00:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF560AEB3868D1384E6A76452B0A03CC3114BD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067351   (386990) от 29.10.2016
+
+The Naked and Famous - Simple Forms (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_386990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher
+02. The Water Beneath You
+03. My Energy
+04. Last Forever(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E0B975529151D54A2ACD6BAA4C4578C4991186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574400   (385784) от 05.09.2022
 
 In Gloom - Self Titled (2020) Remaster, 2022 [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
@@ -632,122 +746,6 @@ Yungblud (Dominic Richard Harrison) - 7 Albums (2018-2022) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AA43246B81B78F25B4DFF9C36B8FE89B5A2232B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575031   (379337) от 08.09.2022
-
-See Through You - Hollowed Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:31]
-02. Behold [00:03:57]
-03. In Our Blood [00:03:09]
-04. When the Sun Goes Down [00:02:50](   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFF65DFE8F56061F97B54FA1BFC1F2A99D59FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415311   (379114) от 11.10.2020
-
-Psychostasy - Unworthy Grave (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:21]
-02. Burned at the Stake [00:03:03]
-03. Eternal Recurrence [00:03:56]
-04. Game of Man and Earth [00:03:00](   Читать дальше...   )Жанр: Progressive DeathcoreПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F91CD5BB018B268C7B6A7E72739BF279C2ED23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415218   (379112) от 11.10.2020
-
-Every Hour Kills - Reawaken (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veiled Aurora (feat. Dayshell & Bloodshot Dawn) [00:04:18]
-02. Anthelion (feat. Threat Signal) [00:04:26]
-03. Re:awaken [00:04:12]
-04. Time (feat. Rick Graham) [00:05:04]Жанр: Modern Metal, Metalcore, ElectronicПродолжительность: 00:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4871D99445EF3B0DEF6B797796FFD1860BFC37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415111   (379108) от 11.10.2020
-
-Bootblacks - Thin Skies (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traveling Light [00:03:40]
-02. The Jealous Star [00:04:12]
-03. Thin Skies [00:03:22]
-04. Hidden Things [00:03:40](   Читать дальше...   )Жанр: Indie Rock, Post-Punk, DarkwaveПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BF1DF9599DAACC48BF0831EFE19D9632D256BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

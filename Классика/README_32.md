@@ -1,3 +1,119 @@
+###  Публикация: 1321259   (456703) от 25.08.2019
+
+Ludovico Einaudi - Seven Days Walking (Day 6) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Mist Var. 1 (Day 6) (3:09)
+ 02. Low Mist (Day 6) (3:20)
+ 03. Gravity (Day 6) (5:55)
+ 04. Matches (Day 6) (3:12)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD30E6AAF26BDE209F77DA2078AD45FF1C003CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162598   (456502) от 02.09.2017
+
+Luciano Pavarotti - The People's Tenor (2017) [MP3|320 Kbps] <Classical, Opera>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456502.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Puccini: Turandot / Act 3 - "Nessun dorma!" (Remastered 2014)
+2. Puccini: Manon Lescaut / Act 1 - "Donna non vidi mai"
+3. Verdi: Rigoletto / Act 3 - "La donna è mobile" (Remastered 2014)
+4. Donizetti: La fille du régiment / Act 1 - "Ah! mes amis, quel jour de fête!"(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A97101849E35894DC62BC13399B7001E66E940C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942335   (455863) от 30.09.2015
+
+Respighi - Ancient Airs and Dances (Rico Saccani & National Symphony Orchestra of Ireland) (1996) [FLAC|image +.cue]<Classical, 20th Century Period, Modern, Suite, Dance - Classical, Air>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ancient Airs and Dances, Set 1, arrangements (4) for orchestra, P. 109
+01. Balleto detto `Il Conte Orlando' (02:60)
+02. Gagliarda (Allegro marcato) (03:35)
+03. Villanella (Andante cantabile) (05:55)(   Читать дальше...   )Жанр: Classical, 20th Century Period, Modern, Suite, Dance - Classical, AirПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003C7FE2FBD33061DB5516C41E9868625DD58599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941861   (455742) от 30.09.2015
+
+Tchaikovsky - Serenade for Strings, Souvenir de Florence (Philippe Entremont & Vienna Chamber Orchestra) (1992) [FLAC|image +.cue]<Classical, Romantic Period, Chamber Music, Orchestral, Sere ...
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serenade For Strings In C Major, Op. 48
+01. Pezzo in forma di Sonatina (09:32)
+02. Walzer (03:53)
+03. Elegie (09:10)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Orchestral, SerenadeПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DDD45A83B586E6FEA4CF261C8B85B898502C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942183   (453558) от 01.10.2015
 
 Schubert - The Complete Impromptus, Moments Musicaux (Alfred Brendel) (2CDs) (1997) [FLAC|image +.cue]<Classical, Romantic Period, Character Piece, Dance - Classical, Impromptu, Ecossaise>
@@ -633,122 +749,6 @@ Symphony No. 10 in F sharp major
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59EE27787BB94CC4E684CD45645BCA34C622EEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944476   (435846) от 09.10.2015
-
-Schubert - Piano transcriptions (Antti Siirala ) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Recitals, Modern, Suite, Song, Post-Romantic, Variations, Overture, Waltz, Fugue, Transcrip ...
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winterreise: Gute Nacht (Leopold Godowsky) (06:51)
-02. Der Lindenbaum (Franz Liszt) (04:54)
-Winterreise (12), transcription for piano (after Schubert, D. 911), S. 561 (LW A50)
-03. Winterreise: Der sturmische Morgen - Im Dorfe (Franz Liszt) (05:59)(   Читать дальше...   )Жанр: Classical, Romantic Period, Recitals, Modern, Suite, Song, Post-Romantic, Variations, Overture, Waltz, Fugue, Transcription, PassacagliaПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21649EDEDA03C0489BC4874A103292223E068F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410379   (435814) от 21.09.2020
-
-Ludovico Einaudi - Undiscovered (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuori Dal Mondo (Remastered 2020) (4:59)
- 02. Other Nature (Remastered 2020) (4:39)
- 03. Due Tramonti (Remastered 2020) (4:55)
- 04. In Un'altra Vita (Live / Remastered 2020) (6:55)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 01:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D11E83C8D1546C81DFC4ED07BAFEA910B8D9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207019   (435492) от 21.09.2020
-
-VA - Weekend classics series by Deutsche Grammophon (11 CD из 35) (2006) [APE, FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список дисков:
-a Beethoven Piano Weekend
-a Guitar Weekend
-a Johann Strauss weekend(   Читать дальше...   )Жанр: ClassicalПродолжительность: 12:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2955CF654747B2606B32581F68086808B5395CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945064   (435265) от 09.10.2015
-
-David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous
-02. Explosive
-03. Serenity (feat. Nicole Scherzinger)
-04. Lose Yourself(   Читать дальше...   )Жанр: Classical, CrossoverПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7406012F7635D26B0EC79AC6648120A8270F15
 ```
 
 https://mybot314.ru/tekegram_catalog/

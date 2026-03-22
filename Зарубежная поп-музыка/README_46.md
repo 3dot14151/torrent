@@ -1,3 +1,119 @@
+###  Публикация: 1314501   (518081) от 15.07.2019
+
+Paul McCartney - Paul Is Live (2019) Original Release Date: 8 Nov. 1993 (Digitally remastered) [MP3|320 Kbps] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive My Car (2:16)
+02. Let Me Roll It (4:04)
+03. Looking For Changes (2:37)
+04. Peace In The Neighbourhood (4:42)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341844B213C3FB7BB2BFFA35C8E69270EFBF56BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314577   (517968) от 15.07.2019
+
+VA - NOW 100 Hits Car Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen, John Deacon, Brian May, Freddie Mercury, Roger Taylor - Another One Bites The Dust (03:35)
+02. Fleetwood Mac - Little Lies (03:38)
+03. Duffy, Steve Booker - Mercy (03:40)
+04. Coldplay - Adventure of a Lifetime (04:24)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA0BB131FA696CEA3FF8A6BF2F7DD8AF300029C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929484   (517350) от 21.08.2015
+
+Lauren Christy - Lauren Christy (1994) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain (03:33)
+02. You Read Me Wrong (04:27)
+03. Steep (04:29)
+04. The Rumour (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2E7014076DBA8052C1DC74914210733B695033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930005   (517312) от 21.08.2015
+
+Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Strawberry Fields
+ 02. Gave Me Something
+ 03. Hold My Hand
+ 04.  Real Love(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C062CACF3C955274BE3BFE11B7540DCC041F235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241883   (516118) от 21.08.2018
 
 VA - Classic Pop - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Pop>
@@ -656,119 +772,6 @@ Hurts - Happiness (2010) [MP3|320 kbps]<Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934034   (504170) от 03.09.2015
-
-VA - 300 Hits - Love Songs (2012) [MP3|320 кб/с]<Pop, R&B, Soul, Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504170.jpg" />
-</div>
-
-
-###  Подробнее
-
-По просьбам одноклубников выкладываю этот сборник в МР3, который несколькими днями раньше выложен мною в lossless (ссылка на первоисточник внизу).Список альбомов:
-CD1 - I Will Survive
-CD2 - Timeless Love Songs
-CD3 - Always & Forever(   Читать дальше...   )Жанр: Pop, R&B and Soul, Rock, CountryФормат: 15CD, box setПродолжительность: 16:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8BF47BA01B443E34F24ECDB142124C7D6C6432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563576   (503513) от 15.07.2022
-
-Eruption - Eruption - The Best Of Eruption (1981) Compilation, Remastered, 2017, Big Break Records [MP3|320 Kbps] <Funk, Soul, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stand The Rain (3:09)
-02. Go Johnny Go (Keep On Walking, John B.) (3:30)
-03. Leave A Light (I'll Keep A Light In My Window) (4:21)
-04. Movin' (4:27)(   Читать дальше...   )Жанр: Funk, Soul, Pop, DiscoПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C12FA8D65282D348365E29516FFDBB5E23B994D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379291   (503111) от 24.08.2011
-
-Jessie J - Who You Are (2011) Deluxe Edition [MP3|320 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FC0EC728BF2F654620961BC3EF12B656EEEF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934126   (503093) от 04.09.2015
-
-A-Ha - Cast In Steel (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>След.
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cast In Steel (03:52)
-02. Under The Makeup (03:24)
-03. The Wake (03:46)
-04. Forest Fire (03:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD773A6DFD4BD5E2665F227C02FF48819A1C367
 ```
 
 https://mybot314.ru/tekegram_catalog/

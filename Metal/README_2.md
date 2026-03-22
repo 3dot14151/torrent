@@ -1,3 +1,32 @@
+###  Публикация: 1438870   (1040646) от 10.01.2021
+
+The Rods - Brotherhood Of Metal (2019) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brotherhood of Metal (07:28)
+ 02. Everybody's Rockin' (03:57)
+ 03. Smoke on the Horizon (04:47)
+ 04. Louder Than Loud (04:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A28D9AB62CCA3F7C0B1385AB5B9E821F8FB83C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438919   (1040534) от 10.01.2021
 
 Hellhole - Whores in the guise of saints (2020) [MP3|320 Kbps] <Black Metal, Post-Metal>
@@ -716,35 +745,6 @@ Mind Driller - InBolution (2021) [MP3|320 Kbps] <Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D22B6A1C55A996FE61B86106918C09071E681718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615824   (1037297) от 27.02.2023
-
-Druid Stone - 3 Albums (2022-2023) [MP3|320 Kbps] <Blackened Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - Druid Stone (Re-issue)
-2023 - The Corpse Vanishes (Remixxx)
-2023 - The Grateful UndeadЖанр: Blackened Doom MetalПродолжительность: 3 CD, 02:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8CA660C2A81D2FA83292D3DB66AEA6E949E811
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1330007   (345612) от 08.10.2019
+
+Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Soundtrack) (2004) [MP3|320 Kbps] <Classical, Baroque>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения между Людовиком XIV, Люлли и Мольером, лежащие в основе фильма "Король танцует", несомненно, уникальны в истории искусств. Если летописцы, историки и романисты много вышивали вокруг этой встречи, то факты еще интереснее, чем легенда. Ибо речь идет не только о встрече мецената, музыканта и драматурга. Благожелательная случайность сделала все лучше, (   Читать дальше...   )01. Te Deum Motet a deux choeurs (02:16)
+02. La Bocanne primitive (01:43)
+03. La Bocanne compliquee (01:06)
+      .....Опера Фаэтон(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578062   (345384) от 23.09.2022
+
+VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Picture, OST [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Hard Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Retaliators - Sometimes If You’re Lucky… It’s Better to Keep Evil Alive (0:22)
+02. Papa Roach - The Ending (3:29)
+03. The Retaliators - We Have to Get out of Here… Those Aren’t Zombies… (0:09)
+04. The Hu - This Is Mongol (3:44)(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Hard RockПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A5EBD5F50F3692DB41EE1893FBB9F72A32B6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257119   (345355) от 26.10.2018
+
+Thom Yorke - Suspiria (Music for the Luca Guadagnino Film) (2018) Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: IDM, Experimental, RockПродолжительность: 01:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2189E0D403FD5C0A841EDE37ACF615302930309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257239   (345182) от 26.10.2018
+
+Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasm 05:53
+02. Oyarsa (ft. Timbre) 06:52
+03. Aurora 02:49
+04. Immersion 02:56(   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A55487E654FF2F0D7E9BE2C6709F85664E1ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073547   (344639) от 16.11.2016
+
+Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Eight (Feat. Nanuk) (02:18)
+02. The Omega Point (05:39)
+03. Diving (02:52)
+04. The Die Is Cast (Feat. Mark Josher) (04:17)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F62D8EF347025D2D9CC3A89B09DBFD4B3082AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179932   (344579) от 02.11.2017
 
 Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
@@ -602,151 +744,6 @@ David Wise - Tengami (2014) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:227549CB6DC2135B598EF90FAA033DCC1B68310F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953890   (340094) от 08.11.2015
-
-VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Кармелита'-Н.Басков-03:15
-02. Заставка -02:24
-03. Колыбельная из сериала 'Кармелита' -Ляля Жемчужная-02:27
-04. Полынь-трава в исполнении Юлии Зиминой-03:27(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41DF59B52031D697D802F79399D2C08ACAD3925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074031   (340083) от 18.11.2016
-
-Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
-02. Marcy Harriell - More (Outtake) (03:17)
-03. Marcy Harriell - More (Reprise - Outtake) (02:39)
-04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C359D66CB3BFB4AE16D9E7FF1D9C8C1DE203E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074032   (340075) от 18.11.2016
-
-Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
-02. Marcy Harriell - More (Outtake) (03:17)
-03. Marcy Harriell - More (Reprise - Outtake) (02:39)
-04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA3A33C3492B6EF3546F8E5251BFE01CFEE4EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954328   (339972) от 08.11.2015
-
-Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's the Door (04:08)
-02. Gonna Give You a Try (03:13)
-03. Ain't Looking Back (02:41)
-04. Forget to Remember (03:36)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3B492148AD46443FE328F04850A16F482A2210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953917   (339724) от 08.11.2015
-
-Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|image+.cue]<New Age, Downtempo,Electronic, Folk, World, & Country>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339724.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Monk's Introduction    (05:05)
-02. Hazimari / Sozo    (09:52)
-03. Caravansary    (05:57)(   Читать дальше...   )Жанр: New Age, Downtempo,Electronic, Folk, World, & CountryПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAF5ED0498E48FE4AE9E5058A9909394670B46B
 ```
 
 https://mybot314.ru/tekegram_catalog/

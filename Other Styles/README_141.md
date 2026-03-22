@@ -1,3 +1,148 @@
+###  Публикация: 40433   (272813) от 29.11.2018
+
+Евгения Смольянинова - В лунном сиянии... (2005)
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В лунном сиянии... (муз. и ст. Е.Юрьева)
+02. Степь да степь кругом (муз. неизв. авт., ст. И. Сурикова)
+03. Затворница (муз. неизв. авт., ст. Я.Полонского)
+04. Вот мчится тройка удалая (муз. И.Иваново, ст. Ф.Глинки)(   Читать дальше...   )Жанр: Народная песня / романсПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356976C3A0E10EEA2F8F8147F97B8B956664F7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337453   (272629) от 12.11.2019
+
+VA - Autumn is Coming: Soft Music Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272629.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Adam Fielding, James Wordsworth, John Westbourne - Starting Over (2:45)
+2.Luigi Seviroli - Minimal Skies (2:53)
+3.John Paul Rushton, James Wordsworth, John Westbourne - Terminal (2:44)
+4.Daniel Finot, Arnaud Rozenblat - Changing Colours (4:17)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666EFF82BFFFA4958906C03A377F3E1A0A7310D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 139281   (271758) от 30.11.2018
+
+VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francis Lai - Un Homme Et Une Femme (02:45)
+02. Nino Rota - Love Theme From The Godfather (02:41)
+03. Henry Mancini - The Windmils Of Your Mind (& His Orchestra) (03:01)
+04. Francis Lai - Love Story (04:12)(   Читать дальше...   )Жанр: Soundtrack (Pop)Продолжительность: 01:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243FDFF78FEB7C8DFA831539A3DC9723E7A6AA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337901   (271656) от 13.11.2019
+
+Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Merrymaker (01:19)
+02. Better Days Past (01:57)
+03. The Merrymaker Murderer (01:17)
+04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337902   (271654) от 13.11.2019
+
+Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Merrymaker (01:19)
+02. Better Days Past (01:57)
+03. The Merrymaker Murderer (01:17)
+04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5458AFF2A2B52EBA8D35B73D313111F5085708B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337874   (271505) от 13.11.2019
 
 Music for Quiet Moments - # Classical Love (2019) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
@@ -597,151 +742,6 @@ Mokadelic - Gomorra: La Serie (2019) Expanded Edition [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2302D90ABF3B2150C936D23608A7D24CD6C9124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189810   (269510) от 07.12.2017
-
-Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  A Walk Through the Leaves (4:12)
-2.  Sun on Frost (2:41)
-3.  Constellations (6:12)
-4.  The River in Late Autumn (4:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A223761770FB7F6BA8280E62E01AB5CF3A8D2960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189854   (269508) от 07.12.2017
-
-Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise to Sunset
-02. Twilight Peace
-03. Starlight
-04. Promenade(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA28A37F698FBECCAC2096772B7920AD0A458B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189570   (269430) от 07.12.2017
-
-VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Touch - Indian Dawn
-02. Oriental Vibes - Chanda Day
-03. Body Massage - Bengali Wave
-04. Invisible Circle - Free Pass(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912C0286698E587BFECC6D4183EEDB896FEE1372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266494   (269186) от 03.12.2018
-
-Ed Harcourt - Beyond the End (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diving Bell (4:41)
-02. Wolves Change Rivers (3:50)
-03. Duet for Ghosts (3:42)
-04. Empress of the Lake (3:38)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E52509F95A40DAECEEB88B5E4ABD1885940630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265878   (269106) от 03.12.2018
-
-VA - Horizon Zero Dawn: The Frozen Wilds Original Soundtrack (2017) [FLAC|Lossless|tracks] <Original Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Frozen Wilds (1:11)
-02. The Fate We Long For (1:15)
-03. To Be Banuk (2:15)
-04. White Falls (3:58)(   Читать дальше...   )Жанр: Original SoundtrackПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B85BEB9D8F691B84A4BFAA34C75246387F731B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,166 @@
+###  Публикация: 553352   (442257) от 29.09.2012
+
+VA - Club 86 Recordings - Ibiza Closing 12 (2012) [MP3|320 кб/с]<Progressive House,House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weltraum - Heinrich Kantholz
+02. Leka - Horstenbacher
+03. Feeling Fine - Tero
+04. Held Des Alltags - Chantola & Heinrich Kantholz
+05. Love Jones - Johny S
+06. The Way of the Cobra (Tero Tiger Style Remix) - Neo Neo
+07. Bailar - Johny S
+08. Selva Febre - Alec Hall
+09. High Drive (Tommi Oskari Club Twist) - Tommi Oskari
+10. Frisco (Klaukenberg Remix) - Kajis & LadeЖанр: Progressive House,HouseПродолжительность: 02:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503023F77704104CE8F022FB34A06C7488193734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164301   (441835) от 09.09.2017
+
+VA - This Is It Hard Workout Pays Off! (2017) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rich Franklin – Rush
+02. Rampage Jackson – Wall
+03. Phatt – Golden
+04. Nadeem Ruil – Proraso(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FEFD4289D33EA1D0719AA2FFAE56BA1E15430B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164269   (441509) от 09.09.2017
+
+VA - Ibiza Summer House Sessions 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York, J.L. - Seaborne 06:47
+02. Simon Le Grec - Addicted 2 U (Radio mix) 03:50
+03. Anthya - Pranayama 04:49
+04. David Puentez - Aerius (Koen Groeneveld Ibz remix) 06:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E7B3A7F98FB8FB030FED7E89CF8BB48072D001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553903   (438911) от 30.09.2012
+
+Peter Gun - Powder (2012) [MP3|320 кб/с]<Progressive House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock You
+02. Back 2 Late (feat. Max Rage)
+03. Shit U Want (feat. Martin H)
+04. Globe (feat. Max Rage)
+05. Mirrorman (feat. Max Rage)
+06. Summer Breeze (feat. Max Rage)
+07. Mexican Hotel
+08. Drumpunk (feat. Max Rage)
+09. Spooky (feat. Max Rage)
+10. Night ReturnЖанр: Progressive House, Tech HouseПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470018277345F748424243754902B199E3C6E816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552876   (438753) от 30.09.2012
+
+Various Artists - Future Bass: Ministry of Sound (2012) [MP3|320 кб/с]<Tech / Deep / House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438753.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jessie Ware - Running (Disclosure Remix) (5:17)
+2. TNGHT - Higher Ground (3:19)
+3. Pirupa - Party Non Stop (Huxley Remix) (7:33)
+4. Disclosure & Ria Ritchie - Control feat. Ria Ritchie (4:49)
+5. Maya Jane Coles - Not Listening (6:31)
+6. Jamie Jones - Frequencies (5:25)
+7. Hudson Mohawke - Thunder Bay (3:18)
+8. Eliphino - More Than Me (7:01)
+9. Rustie - After Light (3:42)
+10. Drumsound, Bassline Smith & Tom Cane - Through The Night feat. Tom Cane (Shadow Child Remix) (6:07)(   Читать дальше...   )Жанр: Tech / Deep / HouseПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0503235AB28FD97ED39D37B1395BD561B6AE9285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410199   (438420) от 20.09.2020
 
 VA - Crossfit Selection 1 (2020) [MP3|320 Kbps] <Tech House>
@@ -622,151 +785,6 @@ VA - Ibiza 2017 Closing Party [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1305382EF27B11F03DA436E0DFF8728F7A5F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945493   (427313) от 13.10.2015
-
-VA - Paul Oakenfold - We Are Planet Perfecto, Vol. 5 (Back To My House) (2015) [MP3|320 кб/с]<Trance,Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donatello - Story (Donatello & Arnas D Radio Edit) (03:34)
-02. Krankbrother - When You’re Watching Me (Radio Edit) (03:58)
-03. Mier - Dreamin (Fractal Architect Radio Edit) (03:46)
-04. Philthy Chit - People, Places (Radio Edit) (03:22)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 05:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE765F5650813CC4C63E214B99B8DEBA7A9239F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064868   (423913) от 21.10.2016
-
-Armin van Buuren - Club Embrace (2016) [MP3|320 Kbps] <Progressive House, Deep House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren - Club Embrace (Intro) (3:44)
-02. Armin Van Buuren - Hymne (Martin Roth Remix) (3:32)
-03. Armin Van Buuren Feat. Sharon Den Adel - In And Out Of Love (Diversion Remix) (3:07)
-04. Armin Van Buuren - In 10 Years From Now (Naden Remix) (3:36)(   Читать дальше...   )Жанр: Progressive House, Deep House, Progressive TranceПродолжительность: 03:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D622EF808F77FF8818083754FFE7787AAA0987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324630   (423098) от 10.09.2019
-
-VA - Bikini Beach, Vol. 10 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423098.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.YAKO BEATZ - Zero (2:03)
-2.Dippu - Sweet Cake (3:20)
-3.DJ K-NEXT - Dream (4:26)
-4.Gerrox - Shadows (3:32)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748DBBF170714D9017FB50420262D9E186513308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375953   (422793) от 10.09.2019
-
-Utah M. Paul - Дискография  44CD Taboo Records (1997-2010) [MP3|320 kbps]<House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justus Kohncke - Yacht (Robert Babicz mix) (08:13)
-02. Jeremiah, Bradler - Turmoil (Original Mix) (02:48)
-03. Jim Rivers - I Go Deep (Original Mix) (03:35)
-04. Kriece - Cork In The Ocean ( Jim Rivers Mix) (06:56)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AB36637252DB82BD3BFDAE15FB9C413F194E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250899   (422656) от 29.09.2018
-
-VA - Deep House & Deep Techno #03: Best Of 5 Years (2018) [MP3|320 Kbps] <Deep House, Deep Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demax - Galantis (Original Mix) 7:38
-02. Robben Cepeda - Another Day (Original Mix) 6:35
-03. Valentin Timoshin - Drones (Original Mix) 6:17
-04. Carlos De Castro - Grooving Madness (Original Mix) 5:56(   Читать дальше...   )Жанр: Deep House, Deep TechnoПродолжительность: 05:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F107173F7461859A51560D330292A3659343E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

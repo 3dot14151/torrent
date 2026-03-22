@@ -1,3 +1,147 @@
+###  Публикация: 1664857   (178067) от 06.10.2023
+
+neowake Biofrequencies - Утренняя мотивация 16 Гц: бинауральные ритмы для позитивной энергии (2023) [MP3|320 Kbps] <Instrumental, meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_178067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пусть позитивная энергия neowake morning motivation не только украсит ваше утро, но и сопровождает вас в течение всего дня! Этот специальный сеанс с бинауральными ритмами  на частоте 16 Гц даст вам дополнительную дозу позитивной энергии в любое время дня.
+
+Если вы просто готовитесь к новому дню утром, нуждаетесь в зарядке энергии во время работы или делаете перерыв, (   Читать дальше...   )01. Morning Motivation 16Hz - Binaural Beats for Positive Energy (neowake®).mp3 [00:59:59]Жанр: медитация, бинауральные ритмы, InstrumentalПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A415BD7B34A67A87BD6A3CDAEC0FB0BF73101A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665949   (177874) от 06.10.2023
+
+Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prognosis
+02. Henry Hope
+03. Meet Gabriela
+04. Tequila(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593776   (177836) от 01.12.2022
+
+Ted Hammond Orchestra - Hammond & Sax (2022) Vol. 1,2 [MP3|320 Kbps] <Instrumental, Hammond>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vive l'amour (Original Mix) [02:25]
+02. Barcarole (Original Mix) [02:32]
+03. La Bamba (Original Mix) [03:02]
+04. La Matchiche (Original Mix) [02:11](   Читать дальше...   )Жанр: Instrumental, HammondПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3787BC41B6ECED2E88AA488B3E0AECA1E4CBB9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429166   (177371) от 05.12.2020
+
+Blackmore's Night - Here We Come A-Caroling (2020) EP [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here We Come A-Caroling
+02. It Came Upon a Midnight Clear
+03. O Little Town of Bethlehem
+04. Silent NightЖанр: Folk RockПродолжительность: 00:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA3AF3FE364386D7D96A48A78A0FD48E16F3099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428728   (176682) от 06.12.2020
+
+Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's So Intoxicating [03:47]
+02. Got My Country Girl [02:59]
+03. Cherokee Butterfly [03:54]
+04. Somehow I Know You [03:05](   Читать дальше...   )Жанр: Country, RockПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC35178BB5B563B0985E5CFCC2C505DDB9B39FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429491   (176529) от 06.12.2020
 
 VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House, Miscellaneous>
@@ -599,151 +743,6 @@ Derniere Volonte - Cristal (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Synthp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74D026E2C919ED9F6483F9E1810C861B753E9257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595975   (169782) от 10.12.2022
-
-African Imperial Wizard - 4 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Neo Folk,  Power Electronics>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sundjata [00:05:55]
-02. Shaka kaSenzangakhona [00:05:35]
-03. Kaocen Ag Geda [00:05:13]
-04. Ekang Nna [00:05:57](   Читать дальше...   )Жанр: Industrial Neo Folk,  Power ElectronicsПродолжительность: 4 CD, 02:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4CA2ECD650F830684F2B0080AB4356741E9DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344602   (169734) от 11.12.2019
-
-Rodrigo Y Gabriela - 11:11 (2010) [MP3|320 Kbps] <Latin, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanuman
-02. Buster Voodoo
-03. Triveni
-04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232DB9D8932BF0800C00EB9F26D7EBD491A1C181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 150192   (169343) от 11.12.2019
-
-VA - Tarantinomania (1999) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pumpkin and Honey Bunny Speach (0:13)
-02. Dick Dale and His Del-Tones - Misirlou (2:11)
-03. Urge Overkill - Girl, You'll Be a Woman Soon (3:01)
-04. Rem Jem - Black Betty (2:27)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A539F11E6CD428942BD600676C11D8C03084238D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431059   (168819) от 12.12.2020
-
-Faith Hill - Faith (1998) Warner 9 46790-2 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Kiss (3:15)
- 02. You Give Me Love (3:35)
- 03. Let Me Let Go (4:25)
- 04. Love Ain't Like That (3:50)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA7968F442058A7981E66E3B8CA0C01DA7D8619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 7944   (168752) от 12.12.2019
-
-Ottmar Liebert - Nouveau Flamenco  (1990) [MP3|320 kbps] <Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barcelona Nights
-02. Heart Still / Beating (4 Berlin)
-03. 3 Women Walking
-04. 2 the Night (Fast Cars) (4 Frank)(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32113FCD8FC96FBCF53C9A0E60F56DE214085746
 ```
 
 https://mybot314.ru/tekegram_catalog/

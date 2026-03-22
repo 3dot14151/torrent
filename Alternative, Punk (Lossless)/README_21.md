@@ -1,3 +1,119 @@
+###  Публикация: 1287012   (707431) от 05.03.2019
+
+Attila - Chaos (2016) SharpTone Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignite (3:27)
+ 02. Bulletproof (3:33)
+ 03. Public Apology (3:41)
+ 04. Obsession (3:25)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22B66C4ADD8CF71FDBF8B0BB0B7E12F4458789D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286625   (707430) от 05.03.2019
+
+Guignol - Ash Land (2019) [FLAC|Lossless|tracks + .cue] <Gothic Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger
+02. 1000 Tyrants
+03. The Masque
+04. Chemical City(   Читать дальше...   )Жанр: Gothic Rock, Post-PunkПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE51790A42B39A122229F789748F24677E84617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286921   (707332) от 05.03.2019
+
+Methyl Ethel - Triage (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruiner (04:20)
+02. Scream Whole (04:13)
+03. All the Elements (04:24)
+04. Trip the Mains (03:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A0DB8738777DD2B9BC27503872B768330CB7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287018   (707309) от 05.03.2019
+
+Attila - Villain (2019) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdition (1:44)
+ 02. Villain (2:47)
+ 03. Blackout (2:59)
+ 04. New Addiction (3:13)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955D7FA8BBF9ECA363ED5135CF06C9B65D7ED575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287040   (707131) от 05.03.2019
 
 VA - Punk Collection (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Punk Rock>
@@ -629,122 +745,6 @@ Mallory Knox - Wired (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94F0AB184B36F9355994436F4918E9BDCCC9C0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132609   (697002) от 11.05.2017
-
-Agent Provocateur - Where The Wild Things Are (1997) [FLAC|Lossless|tracks + .cue] <Electro,Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Tape (5:19)
-02. Spinning (3:43)
-03. Agent Dan (5:26)
-04. Kicks (5:00)(   Читать дальше...   )Жанр: Electro,AlternativeПродолжительность: 01:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD305617D10656AF53335E5B8A5927445DE605DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132777   (696999) от 11.05.2017
-
-Mac DeMarco - This Old Dog (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Jangle Pop,  Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696999.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My Old Man (03:42)
-2. This Old Dog (02:31)
-3. Baby You're Out (02:38)
-4. For The First Time (03:02)(   Читать дальше...   )Жанр: Indie Rock, Jangle Pop,  Lo-FiПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4CE468B807B72E1B206BF07E42ADB6BA906BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132607   (696946) от 11.05.2017
-
-Mogli - Wanderer (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696946.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winter Sun (02:02)
-2. Road Holes (04:36)
-3. Earth (03:24)
-4. Milky Eyes (04:04)(   Читать дальше...   )Жанр: Indie, Alternative, FolkПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773479D61F6CBA0A621B18E5A28E22C4199D7F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133017   (696868) от 11.05.2017
-
-Hoops - Routines (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Dream Pop, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun’s Out (2:49)
-02. Rules (2:13)
-03. On Top (3:45)
-04. Benjals (2:20)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, Lo-FiПродолжительность: 00: 32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DF9B5C0F3C4F0815F4804CF123973433BCB736
 ```
 
 https://mybot314.ru/tekegram_catalog/

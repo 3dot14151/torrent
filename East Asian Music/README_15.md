@@ -1,3 +1,32 @@
+###  Публикация: 1078783   (297805) от 02.12.2016
+
+Crystal Lake - True North (2016) [MP3|320 Kbps] <Metalcore>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha
+02. Omega
+03. Hatred
+04. Metro(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9128C9A472A401B56B75FD740D6E911BF5B32D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962122   (296977) от 03.12.2015
 
 Younoumi - 15 альбомов (2008-2015) Touhou Vocal, KanColle /Doujin/ [FLAC|tracks] <J-Pop, J-Metal, Electronic>
@@ -732,35 +761,6 @@ Rainbow - Over The Rainbow (2012) [MP3|320 кб/с]<К-Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21A4A2F463F0CCE34CF8B2869A261AB309008871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621343   (245073) от 25.03.2023
-
-Babymetal - The Other One (2023) [FLAC|Lossless|WEB-DL|tracks] <J-Metal, Modern Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. METAL KINGDOM (5:51)
-02. Divine Attack - Shingeki - (3:38)
-03. Mirror Mirror (3:50)
-04. MAYA (3:23)(   Читать дальше...   )Жанр: J-Metal, Modern MetalПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB93C0FE70533125BA81C5E8979A955E52FAF4B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1617281   (1035260) от 06.03.2023
+
+VA - We Love Italo (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Circle - Touch in the Night (5:19)
+02. D.White & DimaD. - 600 KM (4:17)
+03. Boys Next Door - Lady of the Night (The Night Affair Mix) (4:58)
+04. Bruce & Bongo - Geil (Ben Liebrand Mix) (7:09)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A3B54E42B92936A106C29410E98E8B7677DF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443712   (1035215) от 30.01.2021
 
 Birizdo I Am - eRETROshock (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
@@ -716,35 +745,6 @@ Genghis Khan - Here We Go (2021) Japan Edition [FLAC|Lossless|image + .cue] <Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C697D691E26D61135D08ED6DB3C1208B61BE062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453041   (1027228) от 09.03.2021
-
-Aleph - Little Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire on the Moon (Under the Moon Version) (5:30)
-02. I'm on Fire (Grand Mix Extended Version) (4:45)
-03. Must Be Love (3:50)
-04. Fly to Me (5:28)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492A85AC1BD4D312049A0C9AD435AC565961660C
 ```
 
 https://mybot314.ru/tekegram_catalog/

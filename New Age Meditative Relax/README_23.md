@@ -1,3 +1,32 @@
+###  Публикация: 1260246   (314050) от 06.11.2018
+
+VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrumental, New Age, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stive Morgan - Spirit Of The Earth (6:12)
+02. Aleksey Kovalenko - Noise In The Head (6:45)
+03. Sergey Nsd - Where you (Lost in the ice) (6:07)
+04. Rainy - The Secret Of Desert (7:22)(   Читать дальше...   )Жанр: Chillout, Electronic, Instrumental, New Age, SpaceПродолжительность: 05:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1770C34719A0CA06F5E2DAF7C73674E0F319C9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260276   (311837) от 07.11.2018
 
 VA - E-Energy vol. 1-16 (2014-2016) [MP3|320 Kbps] <Ambient, Chillout, Instrumental, New Age>
@@ -720,35 +749,6 @@ Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080321   (288277) от 07.12.2016
-
-Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Soundtrack>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Across the Southern Slies (feat. Guido Negraszus) (09:25)
-02. Slow in Motion (04:39)
-03. Floating Ice (03:57)(   Читать дальше...   )Жанр: Ambient, Electronic, SoundtrackПродолжительность: 02:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B014C9602F859E79B4BB15DA8FBE44AA539356
 ```
 
 https://mybot314.ru/tekegram_catalog/

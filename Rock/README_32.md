@@ -1,3 +1,154 @@
+###  Публикация: 1535447   (684219) от 07.03.2022
+
+Sweet - Reincarnation 2 (2022) Remastered [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mick Tucker Interview (Remastered) (00:38)
+ 02. Teenage Rampage (Remastered) (04:13)
+ 03. Hellraiser (Remastered) (04:03)
+ 04. Love Is Like Oxygen (Remastered) (05:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F257904D06B57AA165BA89414DA58D9DA7BEA4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507655   (683954) от 08.06.2012
+
+Russ Diapper - No Cure For Curiosity (2011) [MP3|320 кб/с]<Rock, Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683954.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bachelors Blues
+2. Ego Star
+3. Keepin me Alive
+4. Red Cadillac
+5. Cluckin Mad
+6. Heartbreaker
+7. Need My lady
+8. Redhead Topdown
+9. Bad Boy
+10. Girl is a tease(   Читать дальше...   )2011Жанр: Rock, Classic Rock, Blues RockПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D94027E84B394C03B4BFF135E8C76EA4D4173CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029347   (682633) от 26.06.2016
+
+Elephant Plaza - Momentum (2016) [MP3|320 кб/с] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naked
+02. Southwest
+03. Paralyzed
+04. All The Way(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDA487766BEABC662FFC0A6DF13EA4B9F2817E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135382   (681185) от 19.05.2017
+
+Titanic - Sea Wolf (1971) Remastered, 2000, Repertoire Records [MP3|320 Kbps] <Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681185.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sea Wolf
+2. Underbird
+3. Confusion
+4. Sultana(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956A3B4E276FEDFE5C5F4573917F7E306B4D2B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135370   (680803) от 19.05.2017
+
+Foreigner - 40 (2017) 2CD [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680803.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Feels Like The First Time (Remastered)
+02. Starrider (Remastered)
+03. Cold As Ice (Remastered)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9E3C8198FCE45DAF7A69EE1F076BD9467ADF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029847   (678456) от 28.06.2016
 
 Aura - Observations (2016) [MP3|320 Kbps] <Progressive Rock>
@@ -619,151 +770,6 @@ VA - 1968 A Music Revolution (2018) [MP3|320 Kbps] <Rock, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8053CB82D316F07B53A9C361D927745E522449FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136779   (666769) от 27.05.2017
-
-Man Made - Man Made (1971) Reissue, 2010, Mandala [MP3|320 Kbps] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Man Made
-2. Carnival
-3. Reflections
-4. Evolution(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3152D6AAA3F343EDA15B4E47D8AFDC87B6CCC512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537202   (666760) от 17.03.2022
-
-The Delines - The Sea Drift (2022) Deluxe Edition [MP3|320 Kbps] <Blues Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Earl
-02. Kid Codeine
-03. Drowning In Plain Sight
-04. All Along The Ride(   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB90AE7C264CC490914A0EB635B67996F6EB3CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537395   (666566) от 17.03.2022
-
-VA - Classic Rock Hits 2022 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Have You Ever Seen The Rain (2:40)
-02. Bon Jovi - Livin' On A Prayer (4:08)
-03. BØRNS - Electric Love (3:38)
-04. The Verve - Bitter Sweet Symphony - Remastered 2016 (4:35)(   Читать дальше...   )Жанр: RockПродолжительность: 01:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB83E228C10DB529EE1ECCDCE219B59A357FA57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224390   (666056) от 10.05.2018
-
-Angel - White Hot (1977) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666056.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Leave Me Lonely
-2. Ain't Gonna Eat Out My Heart Anymore
-3. Hold Me, Squeeze Me
-4. Over And Over(   Читать дальше...   )Жанр: Rock, Hard Rock, GlamПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDBBCC8A020C6EC5472952FADA0E9EEA15C5315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224376   (666054) от 10.05.2018
-
-Voltaire - The Very Best of Aurelio Voltaire, Vol. 2 (2017) 2CD [MP3|320 Kbps] <Dark Cabaret, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666054.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Innocent
-2. Sacrifice
-3. The Mechanical Girl
-4. The Devil and Mr. Jones(   Читать дальше...   )Жанр: Dark Cabaret, Gothic RockПродолжительность: 01:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207BB3FF9866ADCCD59F3F93BD360E9059C0267F
 ```
 
 https://mybot314.ru/tekegram_catalog/

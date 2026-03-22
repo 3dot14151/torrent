@@ -1,332 +1,22 @@
-###  Публикация: 1118363   (811940) от 26.03.2017
+###  Публикация: 1008738   (813931) от 19.04.2016
 
-Svartrit - I (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Svartrit
-03. Svarthetens ridå
-04. Mänsklighetens fall(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19AEDEC48292B59C75606D2A122142257E37E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118730   (811939) от 26.03.2017
-
-Svartrit - II (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Black Stars of Death and Wisdom
-03. A Labyrinth of Death
-04. Domedagens tid (Ragnarök)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE7DD35A21925E81F91CFF4FE84DE19D3FBEEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118732   (811938) от 26.03.2017
-
-Svartrit - III (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Till eder ära
-03. De mörka gudarna
-04. Den inre svarta flamman(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA34F22A7BF94CD39245D7A27AF696A2FFB07E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118516   (811937) от 26.03.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа G. 5-й тур. Италия – Албания (24.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811937.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 марта 2017, пятница. 22:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа. Группа G. 5-й тур
-Италия – Албания
-Стадион: Ренцо Барбера (Палермо, Италия), вместимость: 36349(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EA917404914F18A1D840172E1F62E98C775666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118781   (811936) от 26.03.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа I. 5-й тур. Хорватия – Украина (24.03.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811936.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 марта 2017, пятница. 20:00 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа. Группа I. 5-й тур
-Хорватия – Украина
-Стадион: Максимир (Загреб, Хорватия), вместимость: 38923(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89036327FBA8A7984B368EBD35315B8B4A082508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118407   (811935) от 26.03.2017
-
-Sarkrista - The Acheronian Worship (2013) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. Grim Satanic Vengeance
-03. Funerals and Flaring Torches
-04. Ruthless Winter(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FA26E9C5B8C452652F7415F14F448955A0448A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118735   (811934) от 26.03.2017
-
-Nekrokrist SS - Nekrokrist SS (2009) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knife
-02. Divine Light
-03. There's no Place for You
-04. Cremation(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6449A7BD55381EA77B7FD129BFC85EE3441AB44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118437   (811933) от 26.03.2017
-
-Master's Hammer - Formulae (2016) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den nicoty 03:40
-02. Maso z kosmu 04:13
-03. Votava 03:29
-04. Shy Gecko 03:18(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6197D1D2CA133BDCE4E9881C90FD1AF63B0DFC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009068   (811932) от 20.04.2016
-
-А.В. Засов. Лекция «Рентгеновское небо». Цикл «Разноцветное небо» (2014) WEBRip [H.264] [MP4|1920х1080]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811932.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 декабря 2014 г. в конференц-зале Большого Планетария Москвы состоялась заключительная лекция из цикла «Разноцветное небо», которую читает выдающийся ученый, профессор МГУ, доктор физико-математических наук Анатолий Владимирович Засов.Жанр: ДокументальныйПродолжительность: 01:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F149F0CE473ED1D90994745B5C677DB4960B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008821   (811931) от 20.04.2016
-
-Дмитрий Урушев | Русское старообрядчество: традиции, история, культура (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена самым ярким эпизодам и основным вехам истории старообрядчества. Рассказ об этом исконно русском духовном движении начинается со времен появления христианства на Руси и доходит до наших дней. Читатель знакомится с живыми портретами выдающихся исторических деятелей (протопоп Аввакум, боярыня Морозова и др.), с яркими рассказами о достопамятных событиях. (   Читать дальше...   )Жанр: РелигиоведениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BE1F3300A201E14AEE2E74C0EBC13C5A94FF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009147   (811930) от 20.04.2016
-
-Специальный корреспондент. Пленные. Возвращение из ада (2016.04.20) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811930.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 02:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B441CA7598A95D186D6ABF49FFE6864167F3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009004   (811929) от 20.04.2016
-
-Паола  Волкова | В пространстве христианской культуры (2016) [MP3]
+Джон Голсуорси | Братство (2014) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811929.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В искусстве самая важная проблема – ментальность. Это художественное сознание, которое формируется долго и долго длится. Меняя формы, оно не изменяется по сути. Это то, что называется традицией художественного сознания, культурой зрения и восприятия искусства. Все современные традиции во всем мире формировались в Средние века. Средневековье и создало фундамент сознания: (   Читать дальше...   )Жанр: Искусство, культурологияПродолжительность: 11:09:06
+Новые времена - новые нравы… Пока профессор Сильванус Стоун, представитель уходящей эпохи викторианской Англии, работает над трудом "Книга братства", в его доме кипят нешуточные страсти молодого поколения. Отношения между молодыми людьми, преисполненные то комизма, то подлинного драматизма, снова и снова нарушают непререкаемые представления добродушного (   Читать дальше...   )Жанр: КлассикаПродолжительность: 13:32:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B4C288F4632D552D7806CCD0C6B06200EF2A32E
+magnet:?xt=urn:btih:DF7845C6454814964E4DDEE746EB2F88E2172C68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,28 +24,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009019   (811928) от 20.04.2016
+###  Публикация: 1008853   (813930) от 19.04.2016
 
-Imperium - Dreamhunter (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Право голоса. "Тайная армия" Путина" (19.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813930.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Газета Bild опубликовала статью, в которой утверждается, что в Германии действует "тайная армия" Путина. Её основу составляют клубы единоборств, живущие в стране казаки и завербованные агенты из различных слоёв общества. Верят ли обычные европейцы в эти "страшилки" и много ли тех, кто поддерживает Путина? Как будут развиваться отношения с Европой? (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4B0C3B14F01AF98BB14A9E788A94111AA555EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197228   (813929) от 08.01.2018
+
+VA - Dub Hits Vol.7 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer  -  Cosmodrome (Original Mix)  4:46
+02.  Pierre Pienaar & Amy Kirkpatrick  -  Looking (Instrumentall Mix)  5:48
+03.  Attila Syah  -  Malang Rain (Extended Mix)  7:08
+04.  NoMosk feat. Maria Milewska  -  Black Light (Dub Mix)  5:29(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5A1DF13EA6BF28A399D118E52014694AC832BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197237   (813928) от 08.01.2018
+
+VA - Dark Trance Vol.3 (2018) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Betsie Larkin & Roman Messer  -  Unite (Extended Full Fire Mix)  5:46
+02.  Sunset & Steve Dekay  -  Turbulence (Extended Mix)  6:02
+03.  Attila Syah feat. Cari  -  Dark Side Of The Moon (Andy Elliass Extended Remix)  6:28
+04.  Cyril Ryaz  -  Punk Connection (Extended Mix)  6:51(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7185F20C4DEE315097FD2BAEA39FBFE99656CC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197178   (813927) от 08.01.2018
+
+VA - Trance (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Arty  -  Twilight Tonight (Steve Brian Remix)  2:57
+02.  Daniel Kandi  -  What Happens When We End (Original Mix)  4:21
+03.  Paul Arcane  -  Transcend (Original Mix)  4:14
+04.  Emme  -  Kilimanjaro (Original Mix)  3:49(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCEF19DC0F9729CFE85174136537A2D25D86FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197196   (813926) от 08.01.2018
+
+VA - Total Trance Selections Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maria Healy  -  Maktub (Extended Mix)  7:04
+02.  Neofance  -  Omicron (Original Mix)  7:46
+03.  A-Leo feat. Lauren Mayhew  -  Frequency (Virium Remix)  5:39
+04.  Heart Of Steel  -  Try To Forget (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D8474357B854754377D5D4DC73293FDBD6091D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197636   (813925) от 08.01.2018
+
+VA - Illuminations II (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Martin – Fallen Ground (01:43)
+02. Bruno Sanfilippo – Muse (04:47)
+03. Loscil – Azimuth (03:40)
+04. Jacaszek – Qualia (04:04)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Experimental, DroneПродолжительность: 02:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3426574383BC9F1AC28E64F3D14FA93CB5874C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197635   (813924) от 08.01.2018
+
+Otherwise - Sleeping Lions (2017) [FLAC|Lossless|tracks] <Alternative Rock, Alternative Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811928.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreamhunter [05:18]
-02. Heaven Is Falling [04:43]
-03. Wasted Years [04:36]
-04. Always Forever [05:00](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:06
+01. Angry Heart
+02. Sleeping Lions
+03. Suffer
+04. Nothing to Me(   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Hard RockПродолжительность: 00:48:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22B40F4ACD9A34F18AC60E9C2F4D5045DF0D1C12
+magnet:?xt=urn:btih:8F7E6979DCBA17B6A7C7BD8470124990949D3820
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +224,367 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009152   (811927) от 20.04.2016
+###  Публикация: 1197661   (813923) от 08.01.2018
 
-Peder Mannerfelt - Controlling Body (2016) [FLAC|Lossless|tracks] <Electronic, Experimental, Ambient>
+Д.С. Чунтонов (сост.) | Святитель Игнатий Брянчанинов [Алфавит духовный] (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Игнатий (в миру Дмитрий Брянчанинов) родился 5 февраля 1807 года в селе Покровском Вологодской губернии, в имении своего отца. С ранних лет он был склонен к монашеской жизни, и с возрастом это всё более проявлялось в стремлении к молитве и чтению духовных книг.
+
+...В 1827 году в двадцатилетнем возрасте он оставил аристократическую жизнь и, вызвав глубочайшее (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3438311225DB5E69F1B7A198FA329854418953E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197759   (813922) от 08.01.2018
+
+Coloured Balls - Ball Power (1973) Reissue, 2006, Aztec Music [MP3|320 Kbps] <Hard Rock, Punk Rock, Blus Rock, Rock 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813922.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flash
+2. Mama Don't You Get Me Wrong
+3. Won't You Make Up Your Mind
+4. Something New(   Читать дальше...   )Жанр: Hard Rock, Punk Rock, Psych-Rock, Blues Rock, Rock 'n' RollПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDA7762D14125EE22F6215D1F4DBEFCE292B9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197664   (813921) от 08.01.2018
+
+Дженди Нельсон | Я подарю тебе солнце (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выход дебютного романа Дженди Нельсон ознаменовал появление в современной молодежной литературе нового и талантливого дарования.
+Второй роман писательницы «Я подарю тебе солнце» моментально занял первые строчки в списках бестселлеров. Книга стала лидером продаж в 32 странах, была удостоена всех возможных наград и принесла Дженди Нельсон мировую известность, а права (   Читать дальше...   )Жанр: ПрозаПродолжительность: 14:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2667B7952FF46A377DB2A40D7F36AF69D74A6E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197631   (813920) от 08.01.2018
+
+Arsenal - Furu (2014) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temul (Lie Low) 05:34
+02. Not Yet Free 04:22
+03. The Rider 04:37
+04. Lovesongs (Propaganda) 04:49(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie Rock, Dance, ElectronicПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBEDF1819662BD9695AB4FBE14FFB42BFF1432A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197601   (813919) от 08.01.2018
+
+Crowded House - Temple of Low Men (1988) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Possessed (N.Finn) - 3:48
+02. Kill Eye (N.Finn) - 3:14
+03. Into Temptation (N.Finn) - 4:34
+04. Mansion in the Slums (N.Finn) - 3:46(   Читать дальше...   )Жанр: Pop-Rock, Soft RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B3A176177C94550A0BC5293FF00AA0AB83911A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197695   (813918) от 08.01.2018
+
+David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices of Peace
+02. Wonder
+03. Walking on Air
+04. Thoughts of Home(   Читать дальше...   )Жанр: New Age, Ambient, Modern ClassicalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527B61F4D9590DDA26252CCE18B18F31A1B8B9FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197622   (813917) от 08.01.2018
+
+Bahroma - Дом (2017) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Камень
+02. Магия
+03. На Юг
+04. Ломаными ритмами(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38D0BA51C9E4AB42824DB10A85AC480292D4D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197624   (813916) от 08.01.2018
+
+Т. Гартвиг | Бог и страшный суд (1926) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее изложение показывает, что идея о существовании бога не происходит от религиозной "потребности" человека, а приспособлена к политическим потребностям временно господствующего класса.Жанр: История, политология, религиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1379C02E5342A1940DD2B14394B08A4E26E5BB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197211   (813915) от 08.01.2018
+
+VA - Cafe Berlin Vol.1 (Electronic Backround Lounge Music For The Relaxed Moments) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Castlebed  -  Stars In Space (Original Mix)  3:12
+02.  Svendaq  -  Caribbean Dream (Original Mix)  5:07
+03.  Capo Blanco  -  Curacao Dream (Original Mix)  3:18
+04.  Breezz Studio  -  Mantra (feat. Alina Aminova) (Original Mix)  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7040462156F293206B07F3E77A1ACE2DB0232889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197657   (813914) от 08.01.2018
+
+Журнал | Меню. Худеем правильно №4 (2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813914.jpg" />
+</div>
+
+
+###  Подробнее
+
+В системе «Худеем правильно» запретов нет. Для тех же, кто впервые открыл «Меню. Худеем правильно», это наверняка станет неожиданным, но очень приятным сюрпризом. Впрочем, как и другие принципы нашей системы.Жанр: Здоровье, КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1EC6DC600583ABAB20F8F69E4B08964BCFA516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197761   (813913) от 08.01.2018
+
+Журнал | Кактусы и не только №4 (2009) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечнозеленое неприхотливое, сильно ветвящееся деревце алоэ есть у многих дома. Зимой оно прекрасно переносит прохладную температуру помещения и совсем не требует полива. В природе распространено более 500 видов, но все они произрастают в Африке и Аравии. Как горшечная культура культивируется Алоэ вера: выходец с Канарских островов. Оно известно нам по косметическим (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2DCAF41AD8BF3F47DB694400FE9EF41972FA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197100   (813912) от 08.01.2018
+
+Кэтрин Бэннер | Дом на краю ночи (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало ХХ века. Остров Кастелламаре затерялся в Средиземном море, это забытый богом уголок, где так легко найти прибежище от волнений большого мира. В центре острова, на самой вершине стоит старый дом, когда-то здесь был бар «Дом на краю ночи», куда слетались все островные новости, сплетни и слухи. Уже много лет дом этот заброшен. Но однажды на острове появляется (   Читать дальше...   )Жанр: Современные любовные романыПродолжительность: 16:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DFBF8BEEF1EA4D28BEF5BA5B9792E01198EF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 316433   (813911) от 31.03.2011
+
+VA - Beatport Top 10 Trance (30.03.2011) (2011) [MP3|320 kbps]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811927.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Building of the Mountain
-02. Her Move
-03. BZ Reaction
-04. Coast to Coast(   Читать дальше...   )Жанр: Electronic, Experimental, AmbientПродолжительность: 00:39:32
+1. Above & Beyond Feat Richard Bedford - Sun & Moon (Club Mix) (7:47)
+2. Mat's Mattara feat. Rockman - Opera (World Extended Mix) (6:14)
+3. Ferry Corsten - Punk (Arty Rock N Rolla Mix) (6:25)
+4. Armin Van Buuren Pres Gaia - Status Excessu D (Original Mix) (9:42)
+5. Gareth Emery Feat Lucy Saunders - Sanctuary (Giuseppe Ottaviani Remix) (7:24)
+6. Armin Van Buuren Feat Laura V - Drowning (Avici Remix) (7:52)
+7. Noizzer - Acquitted (8:30)
+8. Dave202 vs Cerf & Mitiska & Jaren - Arrival vs Beggin You (Armin Van Buuren Mashup) (7:32)
+9. Gareth Emery Feat Brute Force - Arrival (Ashley Wallbridge Intro Mix) (6:21)
+10. Gareth Emery - El Segundo (Arty Remix) (8:08)Жанр: TranceПродолжительность: 01:16:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E53F701F2C22C1E0ABC9D5A6E5297AD4CBF54E46
+magnet:?xt=urn:btih:976FD8FBC174E371E905F7C3C6A26CE2F7255B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,162 +592,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008778   (811926) от 20.04.2016
+###  Публикация: 1383128   (813891) от 14.05.2020
 
-Василий Розанов | Тёмный лик. Метафизика христианства (2010) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Василий Васильевич Розанов  - русский религиозный философ, глубоко мыслящий культуролог, знаток древних цивилизаций и русской литературы, "русский Ницше", создатель оригинальной философской теории и литературной формы, яркая и противоречивая личность.
-Одна из самых таинственных его книг - "В темных религиозных лучах" - была уничтожена цензурой (   Читать дальше...   )Жанр: ФилософияПродолжительность: 16:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A808B971910793D852197AC0FB41855773E1D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008237   (811925) от 20.04.2016
-
-Г. Фридлендер и др. (ред.) | Достоевский. Материалы и исследования [20 книг] (1974-2013) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811925.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборниках публикуются исследования об актуальных проблемах современного изучения творчества писателя, письма к Достоевскому и о нём и другие документы и материалы биографического характера, комментарии к произведениям Достоевского, библиографические материалы и обзоры, статьи о воздействии Достоевского на русскую и зарубежную литературу.Жанр: ЛитературоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD32E077C2480F74E04BC966AD3AB6C986334690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008866   (811924) от 20.04.2016
-
-Vermin Vibes - This Is Our World (2016) Single [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Our World (Original Mix) (11:39)
-02. This Is Our World (Lakes Remix) (07:39)
-03. This Is Our World (Radio Edit) (04:22)Жанр: TranceПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B4003686621858A0C37C564248B0C4060FF8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009169   (811923) от 20.04.2016
-
-Яндекс.Браузер 16.4.1.7984 Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBDE4D0C18EB4CFA25CD5ABBF95920CED9ED08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009012   (811922) от 20.04.2016
-
-Паола  Волкова | Комментарий к античности (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811922.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мост через бездну» – первая книга Паолы Волковой, написанная ей на основе собственного курса лекций. Образ моста, по словам самой Паолы Дмитриевны, был выбран не случайно – как метафора всей мировой культуры, без которой мы бы не состоялись.
-Блестящий педагог и рассказчик, через свои книги, лекции, да и просто беседы она прививала своим студентам и собеседникам (   Читать дальше...   )Жанр: История, культурологияПродолжительность: 11:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9964157006BCFF743D8C7C8595EBF546CDAF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009039   (811921) от 20.04.2016
-
-Teorex DupHunter 2.0 [En]
+Middle 1.3.5 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811921.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DupHunter - Поиск и удаление дубликатов фотографий
-DupHunter - небольшая программа от разработчиков TeoreX, которая способна найти дубликаты изображений на ваших дисках или в папках. Программа быстро проведёт поиск фотографий на компьютере и найдёт все дубликаты, при этом оставит только лучшие изображения.
-
- DupHunter автоматически найдет серии снимков, созданных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: январь 2016Разработчик: Maxim GapchenkoПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE08D57891F6A90FAD260897971C74418CC2D7E5
+magnet:?xt=urn:btih:773CA078C97A035BF78080D17016549E5A561F43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,28 +618,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009005   (811920) от 20.04.2016
+###  Публикация: 1383218   (813890) от 14.05.2020
 
-Кажэ Обойма - Прощай оружие (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
+Adware Zap Pro 2.7.3.0 [Multi/Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811920.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_813890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро
-02. Вива
-03. Не один
-04. Встать солдат(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:54:46
+Приложение Adware Zap восстанавливает первоначальное состояние браузера, удаляя нежелательные расширения, cookie-файлы и кеш, а также сбрасывая настройки браузера. Adware станет для вас оптимальным выбором в следующих случаях:
+Ваш браузер постоянно отображает всплывающую рекламу мошеннических или просто подозрительных продуктов и услуг, даже если вы отказываетесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.05.2020Разработчик: VorInn IncПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0B7B882F92457479C3BAE71A93FB15294E39CB5
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,28 +645,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009122   (811919) от 20.04.2016
+###  Публикация: 1383148   (813889) от 14.05.2020
 
-Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+Jeanot Rabeson - Special Meetings (2007) Black & Blue [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Other Styles
->>Instrumental (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811919.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_813889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eternal Love    03:08
-02. You're My Everything    03:09
-03. Remembering the 80's    03:06
-04. Persia    03:51(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:39:34
+01. Rerett [4:01]
+02. Kids Watch Us [5:14]
+03. Juste for Herbie [4:34]
+04. Madagascar Market Place [5:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,25 +674,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009093   (811918) от 20.04.2016
+###  Публикация: 1383177   (813887) от 14.05.2020
 
-Танцы. Битва сезонов (2016.04.16) WEB-DLRip [H.264/720p] (Выпуск 4)
+Cisdem ContactsMate 5 v5.1.0 [En]
 
->>Документалистика и Телепередачи
->>Музыкальные шоу
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811918.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_813887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 марта в 19:30 на телеканале ТНТ стартует новое шоу – «ТАНЦЫ. Битва сезонов». Лучшие участники двух сезонов самого масштабного танцевального проекта страны встретятся лицом к лицу на одной сцене. Мы все так давно этого ждали! Борьба развернется за приз в 3 000 000 рублей и звание – «Лучший из лучших танцоров страны». Наставники шоу Егор Дружинин и Мигель сформируют (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:38:51
+Программное обеспечение Cisdem ContactsMate — эффективное решение для управления контактными данными. Приложение позволяет осуществлять резервное копирование всей контактной информации, редактировать поля контактных данных, а также экспортировать адресную книгу в форматы CSV, vCard, TXT, DocX, HTML, Excel, обеспечивая удобное резервное копирование и синхронизацию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.05.2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:452AFEC566AECADA9596F85ECC7E3D73A46F79BA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,79 +700,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008957   (811917) от 20.04.2016
+###  Публикация: 1382979   (813886) от 14.05.2020
 
-Подшивка журналов | Всему свету по совету [+Спецвыпуски] (2016) [PDF]
+Альберт Усольцев | Громкая тишина (Год не известен) [MP3]
 
->>Журналы
->>Домоводство (журналы)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811917.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_813886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отличный журнал для всей семьи, особенно для женщин, в котором можно найти советы по любому поводу и на разные темы. От косметики до судебных вопросов. Домашние советы, Дачные советы, Вкусные советы – отличные рецепты, Диетические советы – рецепты, советы диетолога, Советы для мам, Советы по здоровью и красоте.Жанр: Журнал советовФормат: PDF
+По книге (1974) прозаика Альберта Усольцева. Герои книги - ракетчики-зенитчики ПВО, и в мирное время выполняющие боевую задачу по охране воздушных рубежей нашей страны. Характеры героев раскрываются в интересных ситуациях, столкновениях с присущим писателю добрым юмором, лиризмом, образностью.Жанр: ДрамаПродолжительность: 01:23:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E90BD04845737143135C9E9F54081E5F37A2BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008883   (811916) от 20.04.2016
-
-Н. С. Сложеникина | Основные этапы истории российского и зарубежного дизайна (2013) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание рассматривает основные этапы истории российского и зарубежного дизайна. Данное пособие вобрало в себя опыт исследований, лекционных курсов и практических занятий, посвященных проблемам истории дизайна. Условно пособие можно поделить на две части – исторические этапы российского дизайна и исторические этапы зарубежного дизайна. Каждый этап, а их автор выделяет (   Читать дальше...   )Жанр: История, Культурология, Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B273C1FBBE7160D92B47BED1505752098D2A9BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008928   (811915) от 20.04.2016
-
-Gordey Tsukanov - Far Away But Close (2016) Single [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away But Close (Original Mix)
-02. Far Away But Close (Craft Integrated Remix)
-03. Far Away But Close (Jeremy Rowlett Remix)Жанр: TranceПродолжительность: 00:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A2C90E8365525A8128EE48579230530393EEE0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

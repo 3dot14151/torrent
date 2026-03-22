@@ -1,3 +1,61 @@
+###  Публикация: 1001750   (852052) от 29.03.2016
+
+Drexciya - Journey Of The Deep Sea Dweller I - IV (2011-2013) [FLAC|Lossless|tracks + .cue] <Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (The Unknown Aquazone) (00:56)
+ 02. Depressurization (05:05)
+ 03. Water Walker (03:40)
+ 04. Mantaray (03:12)(   Читать дальше...   )Тип издания: CD, Compilation, RemasteredЖанр: Techno, Electro •Продолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20824BC7B9CEE49A245F57744BCCE67225BDCF7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001660   (850564) от 30.03.2016
+
+Supermayer (Superpitcher & Michael Mayer) - Save The World (2007) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey  [01:03]
+02. The Art Of Letting Go [05:39]
+03. Saturndays [07:14]
+04. Superbrain Transmission [02:34](   Читать дальше...   )Жанр: Techno, Minimal, AmbientПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45768A4B2037A2803B50D4A1D23467C79F9D072A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378125   (848168) от 24.04.2020
 
 Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
@@ -683,64 +741,6 @@ Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BE065D88793CD218850833FA2601A309A7DF01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006392   (829209) от 11.04.2016
-
-Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 More Of You (6:32)
-02 Breathe (7:30)
-03 Meaning (6:54)
-04 Inbetween Thoughts (6:52)(   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F17285D427288EB54676B867C0C20D99D1D22D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006375   (829207) от 11.04.2016
-
-Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honest with You (6:46)
-02. The Truth (6:52)
-03. Empty (7:16)
-04. World Disappears (6:35)(   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9CC5BB5604635C6AE7EBDF04F27035B8AF98BF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 946683   (425156) от 14.10.2015
+
+Hans Christian - Nanda Devi (2015) [MP3|320 кб/с]<New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Light
+02. Majestic Mountain
+03. My Inner Ascent
+04. Eternal Spring(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EC0F410A5E4671E9157F52B419038F967B31DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064792   (424051) от 21.10.2016
 
 Anima - Temple of the Heart (2010) [MP3|320 Kbps] <New Age, Native American Flute>
@@ -755,35 +784,6 @@ Wychazel - Ashram (2019) [MP3|320 Kbps] <New Age, Mantra>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E91F0CEF73A117E2EE5EA58D4747EBE535358D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572932   (383646) от 06.09.2022
-
-Enigma - Le Roi Est Mort, Vive Le Roi! (1996) [OGG Vorbis|485 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le Roi Est Mort, Vive Le Roi!	1:57
-02. Morphing Thru Time	5:47
-03. Third Of Its Kind	0:19
-04. Beyond The Invisible	5:00(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419659B5305E843B52266522C5B2D2273178233A
 ```
 
 https://mybot314.ru/tekegram_catalog/

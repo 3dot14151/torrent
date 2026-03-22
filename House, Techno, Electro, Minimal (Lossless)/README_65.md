@@ -1,3 +1,147 @@
+###  Публикация: 1756294   (103498) от 20.10.2024
+
+Jaime Narvaez - Joyous Cosmology EP (2019) [FLAC|Lossless|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaime Narvaez - Joyous Cosmology (Original Mix) (8:08)
+02. Jaime Narvaez - Joyous Cosmology (Wonderful Life Vocal Mix) (8:08)
+03. Jaime Narvaez - Neptunian (Original Mix) (7:20)Жанр: Deep House, Progressive HouseПродолжительность: 00:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DAC9F20A734C560BC870734F6390BC355A9C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758478   (103354) от 03.11.2024
+
+Hayla - Dusk (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only I [00:03:48]
+02. Alone [00:03:47]
+03. Freefall [00:03:39]
+04. Visions Of You [00:03:57](   Читать дальше...   )Жанр: DanceПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D978F47AA67CA76CFCBD802C1BEFBB5F027BC731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759540   (103274) от 09.11.2024
+
+VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Breath of Desert (Original Mix) (6:48)
+02. Tibetania - Healing Winds (Original Mix) (7:08)
+03. Tamer ElDerini - Heaven (Original Mix) (5:29)
+04. Leon Music - Sultana (Original Mix) (8:55)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8342F8C68280A9C240C413C63ABB262E449DBB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760806   (103158) от 16.11.2024
+
+Marshmello - The Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Riddim Dubstep, Electronic, Dubstep, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Just Can't Stop [2:34]
+02 - Forever [2:35]
+03 - wantsomemusic? [2:27]
+04 - Fired Up [3:09](   Читать дальше...   )Жанр: Riddim Dubstep, Electronic, Dubstep, HouseПродолжительность: 00:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3076B3D44092ADF7FB05337F802A94C0068C4716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762306   (102902) от 26.11.2024
+
+Sheep on Drugs - From A to H and Back Again (1994) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Punk, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From A to H and Back Again (6:50)
+02. Cathode Ray (4:34)
+03. Motorbike (New) (3:05)
+04. Drug Music (More or Less) (5:15)(   Читать дальше...   )Жанр: Electronic, Rock, Punk, TechnoПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB39BA7EEF85F8577F9CA1A57EDC2309DF393F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765011   (101377) от 14.12.2024
 
 VA - Beach Grooves Maretimo, Vol.5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
@@ -632,151 +776,6 @@ Jan Blomqvist - MUTE (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47EB08860CDA0C2BD25DA0BBA2CBC4256487C894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780520   (70449) от 18.02.2025
-
-djdtime - Vocal Progressive House & Melodic Techno, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We came alive (6:00)
-02. The night is long (5:59)
-03. Feel the rhythm (4:29)
-04. Move with the sound (4:53)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82249DBFC81FBC5FBA2E62BDC0A9C94CC14FEA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780414   (70448) от 18.02.2025
-
-djdtime - Relaxing Deep House & Tech House Mix Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Breeze (5:37)
-02. Starlit Nights (5:50)
-03. Velvet Horizon (5:52)
-04. Crystal Flow (5:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296454BF8BE9787A6B994723E01F26EDB4D39F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780611   (70384) от 19.02.2025
-
-djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake up, the world is calling (4:53)
-02. Close your eyes, leave the fear behind (3:54)
-03. I'm chasing you, through the night (3:44)
-04. Every heartbeat, I'm closer still (4:29)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C737B307015A1289D26D8028EF85F0C909FCCFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780927   (70364) от 20.02.2025
-
-Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Mermaid (5:37)
-02. White Sand (4:48)
-03. Summer Is Coming (5:34)
-04. Sunny And Hot (4:57)(   Читать дальше...   )Жанр: Deep-House, Nu-DiscoПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0AE7BC6E0197309CD164C2006BC8D8BEB1F521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781338   (70291) от 22.02.2025
-
-VA - Ethnicá 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J Nana, Tibetania - Ciothe feat. Lucinia Karrey (Original Mix) (3:48)
-02. Tibetania, Francesco Capodaglio - Busingye (Original Mix) (6:40)
-03. Martin Hiska, Tibetania - Mahoya (Original Mix) (4:10)
-04. Discojack, Fecky Farris, Tibetania - My Feelings (Original Mix) (6:40)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541CA8115C16A62533C923BC47BA7DA2B6ECA7D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

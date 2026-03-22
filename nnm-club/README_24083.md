@@ -1,24 +1,48 @@
-###  Публикация: 479220   (98880) от 07.04.2012
+###  Публикация: 1758788   (103189) от 12.11.2024
 
-Лиза Джейн Смит  | Души теней [2012] [FB2]
+Никто никого не знает / Nadie conoce a nadie (1999) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симон - начинающий писатель, зарабатывающий составлением кроссвордов для газет. Однажды кто-то оставляет ему сообщение на автоответчик: в ближайшем кроссворде должно содержаться слово “враг”... Так начинается серия кошмарных событий, в результате которых Симон начинает сомневаться в себе, в своём таланте, в своих друзьях. Теперь всё не так, как кажется, и никто никого (   Читать дальше...   )Производство: Испания / Canal Sur Televisión S.A., Canal+ España, D.M.V.B. Films...Жанр: драма, триллерРежиссер: Матео ХильАктеры: Эдуардо Норьега, Хорди Молья, Наталия Вербеке, Пас Вега, Педро Альварес-Оссорио, Мауро Рибера, Хесус Ольмедо, Криспуло Кабесас, Хосерра Кадиньянос, Хосе Мануэль СедаПеревод: Профессиональный одноголосыйЯзык озвучки: русский, испанскийСубтитры: английскиеПродолжительность: 01:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07A5AB04C5A2A95B9FC7B3EFA47D595337045D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760153   (103188) от 12.11.2024
+
+PeaZip 10.1.0 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98880.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Возлюбленный Елены Гилберт, вампир Стефан Сальваторе, находится в плену у демонических существ, по вине которых в городке Феллс-Черч воцарился настоящий хаос. Чтобы освободить его, девушка вынуждена довериться брату Стефана Дамону, красивому, но опасному вампиру, мечтающему завладеть телом и душой Елены.
-Ради спасения Стефана Елена готова на все. Но дни идут, Елена окончательно запутывается в своих чувствах, и вот она уже не в состоянии разобраться, кто из братьев-вампиров ей дороже.
- Тем временем подруги Елены Бонни и Мередит пытаются понять, что за злая сила захватила город. Герои оказываются на пороге страшных и небывалых событий, сумеют ли они справиться с надвигающейся угрозой?2012Жанр: ФэнтезиФормат: FB2
+PeaZip — бесплатный архиватор и графическая оболочка для других архиваторов. С помощью PeaZip можно осуществлять шифрование данных, создание многотомных архивов, работу с несколькими архивами одновременно, экспорт задания в виде командной строки, установку фильтров на содержимое архива. PeaZip поддерживает собственный формат архивов Pea (с поддержкой сжатия, многотомных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:804E62C43A65B0559A0C19769AF8475A2B4344B6
+magnet:?xt=urn:btih:B8C74EBD41FD9AE6629A1D5C79DF4C1CCDC69CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479463   (98878) от 07.04.2012
+###  Публикация: 1760124   (103187) от 12.11.2024
 
-[Wallpapers] Sexy Girls Pack Wallpapers (07.04.12)
+Журнал | Живу с диабетом №11 (71) (ноябрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98878.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Журнал «Живу с диабетом» - уникальное издание, посвященное сахарному диабету. Это одно из наиболее распространенных и серьезных заболеваний эндокринной системы человека, требующее повышенного внимания больного к своему здоровью. Консультанты издания готовы ответить на самые сложные вопросы, связанные с этой проблемой, а также рассказать о самых передовых методиках (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57351C7DFDC32B12E6F0327D8228CEAB8CE95AC1
+magnet:?xt=urn:btih:8620799F1E95AECC194E61B207CF8D3F8DA2325C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,29 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479750   (98875) от 07.04.2012
+###  Публикация: 1760173   (103186) от 12.11.2024
 
-[Wallpapers] Girls Desktop Wallpapers №8
+Журнал | Сваты. Заготовки №11 (115) (ноябрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98875.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers №8
-Название: Girls Desktop Wallpapers №8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0114DF3C264B838EC705C1BB000ACE2382B6BEC8
+magnet:?xt=urn:btih:B3B68C8FDFD184190FAD49A3668F713AF53059F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +102,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479464   (98872) от 07.04.2012
+###  Публикация: 1760261   (103185) от 13.11.2024
 
-[Wallpapers] Wallpapers Sexy Girls (07.04.12)
+Ken Colyer - Boston Church Service (1972) 1998, GHB Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98872.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Streets of the City [6:28]
+02. Just a Little While to Stay Here [7:38]
+03. Old Rugged Cross [8:54]
+04. Precious Lord, Lead Me On [6:54](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:10:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4468DBD3835FD1193395C2925B359AC91B925356
+magnet:?xt=urn:btih:56AEF5EDF550A8AA3E50968E3DDFD7F8449011DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,34 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479345   (98871) от 07.04.2012
+###  Публикация: 1760372   (103184) от 13.11.2024
 
-VA - Chill Out Essentials: Spring Edition (2012) [MP3|320 kbps]<Chillout | Downtempo>
+Matt Charles - Highland Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98871.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Almadrava - All Over Me
-02. Naoki Kenji - Kitai Sasete (Night Remix)
-03. Alexandra Hampton - Distant Shore
-04. Euphonic Traveller - Cafe Champs Elysees
-05. Soundset City - Get It On
-06. Felix - Giraffe
-07. Silicone Soul - Dreaming Again
-08. Soundset City - Smooth Delight
-09. The Sushi Club - Elyptico
-10. Panaphonic - Sunrise Light(   Читать дальше...   )2012Жанр: Chillout | DowntempoПродолжительность: 03:24:28
+01. Chicken Shack (3:25)
+02. Shake Your Hips (3:15)
+03. Who Do You Think You Are? (3:42)
+04. What's Shakin' (2:07)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 00:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4FC87ADB83DB561F2D7EA3EBBC113C4C9E5B617
+magnet:?xt=urn:btih:4BE13E878D971DDC79FFBC61D27A58C520084010
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,34 +160,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479530   (98867) от 07.04.2012
+###  Публикация: 1760260   (103183) от 13.11.2024
 
-Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
+Kenny Barron - 1+1+1 (1986) BlackHawk Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man I Love [5:15]
+02. United Blues [3:38]
+03. Prelude to a Kiss [5:15]
+04. C Jam Blues [4:25](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12AE4BD29F6D8E934714DA7B3504865D4FDEB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760328   (103182) от 13.11.2024
+
+Heathensun - Murda Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:31]
+02. Life Is Sweet [00:03:22]
+03. Get A Grip [00:03:54]
+04. No Ragrets [00:03:18](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813FF1E48E4B039BB18C44C0E14B84D4C40B874F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760356   (103181) от 13.11.2024
+
+Bubba Coon - Tthe Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pirates Lament (2:43)
+02. I Dont Like People (3:50)
+03. Might Be a Good Day (3:54)
+04. Hard Road (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB4275D5744C5BD3CA5633F709A857AD339C5E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760360   (103180) от 13.11.2024
+
+Jersey Julie Band - Multiball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Days Alone (4:17)
+02. Go Go Power (3:26)
+03. Effingham (4:51)
+04. Tears on My Face (5:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECA17FD78A78CD8AC6E3A377063031617AA9258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760362   (103179) от 13.11.2024
+
+Jim Keays - Caledonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting For The Big One (5:34)
+02. Can't Find My Way Home (3:04)
+03. When Your Ship Is Sinking (3:43)
+04. Our Kingdom Gone (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8074332B83A9435E339FFE918695BDE8AAD4C6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760311   (103178) от 13.11.2024
+
+Vendel - Out In The Fields (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Epic, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98867.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Agony
- 02. The Hungry Eyes
- 03. The Omen
- 04. Dead Dog's Howl
- 05. Nightmare
- 06. Fetish Dream
- 07. Mircalla
- 08. Winter
- 09. Dreamworld
- 10. Burn The Witch(   Читать дальше...   )Жанр: GothicПродолжительность: 00:52:55
+01. Intro
+02. Defender
+03. Never Surrender
+04. Dirge(   Читать дальше...   )Жанр: Heavy Epic, Doom MetalПродолжительность: 00:51:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D655B94FAB692439B314E88698FBE7AF90A621F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -178,34 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477985   (98866) от 07.04.2012
+###  Публикация: 1760371   (103177) от 13.11.2024
 
-Necronomicon - Invictus (2012) [FLAC|Lossless]<Thrash Metal>
+Lucas Oakley - Right Here, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98866.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Invictus (6:45)
-02. Unleashed (4:05)
-03. Bloody Bastards (4:03)
-04. Thoughts Running Free (5:49)
-05. Unconquered (5:56)
-06. Upon Black Wings (4:40)
-07. Face To The Wall (5:16)
-08. Pandora's Box (4:03)
-09. Before The Curtain Falls (4:42)
-10. Possessed By Evil 2011 (5:01)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:10:37
+01. Sittin' Here Writing This Song (3:49)
+02. Darling You Soothe My Soul (3:17)
+03. Honey Blues (5:54)
+04. Lady of the Sea (4:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:49
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7F88E228B9177C90758DC5717BAB110A0021E515
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,29 +363,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479365   (98863) от 07.04.2012
+###  Публикация: 1760377   (103176) от 13.11.2024
 
-Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industrial Djent>
+North By Northwest - No Time Like the Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98863.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Biopunk
- 02. Collective Mind
- 03. Alive Creature
- 04. Devastator
- 05. Behind The Sun2011Жанр: Drum'n'Bass / Industrial DjentПродолжительность: 00:21:35
+01. Back Then (2:59)
+02. Caesar Jingle (Live) (2:28)
+03. Easy Street (A Song for the Homeless) (4:17)
+04. Good Times (Wild Women and Lovers) (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC82207169C45C0FE1E587E2F3C931041C4D4206
+magnet:?xt=urn:btih:D441786038A8A86BEE21D64C6A59C3DB345ED8D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,25 +392,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477759   (98862) от 07.04.2012
+###  Публикация: 1760359   (103175) от 13.11.2024
 
-Ферма Альбино / Albino Farm (2009) DVD5
+Captain Morgan Express - The Pussycat Tapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98862.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четверо студентов-друзей, исследующих местность известную как Горы Озарка, забрели на чужую ферму, чтобы уже никогда с нее не выбраться. Их ждал тепленький, смоченный кровью прием в лице семейки генетических уродов…Жанр: УжасыРежиссер: Джо АндерсонАктеры: Таммин Сурсок , Крис Джерико , Санкриш Бала , Ник Ричи , Алисия ЛаганоПеревод: Двуголосый закадровыйЯзык субтитров: испанскийПродолжительность: 01:25:06
+01. I'm Just Your Fool (3:06)
+02. Chicago Bound (3:08)
+03. The Jealous Kind (3:32)
+04. Change It (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:42
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E814F6A08F2C7783362D914F2C6D06E6E801044E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,325 +421,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479733   (98858) от 07.04.2012
+###  Публикация: 1760627   (103174) от 15.11.2024
 
-[Wallpapers] Desktop Wallpapers №12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98858.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №12
-Название: Desktop Wallpapers №12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DB8F26E8FE92D189ED8284322376CFF846CFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479335   (98857) от 07.04.2012
-
-VA - The Chillout Lounge 2 (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheena Jordan-Yureema - A Daughter Of The Sea
-02. Jamie Bamford - Show Me An Open Sky
-03. Ascendent Star - Wherever You Are
-04. Muted Ecstasy - You Showed Me
-05. Silver Heart - Everywhere With You
-06. Star & Emotion - Its Unconditional
-07. Oliver Lockman - Pure & Everlasting
-08. Phalgun Radha - Constant Flow
-09. Nachiketa Harisnakshi - Forest Of Knowledge
-10. Ricardo Vionaika - Of Blue Red White & Star(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 03:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAA2D521E3E0E449DAC5101FC936DFCAEBCB1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479461   (98856) от 07.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE9AB6F213EBB2179068C7BB67B412185A091F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479460   (98855) от 07.04.2012
-
-[Wallpapers] Music Wallpapers (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0012E43631A02E3A6E2222FC1700A51E94B87D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478116   (98854) от 07.04.2012
-
-VA - Клубная энергия танцпола (2012) [MP3|160-256 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siatria - Закрой глаза (prod. by Shaplin)
-02. Mixi - Между Мной И Тобой (Dj Andy Wait Remix)
-03. Akcent - My Passion (Emin K & Ansarov Remix)
-04. Armin Van Buuren feat. Sophie Ellis - Bextor - Not Giving Up On Love
-05. N - Finity - Someone Like You (Kris Mctwain Edit)
-06. Dj Vengerov Feat. Александр Ягья - Потанцуй Со Мной (Club Edit Remix)
-07. Rihanna - Only Girl (In The World)
-08. MF - Все будет хорошо (DJ Rich-Art & DJ Night remix)
-09. Dj Mixer Euro & Nika Belaya Ft Greysound - Зажигаем (Greysound Radio Edit)
-10. Ёлка - На большом воздушном шаре (Viento & Mutti bootleg)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5970025E4858819075F667CA1604C6BE0B605726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479154   (98850) от 07.04.2012
-
-Каникулы в Мексике - 2. Выпуск №25 (2012.04.06) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98850.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47074E21C44AC9A7B9D1944CEA662A7E20A72B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479465   (98849) от 07.04.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34037B6326A7EC36F94E0CE650F39B2D34F6FFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479487   (98846) от 07.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F877ECF353922C06D02E7FBB077D39D5ABBFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479485   (98845) от 07.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F78BEEDCCD64E5EC9CEFB6221339D4C6AE37B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479351   (98844) от 07.04.2012
-
-VA - Soul of Ibiza Volume 28 (07.04.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98844.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix)
-002. Ingsha & Di - Binary Code (Transit Passengers Remix)
-003. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
-004. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
-005. Vincent De Jager feat. Emma Lock - Dive (Original Mix)
-006. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix)
-007. Cerf, Mitiska & Jaren - Down To You (Original Mix)
-008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
-009. Luca De Maas - E-Motions 2011 (original mix)
-010. The Blizzard & Yuri Kane feat. Relyk - Everything About You07.04.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73FEFFF1AEFFB57EEC0FAE023DAA4DA2660C2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479332   (98842) от 07.04.2012
-
-Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
+Violent Definition - Progressive Obsoletion (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98842.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro [0:12]
-02. Ray Of Light [3:55]
-03. Brick's [4:47]
-04. Gambling [3:14]
-05. Wing's Love [5:34]
-06. Set Me On Fire [3:24]
-07. Prisoner Of The Past [5:50]
-08. Paradise [5:40]
-09. First Kiss [6:11]
-10. Thunderstorm [4:28](   Читать дальше...   )Жанр: Melodic Metal, Heavy MetalПродолжительность: 00:51:56
+1. Into Trepidation
+2. Justified Ferocity
+3. The Last Grain In Your Hourglass
+4. Experimental Failure(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:49
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F197084B0850E90270A11D7919255B9F861654F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,25 +450,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479488   (98841) от 07.04.2012
+###  Публикация: 1760639   (103173) от 15.11.2024
 
-[Wallpapers] Girls Wallpapers (08.04.12)
+Larry Willis Trio - Just In Time (1989) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98841.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Just in Time [10:34]
+02. Soul Search [9:01]
+03. T's Bag Blues [5:22]
+04. For All We Know [9:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0DC315D6DC801383901E61C67E89F793BB5481A
+magnet:?xt=urn:btih:5DD482AD99BECD5CAFE3E0E671F6A7411CE6F8E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,26 +479,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478856   (98839) от 07.04.2012
+###  Публикация: 1760451   (103172) от 15.11.2024
 
-Omertah - Essence (Promo) (2012) [MP3|320 кб/с]<Atmospheric Math Metal / Post-Rock>
+Michel Sardaby - Blue Sunset (1967) 1990, Mantra [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98839.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Essence
- 2. OceansЖанр: Atmospheric Math Metal / Post-RockПродолжительность: 00:27:33
+01. Blue Sunset [5:35]
+02. Always Room for One More [5:23]
+03. Empty Room [4:00]
+04. Wendy [5:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82266B60C85E0C5045BA7E0703780E440FE01A1D
+magnet:?xt=urn:btih:4AEB3CA62A4A4D42098C7E0F94193616749B1598
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,29 +508,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479682   (98838) от 07.04.2012
+###  Публикация: 1760662   (103171) от 15.11.2024
 
-[Wallpapers] Nature Pictures №38
+Невеста Франкенштейна / The Bride of Frankenstein (1935) BDRip [H.264]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98838.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №38
-Название: Nature Pictures №38
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 1920х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Действие происходит сразу после событий предыдущего фильма и основано на сюжетной линии оригинального романа Мэри Шелли «Франкенштейн, или Современный Прометей» (1818)... Отвергнутый всеми монстр ищет себе пару. Доктор Франкенштейн приходит на помощь и создает заветную подругу...Производство: США / A Universal PicturesЖанр: ужасы, фантастикаРежиссер: Джеймс УэйлАктеры: Борис Карлофф, Колин Клайв, Валери Хобсон, Эрнест Тесиджер, Эльза Ланчестер, Гэвин Гордон, Дуглас Уолтон, Уна О`Коннор, Люсьен Приваль, О.П. Хегги, Дуайт Фрай, Реджинальд Барлоу, Мэри Гордон, Энн Дарлинг, Тед БиллингсПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:14:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:701098495B4266070762D51641B7FAFFF7260719
+magnet:?xt=urn:btih:6A6E112EAA9B0EF5895C9CE42F14BF6425B7FABB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,25 +534,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479484   (98837) от 07.04.2012
+###  Публикация: 1760642   (103170) от 15.11.2024
 
-[Wallpapers] Best HD Wallpapers (08.04.12)
+St. Vincent - Todos Nacen Gritando (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Pop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98837.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. El Infierno Está Cerca (4:09)
+02. Salvaje (3:57)
+03. Hombre Roto (3:22)
+04. Pulga (3:47)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA8A66FCA3E86454533A6F03D8D1A45027E18CF7
+magnet:?xt=urn:btih:2F773134CF0F9F23C73B37CEAD1EF949076DC79E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -704,29 +563,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479754   (98834) от 07.04.2012
+###  Публикация: 1760669   (103169) от 15.11.2024
 
-[Wallpapers] Desktop Wallpapers №14
+Letdown. - Be OK (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Rock, Indie Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98834.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №14
-Название: Desktop Wallpapers №14
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01 - Hate Myself [2:58]
+02 - Dead Right [2:44]
+03 - Raincoat [2:35]
+04 - Déjà Vu [2:48](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Rock, Indie RockПродолжительность: 00:41:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20E744BE7DAE44D89A57CCD2F110990E811C6A6A
+magnet:?xt=urn:btih:6DA807B8E555F5BE84749D67B0D1453CE2B527AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -734,25 +592,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479483   (98833) от 07.04.2012
+###  Публикация: 1760624   (103168) от 15.11.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (08.04.12)
+Баскетбол. Суперкубок России 2024. Женщины. НИКА - УГМК (23.10.2024) WEBRip [35 FPS] [H.264]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Спорт и активный отдых
+>>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98833.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Ср, 23 окт. 19:30, Сыктывкар, КСК "Лузалес-Арена"
+Суперкубок России | Сыктывкар | 23.10.2024
+
+В Сыктывкаре состоялся матч за женский баскетбольный Суперкубок России. Обычно в нем встречаются победители Кубка России и чемпионата России прошлого сезона, но так как «УГМК» забрал оба трофея, в матче за Суперкубок «лисицам» противостоял финалист Премьер-лиги (   Читать дальше...   )Телекомпания: Мир баскетболаЖанр: спорт, баскетболЯзык озвучки: РусскийПродолжительность: 01:41:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A9EF35FFBC820EF2C5B6BE04EF72708681FD7F9
+magnet:?xt=urn:btih:543BD1F536C4C38B881A66A957066597E66D3FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760792   (103167) от 16.11.2024
+
+Поедем, поедим! Тверская область: медвежий угол, полеты на зиплайне, Селигер и пожарские котлеты (16.11.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди в Тверской области побывал в историческом имении генерала Куропаткина и научился готовить его любимые щучьи котлеты, посетил живописный монастырь на озере Селигер, полетал на зиплайне и даже забрался в медвежий угол. А еще ведущий продегустировал макароны от Гальяни и знаменитые пожарские котлеты.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5369627B7E4DB9E42F0378E2B2F2388063514E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760797   (103166) от 16.11.2024
+
+VA - D.Trance 108 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BVDE & Myde - The Beauty of Life (04:45)
+02. Afterus - Your Journey (Extended Mix) (06:40)
+03. N-sKing - Nervous Breakdown (Extended Mix) (06:46)
+04. Alexander Popov & Eximinds - Atlantis (Extended Mix) (05:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCDE7C40B17CFBC6820C7D509EAE71B2145726B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760762   (103165) от 16.11.2024
+
+Настя Задорожная - До 17 И Старше (2007) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Любовь/Нелюбовь
+02		Буду
+03		Я Больше Не Хочу Верить
+04		Зачем Топтать Мою Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37F735A4288578DD2032D958FE7BEC1BE522DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760868   (103164) от 16.11.2024
+
+Журнал | Профиль №41-42 (240) (ноябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B01B6076416EBFEE25330BFED8F0F1E6DEF6AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,157 @@
+###  Публикация: 918553   (585859) от 16.07.2015
+
+Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, World, Ethno, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Native Soul (4:27)
+02. Iron Buffalo, Tracks of Steel (4:58)
+03. Everything is a Circle (7:06)
+04. Sacred Ground (4:19)(   Читать дальше...   )Жанр: Native American, New Age, World, Ethno, FolkПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759E9671B259BCD86479CB8DE04C94740FCD079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357450   (585771) от 02.07.2011
+
+OST Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (ITunes Deluxe Exclusive + Gamestop Exclusive) (2011) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Linkin Park - Iridescent (03:59)
+02 Paramore - Monster (03:20)
+03 My Chemical Romance - The Only Hope for Me Is You (04:32)
+04 Taking Back Sunday - Faith (When I Let You Down) (03:09)
+05 Staind - The Bottom (04:21)
+06 Art of Dying - Get Thru This (02:43)
+07 Goo Goo Dolls - All That You Are (03:12)
+08 Theory of a Deadman - Head Above Water (03:32)
+09 Black Veil Brides - Set the World On Fire (03:40)
+10 Skillet - Awake and Alive (Rock Radio Mix) (03:29)(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E411B4BBE6E7F5515EF97792280D3175A4C0057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357621   (585764) от 02.07.2011
+
+Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9996BABADECEFD4780210A0CC7D44B79141C1093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357682   (585759) от 02.07.2011
+
+Трансформеры 3: Тёмная сторона Луны / Transformers 3: Dark of the moon (by Steve Jablonsky) (2011) [MP3|320 kbps]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark side of the moon (03:49)
+02. Sentinel Prime (03:16)
+03. Lost signal (04:08)
+04. In time you'll see (03:16)
+05. Impress me (03:00)
+06. We were gods once (04:22)
+07. Battle (03:40)
+08. There is no plan (03:36)
+09. We all work for the Decepticons (01:51)
+10. The fight will be your own (04:41)(   Читать дальше...   )2011Жанр: ScoreПродолжительность: 00: 59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAEBCCDEA2A0107A940B2A0A8BF81B838845259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552696   (585650) от 22.05.2022
+
+Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnus Deorem (3:45)
+02. Enae Volare (4:39)
+03. Nomen Adore (3:44)
+04. Something Exciting (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79ADB53EEF1DCFE1FF2851EB347048CFC5A32C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040452   (585090) от 06.08.2016
 
 Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <Soundtrack>
@@ -590,149 +744,6 @@ Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Pian
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD10BFE5722F450DBAC0119492F1E25A36AB00BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041882   (580142) от 11.08.2016
-
-Mgzavrebi - Mgzavruli (2014) [FLAC|Lossless|tracks + .cue] <Folk, Pop-Rock, Georgian Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ramdeni dghea
-02 - Erti simi
-03 - Tu gamomicvdi khels
-04 - Am dros nughar eli(   Читать дальше...   )Жанр: Folk, Pop-Rock, Georgian FolkПродолжительность: 0:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29599D5D28F1C1405A36F2555DC22A37723D9883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920403   (580131) от 22.07.2015
-
-Little Wolf Band - 4 альбома (1995-2008) discography [MP3|320 кб/с]<Native American, World, Ethno>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer Song
-02. Oweegon
-03. Coyote DanceЖанр: Native American, World, EthnoПродолжительность: 03:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7941122B9663B4C441B24A003FCFCF45C7800B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920390   (580130) от 22.07.2015
-
-Midori - Island Paradise (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Island
-02. Sparkling Light
-03. Temple ShrineЖанр: New Age |Продолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99949D17355FCE711C8475FACA97AD2B394D9A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920589   (578779) от 23.07.2015
-
-Michael Giacchino - Мир Юрского периода / Jurassic World (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bury the Hatchling (1:57)
-02. The Family That Strays Together (1:01)
-03. Welcome to Jurassic World (Michael Giacchino & John Williams) (2:09)
-04. As the Jurassic World Turns (Michael Giacchino & John Williams) (5:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A320A68F498A9E7323C4ACF3B2E631D784CBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302684   (578004) от 18.05.2019
-
-The Blue-Gold Shore of the Beyond (Лазурно-Золотой Берег Запредельного) - Taranaya Namaha (2009) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jishu nam (3:49)
-02. Nai Nai Nai (5:29)
-03. Om Shreshtaya namaha (3:50)
-04. Om Govindaya nama (3:16)(   Читать дальше...   )Жанр: Mantras, Meditative, EthnicПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576FEF36A3FF23015185EA3DC3C81434CA1A0A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

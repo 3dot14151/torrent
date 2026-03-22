@@ -1,3 +1,157 @@
+###  Публикация: 506751   (682990) от 08.06.2012
+
+Ара Геворкян/Ara Gevorgyan - 6 Альбомов (1997-2010) [MP3|128-320 kb/s<Армянская музыка>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ani
+02. Ararat
+03. Armavir
+04. Artashat
+05. Artsakh
+06. Musa ler
+07. Mush
+08. Ov hayots ashkhar
+09. Ovkianosic Ayn koxm
+10. Tsovic tsov(   Читать дальше...   )1997-2010Жанр: Армянская музыкаПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7352C806CBFA3DACB475AB64EEB108F76AD18669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134508   (682911) от 18.05.2017
+
+Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hunter (01:47)
+02. The Counselor (Titles) (04:10)
+03. The Lovers (01:51)
+04. A Warning (Moral Decisions) (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82825B6BD5A90B07E80AA40F81EA5CDD897F283D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135205   (682897) от 18.05.2017
+
+Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dreamcatcher
+02. The Elves Are Coming
+03. Her Celtic Eyes
+04. Morrigan(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D829D5552DFD3DFAC0255CCEE3B4F25B8980196D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222558   (682874) от 30.04.2018
+
+Heidi Breyer - Moonlight in Empty Rooms (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Unfinished Conversation
+ 02 – Autumn Snowfall
+ 03 – Autumn in Bruges
+ 04 – Christian’s Workshop(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26965670168D6E6A75BA3FB1E5088C4A58CC51FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222529   (682610) от 30.04.2018
+
+Alan Silvestri - Мстители: Война бесконечности / Avengers: Infinity War (Deluxe Edition) (2018) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Avengers (0:25)
+02. Travel Delays (2:43)
+03. Undying Fidelity (5:05)
+04. He Won't Come Out (2:31)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:56:29
+
+01. The Avengers (0:26)
+02. Travel Delays (Extended) (4:45)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64D4251BF0505AFAF87F1F99587FEB951F3B1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222516   (682596) от 30.04.2018
 
 Alan Silvestri - Мстители: Война бесконечности / Avengers: Infinity War (Deluxe Edition) (2018) [FLAC|Lossless|tracks]<Soundtrack>
@@ -604,172 +758,6 @@ Acoustic Sound Orchestra - Candle In The Wind (1997) Box Set, 3CD, Compilation [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:021BFDFFED30A3B559D47B3FD99DC00C7FBB6226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226973   (677425) от 18.06.2014
-
-John Adorney - 8 albums (1998 - 2014) [MP3|320 kbps]<New age, Relax, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677425.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:13) 01. In Spiritus
-(5:12) 02. Never Alone
-(5:39) 03. The Wonder Well
-(4:07) 04. At Home
-(4:18) 05. Window to the West
-(4:23) 06. If a Rose Could Speak
-(5:34) 07. Unbounded
-(3:50) 08. The Cup and the Veil
-(4:17) 09. The Meeting Place
-(4:53) 10. Heartstrings(   Читать дальше...   )Жанр: New age, Relax, AmbientПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9E0EC363935FBBC66BA0E17687504D9664D6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508558   (677200) от 11.06.2012
-
-Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Folk, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harvestmesse (05:21)
-02. Trinity (02:53)
-03. March To Loch Barren (02:38)
-04. Pure Space (05:02)
-05. Amongst The Heather (06:06)
-06. Dig (04:24)
-07. Don't Play With Water (03:42)
-08. Dead Flowers (04:50)
-09. Pure Phase (03:50)
-10. Reflections (03:47)(   Читать дальше...   )2005-2010Жанр: Drone Ambient, Psychedelic Folk, ExperimentalПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508605   (677062) от 11.06.2012
-
-Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Grave Is A Grim Horse (04:02)
-02. Clothes Of Sand (02:30)
-03. The Acre (03:28)
-04. Willow Tree (03:42)
-05. Valley Of The Moon (06:27)
-06. The Spider Song (03:25)
-07. Looking For Dry Land (06:42)
-08. Western Son (04:46)
-09. Brigit's Cross (04:12)
-10. Promises (03:06)(   Читать дальше...   )2000-2008Жанр: Acoustic, Neofolk, AmbientПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507629   (676899) от 11.06.2012
-
-Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malachite (06:34)
-02. Pneumonic (05:34)
-03. Lonesome (08:00)
-04. Oran Mor (05:17)
-05. Safety In Numbers (07:53)
-06. Everything All Of The Time (09:38)
-07. Saint (09:01)1999-2006Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029876   (676668) от 29.06.2016
-
-The Allegorist - Botanical Utopia (2016) [MP3|320 Kbps] <Electronic, Nu Disco, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Mantra 03:46
-02. Ragged Traveller 07:14
-03. Interstellar Crosswalks 02:40
-04. Plastic Millenium 03:54(   Читать дальше...   )Жанр: Electronic, Nu Disco, AmbientПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6F7153C7BBD69F0CF53133EAE92C63FD9CF267
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1359423   (963282) от 13.02.2020
+
+VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Red - Sunrise (Motivo Simply Mad Mix) (4:40)
+02. Tori Amos - Don't Make Me Come To Vegas (Timo On Tori) (6:03)
+03. Unknown Artist - Is It Real? (2:31)
+04. Poww Project - Junkhouse (Silverboys Remix) (5:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4858107F1F1D1D9617B82F45CE0DDC7C7AF826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359424   (963281) от 13.02.2020
+
+VA - Битва Dj - Dj Denis Binokl & Dj Arseniy (2008) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spirals Permission To Fly (7:09)
+02. TommyBoy & Soultan Feat. Zara - B With U (Add2Basket Remix) (6:29)
+03. D-Pulse - Cant Stop Morning Light (Yvel & Tristan Remix) (6:36)
+04. Yvel & Tristan - Adagio (6:36)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BD35305244667ED50DBE660CBB358F730C8AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359421   (963280) от 13.02.2020
+
+VA - Housemission II - Do You Remember (Mixed by DJ Ярик) (2004) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Ярик - Intro (0:29)
+02. Instant Funk - Got My Mind Made Up (4:06)
+03. Greens Keepers - Should I Sing Like This (3:44)
+04. Atwater Syndicate - Anti-Matter (4:20)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A80312B2213F827A9A9FD86DCE6A2E05D6797D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359414   (963279) от 13.02.2020
+
+VA - Body (Mixed by Dj Zezick) (2005) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (6:17)
+02. Untitled (4:15)
+03. Untitled (5:41)
+04. Untitled (5:03)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE3026BB6A07E07312C404BB1697B43ACA29611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359426   (963277) от 13.02.2020
+
+VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (5:58)
+02. Untitled (5:24)
+03. Untitled (4:16)
+04. Untitled (2:31)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E14779C171A141FBECD629A22C404F1C6B060A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359417   (963276) от 13.02.2020
 
 VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
@@ -597,149 +742,6 @@ DJ Woofer - Deep & Sexy Vol.02 (2005) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7946CC3F6B18B7F8CA1F0C1823B4FB0EC78326E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090539   (946137) от 07.01.2017
-
-VA - Armada Deep Top 10. January (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juliette Claire - Somebody Else's Lover
-02. Cheney - All About You
-03. Tai - Paradise
-04. Richard Judge - Wide Awake(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E328B6DEA8C8F638DFD2CC467B8A41C7F7C392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090694   (946093) от 07.01.2017
-
-VA - Winter 2017: Best Of Inception (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julian Wess – Switch (Original Mix) 07:30
-02. Chriss V – Sunfall Tale (Nerutto Remix) 05:32
-03. Nistirenko – Summer in the Future (Original Mix) 05:40
-04. Niklas Grosswald – The Blueprint (Not Okay Remix) 06:47(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F5D1573D5EF97193735F58A0ED5622E23152BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983151   (945548) от 05.02.2016
-
-John Dahlback - Saga (2016) [MP3|320 кб/с] <Electro House, Progressive House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saga Intro (01:27)
-02. Into You (03:28)
-03. Sycophant (03:42)
-04. Raven (03:13)(   Читать дальше...   )Жанр: Electro House, Progressive House, Future HouseПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3705A6A698E6155BBBEC3D750A2F7400B5C993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091441   (943133) от 09.01.2017
-
-VA - Best of Aethereal 2016 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GM Project - Great Escape (Slam Duck remix) 05:56
-02. Rogier - Introspection (Sonsez & Erman remix) 07:01
-03. Serge Landar - Quiet Night (original mix) 06:23
-04. Esthetique - The Secret (Alexey Lisin remix) 05:39(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBC2E9E1BFD00B030B3BB462FB6708A8F2ADD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362705   (942657) от 28.02.2020
-
-Dj Бинокль - Смотри В Оба - Голос Клубного Днепра 1 (1999) [MP3|320 Kbps] <House, Hard House, Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Happy Weekend (30:09)
-2. Get Down And Party (30:59)Жанр: House, Hard House, Euro HouseПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF916A8F6873686350366EB628C8869AE8782C59
 ```
 
 https://mybot314.ru/tekegram_catalog/

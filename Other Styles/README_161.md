@@ -1,3 +1,154 @@
+###  Публикация: 1271553   (146830) от 25.12.2018
+
+Austin Wintory - The Sound Of Assassin's Creed Syndicate (2015) Limited Edition, Cardsleeve [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bloodlines (1:55)
+02.The Bustle (2:06)
+03.Steel Cathedrals (2:02)
+04.The Morning Smoke (1:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA749F2490AC4EFBF859212A573C905D66BA3767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087184   (146256) от 27.12.2016
+
+Max Richter - Black Mirror / Чёрное зеркало: Nosedive (Music from the Award-Winning Series) (2016) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Reflection (07:15)
+02. Dopamine 1 (00:51)
+03. The Sorrows Of Young Lace (01:51)
+04. Dopamine 2 (02:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070F6AD1633D0A2B36B2D32D2F5D81401FB911C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588974   (146090) от 16.12.2012
+
+Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|320 кб/с] <Game-Rip OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. It All Started on Scabb Island... (02:11)
+2. On the log with Fink and Bart (01:59)
+3. The Largo Embargo (01:16)
+4. Woodtick Suite (04:01)
+5. Scabb Island (02:00)
+6. The International House of Mojo (02:20)
+7. The Cemetery (03:13)
+8. Poking Largo (01:12)
+9. LeChuck's Return (02:42)
+10. Captain Dread and the Jolly Rasta (03:18)(   Читать дальше...   )Жанр: Game-Rip OSTПродолжительность: 01:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EA9AD6261EA6D41C622C8A992F6606DEC33328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434518   (145976) от 27.12.2020
+
+Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Trailer>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Heart (02:15)
+02. Consternation (03:40)
+03. Paradox (04:45)
+04. Disclosure (04:23)(   Читать дальше...   )Жанр: Soundtrack, Instrumental, TrailerПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6B8D4A34A3E7B730D1DBA7F550A4C3E0F66E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969166   (145762) от 28.12.2015
+
+Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cloud Mountain [15:50]
+02. Reflections [06:55]
+03. Tears Of The Forest [12:20]
+04. Providence [11:23]Жанр: Meditative, New AgeПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B65FB830E55BED4853F150E1519FE41A966E776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271994   (145722) от 26.12.2018
 
 Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] <Trailer Music, Soundtrack>
@@ -598,151 +749,6 @@ Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17B3DFFE38784F691FAE80EB6E90857A55F6D1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272451   (140918) от 29.12.2018
-
-Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Concerto No. 1 "Spring"
-2. Canon in D-Dur
-3. The Swan
-4. Ave Maria(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430B169BA8CCDDC7CD9AEF57A790A4E432E77DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195657   (140629) от 30.12.2017
-
-Michael Forster - Christmas Piano Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Christmas (Piano Version)
-02. Driving Home for Christmas (Piano Version)
-03. All I Want for Christmas Is You (Piano Version)
-04. Let It Snow (Piano Version)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645E8C63AF497CEE7999F5245F14A5488F015AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273001   (139596) от 30.12.2018
-
-Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TVT Soundtrax [FLAC|Lossless|tracks+.cue] <Breakbeat, Trance, House, Tribal, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Franka Potente - Believe (04:55)
- 02. Tykwer/Klimek/Heil - Introduction (05:44)
- 03. Tykwer/Klimek/Heil feat. Franka Potente - Running One (05:32)
- 04. Tykwer/Klimek/Heil - Supermarket (04:40)(   Читать дальше...   )Жанр: Breakbeat, Trance, House, Tribal, SoundtrackПродолжительность: 01:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631CF91264E6C40D0E263F6F6078C34EDBD87EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740506   (139550) от 31.12.2013
-
-David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celtic Sanctuary (4:41)
-02. May It Be (3:35)
-03. He Moved Through the Fair (4:53)
-04. Sleepsong (4:54)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740314   (139535) от 31.12.2013
-
-Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (80 bpm) (12:34)
-02. Heartbeat of the World (95 bpm) (11:07)
-03. Rhythm Journey (110 bpm) (9:55)
-04. Shaman's Dream (125 bpm) (14:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,122 @@
+###  Публикация: 1043114   (574577) от 15.08.2016
+
+Gossec - Aux Armes, Citoyens! (2010) [FLAC|Lossless|tracks + .cue] <Music for Winds>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574577.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 La grande chasse de Chantilly 3:13
+2 Chant funebre sur la mort de Ferraud (arr. M. Lussier) 2:40
+3 Air des marseillais pour le camp de la federation (arr. M. Lussier) 2:55
+(   Читать дальше...   )Жанр: Music for WindsПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF65639EFEF62901FDD76BABCB68126F2326AE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224416   (570610) от 05.08.2010
+
+Richard Wagner / Friedmann Dressler: The Symphonic Ring (2009) [FLAC 2.0 192/24 |tracks (WEB DL)]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_570610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922041   (569868) от 28.07.2015
+
+Gyrowetz - Symphonies (Matthias Bamert & London Mozart Players Orchestra) (2000) [FLAC|image +.cue]<Classical, Classical Period, Orchestral,Romantic Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony in E flat major, Op.6 No.2
+01. Allegro (06:10)
+02. Andante (04:42)
+03. Minuetto: Allegretto (03:44)(   Читать дальше...   )Жанр: Classical, Classical Period, Orchestral,Romantic Period, SymphonyПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA55CF9A1CC12C3FE39D2EC7740CA6090B3E432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528370   (568498) от 30.07.2012
+
+Kronos Quartet - 25 Years - 10CD BoxSet (1998) [FLAC|Lossless]<Classical, Classical Chamber Music, Modern Classical, Contemporary>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jabiru Dreaming, Quartet No. 11: I. Deciso (Sculthorpe) [05:03]
+02. Jabiru Dreaming, Quartet No. 11: II. Amoroso (Sculthorpe) [07:30]
+03. Quartet No. 8: I. Con dolore (Sculthorpe) [02:03]
+04. "Quartet No. 8: II. Risoluto; calmo (Sculthorpe)" [03:14]
+05. Quartet No. 8: III. Con dolore (Sculthorpe) [03:02]
+06. Quartet No. 8: IV. Con precisione (Sculthorpe) [01:35]
+07. Quartet No. 8: V. Con dolore (Sculthorpe) [01:50]
+08. From Ubirr (Sculthorpe) [11:12]
+09. Tragedy at the Opera (Phan) [06:29]
+10. White Man Sleeps, Quartet No. 1: First Dance (Volans) [04:03](   Читать дальше...   )Жанр: Classical, Classical Chamber Music, Modern Classical, ContemporaryФормат: 10CD BoxSetПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E653E931188EA072348BCEB25902A3740FC417CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044212   (566582) от 19.08.2016
 
 VA - Шедевры Классики В Современной Обработке Vol.2 (2016) [MP3|256 Kbps] <Классика, Classic>
@@ -644,120 +763,6 @@ Adya - Classic (2011) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:525D5724537B3B244577BD1A9228752468E47ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046354   (552715) от 26.08.2016
-
-Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) Live [MP3|320 Kbps] <Classical, Vocal>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552715.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 'O sole mio [02:40]
-2. Funiculi, funicula [01:22]
-3. Libiamo ne lieti calici (Brindisi) [03:06]
-4. Sous le ciel de Paris [01:59](   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B52C697CA636AF421A42847F9B6E36083CABCC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598189   (552704) от 26.08.2016
-
-Andrew Lloyd Webber - Classic: Orlando Pops Orchestra (2004) 2CD[FLAC|Lossless]<Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cats - musical
-01. Memory, song [03:42]Жанр: ClassicalПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F329E526014A6C8F78D9D1636CB72AE8916EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046614   (550813) от 28.08.2016
-
-Yevgeny Mravinsky - Shostakovich Friendship (2016) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симфония №5, Соч.47
-1. I. Moderato
-2. II. Allegretto
-3. III. Largo(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEC1F2EFCF3A822C84408AF219A004BC4AC57CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309857   (549362) от 21.06.2019
-
-Ludovico Einaudi - Seven Days Walking (Day 4) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low Mist Var. 1 (Day 4) (2:30)
- 02. Cold Wind Var. 1 (Day 4) (3:28)
- 03. A Sense Of Symmetry (Day 4) (2:36)
- 04. Gravity Var. 1 (Day 4) (5:29)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3987793E0C4A428DC5B85225ADBF59D9AC04109D
 ```
 
 https://mybot314.ru/tekegram_catalog/

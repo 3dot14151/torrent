@@ -1,3 +1,119 @@
+###  Публикация: 910606   (622021) от 20.06.2015
+
+Unheilig - Gipfelkreuz (2015) [MP3|320 кб/с]<Gothic Rock, Metal, NDH>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gipfelblick (Intro)
+02. Where Are You (Feat. Licky)
+03. Brief An Dich
+04. Schmetterling(   Читать дальше...   )Жанр: Gothic Rock, Metal, NDHПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1FB57C75A28B2705C7153FEE3A7F795B93940B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910158   (621347) от 20.06.2015
+
+Lindemann - Skills In Pills (2015) [MP3|320 кб/с]<Industrial Metal>
+
+>>След.
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skills In Pills
+02. Ladyboy
+03. Fat
+04. Fish On(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03D7A54773C617D1F795D66B6AB6987C8A95FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036272   (621163) от 20.07.2016
+
+Dust Bolt - Mass Confusion (2016) Japanese Edition [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SickxBrain
+02. Mass Confusion
+03. Allergy
+04. Turned to Grey(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271A041F4FA6A15327CCCEC4CC249477D3560ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036114   (621161) от 20.07.2016
+
+Orden Ogan - Vale (2007) Reissue, Remastered, 2015 [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Graves Bay    01:16
+02.  To New Shores Of Sadness    06:14
+03.  Winds Of Vale    03:27
+04.  Farewell    03:50(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A0A20ABAB631A916248EFBA822F552719F457C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522261   (621148) от 14.07.2012
 
 Reverence - When Darkness Calls (2012) [MP3|320 кб/с]<Heavy/Power Metal>
@@ -632,122 +748,6 @@ Soldier - Defiant (2015) [MP3|320 кб/с]<Heavy Metal, NWOBHM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E8F94FE597F75CF7AFADE254C8DDF778A9C5B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911389   (616578) от 23.06.2015
-
-Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Disturbed Unconscious Mind
-2. Fallen From The eye
-3. Nothings Gonna Change
-4. Mad Happiness(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05E4345D8013584EBB19CBE94A53D3407EEFA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911208   (616577) от 23.06.2015
-
-Rosetta - Quintessential Ephemera (2015) Japanese Edition [MP3|320 кб/с]<Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After the Funeral
-02. (Untitled I)
-03. (Untitled II)
-04. (Untitled III)(   Читать дальше...   )Жанр: Post-MetalПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4744BDEA9DB0880B95308ECB3BA31BADEE248419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911336   (616576) от 23.06.2015
-
-Downfall - A Place In Existence (2015) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginning Of The End
-02. Lights Out
-03. Mutual Demise
-04. My Path(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74289C3EC212D7BE2D9DC69491CD917B74BA1A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911204   (616574) от 23.06.2015
-
-Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addiction
-02. Mirror Of Pain
-03. Ascension: 6 To 7
-04. Apophis(   Читать дальше...   )Жанр: Traditional Doom MetalПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62126E4AE47C18998514A42B9B8324A64B933DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

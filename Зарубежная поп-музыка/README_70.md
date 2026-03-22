@@ -1,3 +1,119 @@
+###  Публикация: 1623463   (238576) от 01.04.2023
+
+VA - Mega Hits 2012 (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michel Teló - Ai Se Eu Te Pego (Ao Vivo)
+02. PSY - Gangnam Style (강남스타일)
+03. Of Monsters and Men - Little Talks
+04. Swedish House Mafia - Don't You Worry Child (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC646306285D17119A928C3642FCF4B251940B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623419   (238566) от 01.04.2023
+
+VA - Disco Modern (2023) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funksoul Brothers - Sexy Thang (Radio Mix) (3:12)
+02. House Of Prayers & Crazibiza - Everybody Ain't Nobody (Original Mix) (5:08)
+03. Soulpainters - Funky Saturday (Original Mix) (4:29)
+04. Max Millan & SWS & Wild Joker - Going Back To My Roots (Original Mix) (4:38)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D617358F38055EFCE45346E49E3476F52FFBCCAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628863   (238505) от 24.04.2023
+
+VA - 1977 - Best of (2023) [MP3|320 Kbps] <Pop, Dance, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stevie Wonder - Sir Duke
+02. ABBA - Knowing Me, Knowing You
+03. Commodores - Easy
+04. Bee Gees - How Deep Is Your Love(   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 04:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FEA0E4DF77383991DA2631D753FDFCB87B1EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623902   (238324) от 03.04.2023
+
+VA - Bravo Hits 106 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shawn Mendes & Camila Cabello - Señorita (3:12)
+02. Sarah Connor - Vincent (4:43)
+03. Pedro Capó & Farruko - Calma (Remix) (3:59)
+04. Alvaro Soler - La Libertad (3:13)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA173EB79ED47F73F3E34213F79D54979526BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623882   (238301) от 03.04.2023
 
 VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
@@ -632,134 +748,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A935C34B67D2FDC538ABC5A898C1822E839D09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268076   (229812) от 09.12.2018
-
-VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travie McCoy - We'll Be Alright
-02. All Saints - Pure Shores
-03. CeeLo Green - F**K You
-04. Eliza Doolittle - Pack Up(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0541750C0F18ABA1D8F9CDCBC7F948A2CD3D81BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586139   (229423) от 08.12.2012
-
-Cascada - It's Christmas Time (iTunes Version) (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Snow (1:50)
-02. Have Yourself a Merry Little Christmas (2:39)
-03. Last Christmas (3:52)
-04. Jingle Bell Rock (2:45)
-05. Santa Clause Is Coming to Town (2:55)
-06. I'll Be Home for Christmas (2:56)
-07. Away in a Manger (3:29)
-08. Somewhere At Christmas Time (3:33)
-09. Winter Wonderland (3:05)
-10. Christmas Song (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A12E9C80632E41673AC4A4C50526E30CB886F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586394   (229246) от 08.12.2012
-
-Amanda Lear - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Desire
- 02. - L'Ecole D'Amour
- 03. - The Sphinx
- 04. - Ragazzino
- 05. - Aphrodisiac
- 06. - This Man (Dali's Song Remix)
- 07. - Fashion Pack (Studio 54)
- 08. - Blue Tango
- 09. - Queen Of Chinatown
- 10. - Love Me, Love Me Blue(   Читать дальше...   )Жанр: Pop,DiscoПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44994C52EA6A52E69753C8112A38C8BCF587D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423676   (229009) от 16.11.2020
-
-VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229009.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 GIMS - YOLO
-02 OBOY - Cabeza
-03 PLK Feat. Niska - On Sait Jamais(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF989FED423BE9C0E61E709FC7CCE78E2401BB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1089321   (951915) от 03.01.2017
+
+Gone Is Gone (Mastodon, Queens Of The Stone Age, At The Drive-In) - Echolocation (2017) [MP3|320 Kbps] <Progressive Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sentient
+02. Gift
+03. Resurge
+04. Dublin(   Читать дальше...   )Жанр: Progressive Metal, ExperimentalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F38D71C629101666E477D2B4C8F433E873CA50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 173067   (951476) от 06.02.2010
 
 Royal Hunt - X (2010) [MP3|320 kbps]<Progressive Melodic Metal>
@@ -722,35 +751,6 @@ Crypt Of Silence - Awareness Ephemera (2016) [MP3|320 Kbps] <Doom-Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8803A230C32EAF84BB5E982D34D9C516FD147CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092709   (938642) от 12.01.2017
-
-Grave Digger - Healed By Metal (2017) Deluxe Edition [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Healed By Metal
-02. When Night Falls
-03. Lawbreaker
-04. Free Forever(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B8415DA3AC272D5B5912DB2A9F561016B7DEB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

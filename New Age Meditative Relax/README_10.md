@@ -1,3 +1,32 @@
+###  Публикация: 1134081   (691069) от 14.05.2017
+
+Terry Oldfield and Carlos Garo - Sky Dancer (2017) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Dancer
+02. Reach Out
+03. Orbital
+04. The Man with No Face(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237FB0B37098948431ABF6F2644C864FBA5355B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 210689   (690827) от 22.06.2010
 
 VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
@@ -729,35 +758,6 @@ KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13EC5F55A8876C7EDAB20850DA4B64F43ACF846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139662   (659194) от 03.06.2017
-
-David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassical, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repercussions
-02. Magdalena
-03. Valhalla
-04. Delia(   Читать дальше...   )Жанр: Classical, Neoclassical, New AgeПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA13E5DF9B0AC2AE8217469433FD3E361B01735
 ```
 
 https://mybot314.ru/tekegram_catalog/

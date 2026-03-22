@@ -1,3 +1,148 @@
+###  Публикация: 945493   (427313) от 13.10.2015
+
+VA - Paul Oakenfold - We Are Planet Perfecto, Vol. 5 (Back To My House) (2015) [MP3|320 кб/с]<Trance,Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donatello - Story (Donatello & Arnas D Radio Edit) (03:34)
+02. Krankbrother - When You’re Watching Me (Radio Edit) (03:58)
+03. Mier - Dreamin (Fractal Architect Radio Edit) (03:46)
+04. Philthy Chit - People, Places (Radio Edit) (03:22)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 05:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE765F5650813CC4C63E214B99B8DEBA7A9239F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064868   (423913) от 21.10.2016
+
+Armin van Buuren - Club Embrace (2016) [MP3|320 Kbps] <Progressive House, Deep House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - Club Embrace (Intro) (3:44)
+02. Armin Van Buuren - Hymne (Martin Roth Remix) (3:32)
+03. Armin Van Buuren Feat. Sharon Den Adel - In And Out Of Love (Diversion Remix) (3:07)
+04. Armin Van Buuren - In 10 Years From Now (Naden Remix) (3:36)(   Читать дальше...   )Жанр: Progressive House, Deep House, Progressive TranceПродолжительность: 03:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D622EF808F77FF8818083754FFE7787AAA0987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324630   (423098) от 10.09.2019
+
+VA - Bikini Beach, Vol. 10 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423098.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.YAKO BEATZ - Zero (2:03)
+2.Dippu - Sweet Cake (3:20)
+3.DJ K-NEXT - Dream (4:26)
+4.Gerrox - Shadows (3:32)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748DBBF170714D9017FB50420262D9E186513308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375953   (422793) от 10.09.2019
+
+Utah M. Paul - Дискография  44CD Taboo Records (1997-2010) [MP3|320 kbps]<House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justus Kohncke - Yacht (Robert Babicz mix) (08:13)
+02. Jeremiah, Bradler - Turmoil (Original Mix) (02:48)
+03. Jim Rivers - I Go Deep (Original Mix) (03:35)
+04. Kriece - Cork In The Ocean ( Jim Rivers Mix) (06:56)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AB36637252DB82BD3BFDAE15FB9C413F194E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250899   (422656) от 29.09.2018
+
+VA - Deep House & Deep Techno #03: Best Of 5 Years (2018) [MP3|320 Kbps] <Deep House, Deep Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demax - Galantis (Original Mix) 7:38
+02. Robben Cepeda - Another Day (Original Mix) 6:35
+03. Valentin Timoshin - Drones (Original Mix) 6:17
+04. Carlos De Castro - Grooving Madness (Original Mix) 5:56(   Читать дальше...   )Жанр: Deep House, Deep TechnoПродолжительность: 05:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F107173F7461859A51560D330292A3659343E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557360   (422500) от 07.10.2012
 
 VA - Manhattan Deep Vibes Compilation: 2012 Deep House Compilation (2012) [MP3|320 кб/с]<Deep House>
@@ -612,163 +757,6 @@ VA - Classic Workout Songs (2020) [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8000C9C00BE73A17EFF7F5BDD49DC37B65C23C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067090   (408388) от 28.10.2016
-
-VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modell - Do You Remember a Time - Deep Elements Mix
-02. Yolette Mercure - Pretty Amper - Cinosa Mix
-03. South Soul - Light Passion for Beauty - Beach & Fashion Mix
-04. Parfait Deblois - Heat Wave - On The Moon Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EF515D0A713ED603FF5090E7ECF1A48784E687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560369   (407504) от 14.10.2012
-
-VA - World Club Tour Amsterdam: The Amsterdam Club Sound Collection (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falko Niestolik - Explore (Brockman & Basti M Full Vocal Mix)
-02. Eriq Johnson - Should I Like This (Incognet Remix)
-03. Stan Kolev - Love Revolution (Matan Caspi Tribolution Remix)
-04. Joe Flex - Manhattan (Paul Strive Remix)
-05. Chriss Ortega - When You Say (Fine Touch Remix)
-06. Tune Brothers - Diamonds (Francesco Gomez Remix)
-07. Dimitri Vangelis - Ignited (Original Mix)
-08. Marc Vedo - Lullabyes (Original Mix)
-09. Vengerov - Kazantip Intro (Matt Caseli & Danny Freakazoid Remix)
-10. Felix Leiter - Better Days (Original Mix)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4E99C4278918EDB0A8488E06DD8D2ABDC9F452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413995   (406809) от 06.10.2020
-
-VA - Kontor Sports: Nonstop Powermix 2020.05 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Kontor Sports-Nonstop Powermix 2020.05 (Continuous DJ Mix) 1:01:59
-02. Armin van Buuren feat. Bonnie McKee - Lonely For You (Jerome Remix) 2:59
-03. Loud Luxury feat. Morgan St. Jean - Aftertaste 3:17
-04. Nora En Pure & Lika Morgan - In The Air Tonight (Croatia Squad Remix) 3:05(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5B8A91665F6614F9D8AEB324D50FFD91C6502E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414019   (406807) от 06.10.2020
-
-VA - Kontor Sports: Nonstop Powermix 2020.04 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Kontor Sports-Nonstop Powermix 2020.04 (Continuous DJ Mix) 1:01:18
-02. Jerome - Take My Hand 2:43
-03. Sondr & VIZE feat. Lilly Ahlberg - Kids (feat. Lilly Ahlberg) 2:28
-04. Micar - This Time It's My Life 3:07(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F5AD27AADD53CEF295B48CA7563BAD8693D68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560020   (406721) от 15.10.2012
-
-VA - Dancefloor FG Ete Summer 2012 (2012) [MP3|~245 кб/с (V0)]<House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Levels (04:37)
-02. Hardwell - Spaceman (06:19)
-03. Afrojack - Can't Stop Me (03:05)
-04. Sebastian Ingrosso - Calling (Lose My Mind) (06:12)
-05. Nicky Romero - Toulouse (03:05)
-06. Cedric Gervais - Molly (03:31)
-07. Bingo Players - Rattle (03:09)
-08. Steve Aoki - Ladi Dadi (04:02)
-09. Kaskade - Lick It (04:31)
-10. DAB - Life (03:02)(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3F337103BE41CDDC100CE74CA2FDA4189A9E82
 ```
 
 https://mybot314.ru/tekegram_catalog/

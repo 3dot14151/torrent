@@ -1,3 +1,61 @@
+###  Публикация: 1197000   (819199) от 05.01.2018
+
+Christos Fourkis - Personal Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christos Fourkis - Liquid Dream (Original Mix) (06:54)
+02. Christos Fourkis & Silia – Me And You (Original Mix) (06:15)
+03. Adam Byrd – Without You (Christos Fourkis Remix) (06:28)
+04. Harri Agnel – Lovst (Christos Fourkis Remix) (05:20)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD4364C73717DF40595A6978FDBA705107D7F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382832   (817515) от 12.05.2020
+
+VA - Solitude Of The Forest Compilation (2020) Insectorama [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenchord - Untitledub 9 (06:11)
+ 02. FaKtor.Ost - 3828 (05:54)
+ 03. Markus Masuhr - Forest Lights (10:24)
+ 04. Drfct - Unknown (07:35)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 01:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57FD519235D346833CDB1CAFAADB06215DD2E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008187   (816112) от 18.04.2016
 
 Leftfield - Open Up (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic, Techno>
@@ -682,64 +740,6 @@ VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47369B45C5C81A4CCE12CF24D56BA8FB178667F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199655   (800363) от 17.01.2018
-
-Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Abstract, Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Te Olvides De Acordarte (06:06)
- 02. Today Will Be Tomorrow (feat. Kaelan) (07:00)
- 03. When I Was With You (02:48)
- 04. Amazzonia (feat. Aubrey) (05:59)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno/Abstract/Techno/AmbientПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE4BBBEBA993A5ABC4B95ADE60087A3C1AAA9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273449   (799776) от 02.01.2019
-
-Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part Eleven (03:27)
-02. Part Three (03:48)
-03. Part Fourteen (04:50)
-04. Part Seven (03:24)(   Читать дальше...   )Жанр: Electronic, Tech House, TechnoПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED11472E59961CF47CCFA7578E88E987C12E7F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

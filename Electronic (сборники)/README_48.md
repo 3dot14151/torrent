@@ -1,3 +1,61 @@
+###  Публикация: 1117727   (815485) от 24.03.2017
+
+VA - Private Lounge - Spring Session (2017) [MP3|320 Kbps] <Lounge, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KTB - Another Day in Paradise (Highpass Remix)
+02. Skyfall 5 - Free (Deep Dub)
+03. Kim McNichols - Frozen
+04. Genevieve Somers - Moon Dust(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB80BE60616C210EABD1C3E2AF62C569FCC83B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117815   (815479) от 24.03.2017
+
+VA - Chillout Hits Vol.3 (2017) [MP3|320 Kbps] <Chillout, Chilltrap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fliflo M. & SinDator - Winter Snow
+02. Michelle Buzz ft. Unlike Pluto - Found You
+03. Ember Island - Need You (Not Your Dope & Jakoban Remix)
+04. Fabian Mazur & Dia Frampton - Young Once(   Читать дальше...   )Жанр: Chillout, ChilltrapПродолжительность: 02:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6990C6B097B509C6304918E8383B21B4918C0DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008880   (813945) от 19.04.2016
 
 VA - Lounge Royale: Exclusive Music Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Bass Killer 11 (2017) [MP3|320 Kbps] <Dubstep, Trap, Drum and Bass, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0607DA8054D1B9809204046BB965DCF259E7A461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009658   (808357) от 22.04.2016
-
-VA - Sound Of Tomorrow (Mixed By DJ Flybeat) (2016) [MP3|320 кб/с] <House, Progressive House, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas & Mazza - Why (Original Edit) 02:42
-02. Picco - You Know Why (Original Edit) 03:04
-03. CJ Stone - Lost (Original Edit) (feat. Lyck) 03:26
-04. Ghost - Not Alone (Stefan Rio Remix Edit) 03:25(   Читать дальше...   )Жанр: House, Progressive House, Future HouseПродолжительность: 04:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B57EA20F8A5D44C0794ADDA57FE6B256A6419C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383797   (808268) от 17.05.2020
-
-VA - Record Super Chart 636 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Capon - Shut Up Chicken 2:31
-02. Тайпан feat. Agunda - Луна не знает пути 2:11
-03. Topic & A7S - Breaking Me 2:47
-04. Little Big - UNO 2:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F8CE8FB6149519ABD3FBE4871B3B0E08894C5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

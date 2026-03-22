@@ -1,3 +1,58 @@
+###  Публикация: 1506964   (799093) от 02.11.2021
+
+Charlotte de Witte - DJ Mag Alternative Top 100 DJs Winner Set (2021-10-27) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. ID - ID
+03. Quisan - Cumulos
+04. ID - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C75864C5735C451108FB489D18C0968728E010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506469   (799087) от 02.11.2021
+
+Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, tech house, disco house, electronic, funky house, edm>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: house, tech house, disco house, electronic, funky house, edmПродолжительность: 11:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506946   (799049) от 02.11.2021
 
 Ummet Ozcan - Tomorrowland Friendship Mix (2021-10-28) [MP3|320 Kbps] <Big Room>
@@ -687,64 +742,6 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A598163F4286AD6F1C4ED0E3A689ED61975E01D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278209   (773296) от 24.01.2019
-
-VA - Lazarus - Rise Above 363 (Yearmix) (2018) [MP3|320 Kbps] <Trance, Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khnum & Hequet - Segment 4 (Original Mix)
-02. Hans Zimmer - Time (Magdelayna Remake)
-03. BLANCAh - Apneia (Glenn Morrison's Warehouse Dub Mix)
-04. BLANCAh - Apneia (Binaryh Remix)(   Читать дальше...   )Жанр: Trance, Progressive Trance,Uplifting TranceПродолжительность: 06:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EA53E514A3F3CC3362441C91B03CFE19F6BC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278412   (771989) от 25.01.2019
-
-VA - Markus Schulz - Kyau & Albert - Global DJ Broadcast (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Mike EFEX - BX8
-02. Alex Kunnari featuring Mike Schmid - This Fire
-03. Markus Schulz featuring Justine Suissa - Perception (Johan Gielen Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD97B86167953EDE9BDE45C16F8CE835CA5263EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

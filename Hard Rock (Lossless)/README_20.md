@@ -1,3 +1,90 @@
+###  Публикация: 1497012   (868260) от 20.09.2021
+
+Takeaway Thieves - 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 13 Feathers 04:13
+02. Snakes And Daggers 04:20
+03. Soothe Me 03:05
+04. Big Mistake 03:26(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C51938D4B6951E1C9E681AE424FFAB2C642BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497110   (866664) от 21.09.2021
+
+Ten Eyed Man - From Beneath A Pallid Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victim 5:01
+02. Rage With Me 4:06
+03. Man In Black 3:37
+04. The New Sun Rises 5:47(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859398E8FA130D2A33C3A4FDD134C132D039B62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497236   (866663) от 21.09.2021
+
+Save The World - One (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleed
+02. Comic Con
+03. In Pieces
+04. Circus Maximus(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9FB10F73C5E9BF7FC2421168FB2F2A5DDFC5A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999034   (866618) от 21.03.2016
 
 The Treatment - Generation Me (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock>
@@ -658,93 +745,6 @@ Whitesnake - Made In Japan (2013) [FLAC|Lossless]<Hard rock, Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001647   (852185) от 29.03.2016
-
-Eclipse - The Truth And A Little More (2001) [FLAC|Lossless|tracks] <Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Train    03:15
-02. The Truth    03:53
-03. The Only One    03:50
-04. Message Of Love    05:40(   Читать дальше...   )Жанр: Rock, Melodic Hard RockПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DE54AE5F7A77771F346241039611F866258392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110371   (852088) от 03.03.2017
-
-Gary Moore - Live At The Marquee (1983) Japanese Edition, 1990, Victor [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back On The Streets (5:30)
-02. Run To Your Mama (5:19)
-03. Dancin' (5:38)
-04. She's Got You (7:08)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8797E9F3421EA13E37682D2CA86F5F24CBD0B185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110614   (851900) от 03.03.2017
-
-Danko Jones - Wild Cat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Gotta Rock (3:39)
-02. My Little Rnr (3:44)
-03. Going Out Tonight (3:31)
-04. You Are My Woman (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CC94FD425D55EDB029B0AC5E1FD61F1F6D3A5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1227133   (650519) от 24.05.2018
+
+Earl Anderza - Outa Sight (1962) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [5:16]
+02. Blues Baroque [4:58]
+03. You'd Be So Nice to Come Home To [6:46]
+04. Freeway [2:28](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E650BAC6F11E3D287669D10ADF20C377801F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227138   (650518) от 24.05.2018
+
+Wycliffe Gordon - The Joyride (2000) 2003, Nagel Heyer Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Impromptus [5:33]
+02. The Island Boy [5:12]
+03. Bad Time [6:32]
+04. Let's Call This [5:17](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82462E60565ABED74691C6E868C20E17CFC2F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227129   (650513) от 24.05.2018
+
+Dorothy Donegan - Dorothy Romps: A Piano Retrospective 1953-1979 (1991) Rosetta Records [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donegan Walk [1:43]
+02. Just in Time [3:03]
+03. Dorothy Rocks [2:32]
+04. Put Your Arms Around Me [3:12](   Читать дальше...   )Жанр: Boogie-Woogie, Bop, Piano JazzПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD5BBAF48BD4CAD79391B025055AC416C6C4F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227137   (650495) от 24.05.2018
+
+Wycliffe Gordon - The Search (2000) Nagel Heyer Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheeky [6:37]
+02. What Is This Thing Called Love [5:53]
+03. He Looked Beyond My Fault (Danny Boy) [3:25]
+04. Frantic Flight [5:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66D8DDC33A432B35FB8DF91EF58FC3C229380A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227025   (650401) от 24.05.2018
+
+Djabe - Flow (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Flow
+02 - Return To Somewhere
+03 - Another Dive
+04 - Free Fallin'(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA6CB6568DFD7CF78E407B6921065FC890C5184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905531   (649156) от 06.06.2015
+
+VA - 25 Legendary vocal jazz ballads (2015) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tony Bennett -  (Where Do I Begin) Love Story  (3:56)
+02.  Perry Como -  Feelings  (3:33)
+03.  Matt Monro -  Love Is A Many Splendored Thing  (2:50)
+04.  Frank Sinatra -  My Way  (4:36)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC74B1D2CE41205883A12D4F452168240229637E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292159   (648851) от 28.03.2019
 
 Mike Melvoin, Charlie Haden, Bill Henderson - The Capitol Sessions (2000) Naim [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -571,180 +745,6 @@ Calvin Johnson Jr. - Native Son (2013) Alma Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D8632FE6F7D12193CA5C1B8D707820ED1E957A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227459   (646928) от 26.05.2018
-
-Alan Pasqua - Twin Bill: Two Piano Music of Bill Evans (2012) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Very Early [7:54]
-02. Nardis [5:21]
-03. Time Remembered [5:33]
-04. Gloria's Step [6:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A65E4CE3519F190108AC1219A981FF8B0DDCEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292421   (646921) от 29.03.2019
-
-Dizzy Gillespie - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Algo Bueno (Woody 'n You) [3:02]
-02. Cool Breeze [2:47]
-03. Cubana Be [2:42]
-04. Cubana Bop [3:16](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77241668229A4C9263C0C972AAC78FCAF1BA1036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292419   (646919) от 29.03.2019
-
-Mitsuaki Kishi & Hiro Minowa - Time For Life (2018) Swingbros [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Been a Long Long Time [3:37]
-02. As Time Goes By [8:11]
-03. Just in Time [5:54]
-04. This Time the Dreams on Me [5:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1086DA4EAC4A7278F5EF7EF42F3A1A969924EDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141822   (646608) от 12.06.2017
-
-Aretha Franklin - The Real... Aretha Franklin (2014) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulville
-02. Nobody Knows The Way I Feel This Morning
-03. Evil Gal Blues
-04. Make Someone Happy(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 03:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D0F03FA7BB1265CE48B04A686C7CBD67E7F6A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032359   (646178) от 07.07.2016
-
-Nat Adderley - Live At Memory Lane (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.On My Journey Now [04:40]
- 02.Fun [06:43]
- 03.Good Old Summertime [09:50]
- 04.Lavender Woman [08:17](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2D49CF1E262FDED45E660EBCCF40690D531D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032357   (646177) от 07.07.2016
-
-Denny Zeitlin - Cathexis (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Repeat [03:21]
- 02.I-Thou [05:58]
- 03.Stonehenge [05:18]
- 04.Soon [05:14](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93F67623F68F026D9664CED1F70E9FD8ABCF741
 ```
 
 https://mybot314.ru/tekegram_catalog/

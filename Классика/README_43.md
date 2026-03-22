@@ -1,3 +1,120 @@
+###  Публикация: 1337459   (273624) от 11.11.2019
+
+New London Chorale - The Collection Vol.2 (2003) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Alone (Moonlight Sonata) - Ludwig Van Beethoven (3:52)
+02. You Know Him Well - Wolfgang Amadeus Mozart (3:30)
+03. Ave Maria - Franz Schubert (3:55)
+04. The Stage Is Set - Peter Ilyich Tchaikovsky (4:26)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D94727272AD052AF5E68483A48B66EDD056C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189382   (270187) от 06.12.2017
+
+Annie Haslam - Still Life (1985) Limited Edition, Reissue, 1999, Kankard [FLAC|Lossless|image + .cue] <Classical, Romantic, World>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный альбом Энни Хаслам — "Still Life" (1985), записанный вместе с Royal Philharmonic Orchestra под управлением Луи Кларка сделавшего аранжировки для оркестра. Кларк дирижировал Королевским филармоническим оркестром в процессе записи на Эбби Роуд и продюсировал альбом.
+На наиболее известные классические произведения Баха, Шуберта, Вагнера, Чайковского, (   Читать дальше...   )01. Forever Bound (3:55)
+02. Still Life (3:00)
+03. One Day (2:59)
+04. Ave Verum (2:44)(   Читать дальше...   )Жанр: Classical, Romantic, WorldПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858350A5FD1EFEC86986ED95F0315C1D4BB12B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338086   (269689) от 15.11.2019
+
+Peter Hahn & Anna Maria Kaufmann - CD1 Musical (2010) [FLAC|Lossless|image + .cue] <Classical Crossover,  Musical, Vocal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Hahn & Anna Maria Kaufmann - The Phantom Of The Opera (4:28)
+02. Peter Hahn & Anna Maria Kaufmann - Westside Story: America (4:29)
+03. Peter Hahn & Anna Maria Kaufmann - Wicked: Ich Bin Es Nicht (I'm Not That Girl) (2:58)
+04. Peter Hahn & Anna Maria Kaufmann - Phantom Of The Opera: Denk An Mich (3:19)(   Читать дальше...   )Жанр: Classical Crossover,  Musical, VocalПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16205515053E587A2C13AF4275118F630330F2DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266505   (269147) от 03.12.2018
+
+Katherine Jenkins - Guiding Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Homeward Bound 4:16
+02.Jealous Of The Angels 3:49
+03.A Gaelic Blessing 1:53
+04.Morning Has Broken 3:29(   Читать дальше...   )Жанр: Classical Crossover, VocalПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:856F030CE1FAFA13738032CEBB5F3504E1E5D018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338767   (268122) от 17.11.2019
 
 Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classical Crossover, Modern Classical, Electronic>
@@ -666,140 +783,6 @@ Concerto for Violin and Orchestra in A Minor BWV 1041:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10063B931DA8E76025AC1B64A2A1A9F13B8230FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496122   (252984) от 14.05.2012
-
-Pink Floyd - Us And Them Symphonic Pink Floyd: The London Philharmonic Orchestra (1995) [FLAC|Lossless]<Modern Classical, Ambient>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time 08:13
-02. Brain Damage 05:14
-03. Another Brick In The Wall (Part II) 08:28
-04. Comfortably Numb 05:27
-05. Breathe 04:04
-06. Money 06:46
-07. The Great Gig In The Sky 05:11
-08. Nobody Home 06:26
-09. Us And Them 11:38
-10. Time (The Old Tree With The Winding Roots Behind The Lake Of Dreams Mix) 10:42(   Читать дальше...   )1995Жанр: Modern Classical, AmbientПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B65005E960114BEDCA3C78909F70BB4601C75FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496314   (252929) от 14.05.2012
-
-Wolfgang Amadeus Mozart – Mozart, Music for oboe and strings: VA, Virtuosity of oboe, Alexsei Utkin (1994-1995) /2003, Vista Vera/[FLAC|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252929.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adagio for English horn, violin, viola, and cello in C major KV 580a 5:25
-Quartet for oboe, violin, viola and cello in C major (Flute Quartet in autograph) KV285b
-2. Allegro 8:16
-3. Andantino 10:48
-Quartet for oboe, violin, viola and cello in F major KV 370
-4. Allegro 9:13
-5. Adagio 3:10
-6. Rondo Allegro 4:15
-Quartet for oboe, violin, viola and cello in C major (Flute Quartet KV 285 in autograph)
-7. Allegro 6:54(   Читать дальше...   )2003Жанр: ChamberПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD11F660DC651FC7E1E1AA0B8F87C125D9BE8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495951   (252661) от 13.05.2012
-
-Johann Sebastian Bach - Three Concertos for Flute: Ars Rediviva Orchestra, VA, Jean-Pierre Rampal (flute), (1719-1726) /1991, Sony /[APE|Lossless]<Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for flute, strings and basso continuo C-Dur BWV 1055
-1.Allegro 4:11
-2.Larghetto 5:02
-3.Allegro ma non tanto 3:51
-Concerto for flute, strings and basso continuo g-moll BWV 1056
-4.Without tempo indication 2:58
-5.Largo 2:27
-6.Presto 3:34
-Concerto for flute, strings and basso continuo e-moll (after 1,2 & 5 movements
-Of Cantata N. 35)(   Читать дальше...   )1991Жанр: ChamberПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F9F04F4E85D8701D2BCA0117E7A10851789A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835574   (252326) от 08.11.2025
-
-Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here for You (3:50)
-02. Longing (3:43)
-03. Sonic Samba (2:57)
-04. Fathers and Sons (3:27)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F4AC3FB16DCCBFDF1F7DB535A20A7C93E56A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,189 @@
+###  Публикация: 489304   (129234) от 28.04.2012
+
+Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The 'A' Train (2:55)
+02. Don't Get Around Much Any More (Never No Lament) (3:18)
+03. Cotton Tail (Shuckin' And Stiffin') (3:11)
+04. I Got It Bad And That Ain't Good (3:18)
+05. Conga Brava (2:58)
+06. Concerto For Cootie (Do Nothin' Till You Hear From Me) (3:17)
+07. A Portrait Of Bert Williams (3:09)
+08. Warm Valley (3:24)
+09. Solitude (2:57)
+10. Country Gal (2:57)(   Читать дальше...   )1990Жанр: Big BandПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525680   (129189) от 21.01.2022
+
+Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Love Lost
+02. Don't Give Up
+03. Still Not Over You
+04. The Way We Danced(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488988   (129145) от 27.04.2012
+
+Count Basie and His Small Groups - The Fives (1936—1942) (1996) [FLAC|Lossless]<Trad Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoe Shine Boy
+02. Evenin’ (Jimmy Rushing, vcl)
+03. Boogie Woogie (Jimmy Rushing, vcl)
+04. Oh! Lady Be Good
+05. Boogie Woogie
+06. The Dirty Dozen
+07. The Fives
+08. Hey Lawdy Mam
+09. Oh! Red
+10. Red Wagon(   Читать дальше...   )1996Жанр: Trad JazzПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525660   (129114) от 21.01.2022
+
+Pat Martino - Comin' And Goin': Exit & The Return (1976, 1987) 2CD, 1999, 32 Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129114.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1- Exit:
+01. Exit [9:26]
+02. Come Sunday [7:36]
+03. Three Base Hit [4:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CEC6D611450E162EE55B62AA47AB77E2E49555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683292   (128714) от 10.12.2023
+
+VA - Gorgeous Relaxing Jazzy Instrumentals in Lounge Style (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Guessing Game (4:17)
+02. Chillaxing Jazz Kollektion - Like a River (5:23)
+03. Chillaxonic - Oasis (4:58)
+04. Chillaxing Jazz Kollektion - True Dreams (5:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D5FF2CD5D3C11468E4D0ECDB8C63534E8F8FCFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683284   (128703) от 10.12.2023
+
+VA - Best Emotional Sax Colletion (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chilled Jazz Masters - Tranquil Morning (3:23)
+02. Easy Listening Chilled Jazz - Jazzin' Vibes (3:07)
+03. Acoustic Hits - Acoustic Morning Mood (3:37)
+04. Chilled Jazz Masters - Good Morning, Sweetie (3:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53944E2F46AF134AF4BC88C4F1F5F4D551EFE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683290   (128694) от 10.12.2023
 
 VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -571,180 +757,6 @@ Fourplay - Between The Sheets (1993) 2023 30th Anniversary Remastered Edition [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F5CFD278A6F01113AD2ECFCB7B3CEDCAC2A6C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683866   (128099) от 13.12.2023
-
-VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Beyond the Horizon (4:58)
-02. Chillaxing Jazz Kollektion - It Dews (5:02)
-03. Chillaxonic - Oasis (4:58)
-04. Kool&Klean - Bound by You (3:57)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBA409E92D44493C8BC40255E5223FEFC25F49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683917   (128086) от 13.12.2023
-
-Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limehouse Blues [8:04]
-02. Sweet and Lovely [10:54]
-03. Lew Blew [5:36]
-04. Petite Chanson [9:48](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643DEF84FE4295813D7D21E1379741EC06C6FF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683916   (128085) от 13.12.2023
-
-Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soon [5:08]
-02. Autumn Nocturne [8:05]
-03. Me and My Shadow [5:28]
-04. Fashion's Flower [7:24](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0556FED1B25AD8708B456F19DD1C04143469D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683913   (128080) от 13.12.2023
-
-Dave McKenna - Christmas Ivory (1997) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [3:16]
-02. Jingle Bells (The One Horse Open Sleigh) [3:18]
-03. Stille Nacht, Heilige Nacht (Silent Night, Holy Night) [4:13]
-04. Let It Snow, Let It Snow, Let It Snow [3:51](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45C06C13DA1B8885456027C3AEFBF927B9F3676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684125   (127958) от 14.12.2023
-
-Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Sweetnin' [7:18]
-02. The Quintessence [5:03]
-03. Meet Benny Bailey [5:20]
-04. For Lena and Lennie [6:28](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3083B868803031F1A3C8A5F8432FA7B0F31C892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684121   (127956) от 14.12.2023
-
-Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGram Classics & Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Third Stream, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Wish You a Merry Christmas [2:26]
-02. God Rest Ye Merry Gentlemen [2:40]
-03. Ding, Dong Merrily on High [3:21]
-04. Have Yourself a Merry Little Christmas/Christmas Song [6:54](   Читать дальше...   )Жанр: Mainstream Jazz, Third Stream, Piano JazzПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D3824FC1B4B292FD74643B52239A3B84E15D45
 ```
 
 https://mybot314.ru/tekegram_catalog/

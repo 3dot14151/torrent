@@ -1,3 +1,142 @@
+###  Публикация: 1256579   (354414) от 22.10.2018
+
+DJ Бинокль - DneproHouse (2001) [MP3|320 Kbps] <Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Бинокль - DneproHouseЖанр: Club HouseПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9E30FCCFC3E2D615FE7EF0C0F0E6F085EED1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072675   (352391) от 13.11.2016
+
+VA - New Years Eve: Dance Party Package (2016) [MP3|320 Kbps] <House, Disco, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natalie Grant - I Will Survive (Vocal Radio Edit) (3:17)
+02. The Booty Jocks - Night Fever (5:24)
+03. Proyecto E-Fecto & Markus D'Ambrosi - Sweat... A La La La La Long (Reggaeton Mix) (3:22)
+04. The Booty Jocks - Celebration (5:11)(   Читать дальше...   )Производство: Sounds UnitedЖанр: House, Disco, DanceПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2278914262219A946551632FF7333BE1AA684C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256857   (352109) от 23.10.2018
+
+DJ Base - Энергия Жизни 1 (2001) [MP3|256 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Base - Energiya ZHiZni 2000Жанр: Progressive HouseПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5747CA4CC29D73FADE113704732533A0225DA7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256794   (351989) от 23.10.2018
+
+DJ Бинокль - Counter-Strike Attack (2002) [MP3|320 Kbps] <Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Unknown Artist – Intro (Smoke Machine In Beats)0:26
+02 Depeche Mode – I Feel Loved (Danny Tenaglia Mix)Remix – Danny Tenaglia 4:45
+03 Dirty Vegas – Days Go By (Full Vocal Mix) 4:14
+04 Sia – Drink To Get Drunk (Different Gear Mix) 4:45(   Читать дальше...   )Жанр: Club HouseПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2FE5DD05D5C75CB92BF7DEA2A9CB50905A16CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256723   (351696) от 23.10.2018
+
+VA - Intricate Records Is Going to Amsterdam (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Oloviani - Stardust (Original Mix)
+02. Tommy Conway - Storm Chasing (Original Mix)
+03. Sergey Tkachev - The Longest Mile (Original Mix)
+04. Sebastian Weikum - Monsoon (Anturage Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623AB688C46F47D5414AEF2BF6705677EB2B356E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329501   (351646) от 05.10.2019
 
 Benny Benassi Presents The Biz - Love Is Gonna Save Us (2004) [MP3|320 Kbps] <Electro House>
@@ -600,154 +739,6 @@ VA - Deep House Top 50 (2016) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14A897B7BA27CBC52221119967E94C40FB2CDCD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073577   (343049) от 17.11.2016
-
-VA - Deep House Edition #005 (2016) [MP3|320 Kbps] <Deep House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemon Grab - Fight the Devil
-02. Capo & Comes - C'mon Me - Michael Murica 80's Funk Remix
-03. Damon Grey (Aka Lucas Reyes) - Don't Stop
-04. Glen Marshall - Smiling Day(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 01:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9F6BC43D2003EE1C2D11F0EA855B1A76FC912D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180251   (342808) от 03.11.2017
-
-VA - Forever Dance (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daxsen - Stay With Me (Radio Edit) 03:27
-02. Youth In Circles - Lights 03:11
-03. Dennis Armijos - My All (Feat. Babz Wayne) 03:26
-04. Sam Ross - Zero 03:41(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0897C8D363B9342D4E31E394225247D2572B845D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257898   (341340) от 28.10.2018
-
-VA - Ultimate House Party (2018) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341340.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Neneh Cherry - Buffalo Stance
-02. Blondie - Heart Of Glass(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:11:56
-
-01. DNCE - Cake By The Ocean
-02. Sean Paul Feat. Dua Lipa - No Lie(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA673AE81A58D62E4AFCFC9BA49AFD616B88D54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330477   (341004) от 10.10.2019
-
-VA - Flat ABS 80s Hits Fitness Compilation (2019) [MP3|320 Kbps] <Funky, Club House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Space'c - Things Can Only Get Better (Fitness Version) 3:38
-02. Dj Miko - With Every Beat Of My Heart (Fitness Version) 5:33
-03. Snappers - Cruel Summer (Fitness Version) 4:07
-04. B-West - Ordinary World (Fitness Version) 3:14(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4BD4295FC1BCBC797AFACD72311E3A0AE12440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073963   (340747) от 18.11.2016
-
-VA - Ibiza Seasons, Winter Edition 2017 (Best Of Deep Chilled House) (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Morgenstund (Tom Leeland Remix) 05:38
-02. Mario Chris Feat. Eleonora La Luna Extended Mix - Who's Got Your Love Tonight (Extended Mix) 04:23
-03. Lunatic Youth - Underground Bug 03:21
-04. Dormidontov, Maksim Biserov - Home 06:36(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29485639E10ADAB26C07FB97ACDE7FE85AB23E59
 ```
 
 https://mybot314.ru/tekegram_catalog/

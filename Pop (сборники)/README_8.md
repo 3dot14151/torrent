@@ -1,3 +1,32 @@
+###  Публикация: 748527   (957306) от 23.01.2014
+
+Joy - 25 Best Songs (2012) [MP3|~245 кб/с]<Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello 1986
+02. Touch By Touch 1986
+03. Cheek To Cheek 1986
+04. Fire In The Night 1986(   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F60504DAB09BB21822101AAF338805C608E0BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 623372   (955709) от 26.02.2013
 
 VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
@@ -716,35 +745,6 @@ VA - Русский зимний музобоз (2017) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089722   (950640) от 04.01.2017
-
-VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950640.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vikki - Помолчим 3:16
-002. Mc Bad - Растопим Снег 3:12
-003. Таня Герман - Эмоции Мысли 3:20
-004. Gwen Stefani - Used To Love You 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D63681432646226650C5B53A6E5C7AC1819A0A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

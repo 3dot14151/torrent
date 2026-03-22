@@ -1,3 +1,61 @@
+###  Публикация: 1458876   (1023491) от 31.03.2021
+
+VA - Club Music vol.2 (2021) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023491.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Нискуба - Балаклава (2:14)
+002. MATTN, Klaas - The Logical Song (2:42)
+003. EQRIC, Xenton, Jex - The Final Countdown (2:24)
+004. Jonas Blue, AWA - Something Stupid (2:56)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 09:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8699040B3B43EC718495293EBFA784419CEDCC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459317   (1023329) от 01.04.2021
+
+VA - Beatport Techno: Electro Sound Pack #268 (2021) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техно охватывает большую аудиторию меломанов и какое-то время было довольно модным явлением. Но любое модное направление рано или поздно сменяется другим, и техно со временем все глубже уходит в андеграунд. Возможно, причина в том, что эту музыку затруднительно слушать дома — она предназначена для клубов, вечеринок и танцев.001. Varuna - Trackjam
+002. Sin Plomo - It's You
+003. Daniel Neuland - Moon Saloon
+004. Goldwave - Reef Radio(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 12:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A8229787EA5D3BE5F8C70882C59C55F7CF10D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459328   (1023324) от 01.04.2021
 
 VA - Night Tropic Party: Clubbing Techno Mix (2021) [MP3|320 Kbps] <Club, Dance, Techno, Tech House>
@@ -687,64 +745,6 @@ VA - Future Techno April Set (2021) [MP3|320 Kbps] <Future Techno, Electronic, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DFC57CA1E4330E5583902FC4D7619B1BC8089E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462262   (1021326) от 13.04.2021
-
-VA - Beatport Electro Techno: Sound Pack #274 (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для любителей Техно Электроники , а так же музыкальных гурманов новая подборка фантастических треков последнего месяца. Модное звучание и необходимый минимум инструментов – этого достаточно, чтобы народ на танцполе не сбился с ритма и продолжал активно двигаться в такт приятной и лёгкой музыке!001. !Nertia - Iku
-002. Aura Minimum - Deep Construct
-003. Marie Vaunt - Hex
-004. Jala - Not Surrender(   Читать дальше...   )Жанр: Techno, Electro MinimalПродолжительность: 10:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C97C16A984A7D1F8DCFE9BFAC5ECFBC6A5ED5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462229   (1021316) от 13.04.2021
-
-VA - E-Dance: Clubbing Electro House (Vol.01) (2021) [MP3|266-320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для поклонников танцевального направления музыки есть отличный сборник, который подарит вам много ярких эмоций во время прослушивания. Такую музыку не стыдно взять на вечеринку или поставить в каком-нибудь ночной клубе, если вы ди-джей. А выбрать есть из чего, поскольку все мотивы очень разнообразные, да и продолжительность звучания почти девять часов.001. Stbn - Long Gone
-002. Sashman & Withard - Open Your Heart
-003. Natema - Grados
-004. Borja Md - Poky Sonic(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8616916ECD17E52501DC733749C1A86C6DDA71C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

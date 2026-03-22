@@ -1,3 +1,177 @@
+###  Публикация: 926525   (533663) от 10.08.2015
+
+Mavis Rivers & Shorty Rogers - Mavis Meets Shorty (1962) /2014, Warner/[FLAC|tracks+.cue]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Remember You [02:12]
+02. You Brought A New Kind Of Love To Me [03:04]
+03. When Sunny Gets Blue [02:28]
+04. Nothing But The Best [02:47](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD33C1750745E5D5B7F6F7A2228EF9B4F3E73F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926529   (533662) от 10.08.2015
+
+Lester Bowie's Brass Fantasy - I Only Have Eyes For You (1985) [FLAC|image+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Only Have Eyes For You [10:32]
+02. Think [01:32]
+03. Lament [13:56]
+04. Coming Back, Jamaica [05:17](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5697AC04DC0EACA04CDE4CEDFD8D85A5D1D986E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926665   (533659) от 10.08.2015
+
+Cedar Walton - Pit Inn (1974) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suite Sunday [10:09]
+02. Con Alma [07:44]
+03. Without A Song [08:52]
+04. Suntory Blues [09:21](   Читать дальше...   )Жанр: Jazz, Post-Bop, Piano JazzПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB01B10828802203D945CEC0C737E4CA12FBAA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155415   (533624) от 03.08.2017
+
+Stefano Di Battista - Trouble Shootin' (2007) EMI [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Love You [04:16]
+02. Midnight Blue [04:49]
+03. The Serpent's Charm [08:07]
+04. Under Her Spell [04:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774489DB2844A646B910E3428DB27D7A3094A3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926622   (533572) от 10.08.2015
+
+Jasmine Tommaso - Nelle Mie Corde (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without A Song (05:48)
+02. Sing From The Heart (03:43)
+03. Summertime (06:02)
+04. Freedom To Love (04:14)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE1C4BC6FE1CCDEB976FF3548D396A9F5D037A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155530   (533534) от 03.08.2017
+
+Joyce Cooling - Global Cooling (2009) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grass Roots
+02. Global Cooling
+03. Save This Dance for Me
+04. Cobra(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4D5AFC4117487124FB1A30DBF634ECEB7C933E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155409   (533528) от 03.08.2017
 
 Benny Goodman And His Orchestra - Sing, Sing, Sing (1935, 1936) 1987, Bluebird Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -571,180 +745,6 @@ Tommy Emmanuel, Martin Taylor - The Colonel & The Governor (2013) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B6EB6AE221E07C7BB40DB4431040CD3EE6DF26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927109   (529995) от 12.08.2015
-
-Art Blakey & The Jazz Messengers - Free For All (1964) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free For All [11:09]
-02. Hammer Head [07:51]
-03. The Core [09:29]
-04. Pensativa [08:24](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313D81F8B4FC37D24637648D74864212AF1B8D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927110   (529945) от 12.08.2015
-
-Fattburger - Good News (1987) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good News [05:58]
-02. Make That Dream Come True [04:11]
-03. Eva [05:20]
-04. The Mark Of Zorro [04:14](   Читать дальше...   )Жанр: Jazz, Smooth, Jazz-PopПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974ED029FF826725D4B223C8EA1A535AF9666249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155705   (529895) от 05.08.2017
-
-Woody Herman - The 3 Herds (1945 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non-Alcoholic [03:07]
-02. Caldonia [03:05]
-03. Sidewalks of Cuba [03:01]
-04. The Good Earth [02:35](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Big BandПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0667561046D0E7530EAADE8816352192917F8A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240250   (529864) от 10.08.2018
-
-Lucky Millinder - 1941 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble In Mind [2:34]
-02. Slide, Mr. Trombone [3:13]
-03. Ride, Red, Ride [3:24]
-04. Rock! Daniel [3:00](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF7128F0D8A3849498CC4BE36AB3422005C501C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052158   (529261) от 13.09.2016
-
-John Coltrane - Blue Train (1957) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529261.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blue Train:
-01.Blue Train [10:43]
-02.Moment's Notice [09:10]
-03.Locomotion [07:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58849BCD4865F2A350A57BD66F2B50DB7A9AE428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312828   (529226) от 06.07.2019
-
-David Kikoski - Phoenix Rising (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix Rising [6:02]
-02. Kik It [5:21]
-03. Wichita Lineman [5:48]
-04. If I Were a Bell [7:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A44321D03FF3662743844F4DE6BE3188424D5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

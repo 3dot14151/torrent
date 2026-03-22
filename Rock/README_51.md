@@ -1,3 +1,148 @@
+###  Публикация: 1564586   (499589) от 19.07.2022
+
+O.A.K. (Oscillazioni Alchemico Kreative) - Lucid Dreaming and the Spectre of Nikola Tesla (2022) [MP3|320 Kbps] <RPI, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything is Light
+02. Oscillation Alkemy Kreativity
+03. Learn to Run in Your Dreams
+04. The Comet and the Dreamer(   Читать дальше...   )Жанр: RPI, Progressive RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE31F163DE232A6F890985CDE650F76D809A7459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317780   (499445) от 02.08.2019
+
+Yes - Yes 50 Live (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499445.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Close To The Edge (Live 2019)
+2. Nine Voices (Longwalker) (Live 2019)
+3. Sweet Dreams (Live 2019)
+4. Madrigal (Live 2019)(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E4B3D956477474C3860ACE42A081C5B6B447B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317669   (499378) от 02.08.2019
+
+Creedence Clearwater Revival - Live at Woodstock (2019) [MP3|320 Kbps] <Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born On The Bayou (Live At The Woodstock Music & Art Fair / 1969) (05:33)
+02. Green River (Live At The Woodstock Music & Art Fair / 1969) (03:16)
+03. Ninety-Nine And A Half (Won’t Do) (Live At The Woodstock Music & Art Fair / 1969) (04:45)
+04. Bootleg (Live At The Woodstock Music & Art Fair / 1969) (03:37)(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC2469FEB5BD7B4C6D0BFD84B55CB5953AEFD9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564712   (498593) от 20.07.2022
+
+Lowdrive - Roller (2018) [MP3|320 Kbps] <Heavy Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Last Stand [00:03:38]
+02 Roller [00:05:23]
+03 Left for Dead [00:03:32]
+04 Fallen Saviour [00:04:43](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B69FFADF6F12AC707F61EC6DF99FBA9E08B08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564770   (498586) от 20.07.2022
+
+Regressor - Crescent Spoon (2022) [MP3|320 Kbps] <Progressive Rock, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pillowcase [00:01:19]
+02. Fruit Crush [00:05:06]
+03. The Squid King [00:05:46]
+04. Garden Party [00:04:44](   Читать дальше...   )Жанр: Progressive Rock, FusionПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38BB2AEE7FABC27BA61689E5D1E755BE43C18C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935683   (498506) от 09.09.2015
 
 VA - New Psychedelic Sound - Les Genies Du Rock - LSD (1993) [MP3|320 кб/с]<Garage Rock, Psychedelic Rock>
@@ -588,163 +733,6 @@ Uriah Heep - Sweet Freedom (Live) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F5B7E2C6C9AB86D566D1CA7AF14C4C77115D3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235713   (490640) от 16.09.2010
-
-Pikku-Orava - 3 Альбома (2006-2007) [MP3|320 kbps] <Comedy Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pokka (Irina) (02:01)
-02. Sukset (Popeda) (02:20)
-03. Minttu Sekä Ville (Jonna) (02:48)
-04. Rising Sun (Asturm Und Drang) (02:25)
-05. Hyvännäköinen (Markku Aro) (02:19)
-06. Relax, Take It Easy (Mika) (02:42)
-07. O Fortuna (Carmina Burana) (01:00)
-08. Hetki Lyö (Kirka) (01:59)
-09. Ni Una Sola Palabra (Paulina Rubio) (03:03)
-10. Sleeping Sun (Nightwish) (02:37)(   Читать дальше...   )Жанр: Comedy Rock |Продолжительность: 01:01:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565808   (490439) от 25.07.2022
-
-Joe Macre - The Dream Is Free (2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dream Is Free [00:03:51]
-02. Tell Me [00:03:47]
-03. Ride Or Die [00:03:13]
-04. Drop Me Off At The Rainbow [00:04:58](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DED5CB406CC5ABD18F6CE98404E0931D0F5DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565750   (490436) от 25.07.2022
-
-Shroud of Bereavement - A Beautiful Winter (2022) [MP3|320 Kbps] <Epic Doom, Neo-Classical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canticle
-02. Amber Skies: Shadows of My Becoming
-03. An Unfamiliar Embrace
-04. Bury Me in Silence(   Читать дальше...   )Жанр: Epic Doom, Neo-Classical MetalПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36456ECFA0BD1E42F963335E5CB94BE74C11EA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544709   (489315) от 08.09.2012
-
-Cosmos - Mind Games (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contact
-02. Skygarden
-03. Lost Years
-04. Freak Show
-05. No Point In Living
-06. Hollow Man
-07. Paranoia
-08. There Are Millions Of Reason To Carry On (Instrumental)
-09. Close To The Edge
-10. SequencesЖанр: RockПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C16D2FB0EE1F18DCE995443821A0B40E02F5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404922   (489254) от 27.08.2020
-
-Pink Floyd - Transmissions + 1969 (2020) Unofficial Release, 2xCD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489254.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Point Me At The Sky (04:22)
- 02. The Embryo (03:27)
- 03. Baby Blue Shuffle In D Major (03:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71D6692DAE2DFB417558E569DF1939A86FBE6BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

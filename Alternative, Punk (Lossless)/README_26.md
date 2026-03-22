@@ -1,3 +1,119 @@
+###  Публикация: 1293849   (633746) от 05.04.2019
+
+Lucy Rose - No Words Left (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conversation (03:49)
+02. No Words Left, Pt. 1 (01:27)
+03. Solo(w) (04:07)
+04. Treat Me Like a Woman (03:47)(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Singer-SongwriterПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0636DCEBFF1DE0EA7DFB7B2F94AC59330B5E4DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293663   (633619) от 05.04.2019
+
+Nine Inch Nails - Strobe Light (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic, Industrial Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Skit (1:14)
+ 02. Everybody's Doing It (featuring Bono, Chris Martin & Jay-Z) (5:05)
+ 03. Black T-Shirt (5:29)
+ 04. Pussygrinder (featuring Sheryl Crow) (4:39)(   Читать дальше...   )Жанр: Alternative Rock, Electronic, Industrial Metal, ExperimentalПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44768498ED3DAAC9361BFEB377345F411E852CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542815   (633566) от 09.04.2022
+
+Papa Roach - Ego Trip (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kill The Noise (3:08)
+ 02. Stand Up (3:48)
+ 03. Swerve (feat. FEVER 333 & Sueco) (2:48)
+ 04. Bloodline (2:26)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, Pop-RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81912E215FEF7575A9DA3A216C96800294DEE562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542861   (633444) от 09.04.2022
+
+Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Summer (3:52)
+02. Here Ever After (3:50)
+03. Aquatic Mouth Dance (4:21)
+04. Not the One (4:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB7D03A62216211712E60DF779DE90BCF2C5AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143723   (632908) от 19.06.2017
 
 Linkin Park - One More Light (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -628,122 +744,6 @@ Haunts - A Lack of Empathy (2017) EP [FLAC|Lossless|tracks + .cue] <Post Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68CAFA90B390AE89E2F3C2AF8A7A359132D70218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545109   (614912) от 19.04.2022
-
-Cancer Bats - Psychic Jailbreak (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiate
-02. The Hoof
-03. Lonely Bong
-04. Friday Night(   Читать дальше...   )Жанр: Post-Hardcore, Southern RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FB2E50BFE76A7DA8D9F4A642D74DF9995A0B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296267   (613378) от 16.04.2019
-
-Hands Off Gretel - I Want The World (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss Me Girl
-02. S.A.S.S
-03. Big Boy
-04. It's My Fault(   Читать дальше...   )Жанр: Alternative Rock, Grunge, Pop PunkПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA5E86C93A773196E76C812CA7232D5F5449166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296795   (608722) от 19.04.2019
-
-Lisa Germano - Geek the Girl (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Secret Reason (04:31)
-02. Trouble (02:21)
-03. Geek the Girl (03:40)
-04. Just Geek (02:43)(   Читать дальше...   )Жанр: Alternative Rock, Art RockПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C429D9DF72EDF923282C66DAB5B835A5DE697DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296820   (608533) от 19.04.2019
-
-Cage The Elephant - Social Cues (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Boy (2:43)
-02. Social Cues (3:39)
-03. Black Madonna (3:47)
-04. Night Running (3:28)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776FAE1F61EEEF4B95859706B6DD13A43326FA7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1098223   (910888) от 29.01.2017
+
+VA - German Top 100 Single Charts 27.01.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You
+002. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie)
+003. Ed Sheeran - Castle on the Hill
+004. Alan Walker - Alone(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF2BA77C40E817449F27C4C17466377FC4CF332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097973   (910635) от 29.01.2017
 
 VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (2017) [MP3|256 Kbps] <Pop>
@@ -713,35 +742,6 @@ VA - Автозвук. Отборный зимний хит. Версия №3 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A6B4E5C835665D8545C0114AB8FE8A508ECF294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369102   (904539) от 22.03.2020
-
-VA - Radio DFM: Top D-Chart [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artik & Asti - Девочка танцуй (DJ Prezzplay & Kolya Dark Remix) 4:10
-02. Billie Eilish - Everything I Wanted (Kolya Dark & Alex Shik Radio Edit) 3:59
-03. The Weeknd - Blinding Lights 3:22
-04. Макс Барских - Лей не жалей (Lavrushkin & Max Roven Remix) 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0734CF4009A5D43430B883C2D9868666E35D496
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 952518   (355443) от 01.11.2015
+
+Проекты - VideoHive - Funky and Grunge Vintage Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания винтажного слайд-шоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18DD0889EED605DCAAE2841B53B4875CFED0B133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951848   (355360) от 01.11.2015
+
+Проекты - VideoHive - Glass Shard [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C24F34DD7EABDC579E49E05D4109D733FE2D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952653   (355338) от 01.11.2015
 
 Проекты - VideoHive - Lines Slide Show [AEP]
@@ -625,58 +679,6 @@ Glass and Frame Slideshow - элегантный и динамичный шаб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0250C3B489D9C44AB873E46D99B948725A1B65FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073202   (347274) от 15.11.2016
-
-Проекты - VideoHive - Colorful Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colorful Slideshow - яркая и позитивная слайд-шоу открывалка.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DFB1CC3F7F7DF5E46573490F37EEDB2B8CDBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257181   (347192) от 25.10.2018
-
-Проекты - VideoHive - Lost in Thoughts - Slow Minimal Slideshow - 12041061 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost in Thoughts - Slow Minimal Slideshow - медленное, простое слайд-шоу, идеально подходящее для вашего меланхолического настроения.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED11D2756A093C0602897C0DC6C549C5122C328
 ```
 
 https://mybot314.ru/tekegram_catalog/

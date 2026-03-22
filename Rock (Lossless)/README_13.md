@@ -1,3 +1,119 @@
+###  Публикация: 1466656   (1018258) от 01.05.2021
+
+Escape - Fire in the Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost and Found (04:34)
+02. Heroes in the Night (04:39)
+03. Temptation (04:33)
+04. Restless Heart (04:34)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5650DDD4861ACA4AC7BEC30AD216C17B5ABE0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466777   (1018194) от 01.05.2021
+
+David Gilmour With Romany Gilmour - Yes, I Have Ghosts (2021) EP [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes I Have Ghosts
+02. Tell The Truth
+03. Astral Dust
+04. KokinelЖанр: RockПродолжительность: 00:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FB57B1495794B069E89788C9CEBF3969A9E772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466834   (1018122) от 02.05.2021
+
+Escape - Borderline (2013) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost And Found
+02. Coming Home
+03. Marianne
+04. Restless Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE09E8D1DE6ADC0CDA78C916C67CC1B183BE872D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466836   (1018120) от 02.05.2021
+
+Escape - Unbreakable (2012) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Alive
+02. Unbreakable
+03. Best Of Me
+04. Living On The Wrongside(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D5B7BD8F637B5CBA1BB052FCCEAEB7EEC1C33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466923   (1018116) от 02.05.2021
 
 Phil Ochs - Greatest Hits (1970) 1986,  Edsel Records [FLAC|Lossless|tracks + .cue] <Folk Rock, Rock & Roll>
@@ -629,122 +745,6 @@ Peter Gabriel - Rated PG (2020) [FLAC|Lossless|tracks + .cue] <Prog Rock, Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:771DA643729BF27B8F09F6F7D7059C880506D668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468789   (1016940) от 09.05.2021
-
-Jordsjo - Pastoralia (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog, Prog Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prolog (02:17)
-02. Skumring i Karesuando (07:37)
-03. Mellom Mjdurt, Marisko og Sstermarihnd (06:30)
-04. Pastoralia (06:05)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, Prog FolkПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41556C82AD23E61FF944D4CE24DCC9B1D90A066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468827   (1016936) от 09.05.2021
-
-Work Force - Work Force (1989) Japanese Edition [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm A Mess
-02. Hold On Tight
-03. Restless
-04. Memory Of You(   Читать дальше...   )Жанр: AORПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887F2DFC6C63F4425808ECFB79B0FA06205F16AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468798   (1016928) от 09.05.2021
-
-It Bites - Map Of The Past (2012) Bonus Tracks Edition, Remastered, 2021, Inside Out Music [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man in the Photograph (2021 Remaster) [00:03:43]
-02. Wallflower (2021 Remaster) [00:04:50]
-03. Map of the Past (2021 Remaster) [00:04:36]
-04. Clocks (2021 Remaster) [00:05:43](   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBD73BBB96B9343F3BCCA5564DB59DAEEE4C145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468807   (1016914) от 09.05.2021
-
-Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engagements 1969-70 [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blue Suede Shoes (International Hotel August 1969) [00:02:17]
-02 - I Got a Woman (International Hotel August 1969) [00:02:38]
-03 - All Shook Up (International Hotel August 1969) [00:02:47]
-04 - Love Me Tender (International Hotel August 1969) [00:03:29](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 03:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70185D2D7B95C7B7BCD278213E7CC7B30D90A30C
 ```
 
 https://mybot314.ru/tekegram_catalog/

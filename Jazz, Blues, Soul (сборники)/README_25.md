@@ -1,3 +1,32 @@
+###  Публикация: 1758066   (38716) от 31.10.2024
+
+VA - Blues for Autumn Time (2024) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Kloot - Fingerprints [04:33]
+02. Magnolia Electric Co., Jason Molina - Almost Was Good Enough [09:14]
+03. Nine One One - No Love [03:47]
+04. Ghinzu - This Light [04:22](   Читать дальше...   )Жанр: BluesПродолжительность: 05:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C28DBCAE7007B79955921E47B37F13320007452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758090   (38706) от 31.10.2024
 
 VA - Blues And Rock Blues Fusion (2024) [MP3|320 Kbps] <Blues, Rock Folk, Rock Blues>
@@ -716,35 +745,6 @@ VA - Midnight Whiskey Blues (2025) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03127438A6AE4A13BF9EEE34A9308759B2BE57AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814149   (6307) от 23.08.2025
-
-VA - Sweet Jazz (2025) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Motis, Joan Chamorro, Scott Hamilton, Ignasi Terraza, Esteve Pi, Josep Traver - Summer Time (7:42)
-02. Abbey Lincoln - Lucky To Be Me (7:30)
-03. Cécile McLorin Salvant - One Step Ahead (2:09)
-04. Diana Krall - I've Got You Under My Skin (6:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 06:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0874D6561A1320C2793E908B9DBBC30CD986EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1675022   (160263) от 09.11.2023
+
+VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Bobo - Let Yourself Be Free
+02. 2 Unlimited - The Real Thing
+03. 2 Brothers On The 4th Floor - Dreams
+04. Black Label - Givin' You My Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11FF66FE76F167D4E775E47C0654ED6E85D52D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599562   (159857) от 23.12.2022
+
+VA - Broken Beat & Nu Disco The Best Of (2022) CD, Compilation [MP3|320 Kbps] <Soulful, Nu Disco, Indie Dance, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vito Lalinga (Vi Mode inc project) - Angola (Zane Wayne Massey Saxophone)
+02. Vito Lalinga (Vi Mode inc project) - Legend
+03. Vito Lalinga (Vi Mode inc project) - Driving
+04. Vito Lalinga (Vi Mode inc project) - Party Groove(   Читать дальше...   )Жанр: Soulful, Nu Disco, Indie Dance, FunkПродолжительность: 01:53:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D8DD1412BD6003FA612254572B57A54CC3FD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599917   (159365) от 25.12.2022
+
+VA - Winter Chill 2023 (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Lewis - How Do I Say Goodbye (2:43)
+02. Olivia Rodrigo - drivers license (4:02)
+03. Taylor Swift - Anti-Hero (3:20)
+04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 04:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28D6BCAD3F4FA413BFEE63E5BCC74BA46355771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599997   (159334) от 25.12.2022
+
+Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Di La (2:57)
+02. Volare (3:20)
+03. Mala Femmina (2:31)
+04. Mama (2:03)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305C7B4EAA3A5B0EA02452C8B703E2737B66ECDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599797   (159330) от 25.12.2022
 
 Sarah Brightman - Diva : The Singles Collection (2006) [OGG Vorbis|480 Kbps] <Modern Classical, Downtempo, Synth-pop>
@@ -629,122 +745,6 @@ The Dooleys - 9 Albums (1976-1983) [MP3|320 Kbps] <Electronic, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A95AD75AA66D28D2938E47092B5302201B4E2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270521   (155321) от 20.12.2018
-
-VA - Grease - 70s Party Songs (2018) [MP3|320 Kbps] <Pop, Funk, Hard Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Valli - Grease
-02. Kc & The Sunshine Band - That's the Way (I Like It)
-03. Tom Robinson Band - 2-4-6-8 Motorway
-04. The Trammps - Disco Inferno(   Читать дальше...   )Жанр: Pop, Funk, Hard Rock, DiscoПродолжительность: 01:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CC58CD0CCCD5A16C2B475C048479015372C470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600742   (155227) от 28.12.2022
-
-VA - Best Of 2022 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Sacrifice
-02. Maggie Rogers - That's Where I Am
-03. Lady Gaga - Hold My Hand
-04. Noah Kahan - Stick Season(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561A8A682205A64DAD60B9DDD5226C0D3A3D1DFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676920   (154721) от 15.11.2023
-
-VA - Hit News Vol. 3/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  2 Unlimited - Here I Go
-02.  Sabrina - Angel Boy
-03.  Masterjam - I Wanna Know
-04.  Hyena - Naked In The Rain(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C3FAE67723BC99A15796A31F30CAA92A64097A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676954   (154654) от 15.11.2023
-
-VA - Hit News Vol. 4/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cartouche - Touch The Sky (Remix)
-02.  Osmania - Face Of A Stranger
-03.  Moratto - Warriors
-04.  Laurae - Vita Spericolata(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD70E5FE7CCBBC2A83D85AAC669902E22B23FDFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

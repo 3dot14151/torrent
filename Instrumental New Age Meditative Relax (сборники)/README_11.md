@@ -1,3 +1,55 @@
+###  Публикация: 549179   (464694) от 19.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 78 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED996F6D572DE55B5B214831307ADA432BC002B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548760   (464685) от 19.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 76 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9C7ED53ECA0EF17B82728C412D077CC006FE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549176   (464684) от 19.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 77 [MP3|320 кб/с]<Instrumental>
@@ -744,76 +796,6 @@ VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C60366C94B1B0017D2B1DA2AC93D51445090C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554730   (436310) от 01.10.2012
-
-VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.Clauderman - Belle
-02. The Romantic Sax - Pourquoi Tu Maimes Encore
-03. Horst Wende - Schneewalzer
-04. R.King - Deliah
-05. G.Marradi - Clouds
-06. А.Артемьев - Песчаная буря (edit)
-07. Armik - For Your Eyes
-08. Karunesh - Atlantis
-09. Mario Battaini - El Picador
-10. F.Papetti - Melodia(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF810C555BF7F2EBB516F077A4C587CA4A9AC05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555213   (433656) от 02.10.2012
-
-VA - Инструментальная музыка (2012) vol. № 93 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mario Battaini - Storielle Del Bosco
-02. McCartney - Ebony And Ivory
-03. Анс. Арсенал - Танго
-04. Armik - Santa Barbara
-05. G.Marradi - Angelitos Negros
-06. А.Шишков -  Серебрянный лотос
-07. Arabian Night - Cinema
-08. Fitoussi - Words
-09. Jo Courtin - Le Plus Beau Tango Du Monde
-10. Е.Дога - Мелодии из кинофильмов(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09ADEB0B54F5FE048BA1E52B7DAA5140AB2826E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

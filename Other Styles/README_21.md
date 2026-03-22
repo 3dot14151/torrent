@@ -1,3 +1,32 @@
+###  Публикация: 1094237   (929052) от 18.01.2017
+
+Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic [5:43]
+02. Occulta Mysteria [5:23]
+03. Hypnosis [6:04]
+04. Lakota Myths [5:23](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009398BCB51C39B0BA364C2404DD8EE21DBF2869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365305   (929006) от 08.03.2020
 
 Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
@@ -722,35 +751,6 @@ Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366622   (922135) от 12.03.2020
-
-Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922135.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:54| 01. Интро
-|01:33| 02. Лаборатория ВКС
-|00:55| 03. Эксцесс в лаборатории
-|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7E635338EEF2EDBBABCCAA32B9E81BDD1C4569
 ```
 
 https://mybot314.ru/tekegram_catalog/

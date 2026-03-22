@@ -1,3 +1,145 @@
+###  Публикация: 1800311   (15831) от 02.06.2025
+
+VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-Sta - Highend Fashion (Original Mix) [5:20]
+02. Filizola - Get Me (Original Mix) [5:47]
+03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
+04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9066A12A3888F4ACAE6030217392BD83B7D83CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800439   (15730) от 03.06.2025
+
+VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex A - Solar (Stream Edit) (3:15)
+02. Jerry Ropero - In Time (6:36)
+03. Hi.5 - Right Now (Extended Mix) (5:38)
+04. W.A.N. - Bay Of Love (Thomas Montevideo Remix) (9:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171449BC84C52C94292EEC78B072F1BE68C87900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800558   (15664) от 04.06.2025
+
+Anyma - The End Of Genesys (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucente (1:53)
+02. Voices In My Head (2:26)
+03. Hypnotized (3:00)
+04. Taratata (3:22)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6DA0DCFB96ECEB8D6B49F48D9C0751A03FD037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800583   (15657) от 04.06.2025
+
+Filatov & Karas - Collection (2014-2025) [FLAC|Lossless|tracks] <House, Deep House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filatov & Karas - Ты Всё Ещё Снишься (03:46)Жанр: House, Deep House, Electro HouseПродолжительность: 05:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C598B625FEB20F75CCB4A34BBF794E26F575E33F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800732   (15438) от 06.06.2025
+
+Robin Schulz - Uncovered (2017) [FLAC|Lossless|image + .cue] <Electronic, Dance-Pop, Tropical House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [2:08]
+02 - Unforgettable (with Marc Scibilia) [3:46]
+03 - Shed A Light (with David Guetta & Cheat Codes) [3:13]
+04 - Oh Child [3:18](   Читать дальше...   )Жанр: Electronic, Dance-Pop, Tropical HouseПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F5C8B22DEC4AC4D43C464896AF14966D6DD37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801365   (15082) от 10.06.2025
 
 VA - Dancefloor Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>

@@ -1,3 +1,119 @@
+###  Публикация: 1655907   (203540) от 29.08.2023
+
+Soulsad - Doomed to Funerals (2022) Compilation [MP3|320 Kbps] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Fallen Garden
+02. Funeral One: Father
+03. Funeral Two: Mother
+04. Doomed to Failure(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF178BA3783B4AE463A48E7A53F25293BF961CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655864   (203536) от 29.08.2023
+
+Sons of Ragnar - Echoes over Valsgarde (2023) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Ends Of The Earth
+03. Skol!
+04. By Cold Steel(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C7089EC2EC8C059886EA97DB329A9D8636B35B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656691   (203061) от 31.08.2023
+
+Eclipse - Megalomanium (2023) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Hardest Part Is Losing You [00:03:24]
+02 - Got It! [00:03:29]
+03 - Anthem [00:03:25]
+04 - Children of the Night [00:03:28](   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57766032EABECDCF0D45512FD28E00FB72C87415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638284   (197429) от 07.06.2023
+
+Elegant Weapons - Horns for a Halo (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Man Walking
+02. Do Or Die
+03. Blind Leading The Blind
+04. Ghost Of You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03740E19C0DA029DC3FD75D45277C16ED6928A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654280   (194113) от 20.08.2023
 
 Within Temptation - Bleed Out (2023) [MP3|320 Kbps] <Symphonic-Rock, Symphonic-Metal>
@@ -629,122 +745,6 @@ The Chapter - 3 Albums (2006-2022) [MP3|320 Kbps] <Doom, Death, Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42AF3FE26E6C1A1588087E180EB93F33D65ED777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660399   (189398) от 13.09.2023
-
-I Am Your God - The Resurrection (2020) [MP3|320 Kbps] <Melodic Death Metal, Power Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing to Leave Behind (4:49)
-02. Believe Again (3:56)
-03. The Loop (4:01)
-04. Flowers on Your Grave (4:03)(   Читать дальше...   )Жанр: Melodic Death Metal, Power Metal, MetalcoreПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39CA55CE3FF3808E90AC61522F62A80723A2E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660357   (189386) от 13.09.2023
-
-I Am Your God - SINister (2023) [MP3|320 Kbps] <Melodic Death Metal, Power Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warriors (3:54)
-02. My Venom (4:18)
-03. Jailbreak (4:58)
-04. Burden of Blasphemy (4:37)(   Читать дальше...   )Жанр: Melodic Death Metal, Power Metal, MetalcoreПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48555C231EE8FF47986C7C9FF52E17D0DC88C993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661943   (188266) от 16.09.2023
-
-Manntra - Venera (2015) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bijeli Prah 03:55
-02. Sin 03:50
-03. Duboko 03:43
-04. Vila 03:13(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B50EDA78AA5725B8E62D3C33938E384C9178903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661900   (188264) от 16.09.2023
-
-Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorki San 03:58
-02. Manntra 03:27
-03. Balkanska 03:20
-04. Vjeruj Pon 03:01(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B0773286DF841BE11AB8D4A4898EAA3A41076B
 ```
 
 https://mybot314.ru/tekegram_catalog/

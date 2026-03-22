@@ -1,3 +1,32 @@
+###  Публикация: 1371666   (888581) от 01.04.2020
+
+Art of Empathy - Posthuman Decadence (2012) [FLAC|Lossless|tracks + .cue] <Neofolk, Darkwave, Atmospheric>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Design [07:27]
+02. Good Morning Sick World [05:20]
+03. Don't Mind [04:21]
+04. Recreation [04:32](   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1CD013437DCCA3B16E87F520C8976572FA0FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 245526   (888298) от 01.04.2020
 
 Satyaa & Pari - To the One (2010) [FLAC|Lossless|tracks + .cue] <Spiritual, New Age>
@@ -715,35 +744,6 @@ Tyler Bates & Joel J Richard - John Wick / Джон Уик (Original Motion Pict
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FAD753EA974BE8759E78802CE3D856CA97FEDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103812   (883016) от 13.02.2017
-
-Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastic Heart (02:50)
-02. Shark Chevelle (01:18)
-03. Man Of Focus (03:25)
-04. Sumo Showdown (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40DEB7E9F979658AED9065FF3F0EAB3020B3ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

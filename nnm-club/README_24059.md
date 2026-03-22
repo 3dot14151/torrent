@@ -1,22 +1,25 @@
-###  Публикация: 486970   (100316) от 23.04.2012
+###  Публикация: 1753564   (103818) от 05.10.2024
 
-[EN] Бремя зла / Burden of Evil (2012) HDTV
+Amy Helm - Silver City (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100316.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103818.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда психопат похищает дочь влиятельного сенатора, то он обращается за помощью к частному детективу по расследованию убийств...Жанр: ТриллерРежиссер: Мишель МонтиАктеры: Винсент Гесс-Демаре, Натали ЗиаПеревод: ОтсутствуетПродолжительность: 01:30:01
+01. Love Supreme (3:44)
+02. Money On 7 (4:08)
+03. Baby Come Back (3:18)
+04. If I Was King (4:05)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:38:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11CF357CE60FB423C20D328A24A27D5127EF727C
+magnet:?xt=urn:btih:BBA5F3A6430CFA6C671A9AB074A6921160CB5C47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487234   (100315) от 23.04.2012
+###  Публикация: 1753566   (103817) от 05.10.2024
 
-Каникулы в Мексике - 2. Выпуск №36 (2012.04.23) SATRip
+Andy Peake - Pocket Change (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Good As It Gets (3:20)
+02. The Scuffle (3:45)
+03. Somebody's Gotta Do It (3:37)
+04. One Fine Day (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FC93C98B5A7311E417A0F3C6D24DF478A57C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753492   (103816) от 05.10.2024
+
+НХЛ 2024/2025. Регулярный чемпионат. Нью-Джерси Девилз - Баффало Сэйбрз (04.10.2024) IPTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103816.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 октября 2024, пятница. 20:00 МСК
+Стадион: О2-Арена (Прага, Чехия), вместимость: 17413
+НХЛ - Регулярный сезон. Баффало Сэйбрз (Баффало) — Нью-Джерси Дэвилз (Ньюарк)
+Главный судья: Крис Ли (Сейнт Джон, Канада)Телекомпания: Setanta SportsЖанр: Спорт, хоккейЯзык озвучки: русскийПродолжительность: 01:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C39C09E9EEC77CE999F78BC57F99F5C22370E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753568   (103815) от 05.10.2024
+
+Anov Blues One - Self Titled 2019 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hitam Dan Putih (2:52)
+02. Sabda Untukmu (2:44)
+03. Ollan - Boskin (2:50)
+04. Ollan - Botol (2:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F086EC3858AE0737A41160CE55AFC458BB23D73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753542   (103814) от 05.10.2024
+
+John Scofield - Live (1977) 2020, Solid [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V. [10:36]
+02. Gray and Visceral [14:56]
+03. Leaving [14:38]
+04. Air Pakistan [9:44](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DEDDB0BB80761AC72B58216E6CA4D9E03B97DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753583   (103813) от 05.10.2024
+
+Carta Oro - Make a Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinicius Goetzke Barbosa - Love of a Madman (2:55)
+02. Figo e a Vespa (3:29)
+03. Spell (4:18)
+04. Everybody Makes a Mess Sometimes (3:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5329426C842012E2A3D4E229B40763D7BC908952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753591   (103812) от 05.10.2024
+
+Daniel Morais - Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbiden Love (3:48)
+02. Cruising Down (3:10)
+03. I Only Want You For Myself (4:00)
+04. Winter's Night (2:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5552BF72C06AE2F710BD0BB84325046C758DEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753560   (103811) от 05.10.2024
+
+Doctor Velvet - New Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Rhythm & Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Jungle (4:39)
+02. Road To Nowhere (2:22)
+03. Messed Up (2:05)
+04. Snake Pit (Alternate version) (2:43)(   Читать дальше...   )Жанр: Rhythm & BluesПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871E20D16CA9C67D1FAC57E3068531272396ED75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753569   (103810) от 05.10.2024
+
+Blue Moon Marquee - New Orleans Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Rat Swing (3:39)
+02. Ain't Going Down (3:19)
+03. Let's Get Drunk Again (3:48)
+04. Shake It and Break It (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC055F5916387BD5EE28F190F035F026B6F99AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753495   (103809) от 05.10.2024
+
+Пятеро на одного (05.10.2024) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100315.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:49:48
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64ED958A11144F72C23038EEA755667B8735EE6E
+magnet:?xt=urn:btih:2488293DAD8184C2E7FEFD94E02F14DEEFF02B49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +285,249 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487094   (100309) от 23.04.2012
+###  Публикация: 1753521   (103808) от 05.10.2024
 
-[Wallpapers] The Best Wallpapers (24.04.12)
+MotoGP. Этап 16 из 20. Гран-при Японии. Квалификация (05.10.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103808.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 октября 2024, суббота. 04:50 МСК, Этап 16 Мотэги. Гран-при Японии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F8F97155C58C9A0A81B45931D7CDE554F8402F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753541   (103807) от 05.10.2024
+
+MotoGP. Этап 16 из 20. Гран-при Японии. Спринт (05.10.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103807.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 октября 2024, суббота. 09:00 МСК, Этап 16 Мотэги. Гран-при Японии. Спринт (12 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE905D4B16D98B92186CCE79F97A205D2907B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753619   (103806) от 05.10.2024
+
+Тест-драйв BAIC BJ40 дизель 2024 — Минтранс (05.10.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103806.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Изъятие автомобиля. Могут ли машину увезти на эвакуаторе за долги по кредиту?
+🔸 Беда не приходит одна. Какие трудности ждут тех, кто потерял свидетельство о регистрации автомобиля?
+🔸 Миф о запуске. Правда ли, что двигатель можно завести, замкнув всего два провода?
+🔸 Повторение ПДД. Когда на перекрестках можно обгонять?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A929D2F2885AB3126624BEAB919AAA577D7AE1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753517   (103805) от 05.10.2024
+
+VA - Dancewood Records - Six Years (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P4sc4l - Orga (Radio Mix) [03:48]
+02. Eddie Lung - Beyond The Reach (Radio Mix) [03:09]
+03. JoyFire - My Favorite Song (Radio Mix) [02:46]
+04. Sunsyde - Take It Slow [03:08](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF6DFE27FB79F4809BFB0133F897F0D4891578C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753518   (103804) от 05.10.2024
+
+Поедем, поедим! Красноярск: спуск на родельбане, уроки игры на варгане и гастрокайф (05.10.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди побывал в Красноярске, не предполагая, какая жара его там ждет, особенно на самом длинном родельбане страны! В этом путешествии он освоил игру на варгане, сходил на одну из самых больших гидроэлектростанций России, побывал на диком ужине в лесу и в гостях у ручных сусликов, попробовал современную сибирскую кухню, а еще приготовил слоеный курник (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408FFC470190D9BC1579DAEDC37C136E5F28A336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753433   (103803) от 05.10.2024
+
+VA - Suanda Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H. & Roman Messer - Tranquillity (Original Mix) [3:28]
+02. Davey Asprey - Catch (Extended Mix) [6:34]
+03. Feel & Chester Young - Never Let You Go (Extended Mix) [4:47]
+04. Roman Messer & ThoBa & Veronica Bravo - High Wire (Original Mix) [3:09](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F7F9892081FFBC99CE3FCD827ED54233681240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753585   (103802) от 05.10.2024
+
+Catfish John Tisdell - I Hear the Blues Calling Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockabilly Boogie (3:41)
+02. Help the Poor (4:55)
+03. I Got My Eyes on You (3:59)
+04. I Hear the Blues Calling Me (5:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F1BEA08B969DC4487E7B834B094BA45EC4FFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753523   (103801) от 05.10.2024
+
+VA - Find Your Harmony 2024 Part 2 - NATURE (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The HIDD3NS & Zi - Find Yourself (Mixed) (Intro Mix) [3:12]
+02. Kamaji - Autoimmune (Mixed) (Arisey Remix) [3:09]
+03. Laura Van Dam - How Does It Feel (Mixed) (Original Mix) [3:24]
+04. Huvagen - Paradyse (Mixed) (Original Mix) [3:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6EDC47E83B3703BD245EAE4183858301D1D911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753575   (103800) от 05.10.2024
+
+Waldorf - Microwave 1 1.1.0 VSTi, VSTi 3, AAX (x64) [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100309.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Технология Microwave показала себя с наилучшей стороны благодаря уникальной интерпретации волнового синтеза в сочетании с аналоговыми фильтрами.
+Теперь Waldorf Music возвращает этот волшебный инструмент на цифровые рабочие станции по всему миру, выпустив подключаемый модуль Microwave 1.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B33FCDB8D99FB5C530EFD764B11280157F258762
+magnet:?xt=urn:btih:9EA09F1CF4D8A5B9D46EF9E46FEDF24930907764
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,29 +535,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487222   (100305) от 23.04.2012
+###  Публикация: 1753589   (103799) от 05.10.2024
 
-[Wallpapers] Fantasy Wallpapers Pack 1
+CultistOne - Blues from the Abyss (A Lovecraftian Blues Journey) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100305.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Fantasy Wallpapers Pack 1
-Название: Fantasy Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Whispered Shadows (4:00)
+02. Tempest Mountain Blues (3:58)
+03. The Cannibal's Delight (3:15)
+04. Broken Dreams (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F5EA940645BF5640474BD1549A48DBFA23995B
+magnet:?xt=urn:btih:E3059F5B00129CAA0276A857394C6779DA6F1EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,25 +564,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486552   (100303) от 23.04.2012
+###  Публикация: 1753546   (103798) от 05.10.2024
 
-Hatebeak - Дискография из 3х альбомов (2004-2007) [MP3|224 кб/с]<Death Parrot-Grind>
+Cannonball Adderley - Burnin' In Bordeaux: Live In France (1969) 2CD, 2024, Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100303.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Death Parrot-GrindПродолжительность: 00:18:16
+01. Experience in E [12:52]
+02. Blue 'n' Boogie [8:47]
+03. Come Sunday [6:53]
+04. Walk Tall (Baby, That's What I Need) [4:17](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:36:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FD81ABDF278DC02C457509EBA42BCBAFBD9A716
+magnet:?xt=urn:btih:7BAF6492DABCFE8A9D59F565A6D25C1C92291495
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,34 +593,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486056   (100296) от 23.04.2012
+###  Публикация: 1753798   (103797) от 06.10.2024
 
-VA - Pop Dance Coctail (2011) [MP3|128-256 кб/с]<Pop, Dance>
+VA - Just Blues (Soulful Groovy Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100296.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Тамерлан и Алёна Омаргалиева - Город мечты
-002. Selena Gomez & The Scene - Who Says (Bimbo Jones Radio Edit)
-003. Всё Включено - Оторвёмся летом (Ed Albah Remix 2011 Radio Edit)
-004. Katy Perry - E.T. (Dave Aude Radio Edit).mp3
-005. Яжевика - Лето (Kyrman Remix).mp3
-006. Diana Diez & Kostas Martakis - Sex Indigo (Russian House Mafia Radio Mix)
-007. Алексей Завьялов - Маша с Уралмаша
-008. Beyonce - Run The World (Girls) (Susan Esthera Remix)
-009. Ksela feat. DJ Alix - Ангел мой
-010. Daruso - When The Morning Comes (Liam Keegan Radio Edit)(   Читать дальше...   )2011Жанр: Pop, DanceПродолжительность: 06:21:05
+01. Wild Wisteria - Grafton Street (4:23)
+02. The Boneshakers - Big Legged Man (4:25)
+03. JJ Soul Band - At the Mall (2:53)
+04. Suzanne's Band - Back to Brown (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05EAFF4AD5091B626A0E041563ABE861DCA8C055
+magnet:?xt=urn:btih:D29B8941FE4EF7CE2CA05608B146C0FABB50A764
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,25 +622,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487170   (100295) от 23.04.2012
+###  Публикация: 1753697   (103796) от 06.10.2024
 
-[Wallpapers] Автомобили (195 снимков)
+VA - Rock Nation October 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100295.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция из 200 шт. HQ обоев автомобилей
+01. Green Day - Dilemma (3:18)
+02. twenty one pilots - Overcompensate (3:56)
+03. ALEXSUCKS - Hate Me If You Want (2:52)
+04. Highly Suspect - Summertime Voodoo (6:28)(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFE96489FB72A1C3839F5D03A3454A58A9B3AE32
+magnet:?xt=urn:btih:339180EB8E800C6EEAA1A987E8B5033C4DCAD51A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,25 +651,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485504   (100293) от 23.04.2012
+###  Публикация: 1753694   (103795) от 06.10.2024
 
-[Wallpapers] Girls Desktop Wallpapers №26
+VA - Car Bangers Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100293.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1600х1200 - 2560х1600
+01. Slipknot - The Dying Song (Time to Sing) (3:23)
+02. Avenged Sevenfold - Nightmare (6:14)
+03. Linkin Park - Numb (3:07)
+04. All Time Low - Fake as Hell (feat. Avril Lavigne) (2:59)(   Читать дальше...   )Жанр: RockПродолжительность: 03:39:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B49D8350B6D659AC2C29BAFDB2B7B0BE5C7E3D9
+magnet:?xt=urn:btih:D3A5AFF35B7FC59492CA5E1ABFDBA0A198AA9FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,25 +680,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485498   (100292) от 23.04.2012
+###  Публикация: 1753717   (103794) от 06.10.2024
 
-[Wallpapers] Girls Desktop Wallpapers №25
+Motley Crue (Mötley Crüe) - Cancelled (2024) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100292.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разрешение файлов: 1600х1200 - 2560х1600
+01. Cancelled
+02. Dogs Of War
+03. Fight For Your RightЖанр: Heavy metalПродолжительность: 00:12:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63355C8F1500072A50E36F2A17831DDF7E753A28
+magnet:?xt=urn:btih:B0731FD4E1FED1FDD9E4F6C4DC668BFA7AA6F64C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,469 +708,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487067   (100291) от 23.04.2012
+###  Публикация: 1753749   (103793) от 06.10.2024
 
-[Wallpapers] Girls Wallpapers (23.04.12)
+VA - Deep House Essentials: Edition 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100291.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 6496х4584
+01. Eigenart - Moonrise [06:44]
+02. Claus Pieper - Reincarnate [06:50]
+03. Alex Lo Faro - I'm Feeling Good [04:47]
+04. Juan Domecq - Whispers of the Wind [06:40](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:18:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:636A19A0F60F8A1DDD7312AFAFA9B30E53CB986B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487066   (100290) от 23.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (23.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487068   (100287) от 23.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (23.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487116   (100285) от 23.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №28
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1280х1024 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487111   (100284) от 23.04.2012
-
-[Wallpapers] Nature Pictures №50
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100284.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №50
-Название: Nature Pictures №50
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487117   (100283) от 23.04.2012
-
-[Wallpapers] HD Wallpapers №19
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100283.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №19
-Название: HD Wallpapers №19
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486156   (100282) от 23.04.2012
-
-Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_100282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Five
-02. New Wave (of 212)
-03. Kriko
-04. Eastern Choo Choo
-05. One Day
-06. Bridge Over Troubled Water
-07. Ethno Karma
-08. Portrait (to be continued…)2004Жанр: Contemporary JazzПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487092   (100281) от 23.04.2012
-
-[Wallpapers] Abstract HD Wallpapers (24.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E704D269E4DF0D9271DFAC551658FA6DED814DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487120   (100280) от 23.04.2012
-
-[Wallpapers] HD Wallpapers №20
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100280.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №20
-Название: HD Wallpapers №20
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486619   (100277) от 23.04.2012
-
-Нильс (REGATO) - Зима (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зима
-02. Простуда (feat. LowKick)
-03. Минус
-04. Солнце
-05. Не про тебя (feat. Никита Стихами)
-06. Периметр чувств (feat. Спрут (REGATO))
-07. За глаза
-08. Она запомнит
-09. Нечто
-10. Эксперимент(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487093   (100276) от 23.04.2012
-
-[Wallpapers] Wallpapers - Miscellaneous topics (24.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD41DD84335588BC521A9E2870D270F7B58154B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487091   (100275) от 23.04.2012
-
-[Wallpapers] HQ Wallpapers by KSV (24.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3265AA9DF113CC9DF9E0369CFC231709CAAFAE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486714   (100272) от 22.04.2012
-
-[Wallpapers] Завораживающая красота природы (80 снимков)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые обои с неповторимой по красоте природой для монитора
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E844E632FD2C2F7E0976875618F851245F1E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486017   (100270) от 22.04.2012
-
-Дневник безумной черной женщины / Diary of a Mad Black Woman (2005) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хелен МакКартер много лет прожила с мужем Чарлзом. Вместе они сделали успешные карьеры и добились богатства и высокого статуса в обществе. Но в канун свадебной годовщины Чарлз заявляет жене, что собирается развестись и жениться на другой…Жанр: Драма, Мелодрама, КомедияРежиссер: Даррен ГрантАктеры: Кимберли Элиз, Стив Харрис, Тамара Тейлор (т/с "Кости"), Тайлер Перри, Шемар Мур, Лиза Маркос, Сисели Тайсон, Террелл Картер, Эйвери НайтПеревод: Многоголосый закадровыйПродолжительность: 01:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D178216E4D60E994BAE6BB81033607AAF8EA0E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486093   (100259) от 22.04.2012
-
-Журнал | AD / Architectural Digest №5 [май 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал AD (Architectural Digest) — ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений , источник вдохновения в искусстве создания идеального жизненного пространства.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE273B002BC0EA831E4AB8F2CCFC9787A04CF5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486386   (100257) от 22.04.2012
-
-А.Г.Школьник | Задача деления круга [1961] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга А.Г.Школьника, посвященная вопросу о двучленных уравнениях и делении круга циркулем и линейкой, представляет собой написанную очень доступно и вместе с тем на безукоризненном научном уровне монографию по одному из вопросов, наиболее интересных и поучительных во всей истории математики. Издание этой монографии имеет поэтому значительную ценность прежде всего для библиотеки учителя, а затем и для студенчества и всех интересующихся математикой и развитием её идей.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381786330399C409E987BC7B28995D1CA99AADF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486361   (100247) от 22.04.2012
-
-Аннушка (1959) TVRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДрамаРежиссер: Борис Барнет, Георгий НатансонАктеры: Ирина Скобцева, Анастасия Георгиевская, Борис Бабочкин, Лев Барашков, Галина Токарева, Эдуард Марцевич, Ольга Аросева, Елена Королева, Валентина Владимирова, Павел Борискин, Елена (Ляля) Вольская, Игорь Вольский, Лев Золотухин, Сережа Карнаухов, Оля Малышева, Таня Малышева, Таня СергееваПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB705296CFF4B57702736F883FB624B8BF136FD0
+magnet:?xt=urn:btih:0422E958F81BD899DA16C60296AC8AAA97D21926
 ```
 
 https://mybot314.ru/tekegram_catalog/

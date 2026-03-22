@@ -1,3 +1,183 @@
+###  Публикация: 1230773   (612343) от 14.06.2018
+
+Jimmie Lunceford - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillun, Get Up [3:13]
+02. Solitude [3:15]
+03. Rain [3:17]
+04. Since My Best Gal Turned Me Down [3:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DF4AA943C59D231F2BA63D7FA911F05BD84D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037765   (612231) от 25.07.2016
+
+Blue Mitchell - Blue Soul (1959) Remaster, 2006, JVC[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Minor Vamp [03:44]
+ 02.The Head [04:30]
+ 03.The Way You Look Tonight [03:23]
+ 04.Park Avenue Petite [03:59](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917DF8818256B361599B4AF21225C09765319A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037772   (612224) от 25.07.2016
+
+Nat Adderley - Sayin' Somethin' (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Manchild [02:49]
+ 02.Call Me [03:09]
+ 03.Walls Of Jericho [06:57]
+ 04.Gospelette [03:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057BD5559F4B647BFC817AF45048D04AF15E9AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804854   (612085) от 14.07.2014
+
+Chris Standring - Don't Talk, Dance (2014) [FLAC|Lossless]<Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky High
+02. Inside Outside
+03. Sneakin' Out The Front Door
+04. Voices In My Head(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A4AF36A8191E74C09329431B4102ACE9632EC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296432   (611852) от 17.04.2019
+
+Benny Carter - Waltzing The Blues (1930 - 1957) 2007, Basics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dee Blues [3:01]
+02. Swing It [3:17]
+03. Symphony In Riffs [3:08]
+04. Liza [2:44](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5364197F0DC85AF039BA56DDD6892879B992AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524661   (611805) от 19.07.2012
+
+Bob Mamet Trio - Impromptu (2010) [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_611805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impromptu
+02. Cats On The Roof
+03. Venice Waltz
+04. At Play
+05. Until Morning
+06. Danzon Allegretto
+07. Bob's Blues
+08. Illinois Road
+09. Keziah
+10. Impromptu (Reprise)Жанр: Post-BopПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296475   (611756) от 17.04.2019
 
 Dakh Daughters - Air (2019) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Folk>
@@ -580,180 +760,6 @@ Clare Fischer - The Clare Fischer Voices... and Sometimes Instruments (2011) Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE13D2408906E84D70DC0465B59123B30AC3264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147309   (609867) от 02.07.2017
-
-Abdu Salim - Aladdin's Magic Lamp (2001, 2008) 2011, Crisis Muzon Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jibril [07:51]
-02. The Next Blues [07:15]
-03. Elegante [07:04]
-04. Amirha's Dance [07:55](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7782D8173EAFF63B71B927FA699A34C9CCE82381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147305   (609735) от 02.07.2017
-
-Roscoe Mitchell - Bells For The South Side (2017) 2CD, ECM [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609735.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Spatial Aspects of the Sound [12:15]
-02. Panoply [07:37]
-03. Prelude to a Rose [12:45](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 02:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DBE7C15E2C684A89F5778176740C5B757EEECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147402   (609731) от 02.07.2017
-
-Perez Prado - The Best Of Perez Prado - The Original Mambo No.5 (2006) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mambo>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mambo No.8
-02. Skokiaan
-03. Cherry Pink And Apple Blossom White
-04. Mambo A La Kenton(   Читать дальше...   )Жанр: Latin Jazz, MamboПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1EBFDD440E31A103BD5FF8DF1EBA30F70366B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913002   (609448) от 27.06.2015
-
-Art Blakey & Les Jazz-Messengers - Au Club Saint-Germain Vol. 1 (1959) /2014, Columbia/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Politely [15:45]
-02. Whisper Not [07:17]
-03. Now's The Time [13:38]
-04. The First Theme [08:30]Жанр: Jazz, Hard BopПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E567659781C21D5E6AEEE3AE457E745694DDB774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912770   (609446) от 27.06.2015
-
-Natalia M. King - Soulblazz (2014) [FLAC|tracks|WEB-DL]<Vocal Jazz, Blues, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Know What Love Is
-02. I've Changed
-03. Ring Ring Dingaling
-04. Stronger Than I(   Читать дальше...   )Жанр: Vocal Jazz, Blues, SoulПродолжительность: 00:50:217
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E526A9470BA8120EE6BDB4965ACF8B59A8E26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913005   (609445) от 27.06.2015
-
-Miles Davis - Bags' Groove (1954) /2008, Concord/[FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bags' Groove (take 1) [11:17]
-02. Bags' Groove (take 2) [09:25]
-03. Airegin [05:02]
-04. Oleo [05:15](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5696FB4680F291C8B312E2784A8183DB462D911
 ```
 
 https://mybot314.ru/tekegram_catalog/

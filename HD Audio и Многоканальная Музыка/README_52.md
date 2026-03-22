@@ -1,3 +1,321 @@
+###  Публикация: 1640972   (235659) от 20.06.2023
+
+Поют Екатерина Шаврина и Михаил Котляр (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235659.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Соловьи поют, заливаются
+А2 Река моя
+А3 Подари мне признание
+А4 Женщины(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:559084019D1B11B1F3B6B9DE1AF515BF7D240B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632161   (235630) от 09.05.2023
+
+VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Funk, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235630.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Шейла – Волшебники
+A2 Элвис Пресли – Беззаботный
+A3 Мак Кэйти Киссун – Я Нашла Его
+A4 Ринго Вилли Кэт – Ты Слишком Красива(   Читать дальше...   )Жанр: Rock, Funk, PopПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642322   (235348) от 28.06.2023
+
+The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Gothic/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235348.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Sins of Thy Beloved — музыкальный коллектив из Норвегии, исполняющий свою музыку в направлении симфонического готик/дум-метала. Название группы переводится как «Грехи твоей возлюбленной/Грехи твоего возлюбленного». По словам участников коллектива они выбрали именно это название, так как оно наиболее полно отображает музыку, концепцию и лирику группы (лирика песен (   Читать дальше...   )1997 - All Alone (EP)
+1998 - Lake of Sorrow
+2002 - Perpetual DesolutionЖанр: Symphonic Gothic/Doom MetalПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2850E838857667DD3914CFAE98763A28F7998B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632635   (235260) от 11.05.2023
+
+Наташа Королёва + Тарзан - Веришь или Нет (2003) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Мне Веришь Или Нет
+02. Не Забуду
+03. Твой Мир
+04. Капелька(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E70CEC8684CFB9578E8EFB4986205D36C7DA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633099   (234631) от 13.05.2023
+
+Веселые Ребята - Любовь - огромная страна (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classic Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234631.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Любовь - Огромная Страна
+A2 Я К Тебе Не Подойду
+A3 Отчего
+A4 Вечная Весна(   Читать дальше...   )Жанр: Classic Rock, Prog RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633720   (234242) от 16.05.2023
+
+Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive/Power/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wuthering Heights — основанная в 1989 году датская хеви-металлическая группа с несколько эклектичным музыкальным стилем на стыке пауэр-метала, фолк-метала и прогрессивного метала.1999 - Within
+2002 - To Travel for Evermore
+2003 - Far From the Madding Crowd
+2007 - The Shadow Cabinet(   Читать дальше...   )Жанр: Progressive/Power/Folk MetalПродолжительность: 04:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2790C2EB12578DDB8E8939DB4CD50EF1643E1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644307   (233980) от 05.07.2023
+
+Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Electronic, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233980.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		I'm Your Baby Tonight	5:00
+A2		My Name Is Not Susan	4:38
+A3		All The Man That I Need	4:09
+A4		Lover For Life	4:45(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFCAC09B0B95719E08F455F57E20928094D910D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664625   (233869) от 21.05.2022
+
+Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (3:46)
+02. Blush Response (5:43)
+03. Wait For Me (5:31)
+04. Rachel's Song (4:34)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3824C5253A25DA16BF5F765E988682004A1948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644684   (233757) от 06.07.2023
+
+Валерия - Звёздная Коллекция (2001) Compilation, Unofficial Release [FLAC|24/48|image + .cue|Tape-Rip] <Europop, Euro House, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Не Обманывай
+02. Не Обижай Меня
+03. Рига-Москва(   Читать дальше...   )Жанр: Europop, Euro House, Pop RockПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642122   (233340) от 26.06.2023
+
+Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial/Groove/Progressive Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mnemic — датская метал-группа, образованная в Ольборге в 1998 году.2003 - Mechanical Spin Phenomena
+2004 - The Audio Injected Soul
+2007 - Passenger
+2010 - Sons Of The SystemЖанр: Industrial/Groove/Progressive Metal, DjentПродолжительность: 04:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635042   (233007) от 23.05.2023
+
+Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_233007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moonspell — португальская метал-группа, основанная в 1992 году. На первых порах группа играла фолк/блэк-метал, позднее творчество группы обычно характеризуют как готик-дум-метал.1995 - Wolfheart
+1996 - Irreligious
+1998 - Sin Pecado
+1999 - The Butterfly EffectЖанр: Gothic MetalПродолжительность: 13:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642992   (232991) от 30.06.2023
 
 Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Symphonic Black Metal>
@@ -427,325 +745,6 @@ Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEC0ABFDD80805AA4B4CA376CBCBD5DBCEBE1006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583185   (230204) от 13.10.2022
-
-XueFei Yang - Romance de Amor (2006) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asturias
-02. Romance de Amor
-03. Recuerdos de la Alhambra
-04. Zapateado(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11842A5756FACC1512995D18DEEFFF86515FA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964888   (230001) от 12.12.2015
-
-Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Was a Boy (3:12)
-02. Love & Rain (3:30)
-03. Dirty To The Bone (3:06)
-04. When The Night Comes (3:21)(   Читать дальше...   )Производство: Columbia / Big Trilby Rec.Жанр: RockПродолжительность: 00:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E180AAD96C0AF6372D39F23596412C68FFF1ED0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735819   (229534) от 18.12.2013
-
-Аквариум - Оракул Божественной Бутылки (1998) 2LP /2013, Solyd Records/ [WavPack 2.0 24/192|image (Vinyl-Rip)]<Рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229534.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. Мой друг доктор (3:27)
-C2. Электрический пес (5:12)
-C3. Скорбец (3:06)
-C4. Афанасий Никитин Буги (3:54)(   Читать дальше...   )Жанр: РокПродолжительность: 00:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFE44147D50044ADDE2F8DD4BFFCCB808B93E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646857   (229117) от 28.07.2023
-
-Zardonic - Superstars (2023) [FLAC|24/48|tracks|WEB-DL] <Industrial Rock, Drum & Bass, Electronic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring The Rukus [00:04:24]
-02. Rock And Roll Tonight [00:05:20]
-03. Neon Rain [00:03:30]
-04. Follow Me [00:03:32](   Читать дальше...   )Жанр: Industrial Rock, Drum & Bass, Electronic RockПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8513D1240E91FFD4E694B25EE4F7B75FF3350CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341440   (228845) от 29.11.2019
-
-Эмиль Горовец - Поет Эмиль Горовец II (1966) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228845.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Двадцатый Век
-A2 Твоя Любовь
-A3 Смоленский Мальчишка
-A4 Белая Береза(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D2B710AFB31D39D9A98F0093BFFB703F667F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648898   (228561) от 29.07.2023
-
-VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image + .cue|Vinyl-Rip] <Euro House, Swingbeat, Italodance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228561.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Londonbeat - You Bring On The Sun
-A2 Ce Ce Peniston - We Got A Love Thang
-A3 Got To Be - Lucy
-A4 R. Kelly And Public Announcement - She's Got That Vibe(   Читать дальше...   )Жанр: Euro House, Swingbeat, ItalodanceПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648182   (228434) от 29.07.2023
-
-VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FLAC|24/192|image + .cue|Vinyl-Rip]] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228434.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Edward Van Halen - Donut City
-A2 Hanover Fist - Metal Of The Night
-A3 Charlie Sexton With Ron Wood - It's Not Easy
-A4 Andy Summers - Human Shout(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583598   (227970) от 16.10.2022
-
-VA - The Dooley Family And The Others (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227970.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Dooley Family – Hands Across The Sea
-A2 The Dooley Family – Sha La La Lullaby
-A3 The Dooley Family – Oo-Pa-Pa-Doo
-A4 The Dooley Family – Sneaking Up On Me(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965009   (227704) от 13.12.2015
-
-Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. I Can't Stand The Rain  6:30
-2. Movin'  4:24
-3. I'll Take You There  2:52(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267991   (227654) от 10.12.2018
-
-Кино - Атаман (2018) [DSD2.0|11,28MHz/1bit|image+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227654.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:15] 01. КИНО - Атаман (версия 2012 г.)
-[3:04] 02. КИНО - Атаман (версия 1990 г.)
-[4:17] 03. КИНО - Атаман (демо-версия 2012 г.) BONUS CD
-(   Читать дальше...   )Жанр: RockПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964605   (227333) от 13.12.2015
-
-Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_227333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Nightflight To Venus - Ночной полет на Венеру  4:42
-2. Hooray, Hooray - Ура, каникулы  3:56
-3. He Was A Steppenwolf - Он был степным волком  6:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
 ```
 
 https://mybot314.ru/tekegram_catalog/

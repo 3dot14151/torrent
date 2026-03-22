@@ -1,3 +1,409 @@
+###  Публикация: 1790509   (68074) от 09.04.2025
+
+Регионы - Называй, как хочешь! (2025) [MP3|320 Kbps] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночь [00:03:28]
+02. Дождь [00:03:52]
+03. В гримёрку [00:03:31]
+04. Из нулевых [00:03:21](   Читать дальше...   )Жанр: PunkПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E026ECAB678E139E8B8D2A4465560B4639B3A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793514   (67341) от 28.04.2025
+
+Paul Polotsk - Я иду долиной (2025) Сергей Есенин [MP3|320 Kbps] <Chanson, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я иду долиной [00:04:23]
+02 - Руки милой-пара лебедей [00:02:41]
+03 - Я обманывать себя не стану [00:02:56]
+04 - Ну, целуй меня, целуй [00:02:53](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F7B6C8C50CA6B02EDC06502C9849EABCE4AB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797555   (66780) от 17.05.2025
+
+Nytt Land - Songs of the Shaman (2025) [MP3|320 Kbps] <Darkfolk, Ethnic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Eikule Yekule (The Ritual of Divination) [00:03:14]
+02 - Cingelji Ingelji (The Song of the Shaman's Assista [00:02:54]
+03 - Eikuli Yekuli (Summoning the Spirit of the River - [00:03:30]
+04 - Kerani Kerani (The Ritual of Returning the Soul fr [00:03:06](   Читать дальше...   )Жанр: Darkfolk, EthnicПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F867EFC7F1AFB5D48F0DBF339E0FE368C7C65AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797563   (66766) от 17.05.2025
+
+Jazzetz Zukovsky - Время (2025) [MP3|320 Kbps] <Gothic-Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Велком то Клокхаус (03:42)
+02. Лангольерам (03:59)
+03. Шестеренки (04:24)
+04. Тик Так (04:47)(   Читать дальше...   )Жанр: Gothic-Rock, Post-PunkПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BF98F408C1BDC6FADB8EF93BB30DAD335C6103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800002   (66334) от 31.05.2025
+
+Сахарный человек - 10 Albums (2015-2025) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - The Sugarman Band
+2017 - Electric Forest (EP)
+2019 - Live at the Moscow Psychedelic Festival(   Читать дальше...   )Жанр: Acid Rock, Psychedelic RockПродолжительность: 10CD, 08:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD4AFAE2554FEF0F808899621A324FAFF4092A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800038   (66332) от 31.05.2025
+
+Бунт в Тишине - 3 Albums (2025) [MP3|320 Kbps] <New Wave, Horror Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+01 - Кабак на кладбище
+02 - Недетские сказки
+03 - Темные историиЖанр: New-Wave, Horror-PunkПродолжительность: 3 CD, 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FDEA2DB25684F1BCCAA686D88269F7406F1151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803267   (65766) от 25.06.2025
+
+Ильин - Колышки и крепости (2025) Remaster, DTFM rec, 2025 [MP3|320 Kbps] <Metal, Hardrock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65766.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пустоши и вышины
+2. Колышки и крепости
+3. Переломы и подъемы
+4. Цепи и провалыЖанр: Metal, Hardrock, InstrumentalПродолжительность: 00:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5487DBDA5AE7199CA8D81BAABAF8DABCB58F3768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804404   (65633) от 29.06.2025
+
+Ковенант - Блики Огня (2025) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Валькирия [00:04:24]
+02 - Загадочный Мир [00:05:59]
+03 - Белое С Красным [00:05:09]
+04 - Человек Железного Меча [00:05:32](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7420B254C030B3820CECF7736272246FE4D60ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804892   (65546) от 03.07.2025
+
+Rusty Sharks - Long way to freedom (2025) [MP3|320 Kbps] <Rockabilly, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  - Maniac [00:03:26]
+2.  - Psychobilly Town [00:03:22]
+3.  - Walking Dead [00:02:01]
+4.  - Bored with Your Tattoos [00:03:03](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98C7E78326FFE6BF48318E609817B05B7297351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804908   (65538) от 03.07.2025
+
+Щенки - Hоль один (2025) [MP3|320 Kbps] <Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я люблю до конца [00:03:22]
+02 - Ни тебя ни меня [00:02:38]
+03 - Рвется внутри [00:03:16]
+04 - Губная помада [00:02:31](   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AE8D2A0848D2C30412782C838DD278AC4B804D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804991   (65517) от 04.07.2025
+
+Ganesa - Пробуждение силы (2025) [MP3|320 Kbps] <Гранж>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сильнее (акустика) [00:03:29]
+2. 90 (акустика) [00:03:55]
+3. Остановись (акустика) [00:03:41]
+4. Ад (акустика) [00:02:40]Жанр: ГранжПродолжительность: 00:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF2FC925A0B447B50465C94C15E26FEAB6B2B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805081   (65514) от 04.07.2025
+
+Транкор - Разные вещи (2025) [MP3|320 Kbps] <Rapcore, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Разные вещи [00:03:03]
+02. Мало [00:03:07]
+03. Говорят [00:02:05]
+04. Атманов Угол [00:04:11](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD2BE59A37061FC3D2774608B053EF21E553247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804995   (65509) от 04.07.2025
+
+Taumel - Две сестры (2025) [MP3|320 Kbps] <Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65509.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прелюдия к трагедии [00:04:32]
+2. Роковой вечер [00:01:15]
+3. Жуткая полночь [00:03:45]
+4. Чёрная книга и чёрный кинжал [00:00:40](   Читать дальше...   )Жанр: Dark MetalПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144B75176BA19A9E71D2DA12F9101FE8BAB5CF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804997   (65503) от 04.07.2025
+
+Редкоземельный элемент - Конфетки (2025) [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65503.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Редкоземельный элемент [00:01:19]
+2. Биохакер [00:01:38]
+3. Мираж [00:01:46]
+4. Да здравствую жопы! [00:01:21](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1981B49AF0D670DEFF790F14A467867C0B265B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804996   (65502) от 04.07.2025
 
 Ошибся номером - Одиночество пополам (2025) [MP3|320 Kbps] <Alternative, Rock>
@@ -341,409 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB8338DE0FE33C191915D7BD8EF10F68B605FC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274447   (41423) от 05.10.2024
-
-Сруб - 12 Альбомов + 9 Синглов + 2 Компиляции (2013-2024) [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гибельные травы, которые срезают ночами черти обломками челюстей мёртвых лис, дымка над болотами, страх от прикосновения кого-то к плечу на пустой дороге через предрассветное поле, чащи, буреломы, папоротники, колючая и мокрая хвоя прямо в лицо. И смех без источника. Всё это здесь.2014 - Топь
-2015 - Тень
-2015 - Хтонь
-2016 - Песни Злых ЦветовЖанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 13:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7238A6270DBAF65A2EF7FD5BF1BCF717BABA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754815   (40467) от 13.10.2024
-
-Infornal FuckЪ - Музыка Категории Бэ (2024) [MP3|320 Kbps] <Parody Metal, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ходынский Слэм [4:09]
-02. Берёзовый Сок [2:44]
-03. Комарик [3:27]
-04. Дракула [4:26](   Читать дальше...   )Жанр: Parody Metal, Heavy FolkПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD13077FC9F5A69345A4B1C79971D6E349D023DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758059   (38734) от 31.10.2024
-
-Кино - 45 (1982) Deluxe Box Set, 3CD, 2024, Maschina Records [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт в студгородке ЛГУ, Петергоф, 28.10.1982
-01 - ЛетоЖанр: Alternative, RockПродолжительность: 3CD, 02:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5E8E82186EC290F9B8A0D262AF064321A3428B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758319   (38491) от 02.11.2024
-
-HARDY - 3 Альбома (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38491.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 - Тень одиночества (EP)
-2017 - Весь тот час (Single)
-2017 - Первый шаг (Single)Жанр: Heavy MetalПродолжительность: 00:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C07367ADB63D43C2F19FCE1725C173F243A5C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758701   (38261) от 04.11.2024
-
-РадаР - 7 Albums (2017-2024) [MP3|320 Kbps] <Reggae, Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сон [00:03:57]
-02. Пьяный и злой [00:02:58]
-03. Когда закончатся дожди [00:03:55]
-04. Страшно и чудовищно [00:03:11](   Читать дальше...   )Жанр: Reggae, Ska, RockПродолжительность: 7 CD, 03:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E1BF69431F5A6D600570A50A7D66EF0E91B9A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440577   (34529) от 11.12.2024
-
-Gospod - 5 Albums (2021-2024) [MP3|320 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Israel's Exodus
-2021 - The Main Sins of Humanity
-2023 - Pan(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 5 CD, 02:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F167E617AC06DA2754958A9DF3D5EA79447D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765999   (33762) от 18.12.2024
-
-Ермак! - 3 Albums (2024) [MP3|320 Kbps] <Post-Hardcore, Emo-Core>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Ермак! - 2024 - Дневник памяти
-Ермак! - 2024 - Не забывай (Ремиксы)
-Ермак! - 2024 - Русы валят рептилоидов (Ремиксы)Жанр: Post-Hardcore, Emo-CoreПродолжительность: 3 CD, 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98A422265CF072FCC381B66CD78CDF3D25C4C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770548   (32308) от 01.01.2025
-
-VA - Полигон Records. Лучшее 2024 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иво - Территория Баба-Яговья (3:50)
-02. Чёрный ХодЪ - Узники леса (6:05)
-03. Райтер - Гори в Аду (3:54)
-04. джинсы тарковского - девочка с татуировкой (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 01:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B177EA3FC6E728AB0EE4DC27527ADA7648AC7542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932558   (30595) от 18.01.2025
-
-КняZz «Князь» (Андрей Князев) - 10 Albums + 19 Singles + 1 Compilation (2005-2024) [MP3|320 kbps] <Punk Rock>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30595.jpg" />
-</div>
-
-
-###  Подробнее
-
-2005 - Любовь Негодяя
-2011 - Письмо из Трансильвании
-2012 - Тайна Кривых Зеркал
-2013 - Роковой Карнавал(   Читать дальше...   )Жанр: Punk RockПродолжительность: 10:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81F9910A5F1CC70C9835ECD048945D7112C5E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774894   (29897) от 24.01.2025
-
-Владимир Бурдин - Жёлтые песни (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Солнцеворот [00:02:23]
-02 - Долго жить западло [00:03:02]
-03 - Вперёд [00:02:08]
-04 - Тоска [00:03:15](   Читать дальше...   )Жанр: RockПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F903C0126E550EC0F2B0F013A1E8A84DA79B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774913   (29893) от 24.01.2025
-
-Владимир Желтов - Письма русскому другу (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Оглянись и прощай [00:05:23]
-02 - Брат [00:03:09]
-03 - Думаю о тебе [00:04:36]
-04 - Бродяга дхармы [00:04:05](   Читать дальше...   )Жанр: RockПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE6570ACC433DA1C953609E1FF92E05A3E1469F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737678   (28009) от 11.02.2025
-
-Пикник - Один на один (2024) [MP3|320 Kbps] <Rock>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28009.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Один на один
-2. Вдоль по улице, по бесстыжей
-3. Ой ты, Солнце, закатись!
-4. А зовут его: Оторви и Брось(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FA1FADE2318B591BE362D71402BD2CEA12ABB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751705   (26671) от 23.02.2025
-
-ЗакЛинания - Опасная (2024) [MP3|320 Kbps] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Опасная 2:27
-02 - Воины Ну 2:51
-03 - Волком 2:38
-04 - Холодный крик железа 2:47(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B57509F5B0EFEDFD95AAA615A6E8B649792EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783238   (25629) от 05.03.2025
-
-Зареница - 2 Albums (2024-2025) [MP3|320 Kbps] <Folk-Rock, Dream-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чистым полем [00:04:06]
-02. Люди русские [00:04:06]
-03. Русский рассвет [00:03:26]
-04. Забытая даль [00:02:54](   Читать дальше...   )Жанр: Folk-Rock, Dream-RockПродолжительность: 2 CD, 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C759BECAE9D4A3949B0827064B70F938CE5E08
 ```
 
 https://mybot314.ru/tekegram_catalog/

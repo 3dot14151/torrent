@@ -1,3 +1,322 @@
+###  Публикация: 1765773   (101335) от 14.12.2024
+
+Stevie And The Amayumi Band - I Like Your Style (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sinner's Prayer (03:55)
+ 02 - Blue Shadows Falling (04:15)
+ 03 - Cold Cold Feeling (03:16)
+ 04 - Every Night About This Time (03:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C9E520A9C31549ED878941CCC4D6D555A5F7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765804   (101334) от 14.12.2024
+
+Illusion Force - Halfana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaleidoscopic
+02. Halfana
+03. Miracle Superior
+04. The Serene Valley(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43D254C711920B0A60FF1FC445E4A90F077F015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765779   (101333) от 14.12.2024
+
+Letdown. - Be OK (Continued) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, New Rock, Neu-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dead Right [2:44]
+02 - Raincoat [2:35]
+03 - Memory [2:47]
+04 - Déjà Vu [2:48](   Читать дальше...   )Жанр: Alternative Rock, New Rock, Neu-PunkПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63629FF931A2119E0CBCF8FB9A83C8967E3CEE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765722   (101329) от 14.12.2024
+
+Roberta Flack - Chapter Two (1970) 50th Anniversary Edition, Remaster, 2021, Rhino Atlantic [FLAC 24/192|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reverend Lee (2021 Remaster) [00:04:32]
+02. Do What You Gotta Do (2021 Remaster) [00:04:09]
+03. Just Like a Woman (2021 Remaster) [00:06:15]
+04. Let It Be Me (2021 Remaster) [00:04:59](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B4ADF30A214DCCE1C47482853CDF42A51CBEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765727   (101328) от 14.12.2024
+
+Rival Sons - Pair of Aces, Pt. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Get What’s Coming
+02 – Torture
+03 – Radio
+04 – Sleepwalker(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817349167377D288DA1427AE3D2CA89851A6A94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765928   (101316) от 15.12.2024
+
+Purple Disco Machine - Club Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Disco, Nu-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W.T.P (Club Dub) [00:06:41]
+02. Beat Of Your Heart (Marten Hørger Remix Extended) [00:05:33]
+03. Dirty Pleasures (Erol Alkan Rework) [00:07:27]
+04. Honey Boy (The Sponges Remix Extended) [00:04:38](   Читать дальше...   )Жанр: Electronic, Disco, Nu-DiscoПродолжительность: 2 CD, 02:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628E3CC0573E278CEE3BA94DE2F48E4EBCA6E2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766002   (101309) от 15.12.2024
+
+Mr Mountain - Mr Mountain (Remixed & Remastered 2024) (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mary Jane  (3:39)
+02. Refuse To Shine  (4:47)
+03. One Day Baby  (3:50)
+04. See You Go  (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211F9DCEE31E8B989B54C7721C0380B0C07AFF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765915   (101302) от 15.12.2024
+
+Ultraboss - Slow Motion Rider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ultraboss - Get The Heart In [00:04:13]
+02 - Ultraboss - Calling On Forever [00:03:27]
+03 - Ultraboss - Vienna Nightdrive [00:02:31]
+04 - Ultraboss - Slow Motion Rider [00:05:00](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178E98C8911255467CC9A556A93E5F89D8BDA383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765989   (101297) от 15.12.2024
+
+Ермак! - 3 Albums (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo-Core>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Ермак! - 2024 - Дневник памяти FLAC (16,24bit-44.1,96kHz)
+Ермак! - 2024 - Не забывай (Ремиксы) FLAC
+Ермак! - 2024 - Русы валят рептилоидов (Ремиксы) FLACЖанр: Post-Hardcore, Emo-CoreПродолжительность: 3 CD, 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CABD9F8644DF27C53899A007E6B25058E7AC82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765962   (101288) от 15.12.2024
+
+Deep South - Entering Deep (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entering Deep (4:39)
+02. Waking Deep (4:17)
+03. Craig Bloxom - Heading Deep (5:07)
+04. Thinking Deep (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E36DCCC2B87BFC2F9A2EA79D8B40C48A6B2835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765991   (101287) от 15.12.2024
+
+Godless men - Awakened by the wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where dark waters meet (4:14)
+02. Heads will roll (3:52)
+03. Awakened by the wolves (4:38)
+04. Masquerade (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10288D3856C6E5C427CA281AE13AF5B5FB24E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765961   (101286) от 15.12.2024
 
 BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -417,325 +736,6 @@ Pallbearer — американская дум-метал группа из Ли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F562F73833B68AE583C07F00ECC92C11B5C6E396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766994   (101192) от 21.12.2024
-
-Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101192.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Odyl (6:46)
-• 02. Reina (5:35)
-• 03. Poseidon (5:02)
-• 04. The Quest (7:30)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B43324E9E68DED6C5C424A20502BEEAADC4188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767482   (101178) от 22.12.2024
-
-SZA – Sos Deluxe: Lana (2024) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – No More Hiding
-02 – What Do I Do
-03 – 30 For 30
-04 – Diamond Boy (DTM)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA479016AFE1D5B5D512CF77B39A79A59E5125C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767475   (101167) от 22.12.2024
-
-Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Country Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – It’s Such A Pretty World Today (2024 Remastered)
-02 – Get While The Gettin’s Good (2024 Remastered)
-03 – Walk Through This World With Me (2024 Remastered)
-04 – Jackson (feat. Lee Hazlewood) (2024 Remastered)(   Читать дальше...   )Жанр: Country-Rock, Soft-RockПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF854170EA112A30FA6250CB1EF8466AE8DDB38B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768644   (101128) от 25.12.2024
-
-Isa Nielsen - Break The Chains (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock & Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break The Chains (4:07)
-02. Wild Soul (3:09)
-03. Rebel For Life (2:44)
-04. Waiting For The Break Of Dawn (2:55)(   Читать дальше...   )Жанр: Hard Rock & MetalПродолжительность: 00:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BFEAB7DDB1BA9F1DD49FDCE07B330771EF8B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768666   (101127) от 25.12.2024
-
-Sensual Chill Saxaphone Band, Erotica - Shades of Erotica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Jazz Serenade (3:54)
-02. Coffee Dreams Melodies (4:12)
-03. Dawn's Delight Ballads (3:23)
-04. Jazz Lounge Harmony (3:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E56AD6106901A1386E749709FA8816EB2608D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768631   (101119) от 25.12.2024
-
-After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War of the Worlds (3:46)
-02. The Path (4:09)
-03. Cursed (5:02)
-04. Liber Fortitudinis (The Book of Destiny) (6:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10F4C7ECF9D7EA3A2C0AB6F9C70DEECDAEEB026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768669   (101114) от 25.12.2024
-
-The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Budapest in Winter (3:38)
-02. Windows of Warmth (3:13)
-03. Blessed Day (3:28)
-04. Time Machine (3:36)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9A138F9AD025B67E6428E2BB0B4DCD0C63DD90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768654   (101113) от 25.12.2024
-
-Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer- Feeling (3:16)
-02. Hungry for Love (4:08)
-03. I'm Here (3:14)
-04. Wave (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B76AAAB4FE13FB98872BDAFFA8EF7C98520144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768637   (101110) от 25.12.2024
-
-Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Wait (3:08)
-02. I've Said It (4:09)
-03. That Same Old Way (4:50)
-04. Never Worked It Out (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768661   (101109) от 25.12.2024
-
-Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Workhouse Blues (3:06)
-02. Sometimes I Sit and Wonder (2:58)
-03. I'm off to Saint Louis (3:29)
-04. Shallow Heels (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE7D9F98022FFDD5A1F8F0969D31E6250F71609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768657   (101108) от 25.12.2024
-
-Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1952 (1:09)
-02. Midnight Caravan (3:24)
-03. A Different Path (4:20)
-04. Wonders of the Crescent (2:19)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA512226871830C4E29CB649098A14DCE81B89D
 ```
 
 https://mybot314.ru/tekegram_catalog/

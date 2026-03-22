@@ -1,31 +1,22 @@
-###  Публикация: 477984   (98687) от 05.04.2012
+###  Публикация: 1761224   (103085) от 18.11.2024
 
-VA - Весенний шквал новинок (2012) [MP3|256 кб/с]<Pop>
+Конвертер Валют Плюс / Currency Converter Plus 2.13.1 Mod by srajawwal09 [Ru/Multi]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98687.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Алина Гросу - Взрослая (3:11)
-2. Seventeen - Танцуй, Даже Если Это Конец Света (Volta Remix) (3:47)
-3. Вельвет - Все забудется (3:47)
-4. Влад Дарвин (Darwin) - Пассажир Дождя (Remix) (3:44)
-5. Quest Pistols - Ты была светом (3:14)
-6. 5sta Family - Вместе Мы (3:40)
-7. ВИА Гра - Диско (3:06)
-8. Би - 2 - Девушки (3:43)
-9. Земфира - Деньги (3:37)
-Батишта & Shaplin feat. Ульяна Глушкова - Когда Наступит Ночь (Rusky Rusk Remix) (3:33)2012Жанр: PopПродолжительность: 05:55:12
+Конвертер Валют Плюс - максимально простой, а значит и очень удобный, конвертер валют. Что предоставляет пользователям точные данные сразу по нескольким позициям. Достаточно просто задать базовую валюту, а так же желаемые варианты. Программа обновляется через Европейский центральный банк, что обеспечивает использование только актуальных данных. При этом есть поддержка (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.10.2024Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92CF31744645A4B3F0A97C8D530B708BBAC28951
+magnet:?xt=urn:btih:48B374BB796908BC1B70C3663A9C42902E4D7451
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,27 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478531   (98685) от 05.04.2012
+###  Публикация: 1761149   (103084) от 18.11.2024
 
-Low Gravity - Incarnadine (2012) [MP3|320 кб/с]<Stoner Sludge Metal>
+Newfangled Audio - Recirculate 1.1.9 VST, VST 3, AAX (x64) RePack by R2R [En]
 
->>Архив торрентов
->>Архив Музыки
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98685.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. (The) Crushing Black 08:30
- 02. Satellite 08:25Жанр: Stoner Sludge MetalПродолжительность: 00:46:12
-Страна: Spain
+Recirculate - это не просто дилей плагин; это квинтэссенция того, каким должно быть эхо с обратной связью. Отбросив ненужный багаж и сосредоточившись на звуке и управлении, мы создали идеальный инструмент для придания глубины и объема вашим миксам..Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A29722F5D070E4C69896DD633E839B4374BA2110
+magnet:?xt=urn:btih:786927821CE35E015A23A25ED34AC2B92C09378B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -61,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478672   (98684) от 05.04.2012
+###  Публикация: 1761143   (103083) от 18.11.2024
 
-[Wallpapers] Desktop wallpapers (05.04.12)
+Auburn Sounds - Panagement 2 2.6.0 (FULL) VST, VST 3, AAX (x86/x64) Retail [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98684.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Panagement 2 - плагин для управления стереополем с бинауральной обработкой.
+Panagement 2 - это лаборатория пространственного преобразования, которая работает в тысячах студий по всему миру. Panagement 2 дает вам полную власть над вашими стереодорожками.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF7023C462C6AEA00070465753734092677B5B46
+magnet:?xt=urn:btih:6129969BD79B4C8C208A5404A5AA75272176A140
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -87,34 +77,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478084   (98683) от 05.04.2012
+###  Публикация: 1761180   (103082) от 18.11.2024
 
-Various Artists - Tranceffect 14 (2012) [MP3|320 кб/с]<Trance>
+НХЛ 2024-2025. Вашингтон Кэпиталз - Вегас Голден Найтс (17.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98683.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fallen Angel (Album Extended Mix) - Dennis Sheperd And Cold Blue Feat Ana Criado
- 02. Love To Be (Original Mix) - Benya Feat Emma Lock
- 03. In Deep - Pulser Feat Molly Bancroft
- 04. One Love (Album Club Mix) - Roger Shah Feat Carla Werner
- 05. Ace Of Hz ({am} Extended Mix) - Ladytron
- 06. Destiny (Original Mix) - NHeaven Feat Emma Lock
- 07. Miracle (James Dymond Remix) - Gerome Feat Pamela Baz
- 08. Lost In You (Paul Todd Remix) - Defcon Audio Feat Julie Harrington
- 09. Come To Me - Simon Patterson And Greg Downey Feat Bo Bruce
- 10. I Can Hear You ({am} Extended Mix) - Aly & Fila feat. Sue McLaren(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:07
+18 ноября 2024, понедельник. 04:00 МСК. Стадион: Ти-Мобайл Арена (Парадайс, США), 17 877 зрителей (96% при вместимости 18 702)
+Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Ти Джей Люксмор (Тимминс, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Брэндон Гаврилетц (Трэил, Канада)Телекомпания: NHLЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:21:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62F417D0C1FA1D12417C9A5A788C08BDC9BE6E00
+magnet:?xt=urn:btih:7AFCE41C67E0BA968DDC05CCB8415FDCFB6FEE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -122,29 +104,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478661   (98682) от 05.04.2012
+###  Публикация: 1761213   (103081) от 18.11.2024
 
-[Wallpapers] Desktop Wallpapers №2
+Desert Song - Desert Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98682.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №2
-Название: Desktop Wallpapers №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Awakening (1:08)
+02. Desert Flames (4:23)
+03. One for all, all for one (3:25)
+04. Rain in Paradise (4:12)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:32:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:770040F3BF223937A4059807F3F8A41B665EA179
+magnet:?xt=urn:btih:EF27B746683BF78AE5852FB376C75F07DCA559F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -152,34 +133,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478267   (98681) от 05.04.2012
+###  Публикация: 1761214   (103080) от 18.11.2024
 
-VA - Best-Of-Ka Высшая Лига 50x50 №45 (2012) [MP3|256 кб/с]<Pop>
+Distant Past - Solaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98681.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Митя Фомин - Хорошая Песня (Жизнь Одна, Хочется Жить)
-002 David Guetta - Without you (feat. Usher)
-003 Авраам Руссо и Рухшона - Благодарю
-004 Lmfao - Sexy and i know it
-005 Алисия - Улетаю (DJ Fisun remix)
-006 Rihanna feat. Calvin Harris - We found love
-007 Иракли & Даша Суворова - Нелюбовь
-008 Topmodelz - L esperanza (Single mix)
-009 Reflex - Я Буду Небом Твоим
-010 Example - Changed the way you kiss me (Mike Candys rmx)2012Жанр: PopПродолжительность: 05:48:59
+01. End Of Life (Intro) (0:58)
+02. No Way Out (3:29)
+03. Warriors Of The Wasteland (4:14)
+04. Sacrifice (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D09C77AB2FBEBF1CD657DF3764C97B917F95ED1F
+magnet:?xt=urn:btih:BA17133FFDCEC116AF63809FE11DFCFF63524C79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,29 +162,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478744   (98680) от 05.04.2012
+###  Публикация: 1761219   (103079) от 18.11.2024
 
-[Wallpapers] Desktop Wallpapers №3
+Lonerider - Down in the Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98680.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №3
-Название: Desktop Wallpapers №3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1620x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Shiver (4:22)
+02. Three Steps Back (4:34)
+03. Getting Closer (4:35)
+04. Help Me Brother (3:59)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6641E1CE65B50E0800D2A823F3D0FFD6DD65289
+magnet:?xt=urn:btih:05440208EEC208FC2C15E684181B8ED45E70484A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,25 +191,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478668   (98678) от 05.04.2012
+###  Публикация: 1761246   (103078) от 18.11.2024
 
-[Wallpapers] Best HD Wallpapers Pack (05.04.12)
+Wabi King - Turn over the Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98678.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Iron Face (3:48)
+02. We play Rock N Roll (3:37)
+03. Turn over The Game (3:37)
+04. I Got it That Go (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D203FFAC266941C94B84A4964A9424433F1F33AB
+magnet:?xt=urn:btih:FF652B526B33A53636D22B58EC836F7D6836A3D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,25 +220,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478707   (98677) от 05.04.2012
+###  Публикация: 1761250   (103077) от 18.11.2024
 
-[Wallpapers] Best HD Wallpapers Pack (06.04.12)
+Enforced - A Leap Into the Dark (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98677.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Betting on the End (3:42)
+02. A Leap into the Dark (4:16)
+03. Deafening Heartbeats (3:11)
+04. Casket (2024 Remaster) (1:54)(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:19:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9EA97D0100D54E609057980959D5B0F122F5F5D
+magnet:?xt=urn:btih:7F56B5187C54F9F9E5CC5BED401E3C0D014EF5BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,29 +249,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478743   (98676) от 05.04.2012
+###  Публикация: 1761227   (103076) от 18.11.2024
 
-[Wallpapers] HD Wallpapers №6
+Singing River - Talkin' Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock, Americana>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98676.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №6
-Название: HD Wallpapers №6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Talkin' Destination Blues (2:29)
+02. A Hill Worth Climbing (3:13)
+03. I Keep Running (3:12)
+04. Gideons Bible (3:58)(   Читать дальше...   )Жанр: Blues, Rock, AmericanaПродолжительность: 00:25:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BBE441D85932FCE8BC08FEB9F04A3682A5C927B
+magnet:?xt=urn:btih:31DCC6592589897065D518ACB2666ADA87D681D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,29 +278,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478271   (98675) от 05.04.2012
+###  Публикация: 1761216   (103075) от 18.11.2024
 
-[Wallpapers] HD Wallpapers №2
+Divisive Echoes - Twilight Of The Round Table (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98675.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №2
-Название: HD Wallpapers №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Chronicles Of The Chosen King (6:26)
+02. Crown Of Thorns (6:23)
+03. Crown Of Night (6:58)
+04. Knights Of The Unbreakable Oath (6:59)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:53:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:640FFE617127CCA5E7252E7BB64BF837D9CA41BF
+magnet:?xt=urn:btih:EDBAF1D3266A0CFE7BB7D4FC7FB40F699EE17AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,29 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478746   (98674) от 05.04.2012
+###  Публикация: 1761223   (103074) от 18.11.2024
 
-[Wallpapers] Nature Pictures №37
+Mark Farner - Closer To My Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98674.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №37
-Название: Nature Pictures №37
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Anymore (3:12)
+02. The Prisoner (4:14)
+03. Same Game (2:51)
+04. Facade (3:07)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB0333DC5491E6BBD0E6E1993541A7EA3A466320
+magnet:?xt=urn:btih:C041DC2C6FC42CA5DCA4E6EDBEEF7801E69F4858
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,34 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477531   (98673) от 05.04.2012
+###  Публикация: 1761243   (103073) от 18.11.2024
 
-VA - Master Plan 2011 (2012) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
+Святитель Василий Великий | Письма (2007) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98673.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Neelix - Call Me 08:05
-02. Vertical Mode - Deep Vibration 07:17
-03. Generic - Big Bad 07:06
-04. Durs - Refresh 06:32
-05. Pick - Darkness 07:49
-06. Twisted Reaction - New Generation Of Science 07:20
-07. Aqualize - Land of 2 Suns (Inner State remix) 07:25
-08. E-Clip - Chandra (Red And Blue remix) 06:48
-09. Mirikina - Revolution (Etienne Am remix) 07:57
-10. Cabal - Back Breaker 07:15(   Читать дальше...   )2012Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 03:01:31
+«В эпистолярном наследии Святителя ярко отразился огромный духовный путь, который святитель Василий прошел от юношеской риторической экспрессии до сдержанной умудренной вдохновенности Писанием. Кроме того, письма святого Василия представляют собой и ценный исторический источник: по его письмам можно проследить, как разворачивалась борьба с различными ересями, противостоявшими (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:445554B12A6938B3B1A0C8F08777544942B7DE2D
+magnet:?xt=urn:btih:0663E2CAE0BD9D968B28CFB626DC01CB38BF8A33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,34 +362,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478254   (98672) от 05.04.2012
+###  Публикация: 1761162   (103072) от 18.11.2024
 
-VA - Громкий Успех Megapolis (2012) [MP3|256 кб/с]<Pop>
+Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98672.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 ВИА Гра - Диско
-002 Like Chocolate feat. Alex Mica - Maria Maria (Radio Edit)
-003 Никита - Прости
-004 LaRoxx Project - Jabba Jabba (Radio Edit)
-005 Бурановские Бабушки - Party For Everybody (Евровидение 2012 Россия)
-006 DJ Project feat. Adela - Bun Ramas (Radio Edit)
-007 Алина Гросу - Взрослая
-008 Sean Paul feat. Ester Dean - How Deep Is Your Love
-009 Иракли & Даша Суворова - Нелюбовь
-010 Rihanna - Birthday Cake2012Жанр: PopПродолжительность: 05:51:39
+01. Claymore Strike 04:16
+02. 20th Century 04:09
+03. Nevermore 05:27
+04. Lovebreak 05:29(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61B82ACE9A585D770355E52183C0F1DE022F258B
+magnet:?xt=urn:btih:BE00D68222B07DCF3986E42FD8B84AAF61436C26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,34 +391,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478354   (98671) от 05.04.2012
+###  Публикация: 1761242   (103071) от 18.11.2024
 
-VA - Absolute Dance April (2012) [MP3|320 кб/с]<Dance>
+Епископ Вениамин (Милов) | Пастырское богословие (2002) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98671.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vincent Voort - Driven (original mix)
-02. Rico Bernasconi & Beenie Man feat. Akon - Girls (T & K remix)
-03. Dazzle - Global Forcast (original mix)
-04. Sander Van Doorn - Outro (Edx's festival mix)
-05. Rene Rodriguez & DJ Antoine feat. MC Yankoo - Shake 3X (radio edit)
-06. Infected Mushroom - Pink Nightmares
-07. Cut & Run - Bangkokd (original mix)
-08. Stan Kolev & Matan Caspi - Nirvana (original mix)
-09. Alexey Romeo & Plage feat. Alateya - Summer Night (Dabruck & Klein remix)
-10. Fresh - Hot Pursuit (Dave Lebon remix)2012Жанр: DanceПродолжительность: 05:25:43
+Предлагаемое читателю собрание лекций по Пастырскому богословию с аскетикой исповедника веры Христовой епископа Саратовского и Балашовского Вениамина (Милова) (†1955) было читано автором в 1947–1948 учебном году в Московской Духовной Академии.
+
+Редакция надеется, что этот выдающийся памятник русской пасторологической науки середины прошлого века много послужит духовному (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E4692B90BC96A07F216EA20C5930E3A7FF02CFC
+magnet:?xt=urn:btih:F42EC385FBC4E45DFD82768EF26E1099D56364BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,34 +419,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478122   (98670) от 05.04.2012
+###  Публикация: 1761042   (103070) от 18.11.2024
 
-VA - EveryBody Dance Now! Весна (2012) [MP3|256 kbps]<Pop | Dance>
+Своя игра (17.11.2024) WEBRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98670.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Astero & Inusa Dawuda - I don't know
-02. Azuro feat. Elly - Toca me (Video Edit)
-03. Radio Killer - You and me
-04. Drei Ros feat. Diedra - Crazy
-05. Mohombi - Maraca
-06. Offbeat Orchestra feat. Sunstroke Project - Epic sax
-07. David Guetta feat. Jennifer Hudson - Night of your life
-08. Nirvana - Smells like teen spirit (Larin Disco Fever remix)
-09. Deepside Deejays - Never be alone
-10. Slam DJ's feat. Zeni - Touch(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:47:44
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96EB52D9DB2A4CD4AFBB31F6451D4E1E02FAB16C
+magnet:?xt=urn:btih:CBFCE5A9E00359F49DDE11A8B506DFC6160DC459
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,34 +445,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478640   (98669) от 05.04.2012
+###  Публикация: 1761325   (103069) от 19.11.2024
 
-VA - Club music for Djs vol.11 (2012) [MP3|320 кб/с]<Dance, Club>
+НХЛ 2024-2025. Вашингтон Кэпиталз - Юта (18.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98669.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Laurent Davidsson - Nebula (Maarten Wuyts Remix)
-02. Nick Hussey & Jamie van Goulden feat Peter Hook & IMU - Salty (Original Mix)
-03. Usher, Mell Tierra - Yeah Eagle (Anton Neumark MashMix)
-04. Anton Neumark - Ultimate Music Mix 171 Chicago Only music (20.02.12)
-05. Anton Neumark - Ultimate Music Mix 174 Birthday in St.Petersburg (12.03.12)
-06. Stonebridge, Chris Kaeser, Funky Junction - MDF (Fred Lilla Remix)
-07. Liubo Dummec - Vibe (Original Mix)
-08. Geler, Sasha Flash - In The Fog (Original)
-09. Anton Neumark - Ultimate Music Mix 172 Manila Only music (27.02.12)
-10. Anton Neumark - Ultimate Music Mix 173 Barcelona Only music (6.03.12)2012Жанр: Dance, ClubПродолжительность: 06:27:42
+19 ноября 2024, вторник. 05:00 МСК. Стадион: Дельта-центр (Солт-Лейк-Сити, США), 11 131 зритель (80% при вместимости 14 000)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Коди Бич (Нанаймо, Канада); Линейный: Трэвис Туми (Канада); Линейный: Джо Махон (Калгари, Канада)Телекомпания: SEGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0FE177AA451677857C37FD2558DF6657D6DD425
+magnet:?xt=urn:btih:9AA452B5D65094A4D5B415E3BB2A74655F4B3DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,25 +472,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478670   (98668) от 05.04.2012
+###  Публикация: 1761252   (103068) от 19.11.2024
 
-[Wallpapers] HQ Wallpapers by KSV (05.04.12)
+Marian McPartland Trio - Live At Shanghai Jazz (2002) [FLAC|Lossless|tracks + .cue] <Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98668.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+02. For All We Know (5:33)
+03. Pensativa (4:23)
+04. You'd Be So Nice To Come Home To (7:04)
+05. Just Squeeze Me (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:04:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F0AFB9F4911AEBC57F53B6442E11CF53A8C9275
+magnet:?xt=urn:btih:1DE94B832CF9015BB09C7FDFD9F4025A4E75C62F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,29 +501,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478272   (98667) от 05.04.2012
+###  Публикация: 1761146   (103067) от 19.11.2024
 
-[Wallpapers] HD Wallpapers №3
+Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon [WavPack|Lossless|image + .cue] <Bop, Cool>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98667.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №3
-Название: HD Wallpapers №3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Love and the Weather [6:32]
+02. It Don't Mean a Thing [6:21]
+03. Spring Is Here [6:07]
+04. Varsity Drag [6:56](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:06:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BBA4795946E7E0BA8093F53805048ED9467E18B
+magnet:?xt=urn:btih:A26BD72F2773AA3D1598CCC187ABCC476A87DE37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,34 +530,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477979   (98666) от 05.04.2012
+###  Публикация: 1761365   (103066) от 19.11.2024
 
-VA - Танцевальный клубный поп хит vol.3 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
+Ernesto J. Ponce - In-Between Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98666.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dj Fait! Aka Raving Stuff - Spring Passion (Radio Edit)
-02. Vanilla Ninja-When The Indians Cry
-03. Geri Holliwell - Let Me Love You More
-04. Bush - The Sound Of Winter
-05. Андрей Ковалёв И Пилигрим - Кленовый Лист
-06. Diego Poblets, Vanessa Da Matta - Ai Cross (Anton Neumark Btl Mix)
-07. Adele - Set Fire to the Rain
-08. Anton Neumark, Stephano Noferini - Spaceball 2012 (Buenos Aires Live Mashup)
-09. Emin - Сердце Бьётся
-10. Example - Changed the Way You Kiss Me (Radio Edit)2012Жанр: Pop,Dance, ClubПродолжительность: 06:57:15
+01. Stop, Drop, & Roll (2:40)
+02. Don't Mean a Thing (3:32)
+03. In-Between Times (4:41)
+04. The Last Time (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:056A26A3E012EBB7904E6E3F7BACE53145FA250E
+magnet:?xt=urn:btih:40176D7674E5ADDD5EF334158A8EC7607341311C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,29 +559,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478664   (98664) от 05.04.2012
+###  Публикация: 1761297   (103065) от 19.11.2024
 
-[Wallpapers] Avto Wallpapers №1
+Kreator - Live in Chile (April 2023) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98664.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers №1
-Название: Avto Wallpapers №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Sergio Corbucci is Dead (Live) (1:00)
+02. Hate Über Alles (Live) (4:03)
+03. People of the Lie (Live) (5:44)
+04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD30B228770E669401B508027D6F93ECCF94AFD6
+magnet:?xt=urn:btih:0D48B918FAD7B4EE9C974F90FD5AC81272D9A5C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,29 +588,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478667   (98663) от 05.04.2012
+###  Публикация: 1761362   (103064) от 19.11.2024
 
-[Wallpapers] Nature Pictures №36
+Dreamscapes - Lost and Found (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98663.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №36
-Название: Nature Pictures №36
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. A Time for Forgiveness (3:04)
+02. Shattered Vows (3:29)
+03. Lost in This Sadness (2:12)
+04. Emotions on Hold (2:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BBAA4A1C98145F6753A29CF666BD6A193CD4156
+magnet:?xt=urn:btih:29E7335EE00861C2F5D6FE701CF53E493CE89CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,29 +617,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478660   (98661) от 05.04.2012
+###  Публикация: 1761273   (103063) от 19.11.2024
 
-[Wallpapers] HD Wallpapers №4
+Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98661.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №4
-Название: HD Wallpapers №4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Don’t Forget to Live 5:40
+02. Feel Invincible 4:08
+03. Stay Away... Last Warning 4:34
+04. Pyramids and Mystery 7:39(   Читать дальше...   )Жанр: Heavy-MetalПродолжительность: 01:03:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90A2ACDA5A604021A17EFDF3B712C33ACB6D47CA
+magnet:?xt=urn:btih:BF5EF0181B55CBE777D55186EFE992B9559038FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,34 +646,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477841   (98658) от 04.04.2012
+###  Публикация: 1761295   (103062) от 19.11.2024
 
-VA - Гуляночка блатного радио (2012) [MP3|256 кб/с]<Шансон>
+Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98658.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Александр Закшевский - Гуляем (3:29)
-2. Сергей Рыбачев - Ресторанчик (2:54)
-3. Лукьяновка - А мне бы все забыть (3:32)
-4. Палыч - Мадам (4:07)
-5. Светлана Калина и группа ЖАrА - Сигареточка (3:46)
-6. Маша Вакс - Жига (3:44)
-7. Владимир Утёсов - Сирень (3:18)
-8. Александр Дюмин - Пили Водочку (3:24)
-9. С. Михайлов - Родная (3:38)
-10. И.Круг - Милая зайка моя (3:13)2012Жанр: ШансонПродолжительность: 06:11:06
+01. Sergio Corbucci is Dead (Live) (1:00)
+02. Hate Über Alles (Live) (4:03)
+03. People of the Lie (Live) (5:44)
+04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29651C9206FBB1D8BE097806A725157DB6A26D61
+magnet:?xt=urn:btih:96C315838AA9207546388B465A60BA56EEDB17B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -750,34 +675,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476474   (98655) от 04.04.2012
+###  Публикация: 1761200   (103061) от 19.11.2024
 
-VA - Platin Chill Out & Bar Grooves (25 Wonderful Island Lounge Tunes) (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
+Месье Пип выращивает грибы / Monsieur Pyp als Champignon-Zuchter (1913) WEBRip
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98655.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thomas Lemmer-I Like It (Letting Go Mix)
-02. Simon Le Grec-Sophie
-03. Fenena Mijas-Be With You (feat. Sandrina Middleton) (Cafe Buddha Edit)
-04. Aimee Sol (feat. Jamie Fishburn)-Walls (Aqua Del Mar Edit)
-05. Lounge Deluxe-Ocean Dreams (Hotel Bar Mix)
-06. Michael E-The Nature of Sound
-07. Aqualise (feat. Jane Henley, Tony Remy)-Plonge avec moi
-08. Johannes Huppertz (feat. Twila.too)-Sapristi
-09. Thomas Lemmer-Is It Too Late (feat. Lena Belgart) (Original Album Mix)
-10. Andrea Depp-Canot(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 02:11:31
+Месье Пип бездельник, транжира и, как следствие, банкрот. Поправить свои дела он решил за счет своего состоятельного дяди. Причем довольно банально. Он наплел дяде, что мол, он начинает перспективный бизнес и скоро обогатится и вот только для начала надо вложиться и не мог бы дядя помочь (вполне по современному звучит, ага?). Дядя готов помочь, но, как человек не (   Читать дальше...   )Производство: Германия / MonopolfilmЖанр: короткометражный, комедия, немое киноРежиссер: Шарль ДекруаАктеры: нет сведенийПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:18:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E091CBBEBDF342D851845C9B7291422D1C554D2D
+magnet:?xt=urn:btih:5D59073C556BCCB8A0A19AB587747C0558C723E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -785,29 +701,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477860   (98654) от 04.04.2012
+###  Публикация: 1761370   (103060) от 19.11.2024
 
-[Wallpapers] Girls Desktop Wallpapers Pack 26
+Joe Grushecky & The Houserockers - Can't Outrun A Memory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98654.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 26 
-Название:  Girls Desktop Wallpapers Pack 26 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 5616х3744
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. This Is Who We Are (4:12)
+02. Here In '68 (4:37)
+03. Can't Outrun A Memory (4:28)
+04. Just Drive (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:11:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB6393884F5787AA98A5A36268E8E98727E81BA5
+magnet:?xt=urn:btih:14F74BB02B0F9B43A68BE9B309D8997566EAC732
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1496447   (873198) от 17.09.2021
+
+VA - The Herbal Chillout (2021) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873198.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lenny Mac Dowell - Deepest Inner
+002. Peter Oehler - African Sunrise
+003. Jusscomplex - Takin' Time
+004. The Science Fiction Club - Return(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 09:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5082D1BFC6A084279C12F4F81BEF7BBD5C70CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496394   (873195) от 17.09.2021
+
+VA - A New Harmony: Experimental Electronic (2021) [MP3|320 Kbps] <Electronic, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873195.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tlabs - Let Loose
+002. Forty Cats - Ledokol
+003. Shay De Castro - Watching Me
+004. Bitler - Rhytmichally(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 11:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E440B3522D971474E1425AF8B4CF135DB7798E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496441   (873030) от 17.09.2021
 
 VA - Summer Escape: Deep House Mixtape (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -687,64 +745,6 @@ VA - Beatport Deep House: Electro Sound Pack #58 (2020) [MP3|320 Kbps] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:058785C28F316AF76AA52D0A5DAE1B86249C0253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375121   (867111) от 13.04.2020
-
-VA - Inspiration: Vocal House Party (2020) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867111.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taffo Velikoff - You
-002. Dj Fixx - Back 2 Ya
-003. Lione With Miranda Glory - Kids
-004. Furkan Syzo - Broken Heart(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908132E107C89A183D870A5EF43EA98E9C32C0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107730   (866239) от 23.02.2017
-
-VA - Relax to House Vol. 6 (House Edition) (2017) [MP3|320 Kbps] <House, Bass House, G-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Underdog Project - Summer Jam (Wanz Remix)
-02. Cimieon, Letta - Creep (Original Mix)
-03. Roland UA - I Believe It (Original Mix)
-04. Block & Crown, Chris Marina - The Secrets (Luca Debonaire Club Mix)(   Читать дальше...   )Жанр: House, Bass House, G-HouseПродолжительность: 04:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D99171F50CF5979AF0695A455461AF9A3BF5413
 ```
 
 https://mybot314.ru/tekegram_catalog/

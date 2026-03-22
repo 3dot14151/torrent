@@ -1,3 +1,61 @@
+###  Публикация: 1087194   (146416) от 27.12.2016
+
+VA - Romantic Soul RnB (2016) [MP3|320 Kbps] <RnB, Lyric>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146416.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jahkoy Feat. Schoolboy Q - California Heaven (Bay Mix)
+002. Drake - Hotline Bling
+003. Sean Garrett Ft Lil Yachty - Look On Your Face (Clean)
+004. Musiq Soulchild - Who Really Loves You(   Читать дальше...   )Жанр: RnB, LyricПродолжительность: 06:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18048C09F1A3C5C1954CC7F6D38AD1C8062FF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348995   (139946) от 30.12.2019
+
+VA - Mode Rap Musical Collection (2019) [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139946.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nino Salas - Your Working
+002. C.U.L.T.U.R.E. - Reflective
+003. Kinto Sol - Hijos De Malinche (Feat. Pato Machete)
+004. Hi-Stakes - Dkmv(   Читать дальше...   )Жанр: RapПродолжительность: 08:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C250CA207B9DF432F887662E1811C684BFB7F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435983   (139401) от 30.12.2020
 
 VA - No More Games (2020) [MP3|320 Kbps] <Rap, Hip-Hop>

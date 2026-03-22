@@ -1,3 +1,61 @@
+###  Публикация: 1090582   (946097) от 07.01.2017
+
+VA - Similar Sound: Winter Drum And Bass (2017) [MP3|320 Kbps] <Drum And Bass, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946097.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Sun Empire - Until The World Ends (Mind Vortex remix - feat. PNC) 4:37
+002. Dub Defense - Early Morning Sun (Original Mix) 6:34
+003. The Prodigy - The Day Is My Enemy (Bad Company UK Remix) 4:03
+004. Monrroe - Fleeting Love 5:31(   Читать дальше...   )Жанр: Drum And Bass, ElectronicПродолжительность: 08:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B48046F3618CB16F2A0DA760DE1FBF04B57EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090643   (945970) от 07.01.2017
+
+VA - Kontor Top Of The Clubs: The Best of 20 Years (2017) [MP3|320 Kbps] <House, Tech House, Funky, Trance, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Mix - Kontor the Best of 20 Years - The Greatest Top of the Clubs Hits Mix (Continuous DJ Mix)  1:12:50
+02.  DJ Mix - Kontor the Best of 20 Years - The Ultimate Festival Anthems Mix (Continuous DJ Mix)  1:09:25
+03.  DJ Mix - Kontor the Best of 20 Years - The Finest Kontor House Mix (Continuous DJ Mix)  1:18:50
+04.  DJ Mix - Kontor the Best of 20 Years - The Very (   Читать дальше...   )Жанр: House, Tech House, Funky, Trance, Club, DanceПродолжительность: 12:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467852FA36B26BFF68E57EC0387DCB9D86B120E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982848   (945573) от 05.02.2016
 
 VA - Car Satellite: Full Set EDM (2016) [MP3|320 кб/с] <Electro, House, Trance, techno, Dubstep, Hardstyl, Progressive>
@@ -698,64 +756,6 @@ VA - Top Dance Stereo Playlist (2017) [MP3|205-320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DFFAD1F0D18905001C90F64F3B9062B8B29214C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091153   (943135) от 09.01.2017
-
-VA - Brand New Refreshed EDM (2017) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943135.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ralvero - U Got 2 Know (Extended Mix) 4:06
-002. Hardwell & W&W - Get Down (Clean) (Extended) 3:41
-003. Jewelz & Sparks - Crank (HWL Edit) (Clean) (Extended) 3:38
-004. Chocolate Puma & Tommie Sunshine - Take The Ride (Extended Mix) 4:42(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 08:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A670EC1BD8877E0953C1AB93B8CC86AD0B8D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091169   (943121) от 09.01.2017
-
-VA - About EDM Sweet Festival Elements (2016) [MP3|256-320 Kbps] <Dance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943121.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The 1975 - Somebody Else (Reed Streets RMX / Dirty / Cutdown) 3:48
-002. Tom Budin x WHTKD - Bad Vibe (Original Mix) 4:00
-003. Goldfish Ft. Diamond Thug - Deep Of The Night (Cutdown) 4:10
-004. Majestique - Moonlight (Short Edit) 3:02(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 08:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0911FD2C281EF3CA26D086988917A5AB6F176D45
 ```
 
 https://mybot314.ru/tekegram_catalog/

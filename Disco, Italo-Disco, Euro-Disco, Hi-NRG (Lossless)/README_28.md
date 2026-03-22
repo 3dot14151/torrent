@@ -1,3 +1,32 @@
+###  Публикация: 1782788   (25929) от 02.03.2025
+
+Dschinghis Khan - Mexico , Maxi And Singles Collection (2025) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mexico
+02. Moskau (12" Version)
+03. Rome (English Version)
+04. Rocking Son Of Dschinghis Khan (12" Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798DEC3DE5BC6C426324230FBEFCAF659790CAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784642   (24888) от 12.03.2025
 
 Maxi Talo - Emotions (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>

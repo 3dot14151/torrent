@@ -1,23 +1,25 @@
-###  Публикация: 469086   (96951) от 17.03.2012
+###  Публикация: 1764960   (101464) от 09.12.2024
 
-Росс МакДональд | Предсмертный взгляд [2002] [MP3]
+VA - VINT (2024) Lapsus Records [FLAC|Lossless|Web-DL|tracks] <Experimental, IDM, Ambient>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96951.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цикл  Лью Арчер / Lew Archer
-Оригинальное название:2002Жанр: Детектив
+01. Suzanne Ciani - Jungle VINT (4:38)
+02. Marina Herlop - Collige Virgo Gladium (2:30)
+03. Lord Of The Isles - Ca11 (3:44)
+04. Le Motel - Serenade of the Seas (4:03)(   Читать дальше...   )Жанр: Experimental, IDM, AmbientПродолжительность: 01:08:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1D9703F84F032A006E614CA87C3B33172FFBE1D
+magnet:?xt=urn:btih:BB16BCA84DB3D2ACE3877BCC0BD70A7412F3DD19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469091   (96950) от 17.03.2012
+###  Публикация: 1764898   (101463) от 09.12.2024
 
-Росс МакДональд | Человек в Кадиллаке [1995] [MP3]
+Любимые мультфильмы кота Леопольда. Выпуск 6. Трям! Здравствуйте! (1976-1989) DVD5 [Крупный план]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96950.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цикл  Лью Арчер / Lew Archer
-Оригинальное название:1995Жанр: Детектив
+Любимые мультфильмы кота Леопольда. Выпуск № 6: Трям! Здравствуйте! (Зимняя сказка, Осенние корабли, Удивительная бочка, Большой Ух, Нехочуха, Записки Пирата, Осьминожки, Большой секрет)Производство: СССР / ТО ЭкранЖанр: мультфильм, короткометражка, фэнтези, комедия, семейный, детскийРежиссер: Юрий Бутырин, Анатолий Солин, Инна Пшеничная, Раса Страутмане и др.Актеры: Клара Румянова, Георгий Бурков, Георгий Вицин, Вячеслав Невинный, Александр Пожаров, Зоя Пыльнова, Татьяна Ленникова, Виктор Проскурин, Юрий Пузырев, Рогволд Суховерко, Людмила Гнилова, Михаил Козаков, Татьяна Никитина, Сергей НикитинСубтитры: отсутствуютПродолжительность: 01:31:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A2079B9D4C29D04540E0A2FCEC922A3501B7568
+magnet:?xt=urn:btih:19147EB213F376F053C4C60473523B36567262CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,32 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469373   (96949) от 17.03.2012
+###  Публикация: 1764846   (101462) от 09.12.2024
 
-VA - Trance World Vol. 14 (Mixed by Shogun) (2012)  [MP3|320 кб/с]<Uplifting Trance>
+VA - The Best Of 2024 (2024) Gert Records [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96949.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Trance World Vol. 14 (Mixed by Shogun) (2012) 
-Год: 2012
-Жанр: Uplifting Trance
-Продолжительность: 04:41:00Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. John O'Callaghan ft Cathy Burton - Perfection (Shogun Remix)
-02. Kyau & Albert - Always A Fool (2011 Rework)(   Читать дальше...   )
+01. Mazeev - Spring  (Original Mix) (05:39)
+02. Afterus - Lost In A Moment (Extended Mix) (07:15)
+03. Nitesonik - Invictus (Extended Mix) (06:03)
+04. Moonnight & Margo Lane - I Run Away (Original Mix) (04:29)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:54:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
+magnet:?xt=urn:btih:0C4A6AF9B8F1DFE79E7B4DCFDEE827384E1C5684
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,34 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468752   (96948) от 17.03.2012
+###  Публикация: 1765153   (101461) от 11.12.2024
 
-Свободная Стая (Маста Кэш и Женя Лир) - Кто я без тебя (2012) [MP3|320 кб/с]<Hip-Hop, Rock>
+Teddy Wilson And His Orchestra - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96948.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мишель (интерлюдия)
-02. Мишель
-03. Приговор
-04. Скажи мне (интерлюдия)
-05. Скажи мне
-06. Танец с огнем
-07. 29 марта
-08. Кто я без тебя
-09. Yaroslavna
-10. Мишель (акустическая версия)Жанр: Hip-Hop, RockПродолжительность: 00:40:27
+01. Somebody Loves Me [3:07]
+02. Sweet And Simple [3:23]
+03. Liza [3:08]
+04. Rosetta [3:09](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:10:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14F5E170C1B9D4765DFE80CF3656F4A5B3B7B319
+magnet:?xt=urn:btih:48627818452AED9DFBB640E90B7416BAD5B60E2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -120,64 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469371   (96946) от 17.03.2012
+###  Публикация: 1764849   (101460) от 11.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 21
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96946.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 21 
-Название:  Desktop Wallpapers Pack 21 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D208573A179BA95C1FEE07C4CE2C34A6FA89AFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468769   (96945) от 17.03.2012
-
-Mortad - The Myth Of Purity (2012) [MP3|320 кб/с]<Melodic Death Metal / Thrash Metal>
+Faded Remembrance - 2 Albums (2023-2024) [MP3|320 Kbps] <Gothic, Doom, Death-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96945.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[03:53] 01 - All Thats Born Must Be Destroyed 
- [03:54] 02 - Waste Of My Rage 
- [05:14] 03 - The Heights 
- [05:17] 04 - Mirage 
- [04:36] 05 - Feels Like Suffocation 
- [04:48] 06 - The Myth Of Purity
- [03:08] 07 - Im Not Interested In Being Interesting 
- [04:11] 08 - By Default 
- [06:58] 09 - The Voice 
- [05:49] 10 - That Which Is Humane(   Читать дальше...   )2012Жанр: Melodic Death Metal / Thrash MetalПродолжительность: 00:47:52
+01. Vanquished Dreams [00:01:52]
+02. Dying Age [00:05:14]
+03. We Are Here [00:06:49]
+04. Tragic Journey [00:05:27](   Читать дальше...   )Жанр: Gothic, Doom, Death-MetalПродолжительность: 2 CD, 01:42:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DBAFBFE10FF283E3F2DDC7822C035A57AB117A6
+magnet:?xt=urn:btih:94395A877A45A51FBD8F8309D89035C831EE5C65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,26 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469013   (96944) от 17.03.2012
+###  Публикация: 1765066   (101459) от 11.12.2024
 
-Эллери Квин | Застекленная деревня [2010] [MP3]
+Detlev Schmidtchen - The Tears of Chronos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96944.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оригинальное название: The Glass Village 1954 год.
-Роман «Застекленная деревня» занимает особое место среди детективов, написанных Эллери Квином. По сути дела, это психологический роман с криминальной подоплекой, в котором описывается своеобразная жизнь традиционной американской глубинки. Главный герой здесь — не хорошо известный сыщик, а Джонни, племянник судьи Шинна — одного из жителей деревни Шинн-Корнерс. Убита известная жительница деревни, а в её смерти обвинён бродяга, на свою беду посетивший в этот момент Шинн-Корнерс.2010Жанр: Детектив
+01. The Beginning of the Hike [00:04:52]
+02. Among the MacKays [00:05:54]
+03. Folk of Cold [00:07:56]
+04. Poem of an Iceberg [00:06:34](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47CB14E66DBE7B3AFB1F4A52A6ADF05A07060F88
+magnet:?xt=urn:btih:DBD476E642DF005FDFB5DE7F49633240289291D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469111   (96939) от 17.03.2012
+###  Публикация: 1765088   (101458) от 11.12.2024
 
-VA - Avto Club March (2012) [MP3|320 кб/с]<Dance, House, Club>
+Те дни прошли, их не вернуть - Мы никогда не будем ближе, чем сейчас (2016) [FLAC|Lossless|tracks] <Midwest Emo, Post-Hardcore>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96939.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sebastian Pena - Black Dance (Original Mix)2012Жанр: Dance, House, ClubПродолжительность: 05:02:49
+01 - Зал ожидания [06:18]
+02 - Московские прятки [06:14]
+03 - Долина разбитых витрин [04:47]
+04 - Сезон дождей [07:17](   Читать дальше...   )Жанр: Midwest Emo, Post-HardcoreПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF5B03F1EC97B869AD073237D6BB734532574817
+magnet:?xt=urn:btih:171AD435CF2F86A65E43BD1A58F55EDF356DC27A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,26 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469051   (96938) от 17.03.2012
+###  Публикация: 1765155   (101457) от 11.12.2024
 
-Формула 1. Гран-При Австралии. 2-ая свободная практика (2012) HDTV [1080i]
+Whip - Whip, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96938.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гран-при Австралии 2012 года — автогонка чемпионата мира «Формулы-1», проходит с 16 по 18 марта 2012 года на трассе Альберт-Парк, Мельбурн, Австралия.
-Эта гонка отрывает сезон 2012 Формулы-1. Длинна трасы составляет 5303 м., на ней 16 поворотов из них 10 правых и 6 левых.Жанр: СпортПродолжительность: 01:42:57
+01. People Suffer (04:15)
+02. Get Away (05:11)
+03. Glitch in Time (04:23)
+04. Toxic Girl (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68AFB5FE6CB5087A526B8CA37DD4104569561857
+magnet:?xt=urn:btih:E09EE53A60246FD9641CEA4A599281736C9D7FE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,29 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468927   (96937) от 17.03.2012
+###  Публикация: 1764864   (101456) от 11.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 19
+Dark Lightning - The Demons We Create (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96937.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 19 
-Название:  Desktop Wallpapers Pack 19 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Glimpse of Freedom [00:01:09]
+02. Trapped Forever [00:04:31]
+03. The Unknown Mind [00:04:33]
+04. Into the Night Sky [00:03:10](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:54:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33613245815F7C67DF04B74C3C031C174AC4653F
+magnet:?xt=urn:btih:FD1B317C1FB642B9FC0D35E8DE4564786456140F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,25 +256,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469029   (96936) от 17.03.2012
+###  Публикация: 1765201   (101455) от 11.12.2024
 
-Эллери Квин | Тайна китайского апельсина [2007] [MP3]
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 6-й.  Лейпциг (Германия) - Астон Вилла (Англия) (10.12.2024) WEB-DL [H.264/1080p]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96936.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оригинальное название:2007Жанр: Детектив
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лейпциг (Германия) - Астон Вилла (Англия) (10.12.2024)
+СУДЬЯ Мариани Маурицио (Рим, Италия)
+СТАДИОН «Ред Булл Арена (Лейпциг Штадиум)» (Лейпциг)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:52:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B2711F665F4CF050AE0EE2B0E74642B3D4E5B5F
+magnet:?xt=urn:btih:E9CED3E76DC0776026AA234DA7D62CAB2AF8CD53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,29 +284,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468916   (96935) от 17.03.2012
+###  Публикация: 1765196   (101454) от 11.12.2024
 
-[Wallpapers] Girls Desktop Wallpapers Pack 5
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 6-й.  Аталанта (Италия) - Реал (Мадрид, Испания) (10.12.2024) HDTVRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96935.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 5 
-Название:  Girls Desktop Wallpapers Pack 5 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 6-й. Аталанта (Италия) - Реал (Мадрид, Испания) (10.12.2024)
+СУДЬЯ Марциняк Шимон (Плоцк, Польша)
+СТАДИОН «Атлети Адзурри д’Италия» (Бергамо)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:52:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50D5BEF5C95D1475866246A2EE9EFB40F8FA49F9
+magnet:?xt=urn:btih:A07CA2310610205A53D243BAAE2411B0607B197B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +312,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469094   (96932) от 17.03.2012
+###  Публикация: 1765240   (101453) от 11.12.2024
 
-Желание моего отца / My Father's Will (2009) DVD5
+VA - The Best Of Suanda Dance 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96932.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Богатый и успешный бизнесмен Ферро Оливетти наслаждается всеми привилегиями, которые только могут дать деньги и высокое социальное положение. Но вот умирающий отец хочет, чтобы сын исполнил его последнее желание…Жанр: ДрамаРежиссер: Фред МэнокэриэнАктеры: Виктор Альфьери, Айони Скай, Рон Сильвер, Джерри Бэммен, Уильям Уайз, Ивонна Копач, Мэтт Ньютон, Мелисса Клер, Иган Marнa, Алонсо СаундерсПеревод: Многоголосый закадровыйПродолжительность: 01:24:09
+01. Roman Messer - Irreplaceable Love (Extended Mix) (04:54)
+02. Michael Milov - Closer (Extended Mix) (04:15)
+03. SMR LVE & Waves On Waves - Falling Into Place (Extended Mix) (05:52)
+04. Roman Messer & NoMosk - Statue (Extended Mix) (03:36)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6F9F55B3EE3F1839B865A4F4E55C4D5B25E96DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,29 +341,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469366   (96931) от 17.03.2012
+###  Публикация: 1765171   (101452) от 11.12.2024
 
-[Wallpapers] Girls Desktop Wallpapers Pack 10
+Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock; Grunge>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96931.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 10 
-Название:  Girls Desktop Wallpapers Pack 10 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Джерри Фултон Кантрелл младший (англ. Jerry Fulton Cantrell Jr.; род. 18 марта 1966 года) — американский музыкант, основной автор песен, гитарист и вокалист группы Alice in Chains.1998 - Boggy Depot
+2002 - Degradation Trip
+2021 - Brighten
+2024 - I Want BloodЖанр: Hard Rock; GrungeПродолжительность: 05:04:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F55D39196EBFD42BDA75EE80B991B5909D36E43E
+magnet:?xt=urn:btih:3D119A60D7A3A103BDF8C22AC66A3ADAC6C7F0A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,25 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469227   (96930) от 17.03.2012
+###  Публикация: 1765074   (101451) от 11.12.2024
 
-0,9 Ампер / 0,9 Ampere (2009) SATRip
+Wildstreet - Origins (I-II) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96930.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Электросудорожная терапия, ранее известная как электрошок, является самым противоречивым методом лечения, но до сих пор применяется в медицине. Электрошок был изобретен невропатологом Уго Черлетти, профессором психиатрии Римского университета в конце 1930-х годов. Этот метод лечения основан на вызывании большого судорожного припадка путем пропускания электрического тока мощностью 0,9 Ампер через головной мозг пациента с помощью прикрепленных к голове электродов. Некоторые специалисты считают, что использование электросудорожной терапии должно быть прекращено, а по мнению других она по-прежнему является единственным способом лечения психических патологий. Но что на самом деле мы знаем об электрошоке?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:54:39
+01. Shake It [00:03:54]
+02. Poison Kiss [00:03:53]
+03. Cocked and Ready [00:03:58]
+04. Hot Lixx [00:03:09](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 01:03:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E98C79DA283B8E59EB3C6A60E77B1910DBD2981B
+magnet:?xt=urn:btih:60B2241AFD0315C2CA94019AD3102E4B11B34359
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,29 +399,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469612   (96929) от 17.03.2012
+###  Публикация: 1765231   (101450) от 11.12.2024
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack 3
+Пэпо (1935) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96929.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack 3 
-Название:  Fantasy Desktop Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 6970х4764
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Первый армянский звуковой фильм. По мотивам одноименной пьесы Габриэла Сундукяна.
+1870 год. Тифлис, армянский квартал. К скромной, работящей, красивой Кекел, сестре рыбака Пэпо, посватался торговец Дарчо. И для него было немаловажно, что как приданое, за девушкой дают 1000 рублей, которые были отданы несколько лет назад богатому купцу Зимзимову на хранение ее отцом, (   Читать дальше...   )Производство: СССР / АрменкиноЖанр: драма, комедияРежиссер: Амо Бек-Назаров, Армен ГулакянАктеры: Грачья Нерсисян, Татьяна Махмурян, Давид Малян, Авет Аветисян, Амвросий Хачанян, Асмик Агопьян, Григор Аветян, Нина Манучарян, Армен Гулакян, Надежда ГеворкянСубтитры: отсутствуютПродолжительность: 01:23:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55109C1EB815825F62CE514EBB43C92A0CB71B42
+magnet:?xt=urn:btih:5EACCE960BFBEBBEC68144DD6F7E2FC6212CFC26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,29 +426,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469364   (96928) от 17.03.2012
+###  Публикация: 1765065   (101449) от 11.12.2024
 
-[Wallpapers] Girls Desktop Wallpapers Pack 8
+Chicago - Back Home (Live) (1983) Remastered, 2024, Cult Legends [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96928.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 8 
-Название:  Girls Desktop Wallpapers Pack 8 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Beginnings (Live) [00:04:56]
+02. Does Anybody Realy Know What Time It Is (Live) [00:03:34]
+03. If You Leave Me Now (Live) [00:04:34]
+04. Saturday in the Park (Live) [00:04:01](   Читать дальше...   )Жанр: RockПродолжительность: 00:53:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9849459131DABA7D169AD9F8FDE79C6E9FDE6EB1
+magnet:?xt=urn:btih:20B9D669FE21BA95C4D1BA1026D1EFBCC393502C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,29 +455,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468532   (96924) от 17.03.2012
+###  Публикация: 1765159   (101448) от 11.12.2024
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack 2
+Журнал | Здоровье №12 (811) (декабрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96924.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack 2 
-Название:  Fantasy Desktop Wallpapers Pack 2 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 6496х3723
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ИД журнала «Здоровье»Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E8ACA4CB95844ACDD4A9944424D20173C908CB8
+magnet:?xt=urn:btih:DDE3FD6A5134C4435DDA275F65853B8D70BA2A02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,29 +481,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468495   (96923) от 17.03.2012
+###  Публикация: 1765163   (101447) от 11.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 13
+Журнал | Наша история №12 (66) (декабрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96923.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 13 
-Название:  Desktop Wallpapers Pack 13 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54E079BF71EABC8E4F6DFA731C7D4A373DFDF2FB
+magnet:?xt=urn:btih:415AA1D0CB605F96341C7EB1870693B7DBC28A63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,25 +507,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469412   (96922) от 17.03.2012
+###  Публикация: 1765208   (101446) от 11.12.2024
 
-Грегори МакДональд | Покойник из Найроби [1995] [MP3]
+НХЛ 2024/2025. Регулярный чемпионат. Колорадо Эвеланш - Питтсбург Пингвинз (10.12.2024) WEB-DLRip [H.264/720p]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96922.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оригинальное название:Жанр: Детектив
+11 декабря 2024, среда. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 632 зрителя (84% при вместимости 18 673)
+Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:12:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC56FDE7B4A1FEC23E7640F197AC2705FED2C685
+magnet:?xt=urn:btih:3F26A17A5844135C1E0064BA84A477F2B6526064
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,29 +534,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468913   (96921) от 17.03.2012
+###  Публикация: 1765224   (101445) от 11.12.2024
 
-[Wallpapers] Girls Desktop Wallpapers Pack 4
+John Popper - Zygote (1999) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96921.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 4 
-Название:  Girls Desktop Wallpapers Pack 4 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1440
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Miserable Bastard (7:25)
+02. Once You Wake Up (3:28)
+03. Growing in Dirt (4:23)
+04. Tip the Domino (5:06)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:01:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A9D94898C56527B2822F2530A03FF90275E2DFE
+magnet:?xt=urn:btih:5E3682C13555235C236DCB8036784C120264451F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,34 +563,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468372   (96920) от 17.03.2012
+###  Публикация: 1765397   (101444) от 12.12.2024
 
-Dada Life - March 2012 Mix (01-03-2012) [MP3|160 кб/с]<House>
+Мышь и Лев / The Mouse and the Lion (1913) WEBRip  [H.264/720p]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96920.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Angger Dimas & Bassjackers - RIA
-02 Kenneth G - Bazinga (Original Mix)
-03 Kaskade ft. Skylar Grey - Room For Happiness (Gregori Klosman Remix)
-04 Dimitri Vangelis & Wyman - Roll The Dice
-05 Steve Aoki - Ladida (Tommy Trash Instrumental Remix)
-06 Felix Cartal - Domo
-07 Wolfgang Gartner - There and Back
-08 Yves V - Mandala
-09 Style Of Eye - Devastate
-10 Bobby Burns - Next(   Читать дальше...   )Жанр: HouseПродолжительность: 00:49:54
+Небольшая детективная история о противостоянии известного сыщика и опасной банды. И в это противостояние был вовлечен мальчишка-подросток. Ну, что он может против опасных хищников. Но если мышонок наблюдателен, ловок и отважен, то и он может противостоять льву.
+Сцена, где детектив непосредственно попадает в лапы бандюков не сохранилась, но, в принципе, и так все (   Читать дальше...   )Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, драма, криминал, немое киноРежиссер: Ван Дайк БрукАктеры: Ван Дайк Брук, Лео Делани, Пол Келли, Лиллиан Уолкер, Джордж Купер, Уильям Ши, Ричард ЛеслиПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:11:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D8B7C58895C6D001443C72A2DFACB41C298A8BC
+magnet:?xt=urn:btih:2D9A2B308E106581A11568881E3B9C4A8AF2AC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,25 +590,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469023   (96918) от 17.03.2012
+###  Публикация: 1765312   (101443) от 12.12.2024
 
-Эллери Квин | Король умер [1995] [MP3]
+Shyfrin Alliance - Upside Down Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96918.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оригинальное название:1995Жанр: Детектив
+01. The Cage (4:34)
+02. Unconditional (3:15)
+03. I See Your Eyes (4:07)
+04. Upside Down Blues (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AAE770FB3016FCB328947373A22DD7F1EE671CE
+magnet:?xt=urn:btih:C18DEBA7ED449F49F602579FF56363F7A14B5837
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,29 +619,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469377   (96916) от 17.03.2012
+###  Публикация: 1765391   (101442) от 12.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 23
+Wolverine Leipzig - Machine Messiah (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96916.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 23 
-Название:  Desktop Wallpapers Pack 23 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. We Of the Never Never (03:51)
+ 02. Call the Ball (04:36)
+ 03. Grape & the Grain (04:22)
+ 04. Just Saying (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0C442F9740445AD031D329EF4DBC8290DED7A7C
+magnet:?xt=urn:btih:86F2256F5035A871C61FD0AC6EAB7D9B9C646DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,29 +648,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468512   (96914) от 17.03.2012
+###  Публикация: 1765315   (101441) от 12.12.2024
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack
+Terry Wilson Slesser feat. Back Street Crawler Band - Forever Blue (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96914.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Fantasy Desktop Wallpapers Pack 
-Название:  Fantasy Desktop Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х960 - 4096х1823
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Love Is Blind (4:24)
+02. Day by Day (4:27)
+03. Checkmate (4:50)
+04. Savage Amusement (4:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:996656306FBA9B1A027F43E288210E2D186F09D0
+magnet:?xt=urn:btih:55A1ED648D4B8494729E058F38791A21ECB700BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -730,34 +677,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468727   (96913) от 17.03.2012
+###  Публикация: 1765314   (101440) от 12.12.2024
 
-VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.13 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+SOBA, Moussa Koita, Emile Biayenda - Fiman (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96913.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.DJ Dark & Shidance feat. Raisa - Da Bomb (Radio Edit)
-02.Митя Фомин - Beautiful Rose
-03.Play-N-Skillz feat. Pitbull - Richest Man
-04.DJ Sanny J & D@niele feat. Xavi One - Bomb Of Love (Radio Edit)
-05.Soda - Разлука
-06.Kato feat. Snoop Dogg & Brandon Beal - Never Let you Go
-07.Павла - One Million Butterflies
-08.Ірина Федишин - Твоя
-09.DJ Clubactive (In & Out) - Разбитые Слова (Original Mix)
-10.Andra - What About Us (Radio Edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 04:09:36
+01. Fiman (3:39)
+02. Tounga (4:19)
+03. Deme (3:37)
+04. Faso Den (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C7753739B2C6F545C19C9BDC5368BF2A4A9D245
+magnet:?xt=urn:btih:D907E1ED6492D529AFB9732780BEC177B04BDB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765309   (101439) от 12.12.2024
+
+DeWolff - Muscle Shoals (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psych, Southern Rock, Bluesy>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Love (3:13)
+02. Natural Woman (3:06)
+03. Out On The Town (4:25)
+04. Let's Stay Together (3:02)(   Читать дальше...   )Жанр: Psych, Southern Rock, BluesyПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA0852093E174F51D4DD497BCE0CB54A21CDF59
 ```
 
 https://mybot314.ru/tekegram_catalog/

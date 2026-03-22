@@ -1,3 +1,119 @@
+###  Публикация: 1462875   (1020873) от 16.04.2021
+
+Robbie LaBlanc - Double Trouble (2021) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Human
+02. Start The Motor Running
+03. Good Time
+04. Voodoo Woman(   Читать дальше...   )Жанр: AORПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD5A53F04111C9AF6BAB876C6F139BDCEBED696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462267   (1020857) от 16.04.2021
+
+The Rasmus - The Rasmus (2012) Tour Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger [03:58]
+02. I'm A Mess [04:12]
+03. It's Your Night [03:37]
+04. Save Me Once Again [04:35](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CBD52253D38BFB6B54D2B3BEF71381A0EEA20A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463151   (1020692) от 17.04.2021
+
+Unitopia - Тhе Gаrdеn (2008) 3xCD, Reissue, Remastered, 2020,  ProgRock.com's Essentials [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020692.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. One Day
+02. The Garden
+- The Garden Of Unearthly Delights(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 02:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8BBD2B56CCF73D5932CA50B460AB6A56838EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463119   (1020665) от 17.04.2021
+
+Al Stewart - 2 Albums, 3 Box Set, 14 CD (1967 - 1993) [FLAC|Lossless|image + .cue | tracks + .cue]<Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Like
+02. Angel Of Mercy
+03. Don't Forget Me
+04. Peter On The White Sea(   Читать дальше...   )Жанр: Folk RockПродолжительность: 10:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF604D24B7EBF6FB367FFDC1BD99C04AE00574CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463141   (1020632) от 17.04.2021
 
 The Night Flight Orchestra - Aeromantic (2020) Japanese Edition [WavPack|Lossless|image + .cue] <Melodic Rock, AOR>
@@ -629,122 +745,6 @@ Galaad - Frat3R (2019) [FLAC|Lossless|image + .cue] <Progressive Rock, Eclectic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF7282B45072E718DDBCC0093803C37C20D40465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466656   (1018258) от 01.05.2021
-
-Escape - Fire in the Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost and Found (04:34)
-02. Heroes in the Night (04:39)
-03. Temptation (04:33)
-04. Restless Heart (04:34)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5650DDD4861ACA4AC7BEC30AD216C17B5ABE0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466777   (1018194) от 01.05.2021
-
-David Gilmour With Romany Gilmour - Yes, I Have Ghosts (2021) EP [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes I Have Ghosts
-02. Tell The Truth
-03. Astral Dust
-04. KokinelЖанр: RockПродолжительность: 00:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FB57B1495794B069E89788C9CEBF3969A9E772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466834   (1018122) от 02.05.2021
-
-Escape - Borderline (2013) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost And Found
-02. Coming Home
-03. Marianne
-04. Restless Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE09E8D1DE6ADC0CDA78C916C67CC1B183BE872D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466836   (1018120) от 02.05.2021
-
-Escape - Unbreakable (2012) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Alive
-02. Unbreakable
-03. Best Of Me
-04. Living On The Wrongside(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D5B7BD8F637B5CBA1BB052FCCEAEB7EEC1C33B
 ```
 
 https://mybot314.ru/tekegram_catalog/

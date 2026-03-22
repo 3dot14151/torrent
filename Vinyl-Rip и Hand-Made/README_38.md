@@ -1,3 +1,351 @@
+###  Публикация: 963735   (285125) от 09.12.2015
+
+Кипелов - Отражение (2013) [WavPack 2.0 32/192 | image+.cue (Vinyl-Rip) | Lossless]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сальери и его отражение [06:51]
+02 - Ария Надира [04:32]
+03 - Мёртвая зона [06:19]
+04 - Я свободен [07:15](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0692437317D1665851153A801944104FE2AB21F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964202   (283640) от 10.12.2015
+
+Peter Gabriel - So (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Rain (5:39)
+02. Sledgehammer (5:16)
+03. Don't Give Up (6:29)
+04. That Voice Again (4:54)(   Читать дальше...   )Производство: VirginЖанр: RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4A3DDACCF14D0DD34F765F28D8A825540FA04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081655   (282679) от 10.12.2016
+
+Гарри Гродберг - И. С. Бах - Токкаты (1975) [WavPack|192/32|tracks|Vinyl-Rip|Lossless] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Toccata In D Minor, B. 565  8:22
+Toccata In C Major, B. 564
+2. (Allegro)  6:14(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD12A25ED340DB6E47FBCCF0FF80D700A77E692E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082094   (280157) от 11.12.2016
+
+Modern Talking - Ready For Romance (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Italo-Disco, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Брат Луи (Brother Louie)  3:40
+02. Лишь мы вдвоем (Just We Two (Mona Lisa))  3:56
+03. Леди Лэй (Lady Lai)  4:56(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ABC07BE618FA632E5E68B9C35A4B681867409E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082282   (278409) от 12.12.2016
+
+Didier Marouani - Space Opera (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part 1 (4:41)
+02. Part 2 (2:53)
+03. Part 3 (3:51)
+04. Part 4 (Save Our Soul) (4:44)(   Читать дальше...   )Производство: Мелодия АЗГ - A60 00381 006Жанр: ElectronicПродолжительность: 00:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8E74D059D9D1D194B982BBB5F1DBBC622D4D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416481   (275658) от 09.11.2019
+
+Led Zeppelin - IV (1971) [FLAC 2.0 24/96 | tracks (Reel-to-Reel Rip)]<Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Dog [00:04:56]
+02. Rock And Roll [00:03:41]
+03. The Battle Of Evermore [00:05:49]
+04. Stairway To Heaven [00:08:00](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201D0336BABEE1528F539A4F45741B61C5376482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083119   (274502) от 15.12.2016
+
+Братья Жемчужные - Я решил жениться (1994) Запись 1974 г. [FLAC 2.0|44,1/16|tracks|MC-Rip] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я решил жениться
+02. Поезд ехал на Восток
+03. Госпожа Разлука
+04. Школа бальных танцев(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:51
+Страна-производитель: Russia
+Номер по каталогу: none
+Кодек: FLAC (tracks)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D41A13F515B30E2E89B5773073B480A36480D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083755   (273474) от 16.12.2016
+
+Yello - You Gotta Say Yes To Another Excess (1983) 1984, Stiff Records [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273474.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Love You (3:25)
+A2. Lost Again  (4:19)
+A3. No More Words  (3:58)
+A4. Crash Dance  (2:09)(   Читать дальше...   )Производство: Stiff Records - STLP/1017Жанр: ElectronicПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3650B4A4BD311C3AC47AA26CDBBBC25CB4387D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188812   (273346) от 03.12.2017
+
+VA - На теплоходе музыка играет. Песни В. Добрынина (1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. О. Зарубина - На Теплоходе Музыка Играет
+02. А. Серов - Пустыня
+03. ЧП - Жила-Была Речка
+04. Н. Гнатюк - Папа И Мама(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324FB79EF7A443BA48C008F1CACFD22DC62CDA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188830   (273235) от 03.12.2017
+
+VA - Синий Туман. Песни В. Добрынина (1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В. Добрынин - Синий Туман
+02. В. Легкоступова - Капля В Море
+03. А. Глызин - Треугольник
+04. С. Лазарева - Желтые Кораблики(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13CDAE0C49A94E23FCA50DCF35F3567E5EFC8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275827   (267389) от 05.12.2018
+
+Antonio Vivaldi - The Four Seasons (2008) [MLP 2.0, 4.0 96/24 |DVD-Audio (SACD-Rip)]<Classic Music, Orchestral>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Music , OrchestralПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68931F50CC4CB096C1F0351624C2DE1B6AC9932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191929   (263708) от 15.12.2017
+
+Electric Light Orchestra - A New World Record (1976) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263708.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tightrope (5:04)
+A2. Telephone Line (4:40)
+A3. Rockaria! (3:12)
+A4. Mission(A World Record) (4:27)(   Читать дальше...   )Производство: United Artists - GP 530Жанр: Progressive RockПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192188   (263373) от 16.12.2017
 
 Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
@@ -402,354 +750,6 @@ A4 We Got A Break It Out 3:49(   Читать дальше...   )Жанр: Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB79DA06D4ED4937142EDE4FEE9B68A0DF7E927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624897   (255414) от 08.04.2023
-
-Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255414.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mr. Roboto
-A2 Cold War
-A3 Don't Let It End
-A4 High Time(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD76E048CE74CB7EB0D235AFE84112F604B6A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625027   (255339) от 10.04.2023
-
-Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255339.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Manic Monday
-A2 In A Different Light
-A3 Walking Down Your Street
-A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625837   (255306) от 11.04.2023
-
-Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Camera Never Lies
-A2 Easy Love
-A3 Love Dies Hard
-A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625753   (255302) от 11.04.2023
-
-Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-
-1. I hear talk 4:34
-2. Indebted to you 4:29(   Читать дальше...   )Жанр: BritPopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625760   (255300) от 11.04.2023
-
-Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255300.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Waiting On The Border Line (3:46)
-A2. How Do You Feel Now (4:51)
-A3. Back To The Wall (5:12)
-A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625644   (255296) от 11.04.2023
-
-Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Rock, Math Rock, Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brutus — бельгийская рок-группа из провинции Фламандский Брабант, образованная в 2013 году.2015 - Brutu Guru (EP)
-2015 - Major / Bye Julia (Triptych EP)
-2017 - Burst
-2019 - NestЖанр: Progressive Rock, Math Rock, Punk RockПродолжительность: 02:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625981   (255266) от 12.04.2023
-
-Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255266.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Run For Your Life 4:08
-A2 10, 9, 8, 7, 6, 5, 4  4:24
-A3 I Do It All For You 4:04
-A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626464   (255201) от 14.04.2023
-
-Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255201.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Piece Of The Action 3:37
-A2 Midnight Reservation 3:42
-A3 It's Got To Be Love 3:08
-A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626965   (255126) от 16.04.2023
-
-Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You & I
-02. This Is The World
-03. Jerusalem
-04. Prego(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627632   (254994) от 20.04.2023
-
-Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		Беспокойный Пульс = Restless Beat	4:10
-A2		Печаль = Sadness	4:20
-A3		Испанский Мотив = Spanish Theme	3:40
-A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628322   (254888) от 23.04.2023
-
-Раймондc Паулс - Мой Путь (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Smooth Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254888.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Увеселитель - The Entertainer (S. Joplin)
-А2 Как Велика Твоя Любовь - How Deep Is Your Love (В., M., R. Gibb)
-АЗ Здравствуй! - Salut! (C. Pallavicini)
-А4 Мой Путь - My Way (P. Anka)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 30:4:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628677   (254852) от 24.04.2023
-
-Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy In The Night (Barking At Airplanes) 3:39
-02. One Kiss 3:32
-03. Begging For Favors (Learning How Things Work) 4:53
-04. He Makes The Sun Rise (Orpheus) 4:30(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

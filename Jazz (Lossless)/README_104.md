@@ -1,3 +1,174 @@
+###  Публикация: 1402262   (703931) от 13.08.2020
+
+Frances Madden - Beautiful World (2020) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful World [3:23]
+02. Paris Melody [3:46]
+03. You're Doing So Well [4:31]
+04. Side By Side [4:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DBB9D31DC24490648857059C8C5D5C26405F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402194   (703928) от 13.08.2020
+
+John Zorn - Baphomet (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baphomet (39:08)Жанр: Jazz-RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B236BF53864CB0B1A5F7B5310463CA17DED662A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132213   (703200) от 08.05.2017
+
+Dave Frishberg - Lookin Good (1977, 1989) 2CD, 2001, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703200.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lotus Blossom [04:12]
+02. (I Would Do) Anything for You [02:55]
+03. Stevedore Stomp [02:22](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Vocal JazzПродолжительность: 01:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE35C84B43E7383872A09E91BBE4BEBBA330EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132217   (703197) от 08.05.2017
+
+Eric Alexander - Nightlife In Tokyo (2003) Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nemesis [08:01]
+02. I Can Dream, Can't I? [08:00]
+03. Nightlife in Tokyo [06:37]
+04. I'll Be Around [08:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0111304FE37FF168952E9B4F61F31C7151DDD028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026681   (702528) от 16.06.2016
+
+The Three Sounds - Here We Come (1960) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Now's The Time [05:42]
+ 02.Summertime [05:43]
+ 03.Here We Come [04:43]
+ 04.Just Squeeze Me [04:21](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC51D6596042BE78ACF4BD90BD485EA0E8AF823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026679   (702520) от 16.06.2016
+
+Johnny Griffin & Matthew Gee - Soul Groove (1963) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oh Gee! [02:22]
+ 02.Here [05:11]
+ 03.At Sundown [04:52]
+ 04.The Swingers Get The Blues Too [08:01](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE51A88DD097BC613DF93ADE4C01228161FD63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026767   (702518) от 16.06.2016
 
 Joe Lovano & Dave Douglas - Sound Prints (2015) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -571,181 +742,6 @@ Andy Bey - Tuesdays in Chinatown (2001) Warlock Records [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:693648499A52D168534488A83268FAF31F1FB736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704461   (700554) от 09.05.2017
-
-VA - George Gershwin Songbook (Jazzclub Highlights) (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джордж Гершвин (настоящее имя Jacob Gershowitz) прожил короткую (1898—1937), но очень яркую жизнь. Перемешавшаяся одесская, петербургская и еврейская кровь бурлила в нем и выходила наружу гениальными произведениями. В 18 лет первый дебют на Бродвее, в 20 - ошеломляющий успех там-же и до смерти в 39 лет великолепные работы, получившие мировое признание.
-С его именем (   Читать дальше...   )01. Billie Holiday - They Can't Take That Away from Me (4:13)
-02. Helen Merrill - Summertime (3:28)
-03. Ella Fitzgerald and Louis Armstrong - Let's Call the Wohle Thing Off (4:15)
-04. Sarah Vaughan - Embraceable You (4:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A421B3A7F3602BE5570851680C7C365E7F789C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402544   (700056) от 15.08.2020
-
-The David Angel Big Band - Camshafts And Butterflies (1973, 1975) 2015, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early Morning Fog Bank/Early Morning Sunrise [5:46]
-02. Camshafts and Butterflies [2:03]
-03. For B and D [7:50]
-04. Perk's Tune [8:34](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83DEC27E658FC3890E55DF8AF429A56FF143CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533938   (699666) от 27.02.2022
-
-Duke Ellington - Things Ain't What They Used To Be (1966, 1969) 1996, LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smada [2:59]
-02. La Plus Belle Africane [12:20]
-03. Azure [7:17]
-04. Satin Doll [5:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039B202BB75B51A977E3A618C2F4D0CDB5F147C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132813   (698982) от 10.05.2017
-
-Johnny Smith Trio - Designed For You (1959) Remaster, 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fools Rush In [02:41]
-02. I'll Remember Clifford [04:09]
-03. The Lady Is A Tramp [02:50]
-04. There Will Never Be Another You [03:11](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12596D6D802815DE46D925D34DDD4D5E9F16A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220828   (698810) от 22.04.2018
-
-Martial Solal - At Newport '63 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poinciana [04:34]
-02. Clouds [03:06]
-03. Suite Pour Une Frise [11:56]
-04. Stella By Starlight [04:21](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A961D30259745987C4732FE23D5A0FB181A5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221056   (698809) от 22.04.2018
-
-Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burt's Pad [09:47]
-02. Marcel The Furrier [06:01]
-03. Ondine [03:10]
-04. Stardust [05:11](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F45EBC89606A5228F6D164D39876F77767F64A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

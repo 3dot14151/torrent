@@ -1,3 +1,119 @@
+###  Публикация: 1481180   (1008468) от 02.07.2021
+
+Escape - Fire In the Sky (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost And Found (4:35)
+02. Heroes In The Night (4:40)
+03. Temptation (4:33)
+04. Restless Heart (4:35)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA79E7139DD7140DC063ABB9EC8D722D6AEFAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481183   (1008442) от 02.07.2021
+
+Ring Van Mobius - The 3rd Majesty (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Seven Movements Of The Third Majesty (22:06)
+a) Universal
+b) Spectrum
+c) Reaction(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44353329AF8F176EA35F122AD60EBCE58D639A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481320   (1008429) от 02.07.2021
+
+Atlanta Rhythm Section - Atlanta Rhythm Section (1972) Remaster, 1991,  MCA Records [FLAC|Lossless|image + .cue] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008429.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Me Just A Little (Sometime) - 6:05
+2. Baby No Lie - 3:52
+3. All In Your Mind - 3:18
+4. Earnestine - 2:34(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD1FA33CEAF7A4C554C9D5B1E7F8BF5851DE558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481429   (1008322) от 03.07.2021
+
+Shooting Star - 2 Albums (1982 - 1983) Remastered, 2007, Renaissance Records [FLAC|Lossless|tracks + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preview
+02. Straight Ahead
+03. Taken Enough
+04. Go For It(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F31D87D45D8C88652AE67581FC6643371B5888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481662   (1008038) от 05.07.2021
 
 Lind - A Hundred Years: The Justification Of Reality. Part I (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -629,119 +745,6 @@ Barrock - Oxian (1994) [FLAC|Lossless|image + .cue] <RPI>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:610BC7EAFA848D3228336289117B95386323A1CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349650   (1004226) от 02.01.2020
-
-Mark Knopfler - More BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Folk, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dixie Flyer (ft. Randy Newman)
-02. Roll with Punches (ft. Randy Newman)
-03. You Better Move On (ft. Randy Newman)
-04. Blue Monday (ft. Dave Bartholomew)(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:054C02C5F8CA409E60B32D47EF82557AB2F65316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487131   (1004143) от 03.08.2021
-
-Anekdoten - Until All the Ghosts Are Gone (2015) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shooting Star
-02. Get Out Alive
-03. If It All Comes Down to You
-04. Writing On the Wall(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DE5EE12BADBFD6A843084A8529400A0930EB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657158   (1003831) от 04.08.2021
-
-The Steamboat Band - Runners And Riders (1995) [FLAC|Lossless]<Rock, Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE4DC231C5D52F3E9D5A7E0D8FB0BDE4FB9A777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839238   (1003372) от 27.11.2025
-
-Queen - Live At The Rainbow '74 (1974) 2xCD, SHM-CD, Japanese Edition, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Prog Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Queen II Tour Live At The Rainbow, March '74:
-01. Procession
-02. Father to Son
-03. Ogre Battle(   Читать дальше...   )Жанр: Classic Rock, Prog Rock, GlamПродолжительность: 02:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE89F4C7CFCBE288D220B5CE759DB4B9D6F187A
 ```
 
 https://mybot314.ru/tekegram_catalog/

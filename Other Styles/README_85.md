@@ -1,3 +1,148 @@
+###  Публикация: 1297861   (602652) от 25.04.2019
+
+Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Acoustic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602652.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Running Through Woodland
+2.Hidden Beneath
+3.Pretend To Forget
+4.Hope(   Читать дальше...   )Жанр: Ambient, Instrumental, AcousticПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4724E63B3C44A9934D9B80C601A4BF010BE30B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297927   (602644) от 25.04.2019
+
+VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602644.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Could It Be Magic -	4:20
+2.	Earth Song -	7:42
+3.	Conquest Of Paradise -	5:02
+4.	Heaven For Everyone -	5:19(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0680EB0A570C4C3B621B0C98987A3C2054290229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149130   (602539) от 09.07.2017
+
+Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in Familiar Sorroundings 04:43
+02. Shifting Sands 03:45
+03. Warm Embrace 03:15
+04. Dance of the Unknown 03:46(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907614CBF95A2726B73B3EC50F9AF6CBC116D8F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149111   (602538) от 09.07.2017
+
+Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in Familiar Sorroundings 04:43
+02. Shifting Sands 03:45
+03. Warm Embrace 03:15
+04. Dance of the Unknown 03:46(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D35B2407ED0629CA3FCF090324D4253423AD8F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149150   (602518) от 09.07.2017
+
+Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Ethno>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aspiration For Awakening (04:31)
+2. Atlantis (04:23)
+3. Myth (04:24)
+4. New Capability (05:10)(   Читать дальше...   )Жанр: New Age, Ambient, EthnoПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8CFF43D0F8CA62D782B56F24FF290A87C9CF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148736   (602505) от 09.07.2017
 
 Dolly Parton - The Real... Dolly Parton (The Ultimate Collection) (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country>
@@ -602,169 +747,6 @@ Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A2B30A09E01998141F9F156A1DAF8852E537EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038719   (599521) от 30.07.2016
-
-Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North American Traditions>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star People    07:25
-02. Those Human Ways    04:49
-03. Black Hills    02:40
-04. On Eagles Wings    04:18(   Читать дальше...   )Жанр: Native American, North American TraditionsПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F3C4E5E1BAB5E1EE54A0FB200D27F19A0CDB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526345   (599354) от 23.07.2012
-
-Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка из фильмов гениального режиссёра, актёра и композитора Чарли Чаплина. Альбом на двух дисках, автор первого — Чарли Чаплин, второго — Карл Дэвис. Красивая музыка, соответствующая немому кино — оркестровая, живая, передающая атмосферу на экране.1. The Floorwalker (3:31)
- 2. The Fireman (4:53)
- 3. The Vagabond (5:42)
- 4. One A.M. (6:27)
- 5. The Count (3:37)
- 6. The Pawnshop (8:27)
- 7. Behind the Screen (6:29)
- 8. The Rink (7:47)
- 9. Easy Street (6:52)
- 10. The Cure (7:29)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C314282D289B75C63DE5551DBA2460CE16FC6BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525747   (599338) от 23.07.2012
-
-VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599338.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Antares - The Horses Go (4:38)
-2. Bayou Angels - Live With Me (4:04)
-3. C.J. - Bloom (5:27)
-4. D-Juice - 5-th Ocean (6:12)
-5. D-Juice - Fatique (5:25)
-6. DJ Kritoff feat. Reachy Style - The Snow (3:53)
-7. DJ Limiter - Navakho (6:15)
-8. DJ Limiter - The Clockwork Planet (5:16)
-9. DJ Murena - More, Than Anything (6:17)
-10. DJ Murena - N.Y.2001 (4:59)(   Читать дальше...   )Жанр: New age, Meditative, Relax, FlamencoПродолжительность: 04:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A2F2B12C840CA2CAB142EBBC474A594C3D89F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525666   (599217) от 23.07.2012
-
-Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native American, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Need A Change
-02. Falling Rain
-03. Desert
-04. Old Days
-05. Why Do
-06. Mercy On The Teople
-07. Indian Groove
-08. Lost My Love
-09. Iyna
-10. Spring (live-improvisation)Жанр: New Age, Native American, MeditativeПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2692E68222BD91D60820C1E3DC50472D2D71EE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232599   (598375) от 25.06.2018
-
-Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish Skies
-02. The Day of Absurdity
-03. The Endless Apartment Search Waltz
-04. Reminisce(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF962DB175B1ABAF4258843BF0DF398E5863422
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1713076   (60333) от 08.04.2024
+
+VA - 2010s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Rap, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60333.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Ronson, Bruno Mars - Uptown Funk (feat. Bruno Mars)
+002. Tom Odell - Another Love
+003. John Legend - All of Me (Ti?sto's Birthday Treatment Remix - Radio Edit)
+004. Miguel - Sure Thing(   Читать дальше...   )Жанр: Pop, Rock, RnB, Rap, DanceПродолжительность: 06:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A4C1A42F98108AB7FA9628680B3C80F3B29008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717605   (59060) от 21.04.2024
+
+Modern Talking - Collection (2024) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни Modern Talking похожи на холст, на котором композитор и вокалист пишут музыкальную картину, постепенно рисуя элементы.  Пример того, когда встречаются и обьединяются гениальные музыканты, получаются бессмертные шедевры на все времена. Очень тёплая музыка и приятный голос, как бы обнимают вас и уносят в свой мир ностальгии. Знаю и люблю творчество этого дуэта, (   Читать дальше...   )001. You're My Heart, You're My Soul
+002. You Can Win If You Want
+003. There's Too Much Blue In Missing You
+004. Diamonds Never Made A Lady(   Читать дальше...   )Жанр: DiscoПродолжительность: 09:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E542DC57151BF372887CCE54ECFBBAC95DE60232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717620   (58992) от 21.04.2024
+
+VA - German Top100 Single Charts 19.04.2024 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artemas - i like the way you kiss me (2:22)
+002. twenty4tim & Dieter Bohlen - Cheri Cheri Lady (2:53)
+003. Benson Boone - Beautiful Things (3:00)
+004. Cyril - Stumblin' In (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0616E9825E5110218A1B64B7C4CD5D9036622F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718908   (58379) от 27.04.2024
+
+VA - Весна на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Training Season (Live at the BRIT Awards 2024) (3:39)
+02. Alan Walker feat. Daya - Heart Over Mind (3:09)
+03. Artik & Asti - Качели (3:46)
+04. R3Hab & Vize & Jp Cooper - Jet Plane (2:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B985A2640962E339D22D4CE367D494E31C9272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718951   (58273) от 28.04.2024
+
+C.C. Catch - Collection (2024) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58273.jpg" />
+</div>
+
+
+###  Подробнее
+
+В моём детстве, в 80х, творчество C.C. Catch, почему то прошло мимо. А в 90х я уже был ярым металюгой и кроме тяжеляка не замечал ничего. Впервые, осознанно увидел и услышал, уже с появлением инета. Это был клип Strangers By Night. Понравилась сразу и внешне и голос. Певица обладает сильной притягательностью и фишкой в манере исполнения. С тех пор и люблю её клипы (   Читать дальше...   )01. Cause You Are Young
+02. Can Lose My Heart Tonight
+03. You Shot A Hole In My Soul
+04. One Night's Not Enough(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF200B305907236A04000DD16ABD6DAE167DD56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719350   (57853) от 02.05.2024
+
+Ицык Цыпер / Игорь Цыба - Трекография (2022-2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_57853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Istanbul
+02. Kelshi
+03. Адамшылык
+04. Адреналин(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15145BB9156F7F86BD37F478F6034C09195B27FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719785   (57847) от 02.05.2024
 
 VA - Dario Caminita: Classic Revibes Collection Vol. 04 (2021) [MP3|320 Kbps] <Disco, Dance>
@@ -568,180 +742,6 @@ VA - Arabian Miriage (2024) [MP3|320 Kbps] <Instrumental Pop, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCEB6C612DA31380D10AD1529336AB288DD41CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744130   (45751) от 24.08.2024
-
-VA - Compilation  part 114 New Eurodisco (2024) [MP3|320 Kbps] <New Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Val - Through the Silence
-02. Ai Talking - Blood and Milk Girl
-03. Ai Talking - Alien Love, Alien Groove
-04. Ai Talking - Mysteries of the Night Castle(   Читать дальше...   )Жанр: New EurodiscoПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57102198055920FCE87B14196DF266F95956E9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745075   (45477) от 27.08.2024
-
-VA - Compilation  part 115 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rachel Santos - You’re My Lover, Secret Lover
-02. Italove - L'amour
-03. Lian Ross - Can You Love Me
-04. Night Club - Die in the Disco(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF9083ACFE0CEFC861724157A89ADE95C27D73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746501   (45056) от 31.08.2024
-
-VA - German Top 100 Single Charts 30.08.2024 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45056.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shirin David - Bauch Beine Po (2:13)
-002. AYLIVA & Apache 207 - Wunder (2:56)
-003. Adam Port, Stryv, Keinemusik, Orso & Malachiii - Move (2:57)
-004. Artemas - i like the way you kiss me (2:22)(   Читать дальше...   )Жанр: PopПродолжительность: 04:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A31EC8910A17122D0BC9F15117E4D5C870F3BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748109   (44136) от 09.09.2024
-
-VA - Свежий Русский Хит от ALEXnROCK часть 16 (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже много лет я не слежу и не интересуюсь западными музыкальными новинками. Потому что давно понял, всё интересное и прорывное запад уже выдал. А дальше, глобалисты для того чтоб стереть индивидуальность и превратить человечество в одинаковое управляемое стадо, отравили рок индустрию альтернативой. Тем самым убив качественный рок. А позднее и поп музыку. Недавно (   Читать дальше...   )001. Марк Тишман - Внутренний Ребенок
-002. Люся Чеботина - Командир
-003. Ислам Итляшев - Танцы
-004. Mary Gu - Целуешь ее(   Читать дальше...   )Жанр: PopПродолжительность: 03:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C116ABA147F56D769EC5D3D007F0C84E7F93308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747732   (44102) от 09.09.2024
-
-VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Pierce - Fog
-02. Black Sabbath - Dying for Love
-03. Michael Oakley - Left Behind
-04. Joy Peters - Winter in My Heart(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 03:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B23CA1F1220F85CCF61779A3978C02A1524DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749291   (43685) от 13.09.2024
-
-VA - Summer Green Dancefloor (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kita Alexander - Butterflies
-002. Edie Anderson - Turn It Up
-003. Juan Daniel, Marquess - Yo Volare
-004. Ricardo Montaner - Yo Que Te Ame(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5393F35E3DC7C09349DF06C2C9351D22A1E3522
 ```
 
 https://mybot314.ru/tekegram_catalog/

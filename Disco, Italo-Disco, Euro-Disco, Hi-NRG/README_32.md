@@ -1,3 +1,32 @@
+###  Публикация: 1575623   (375382) от 10.09.2022
+
+Sophie - My World (1989) [OGG Vorbis|485 Kbps] <Electronic, Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.		My World	3:48
+02.		Same	4:35
+03.		Tonite Tonite	3:52
+04.		Rapture  4:40(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EurobeatПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F258834236014ED440E52B110A1EE9C212CF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175862   (374427) от 20.10.2017
 
 Hi-Gloss - You'll Never Know (1981) Reissue CD, Unidisc, 1992 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -716,35 +745,6 @@ Stratavarious - Stratavarious (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BEAA4A79D0AACC5E9AE8A341DA6283D2A032C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071980   (354538) от 12.11.2016
-
-Paul Parker - Too Much To Dream (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный альбом, особенно для любителей творчества Patrick Cowley, где он выступил как: продюсер, синтезаторщик, клавишник и в 5-ти треках как композитор.01. Love's On The Line (6:12)
-02. Shot In The Night (6:03)
-03. Too Much To Dream (5:59)
-04. Baby You Can Have My Lovin' Anytime (4:44)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB11B9A88D345CAFBDB768780DFBBEDD6A4BA1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

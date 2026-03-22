@@ -1,3 +1,177 @@
+###  Публикация: 1251865   (413499) от 03.10.2018
+
+VA - New Music Releases Week 34 of 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413499.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Radiant Children - Tryin'
+002. Ozuna - Ibiza (Feat. Romeo Santos)
+003. Conor Matthews - Inside Out
+004. R3hab, Sofia Carson - Rumors (With Sofia Carson)(   Читать дальше...   )Жанр: DanceПродолжительность: 10:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF735D0553C8F187060406D681E9E0958ACCE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412751   (413469) от 01.10.2020
+
+VA - Radio DFM Top D-Chart Сентябрь (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Smash feat. Poët - БЕГИ (Denis Bravo Remix) (3:05)
+02. Мари Краймбрери - Океан (Denis Bravo Remix) (3:50)
+03. RAYE - Natalie Don't (Denis Bravo Remix) (3:25)
+04. Макс Барских & Джаро - Lonely (DJ Noiz Remix) (2:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC4B2ECB71E00AC95C8A69CCB17B7C7C7B50080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251876   (413368) от 03.10.2018
+
+VA - New Music Releases Week 35 of 2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Troye Sivan - This This
+002. West Coast Massive, Brayton Bowman - High & Low
+003. The Faim - A Million Stars
+004. Tash Sultana - Cigarettes(   Читать дальше...   )Жанр: DanceПродолжительность: 08:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B18DE39235D6785038D2B4A48B13077AA9E365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252063   (413355) от 03.10.2018
+
+VA - Dance Compilation 3 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A & E Project - The Birth Of Galaxy
+02. Bassregion - At The Rate Limit
+03. BloodDropz! - Zone Of Alienation
+04. D.V.Project - Dance World(   Читать дальше...   )Жанр: DanceПродолжительность: 05:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B8AAAA97B98B4A789655C28E8B30023A48D8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251726   (413352) от 03.10.2018
+
+VA - New Music Releases Week 39 of 2018 (2018) [MP3|192 - 320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413352.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juicy J, Travis Scott - Neighbor
+002. Culture Shock - Get Physical
+003. Tank, the Bangas - Spaceships
+004. Kinnerman - Promised Land(   Читать дальше...   )Жанр: DanceПродолжительность: 15:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC2B249A0BB97023DEDFE433A61B954BB2DF252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251839   (413183) от 03.10.2018
+
+VA - Popular Lyrical Ballads (2018) [MP3|320 Kbps] <Pop, Lyric, Ballad>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413183.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Air Supply - All Out Of Love
+002. David Essex - Hold Me Close
+003. Jennifer Rush - The Power Of Love
+004. Marvin Gaye - Sexual Healing(   Читать дальше...   )Жанр: Pop, Lyric, BalladПродолжительность: 09:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0D7F33EF54546538AB78C86C48D6831C1D2B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572710   (412534) от 31.08.2022
 
 Lindsay Ell - Compilation (2022) [MP3|320 Kbps] <Pop, Pop Rock>
@@ -583,192 +757,6 @@ VA - Радио Шторм - Русский Шторм - 73 (2012) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9841F7CD86729F5760EC7C033E4C529DDEF05AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067247   (408474) от 28.10.2016
-
-VA - Осенняя клубничка №10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Giorgio Moroder - Deja Vu
-002. Cade - Care
-003. Сандра Круглова - Мгновение
-004. Ariana Grande - Moonlight(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4412D4A7588C45B49646A65B9C9FA82935FE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067079   (408397) от 28.10.2016
-
-VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yana Beliz - Влюблена
-002. Geo Da Silva - I Love U Baby
-003. Слава - 2 Л 2 Ю
-004. Chris Brown - Little More(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067275   (408393) от 28.10.2016
-
-VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Alex Mica - Afrodita 3:39
-002.Andre Tay - Детство 4:05
-003.Arti - Параллели 3:39
-004.Auryn Feat. Anastacia - Wh's Loving You 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559574   (408370) от 13.10.2012
-
-VA - Осенний Плей-Лист 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Денис Клявер - Твои Руки
-02. Ysa Ferrer - Por Que Te Vas
-03. Нюша (Nyusha) - Воспоминание (Extra Edit)
-04. Akon Feat. Busta Rhymes - Call Da Police
-05. Макс Лоренс - Всё Что Мне Надо (Summer Mix 2012)
-06. Alexandra Stan Feat. Carlprit - 1.000.000 (Rico Bernasconi Remix Edit)
-07. Shami & Mx - Мы Небо-Земля
-08. Andreea Banica - Could U (Radio Edit)
-09. Вера Брежнева - Бессонница
-10. Abel The Kid & Julio Iglesias Jr. Feat. Snoop Dogg - A Piece Of My Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3502F2C19C27EF6EB7DA8532DA6BCB923925BFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949171   (408257) от 22.10.2015
-
-VA - Фея Дождя. Песни на стихи Франчески Тотти (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MILEN - Фея дождя (02:37)
-02. Сергей Ищенко - Дождь сентября (04:03)
-03. Андрей Бирюков - В городе дождь (03:55)
-04. Arkadias feat Francheska Totti - Дышать (03:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6D69BC77F76C083B15C2738347237305BAE8CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559498   (407395) от 14.10.2012
-
-VA - Радио Шторм - NeРусский Шторм - 74 (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407395.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adrian Sina - Hypnotised (Radio Edit)
-2. Agnes - All I Want Is You
-3. Agnes - Walk Out Of Here
-4. Alex Mica & Starchild - Bailamos (Angel Stylo Remix)
-5. Alexandra Shine - Play That Game
-6. Alexis - Good Bye My Love (Radio Edit)
-7. Amna - Tell Me Why (H.X.D. Remix)
-8. Arwen - Love Me (Radio Edit)
-9. Balkan Girls - Love Me On Repeat
-10. Bogdan feat. Dr. Slim - Time To MoveЖанр: Pop, DanceПродолжительность: 03:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B571A746264B41731D8C53B7E6F8A173F9FD34E
 ```
 
 https://mybot314.ru/tekegram_catalog/

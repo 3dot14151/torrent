@@ -1,3 +1,148 @@
+###  Публикация: 911228   (612907) от 25.06.2015
+
+Solstice Coil - Commute (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Eyes
+02. Forget You Ever Saw Us
+03. Shuffle the Cards
+04. Her Silent Silhouette(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBCC381CBAA761FD060387E37D0E0DE9FBACCE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911384   (612898) от 25.06.2015
+
+Lloyd Project - Shelter (2015) [MP3|320 кб/с]<Progressive / Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moonrise (4:02)
+2. Black Dove (3:30)
+3. Shelter (3:57)
+4. Vertigo (3:44)(   Читать дальше...   )Жанр: Progressive / Art RockПродолжительность: 00:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3582B7EC2B2E71691F2289D969CBD813E48270B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146827   (612740) от 30.06.2017
+
+Led Zeppelin - Ottawa Sunshine (1998) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I can't Quit You Baby (05:54)
+02. You Shook Me (04:13)
+03. Sunshine Woman (03:17)
+04. Heartbreaker (07:18)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3867A60BD2F153BC40FAD3D75B9099604177A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912280   (612693) от 25.06.2015
+
+Dark - Dark (2015) [MP3|320 кб/с]<Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distance
+02. Eternity
+03. Dark World
+04. Sleepless In Sao Paulo(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D1AA854E78B162A06A693DF5A6AC8FDBF7760D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911366   (612692) от 25.06.2015
+
+The Aristocrats - Tres Caballeros (2015) [MP3|320 кб/с]<Progressive Rock, Jazz, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stupid 7
+02. Jack s Back
+03. Texas Crazypants
+04. ZZ Top(   Читать дальше...   )Жанр: Progressive Rock, Jazz, FusionПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE79B2B860DBAAB0222BEF98FE4C7579F07A6244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912201   (612519) от 25.06.2015
 
 Frank Zappa - Dance Me This (2015) [MP3|320 кб/с]<Progressive Rock, Experimental>
@@ -600,151 +745,6 @@ The Hillbilly Moon Explosion - The Sparky Sessions (2019) [MP3|320 Kbps] <Rockab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58E058EFABF556112BB1F3C697B17A0234DB8A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297509   (603548) от 23.04.2019
-
-VA - The Very Best of Legends II (2019) 3CD, Box Set [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603548.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Queen - We are the champions
-02. ABBA - Waterloo(   Читать дальше...   )Жанр: RockПродолжительность: 03:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF1C24B7788CBF7F04E51B9262F5D5B17BAF2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296619   (603084) от 24.04.2019
-
-Frank Zappa - Dancin' Fool (2019) (Live) [MP3|320 Kbps] <Avantgarde, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chunga’s Revenge (Live)
-02. Keep It Greasey (Live)
-03. Outside Now (Live)
-04. City Of Tiny Lites (Live)(   Читать дальше...   )Жанр: Avantgarde, Psychedelic RockПродолжительность: 01:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACBD5F36D8CFCFECDC9339DA841FE3CA5D9D01F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297777   (603064) от 24.04.2019
-
-The Cranberries - In The End (2019) [MP3|320 Kbps] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Over Now
-02. Lost
-03. Wake Me When It’s Over
-04. A Place I Know(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42921FD145F4F83292EA608ED287D6F0D8C7F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297835   (602656) от 25.04.2019
-
-The Boss Tweeds - Hot Rods To Hell (2019) [MP3|320 Kbps] <Rockabilly, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Rods To Hell (03:16)
-02. She Creature (03:31)
-03. Big Doll House (03:44)
-04. Your True Love (02:48)(   Читать дальше...   )Жанр: Rockabilly, Rock & RollПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF946AB9A4E8CAA42E0A9C3D06F89F36F01B0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148863   (602542) от 09.07.2017
-
-VA - Ramble On (2017) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Star Riders - When The Night Comes In (3:15)
-02. Rival Sons - Thundering Voices (2:51)
-03. Supersonic Blues Machine - Miracle Man (4:25)
-04. Danny Worsnop - Anyone But Me (4:10)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C62D7A88824DDF3DA8C8991FDE8E98D07D4E1C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

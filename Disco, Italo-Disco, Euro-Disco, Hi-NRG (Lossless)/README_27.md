@@ -1,3 +1,32 @@
+###  Публикация: 1740309   (48063) от 02.08.2024
+
+Systems In Blue - Anthology 2003-2023 (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Mystery (Extended Mix) (5:11)
+02. Sexy Ann (3:44)
+03. Winner (3:42)
+04. Point Of No Return (Maxi Version) (5:59)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601B2CEA90CA1E0F4AEFB5B49C5B2DA2F561E74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741351   (47657) от 06.08.2024
 
 Digital Emotion - Arcade Serenade (2024) Unofficial [FLAC|Lossless|image + .cue] <Italo Disco, Hi NRG>
@@ -715,35 +744,6 @@ Village People – американская диско-группа, образ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87AB506043A001DD1B51895C6D31435A53B6106A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782788   (25929) от 02.03.2025
-
-Dschinghis Khan - Mexico , Maxi And Singles Collection (2025) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mexico
-02. Moskau (12" Version)
-03. Rome (English Version)
-04. Rocking Son Of Dschinghis Khan (12" Version)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798DEC3DE5BC6C426324230FBEFCAF659790CAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

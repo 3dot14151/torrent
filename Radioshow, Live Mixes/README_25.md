@@ -1,3 +1,90 @@
+###  Публикация: 1753268   (103853) от 04.10.2024
+
+VA - Armin van Buuren - A State Of Trance 1193 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Protoculture - Viper
+02.	LÜRUM - Decisions
+03.	Armin van Buuren - Pulstar (Future Favorite)
+04.	Pennyman - Paloma (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D551302EB73567D35DADC81C52EC1E4ED902A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754712   (103674) от 12.10.2024
+
+VA - Armin van Buuren - A State Of Trance 1194 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ T.H. & Jam Da Bass & Julie Thompson – Oceans
+02. Laura van Dam – Get Lost
+03. Matt Fax – Axis (Progressive Pick])
+04. MRAK ft. Aimée Sophia – Dune(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B266F9F8550801E3D3FE4CAF684FC357878A3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758200   (103410) от 01.11.2024
+
+VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Norman – Phantom Manor (Daniel Wanrooy Remix)
+02. Vintage Culture & Fideles ft. Be No Rain – Fallen Leaf (Massano Remix)
+03. Yoel Lewis – Meteor
+04. MRPHLNDR – Tron (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759177   (103297) от 07.11.2024
 
 Adam Beyer & Vintage Culture - Drumcode Radio 744(OCA Stage, Só Track Boa Festival Belo Horizonte, Brazil 2024-09-14) (2024-11-06) [MP3|320 Kbps] <Melodic House, Techno, Tech House>
@@ -655,93 +742,6 @@ VA - Armin van Buuren - A State Of Trance 1208 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC39B4A7DF7B0A96D5B8E065D2F63CBB5D505175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774087   (71560) от 19.01.2025
-
-VA - Ori Uplift - Uplifting Only Episode 623 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parcker Montivero – Farewell of the Heart (Intro Mix)
-02. AYDA – ATLAS (Fan Favorite (618))
-03. Kelly Andrew – Xanadu (Orchestral Trance Mix) (Orchestral Uplifting Classic)
-04. LinMou – Sound of the Sea (Fan Favorite (622))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1600E32E5BDB81CD384494664CF03C227703DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774245   (71544) от 21.01.2025
-
-Vintage Culture - One World Radio Residency 038 (2025-01-17) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CIOZ ft. Bludropp - These Accordi
-02. Oliver Huntemann & Marc Romboy - Schwarze Witwe
-03. Vintage Culture ft. Izzy Bizu - If I Live Forever (Arodes Remix)
-04. ID - ID(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2270CADD78909FB9AB0ED2AD5B069F9A876D34AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774982   (71510) от 24.01.2025
-
-VA - Ori Uplift - Uplifting Only Episode 624 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. REX.W – We Are All Stars (Intro Mix)
-02. Jericho Frequency feat. Emma Chatt – Do You See Me?
-03. Illitheas – Echoes in the Dark (Fan Favorite (616))
-04. Factor B – The Girl With Her Head In The Clouds (Ellie’s Song)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E065D18BBB5F7C7BCE998E8710C33E38AF3CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

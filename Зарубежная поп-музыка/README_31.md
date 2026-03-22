@@ -1,3 +1,119 @@
+###  Публикация: 1291572   (668671) от 25.03.2019
+
+VA - 100 Greatest Motivation Songs (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit, Jess Glynne - Rather Be (feat. Jess Glynne)
+02. Birdy - Keeping Your Head Up (Don Diablo Remix; Radio Edit)
+03. Rudimental, John Newman - Feel the Love (feat. John Newman)
+04. Flo Rida - Good Feeling(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0ED605D4D049C9FE2871DB5BC9F0476B019328A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224069   (668188) от 08.05.2018
+
+VA - Voll Bock auf Ballermann (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo ohne Flamingo - Saufen morgens, mittags, abends
+02. Almklausi - Mama Laudaaa
+03. Tobee - Helikopter 117 (Mach'den Hub Hub Hub) (Mallorca Version)
+04. Willi Herren - Nachttischlampe(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9867506FDC56F59009F046F272CB3D7D9CEDD1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537184   (667891) от 16.03.2022
+
+VA - Mastermix Pro Disc 259 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Oh My God
+02. Danny Byrd & D Double E - Selecta
+03. Joy Crookes - Trouble
+04. D.O.D feat. Carla Monroe - Still Sleepless(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:10:54 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95E15D0EB7FEB0C6D354E986B72F6B3F8FDEF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537192   (667844) от 16.03.2022
+
+VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alesso & Katy Perry - When I'm Gone
+02. Amaarae Ft. Moliy - Sad Girlz Luv Money (Clean)
+03. Anne-Marie - Beautiful
+04. Belters Only Ft. Jazzy - Make Me Feel Good(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:15:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631730BCA8F465460E3B43A43D625A312D681D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137744   (665561) от 28.05.2017
 
 Alex Maxwell - Signs + Lie To Me (2016-2017) 2EP [MP3|320 Kbps] <Alternative Pop, Indie Pop>
@@ -635,116 +751,6 @@ P.R. Computer - P.R. Computer (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47DE319809FB209B951CBB51FBBAA7696EB10C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904110   (655390) от 02.06.2015
-
-Simply Red - Big Love (2015) [MP3|320 кб/с]<Pop, R&B, Nu Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On (03:12)
-02. Daydreaming (03:38)
-03. Big Love (04:09)
-04. The Ghost of Love (03:16)(   Читать дальше...   )Жанр: Pop, R&B, Nu SoulПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB4D41C7C438F94D5FC2A740145B924444365FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145117   (655121) от 02.06.2015
-
-Pink - The Hits (2009) [MP3|320 kbps]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, RockПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140749   (654923) от 07.06.2017
-
-Jonzun Crew - Lost In Space (1983) LP [MP3|320 Kbps] <Electronic, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are The Jonzun Crew (6:25)
-02. Space Is The Place (6:32)
-03. Electro Boogie Encounter (6:41)
-04. Ground Control (5:41)(   Читать дальше...   )Жанр: Electronic, ElectroПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC97B5E53B5379FD7383104AB7D20054B95B79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515491   (654657) от 27.06.2012
-
-Glenn Frey - After Hours (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop, Piano, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Piano, VocalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEC40D8FD878D2A112CAA02F9302519DA9FFF91
 ```
 
 https://mybot314.ru/tekegram_catalog/

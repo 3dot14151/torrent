@@ -1,3 +1,61 @@
+###  Публикация: 1731879   (107627) от 22.06.2024
+
+VA - Ibiza Chill Vibes, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Secret Diary (Remastered) (5:38)
+02. 351 Lake Shore Drive, Genius Jane - Moon Shadow (Vincent Honca Mix) (5:45)
+03. Eric Matthew - Sad Shine (4:55)
+04. Marco Moli - The Rules of Love (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8A10F60A217B36D1BB414C7AC8349825B7A187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733716   (107257) от 30.06.2024
+
+V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 24 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove Da Praia, Mayla Da Viola - Water (Bossa Nova Version)
+02. Cassandra Beck - Be the One
+03. Banda Do Sul - Over and Over
+04. Stella Starlight Trio, Shelly Sony - Georgy Porgy(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0CEEF9C583D8BC31431EAB108ED0FA44455D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734872   (107068) от 05.07.2024
 
 VA - Playa D'en Bossa: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -686,74 +744,6 @@ CD1 - Come In For Coffee
 01. Eduardo Ferreira - New Rhythm (4:44)
 02. Porto Sound Station - Aeroporto De UFO (5:02)
 03. Cesar Romario - Cidade Maravilhosa (4:10)(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 04:22:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480168   (87156) от 08.04.2012
-
-Androcell - Efflorescence (2006) [FLAC|Lossless]<New Age, Ambient, Electronic, ChillOut, Psychedelic, Meditative>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Androcell - Efflorescence (2006)
-Год: 2006
-Жанр: New Age, Ambient, Electronic, ChillOut, Psychedelic, Meditative
-Продолжительность: 01:02:35Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: tracks+.cueТрек лист:
-01. Process Of Unfolding
-02. Neurosomatic Circuit(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476281   (85471) от 31.03.2012
-
-VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Man Called Adam - Love Forgotten
-02. Cagedbaby - Strawberry Letter 23
-03. The Cobra Experience - On The Verge (Blissed Out Mix)
-04. Kooka - Wanted
-05. Bridge Avenue - Momido
-06. The Sansom Affair - Emerald Dreams
-07. The Economist - Global Diffusion
-08. Yellow Stars - Roll The Dice
-09. Mister Rose And The Electric Birdcage - Running Lights
-10. The Glug Glug Cartel - Weightless (Heaven Mix)(   Читать дальше...   )2008Жанр: Chillout, AmbientПродолжительность: 00:47:56
 
 ## Скачать торент
 ```bash

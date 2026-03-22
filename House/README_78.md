@@ -1,3 +1,148 @@
+###  Публикация: 1764364   (102737) от 06.12.2024
+
+VA - Winter Vibes Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafo - Loud Enough (04:38)
+02. Ballester & M.SIID - Good to Me (03:37)
+03. Melih Aydogan - Between (06:28)
+04. Sharapov - Candy (Deepsan Remix) (04:44)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C462A41936E141AA257663E06C5F3521B0B265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764265   (102731) от 06.12.2024
+
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristiano Cento & Panico - Smooth Criminal (Panico Extended Remix) (05:24)
+02. Francesco Castelli, Paolo Lofrè & Alicia Wilkson - Bang Bang (Radio Edit) (04:03)
+03. Shock Mama - Let's Party (Euro Mix) (05:23)
+04. Fabio Pazzaglia, RaFF T & Gabriel - Summer Jam (Radio Edit) (03:13)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094EB9626B85C6BAE54DE8CED399F7C6A79B6CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764259   (102730) от 06.12.2024
+
+VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CRi - Dark In This Room (Original Mix) (04:12)
+02. Qrion - Miyanosawa (Extended Mix) (05:42)
+03. Steven Weston & Ormella - Give Me Something (Extended Mix) (06:11)
+04. Romain Garcia - Digital Diva (Extended Mix) (06:15)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279D2E7980A59C4C4CB7EC2EB97BE9DBE91EE11F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764508   (102709) от 07.12.2024
+
+VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Mamacita (02:45)
+02. JLUIS - Si Te Vas (03:31)
+03. Deep Emotion - With Me (02:53)
+04. TEKTRONIC - Oldskool Vibe (02:53)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEA1871B1F72BA30161D0D775C8D84ADD26FF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764478   (102708) от 07.12.2024
+
+VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Parachute (02:48)
+02. Rene Rodrigezz, Basslovers United & Dan Winter - Wherever You Go (02:17)
+03. Stephan F & Ya-Ya - No Broken Heart (03:09)
+04. Dropix DJ - Far in Love (02:34)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5C54E61910ECDA845E0F72F2DA4936E3372B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764521   (102706) от 07.12.2024
 
 VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -653,171 +798,6 @@ Twenty 4 Seven - The Reason (2012) [MP3|320 kbps]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB8B3C5EE06C68999E8667AF1F5941816EDC86B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487228   (90429) от 24.04.2012
-
-Naked Music Recordings - Коллекция (21 диск, 35 винилов) (1999-2010) [MP3|~148-320 кб/с]<Deep House, Downtempo, Future Jazz, Nu Disco, Lounge>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Naked Music– это звукозаписывающий лейбл танцевальной музыки, расположенный в Нью-Йорке и Сан Франциско. Появился в 1992 году как Нью-Йоркская звукозаписывающая компания, когда Дэйв Буншофт (Dave Boonshoft) и Джей Дэйнс (Jay Danes) добились стремительного успеха на андерграунд сцене со своими релизами на таких независимых лейблах как OM, Francois Kevorkian's Wave imprint и UKs XL records. Naked Sound был рожден как пересечение дэнса, соула и электронной музыки. В 1998 году компания стала настоящим звукозаписывающим лейблом.
-Лейбл известен сериями миксов и компиляций Nude Dimensions и Carte Blanche, а также сольными альбомами таких артистов как Blue Six, Miguel Migs и Lisa Shaw01. Blue Six - Luxury (4:09)
-02. Blue Six - You Play Too Rough (4:45)
-03. Blue Six - If You Turn Your Back On Love (4:38)
-04. Blue Six - You Used To Rock (4:33)
-05. Blue Six - C'Mon (4:19)
-06. Blue Six - Noesis (4:50)
-07. Blue Six - I Tried To Tell You (5:08)
-08. Blue Six - Anything Is Possible (3:38)
-09. Blue Six - Bittersweet (4:21)
-10. Blue Six - One More Night (5:48)(   Читать дальше...   )Продолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305E63EE709EF123F52561791F671F8BD417F9EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476712   (85989) от 02.04.2012
-
-Sweet DJs - Happy New Year Mix (2006-2010) [MP3|128-320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85989.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ Кирилоff
-01. Justin Ferier - Surrounded By Light (Extended Mix)
-02. BBE ft. Zoexenia - 7 Days & One Week ft. Zoexenia (Genji Yoshida Remix)
-03. Alex M.O.R.P.H ft. Simon - No Regrets (Chriss Ortega Sunrise Remix)
-04. Second Left - Sculpt & Define (Original Mix)Жанр: House, Electro House, Progressive HouseПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51EF67D82CCAAFC0EBE0DE4B7CC7E311C9338C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474488   (84902) от 28.03.2012
-
-Катя Чехова - Сердце тебе в ответ (Сингл) (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84902.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Оригинал
-2. Лёгкая версия
-3. Агент Смит клаб микс
-4. Акапеллп2012Жанр: HouseПродолжительность: 00:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467607   (82054) от 14.03.2012
-
-DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82054.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Gate, Andrew Bayer - Nothing Ever Lasts (Extended Intro Mix)
-2. Cristian Poow ft. Valessa - Rhythm Is A Dancer (Extended Mix)
-3. Freza - Moonlight (Avo Remix)
-4. Reunited - Rapture (Global Deejays Remix)
-5. Hugcaro - Creating Havoc (James Hurr Remix)
-6. Stafford Brothers - Falling ft. Ollie James (Original Mix)
-7. Juicy, David Martini - Babe I Need You (Original Version)
-8. Lunde Bros - Tell Me (Alex Anthin Remix)
-9. Kobana, Yane3Dots - Woosh (Original Mix)
-10. Leach - Crying (Jekke Remix)(   Читать дальше...   )2012Жанр: Progressive HouseПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B2346876707875E86D7E55BFB0674AE2A32572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459541   (79141) от 29.02.2012
-
-VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79141.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Mixed by James Grant [01:16:31]
-01. Dusky - Stick By This [3:39]
-02. Martin Roth - Beautiful Life [5:30]
-03. Vincenzo - Get To Know You [6:13]
-04. Laura Jones - Love In Me (Maceo Plex Remix) [4:39]
-05. Andrew Bayer - You [6:57]
-06. Paronator - No Gravity (Tom Middleton Liquatech Mix) [5:24]
-07. Dusky - Lost Highway [4:37]
-08. Above & Beyond - Prelude (Andrew Bayer & James Grant Remix) [6:24]
-09. Full Tilt - Take Me Away (Andrew Bayer & James Grant Remix) [5:23](   Читать дальше...   )Жанр: HouseПродолжительность: 02:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87646B79AA462D70BBDD7CDE0D43AB824B1FD87
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 926331   (535470) от 09.08.2015
+
+The Black Dahlia Murder - Abysmal (2015) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Receipt
+02. Vlad, Son Of The Dragon
+03. Abysmal
+04. Re-Faced(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5452F76B77EFA3853918E0163F58410C125B425B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239879   (533153) от 08.08.2018
+
+Primal Fear - Apocalypse (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse
+02. New Rise
+03. The Ritual
+04. King of Madness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA2E038E79B182AC341C5B323CD6A5D6E7FDF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155412   (533042) от 03.08.2017
+
+Accept - The Rise Of Chaos (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die by the Sword
+02. Hole in the Head
+03. The Rise of Chaos
+04. Koolaid(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03ADF2F25C3A166D995FF00B45A833E0C3DC911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051539   (532684) от 11.09.2016
+
+Breakdown Of Sanity - Coexistence (2016) [MP3|320 кб/с]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532684.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:01] 01. Bulletproof
+[03:08] 02. Restless
+[03:47] 03. Back To Zero (feat. Ryo Kinoshita from 'Crystal Lake')
+[03:44] 04. Dear Diary(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D75493797F5FBC9CB0A2FCA6CDE090D9FA6BC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051336   (532552) от 11.09.2016
 
 Devin Townsend Project - Transcendence (2016) Limited Edition 2 CD [MP3|320 Kbps] <Progressive Metal>
@@ -621,122 +737,6 @@ Power Tale - Семь Подземных Королей (2018) [MP3|320 Kbps] <�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB204AFB7AC5E778D959DA6C1FDC411891A10BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240749   (523654) от 13.08.2018
-
-Lethal Injektion - Remember Chester Bennington (2018) [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523654.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Step Closer
-2. Place for My Head
-3. Lying from You
-4. Papercut(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEF7D0FD4004E7034F079495979781EAAFD492C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313596   (523652) от 09.07.2019
-
-Power Tale - Огненный бог марранов (2019) [MP3|320 Kbps] <Металл-опера>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523652.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:42] 1. Увертюра
-[05:46] 2. Второй шанс
-[04:48] 3. Падший в Рай
-[06:29] 4. Гнев Марранов(   Читать дальше...   )Жанр: Металл-операПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275D793EFB856A85E5BA76617DB0012579A566B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928593   (522576) от 16.08.2015
-
-Alda - Passage (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522576.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Clearcut
-2. Passage
-3. Weathering
-4. The Crooked Trail(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A31D18C4C716D2AF2A695D97850B050A91841C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313942   (522188) от 11.07.2019
-
-Batushka (Батюшка) - Hospodi (2019) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wozglas
-02. Dziewiatyj Czas
-03. Wieczernia
-04. Powieczerje(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E2A1DEB9095FD6DFCA9D10C388E1C1796D7D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

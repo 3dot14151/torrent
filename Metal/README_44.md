@@ -1,3 +1,131 @@
+###  Публикация: 902733   (659734) от 29.05.2015
+
+Lindemann - Praise Abort (2015) Single & EP [MP3|320 кб/с]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659734.jpg" />
+</div>
+
+
+###  Подробнее
+
+EP к новому альбому фронтмена RAMMSTEIN Тилля Линдеманна и шведского легендарного метал-продюсера и музыканта Петера Тагтгрена (HYPOCRISY, PAIN).1. Praise Abort
+2. Praise Abort (Clemens Wijers Remix)
+3. Praise Abort (Ostblockschlampen Remix)
+4. Praise Abort (Hedberg & Larsson Remix)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17C5E1A3C8CAF79919740C1DA6AC4EE01CE48CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514290   (659359) от 23.06.2012
+
+Cripper - Antagonist (2012) [MP3|320 кб/с]<Thrash Metal / Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659359.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. New Shadow (3:38)
+2. Not Dead Yet (3:31)
+3. Animal of Prey (2:51)
+4. Totmann (4:39)
+5. Hegemony (3:04)
+6. Clean (4:00)
+7. General Routine (4:06)
+8. Dogbite (4:20)
+9. Another Lesson in Pain (3:18)
+10. Damocles (3:56)(   Читать дальше...   )Жанр: Thrash Metal / Female VocalПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F70DA3702DCE6D2AA0817C55EA59F42E781EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514323   (659351) от 23.06.2012
+
+Luca Turilli`s Dreamquest - Lost Horizons (2006) [MP3|320 кб/с]<Electro-Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introspection
+ 02. Virus
+ 03. Dreamquest
+ 04. Black Rose
+ 05. Lost Horizons
+ 06. Sospiro Divino
+ 07. Shades Of Eternity
+ 08. Energy
+ 09. Frozen Star
+ 10. Kyoto`s Romance(   Читать дальше...   )2006Жанр: Electro-Symphonic Power MetalПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB7000D10ED4466DEE0E7B20C303B9DB134BF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903256   (659316) от 30.05.2015
+
+Nekrogoblikon - Heavy Meta (2015) [MP3|~275 кб/с]<Melodic Death Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The End Of Infinity
+2. We've Had Enough
+3. Bring Us More
+4. Snax & Violence(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AB19A4AE6328B807DA8814A21684A651174F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539078   (659232) от 24.03.2022
 
 Almach - Dream Elegy (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
@@ -635,128 +763,6 @@ Serenity In Fire - Give Him Your Soul (2015) [MP3|320 кб/с]<Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC0B63B923618A681C45FC73F53F2D80773EFB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904389   (655467) от 02.06.2015
-
-Nekrogoblikon - Heavy Meta (2015) [MP3|320 кб/с]<Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of Infinity
-02. We've Had Enough
-03. Bring Us More
-04. Snax & Violence(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9052F8B1D2804E294063AC4DA3ED3470E1D25291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515790   (654830) от 27.06.2012
-
-Vaura - Selenelion (2012) [MP3|320 кб/с]<Experimental Psychedelic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654830.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Souvenirs (4:43)
- 2.Drachma (4:22)
- 3.The Emanation (4:48)
- 4.En/Soph (5:11)
- 5.Relics (4:48)
- 6.Obsidian Damascene Sun (4:46)
- 7.Uncreated Light (Transfiguration) (4:33)
- 8.The Column's Vein (2:29)
- 9.Vanth (5:29)
- 10.Selenelion (7:02)(   Читать дальше...   )Жанр: Experimental Psychedelic MetalПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE6CBEC5CB3725BF162F2AF395A468BBB89B6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227048   (652348) от 23.05.2018
-
-Icon - Icon (1984) Reissue, 1993, Capitol Records [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652348.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. (Rock On) Through The Night
-2. Killer Machine
-3. On Your Feet
-4. World War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C29058AA12FAE0CBD848E9DEED8EE3A1B7D42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031358   (652160) от 04.07.2016
-
-Warfect - Scavengers (2016) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purveyors Of Cadavers
-02. Reptile
-03. Anatomy Of Evil
-04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1BA0067804D2A3C688BDA43F67A62F67473594
 ```
 
 https://mybot314.ru/tekegram_catalog/

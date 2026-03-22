@@ -1,3 +1,149 @@
+###  Публикация: 1160041   (478121) от 23.08.2017
+
+Sarah Darling - Dream Country (2016) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wandering Star (3:20)
+02. Where Cowboys Ride (4:05)
+03. Anchor (3:45)
+04. Tell That Devil (2:57)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44E43A668AE26869D7784B58A612F654BD60D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244934   (477967) от 03.09.2018
+
+Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ishq (8:09)
+02. Tumi Bhaja Re Mana (8:07)
+03. Sattva (7:06)
+04. Shivoham (9:42)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4814A6F941F99B5B4E984C56165B02C72F4B468C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939134   (477917) от 20.09.2015
+
+Ben Caplan - Birds With Broken Wings (2015) [MP3|320 кб/с]<Country, Funky Blues, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birds With Broken Wings (03:41)
+02. I Got Me A Woman (03:06)
+03. Belly Of The Worm (03:47)
+04. Ride On (03:30)(   Читать дальше...   )Жанр: Country, Funky Blues, FolkПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F29B68A9518F6EBF0309DE2472980B812404A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057078   (477505) от 27.09.2016
+
+Blue Rodeo - In Our Nature (2013) [MP3|320 Kbps] <Folk Rock, World, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Morning Sun   (04:35)
+02. Wondering   (05:06)
+03. Over Me   (03:25)
+04. Never Too Late   (04:52)(   Читать дальше...   )Жанр: Folk Rock, World, CountryПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF80153FE44CCF6FAD38E552BF05DE713EC3C2F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405923   (477356) от 02.09.2020
+
+Земфира - Последняя сказка Риты (2012) [FLAC|Lossless|tracks + .cue] <Art Rock, Ambient, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477356.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Последняя сказка Риты» — саундтрек российской исполнительницы Земфиры к фильму Ренаты Литвиновой «Последняя сказка Риты».
+14 сентября 2011 года начал работать официальный сайт фильма «Последняя сказка Риты» (реж. Р. Литвинова), музыку к которому написала Земфира. В трейлере фильма звучит гитарная вариация на тему «Танца с саблями» А. Хачатуряна, а также фрагмент (   Читать дальше...   )01. Intro (2:08)
+02. Сон 1 (2:06)
+03. Коля (1:48)
+04. Не надо (Танец смерти) (3:18)(   Читать дальше...   )Жанр: Art Rock, Ambient, SoundtrackПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43A409063FDB94126A254962D4897A432CB0761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320006   (477341) от 15.08.2019
 
 SPA & Wellness Massage Masters, Beauty Spa Music Collection, Zen Spa Music Experts - Massage Therapy Zen Spa Music 2019 [MP3|320 Kbps] <New Age>
@@ -597,151 +743,6 @@ Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F56C421CEBE552854310A644BE4F73AC747EE041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320310   (471248) от 18.08.2019
-
-Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/Electronica>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471248.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fractures and Lifts (Переломы и подъемы)
-2. Wastelands and Heights (Пустоши и вышины)
-3. Pegs and Fortresses (Колышки и крепости)
-4. Chains and Gaps (Цепи и провалы)(   Читать дальше...   )Жанр: Metal/Intumental/Neo-classic/ElectronicaПродолжительность: 00:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EC7A085312904C82DD1F5458CEF71EC87FD528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406845   (470521) от 05.09.2020
-
-Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470521.jpg" />
-</div>
-
-
-###  Подробнее
-
-[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
-[05:16] 02. Ludwig Goransson - WINDMILLS
-[02:16] 03. Ludwig Goransson - MEETING NEIL
-[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401FFC49F2AD778E0654C0045F9D693A7C73894C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406846   (470506) от 05.09.2020
-
-Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470506.jpg" />
-</div>
-
-
-###  Подробнее
-
-[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
-[05:16] 02. Ludwig Goransson - WINDMILLS
-[02:16] 03. Ludwig Goransson - MEETING NEIL
-[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D562F6C42A86FEF3603C273D5DD3469A800E9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245792   (469966) от 07.09.2018
-
-Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Brahms' Lullaby
-02 A Time for Us
-03 Time Has Made You a Memory
-04 Taps(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF40777EB0B25918A44F2C736AE1AA112D1BB286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245658   (469895) от 07.09.2018
-
-Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle Steps
-02. Sunsets
-03. Reflections
-04. When I Was Young(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542C84A40A0FD29150AC94A030A187217DB8EF0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

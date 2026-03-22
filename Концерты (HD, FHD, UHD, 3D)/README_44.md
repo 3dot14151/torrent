@@ -1,3 +1,185 @@
+###  Публикация: 451211   (75736) от 12.02.2012
+
+Peter Gabriel - New Blood (Live in London) (2011) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_75736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive RockФормат: TSПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451187   (75661) от 12.02.2012
+
+Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_75661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockФормат: TSПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450670   (75469) от 11.02.2012
+
+Bad Company - Live At Wembley (2011) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_75469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Enough
+02. Honey Child
+03. Run With The Pack
+04. Burnin' Sky
+05. Young Blood
+06. Seagull
+07. Gone, Gone, Gone
+08. Electric Land
+09. Simple Man
+10. Feel Like Makin' Love(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449688   (75328) от 10.02.2012
+
+Styx: The Grand Illusion/Pieces of Eight Live (2010/2012) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_75328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmed on November 9th, 2010 at the historic Orpheum Theater in Memphis, TN, this stunning show captures Styx performing their classic multi-platinum seventies albums The Grand Illusion and Pieces Of Eight live in their entirety for the first time. These iconic albums established Styx as a globally successful rock band and defined the AOR genre for a generation of (   Читать дальше...   )The Grand Illusion
+01. The Grand Illusion
+02. Fooling Yourself (Angry Young Man)
+03. Superstars(   Читать дальше...   )Жанр: RockСубтитры: Английские, немецкие, французские, испанскиеПродолжительность: 01:41:31+00:29:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447937   (74518) от 06.02.2012
+
+The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_74518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Under My Thumb - (Tempe, Arizona, 13 December 1981 (outdoor stadium show))
+2. Let's Spend the Night Together - (Tempe, 13 December 1981)
+3. Shattered - (Tempe, 13 December 1981)
+4. Neighbours - (Tempe, 13 December 1981)(   Читать дальше...   )Жанр: rockРежиссер: Хэл ЭшбиАктеры: Мик Джаггер, Кит Ричардс, Чарли Уоттс, Билл Уаймен, Ронни Вуд, Йен Стюарт, Ian McLagan, Эрни Уоттс, Бобби Кис, Джерри ХоллПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447318   (74337) от 05.02.2012
+
+Foreigner - Rockin' at the Ryman (2011) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_74337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
+
+Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated for the new Foreigner experience about to take place! Recorded with the highest equipment to capture the rocking that actually took place, this concert included the full-set for ultimate listening and viewing pleasure. This new announcement is certainly a dream come true for any fan or new listener, including all of the hits from their album “Can’t Slow Down” like “Double Vision”, “Cold As Ice” to “Jukebox Hero”, “Hot Blooded” and “Urgent”. This is something you really have to see for yourself, and with the new DVD/Blu-ray disc quality, you can experience it as if you were there.01. Double Vision
+02. Head Games
+03. Cold As Ice
+04. In Pieces
+05. Blue Morning, Blue Day
+06. Waiting For A Girl Like You
+07. When It Comes To Love
+08. Dirty White Boy
+09. Starrider
+10. Feels Like The First Time(   Читать дальше...   )Жанр: RockВ ролях: Mick Jones, Kelly Hansen, Jeff Pilson, Tom Gimbel, Michael Bluestein, Jason BonhamПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776220   (71368) от 30.01.2025
 
 Квартирник у Маргулиса. «Комната культуры» (25.01.2025) WEBRip [H.264/1080p]
@@ -551,177 +733,6 @@ Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made u
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797688   (66794) от 17.05.2025
-
-Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в рамках фестиваля "Rocco del Schlacko" 8 августа 2019 года в городе Пютлинген.01. Intro (100% Scooter - 25 Years Wild & Wicked)
-02. One (Always Hardcore)
-03. Bora! Bora! Bora!
-04. Oi(   Читать дальше...   )Производство: ГерманияЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Jens TheleУчастники: H.P. Baxxter, Michael Simon, Sebastian SchildeПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31ED7369CBA8BDA1B07D11545F251E0E21075A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797706   (66750) от 18.05.2025
-
-Квартирник у Маргулиса. Dabro (17.05.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллектив Dabro был основан в 2013 году братьями Иваном и Михаилом Засидкевичами. Их творчество — это удивительное сочетание искренних, жизненных текстов и драйвовой музыки на актуальные темы, которое заставляет танцевать даже самых сдержанных слушателей. Коллектив нашел свое призвание в жанре уличной романтики, сочетая гитарные партии, ритмичные биты и хип-хоп-речитативы. (   Читать дальше...   )00:00:06 Дальше-больше
-00:06:19 Услышит весь район
-00:12:30 Ты люби так же
-00:20:49 Давай навсегда(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Хип-хопЯзык: РусскийПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136AA3B9266F8E8D49B39C6D2C0216C57C2D8B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799344   (66487) от 27.05.2025
-
-МузЛофт-Дети / МузLoft. Кирилл Усов (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кирилл Усов. Из хоккеиста в вокалисты. Мечты о дуэте с Ларой Фабиан и Биланом.
-От репертуара этого парня можно просто сойти с ума. А ещё он участник шоу «Голос. Дети», заменил барабанщика в Музлофте и… А что ещё он сделал в этом выпуске, ты узнаешь, если посмотришь его до конца!Производство: Россия | Y-GenerationУчастники: Кирилл УсовПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800152   (66303) от 01.06.2025
-
-Квартирник у Маргулиса. Группа «TRITIA» (31.05.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа TRITIA была основана в 2014 году в Хабаровске и изначально носила название FreeQ Brothers. Перемены в творчестве заставили музыкантов задуматься о смене названия, и коллектив был переименован в TRITIA.00:00:06 Потрачено
-00:05:27Сердце
-00:10:09 Слеза
-00:15:58 Просто так(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Альт-рок, АльтернативаЯзык: РусскийПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E10B346B3D2CB761030C81BC1C35BBDF194ED95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807187   (65305) от 17.07.2025
-
-МузЛофт / МузLoft. Стас Пьеха (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стас Пьеха. От панка до дуэта с Лепсом. Как мешала фамилия.
-Ты грустишь? Тогда скорее включай этот выпуск и наслаждайся хитами в исполнении Стасов. А еще можно будет услышать истории из 90-х и узнать почему парням нельзя слушать «Ласковый май».Производство: Россия | Y-GenerationУчастники: Стас ПьехаПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B0DE9B8C368DAFB954618799F32718E36C20F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821714   (64512) от 03.10.2025
-
-NEMOPHILA. Zepp Tour 2022 at Zepp Osaka Bayside (2022) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64512.jpg" />
-</div>
-
-
-###  Подробнее
-
-NEMOPHILA - японская женская метал/рок группа, основанная в 2019 г. в Токио.
-Запись концерта, прошедшего 11.06.2022 г. в Zepp Osaka Bayside.1. 雷霆 -RAITEI-
-2. REVIVE
-3 .Rollin′Rollin′
-4. SORAI(   Читать дальше...   )Производство: ЯпонияЖанр: J-Metal, J-RockУчастники: Маю, Саки, Хадзуки, Мурата Таму, ХарагутиПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3701FB5CC13D9D50267AB4D558EF2B264408425
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1018999   (752331) от 22.05.2016
+
+VA - Sun Revelation: Relax Edition (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752331.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gjc - On the Floor - Chill Version
+002. Sun & Sadness - On a Beach - Sexy Sunset del Mar Mix
+003. Jarome Adam - Apue (Chilling Mix)
+004. Amy More - Brighton Beach Dreams(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF7AFCB036FC71A528D41B32292EBD2065C908F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019025   (752328) от 22.05.2016
+
+VA - Electroshock Vol. 07 (2016) [MP3|320 кб/с] <House, Electro House, Trance, Electrorock>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VNV Nation - Lost Horizon 5:17
+02. Solitary Experiments - Delight 4:49
+03. SITD - Purgatorium 5:54
+04. Nachtmahr - Tanzt Fur Mich 4:34(   Читать дальше...   )Жанр: House, Electro House, Trance, ElectrorockПродолжительность: 03:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18EA39CAC6EBEAA46C640E1DDECFB67CFE33422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019358   (752265) от 22.05.2016
+
+VA - Trance 100 Symmetry Nostalgic (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Markus Schulz Ft Lady V - Erase You (Omair Mirza Remix) 6:08
+002. Arman Dinarvand & Bager - Hope (Astuni Re-Lift) 6:51
+003. Chris Schweizer - Scorpion (Extended Mix) 5:55
+004. Ben Gold - Im In A State Of Trance (Asot 750 Anthem) (Extended Mix) 7:44(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 11:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5057FD9C67377E6BCF404C5397660545EF0D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019187   (752252) от 22.05.2016
 
 VA - Trance Desire Volume 70 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -658,93 +745,6 @@ VA - Drum and Bass Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Drum and
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D16A69D351E3F0AA2BB8AB0B021CAE491EC36EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281885   (748411) от 10.02.2019
-
-VA - Butterfly's Eyes: Trance Project (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abstract Vision - Noonday Shadows
-002. Apaches - Back2Again (Extended Mix)
-003. Jo Cartwright - Through The Barricades
-004. Cenk Basaran - Acid Harmony (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 10:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D066CFC1F482ECE454B8E426317B0A38260F5AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019658   (748342) от 24.05.2016
-
-VA - Top 100 EDM Summer (2016) [MP3|256-320 кб/с] <Electronic, Dance Music>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Militia & Vanze Ft. Tyler Fiore - You Found Me (Original Mix)
-02. Christopher S & Lecrema - Rebel's Mind (Radio Edit) (feat. Jamayl Maleek)
-03. Mario Joy - California (Radio Edit)
-04. Calvin Harris - This Is What You Came For (feat. Rihanna)(   Читать дальше...   )Жанр: Electronic, Dance MusicПродолжительность: 06:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D656944134408E7DBC17752E9FE0971D9D58994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281815   (748301) от 10.02.2019
-
-VA - Record Super Chart 573 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Calvin Harris & Rag'n'Bone Man - Giant
-02.  Hugel & Amber Van Day - Wtf
-03.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-04.  Fisher  -  Losing It(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497083C3C7C25B6448D812DD46EB1109866AF89A
 ```
 
 https://mybot314.ru/tekegram_catalog/

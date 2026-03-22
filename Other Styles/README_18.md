@@ -1,3 +1,32 @@
+###  Публикация: 982412   (948096) от 03.02.2016
+
+Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirst For Life
+02. Rapture
+03. Drive
+04. What You Get(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F66A738FCF5DB704087FFDA4E1E0FCCA06BDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361079   (947936) от 24.02.2020
 
 Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack, Score>
@@ -721,35 +750,6 @@ Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4361CBCC654E87534AA1AD381FE2A81504556B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363466   (942325) от 28.02.2020
-
-Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942325.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:38| 01. Enter The Ride
-|03:17| 02. Neon Gray
-|03:31| 03. Time Capsule
-|01:42| 04. Reverse Part(   Читать дальше...   )Жанр: Soundtrack, Score, ElectronicПродолжительность: 01:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C754EA5C94D8A374ECB07A4C655ABD3A0F79802
 ```
 
 https://mybot314.ru/tekegram_catalog/

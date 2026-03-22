@@ -1,3 +1,61 @@
+###  Публикация: 1091153   (943135) от 09.01.2017
+
+VA - Brand New Refreshed EDM (2017) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943135.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ralvero - U Got 2 Know (Extended Mix) 4:06
+002. Hardwell & W&W - Get Down (Clean) (Extended) 3:41
+003. Jewelz & Sparks - Crank (HWL Edit) (Clean) (Extended) 3:38
+004. Chocolate Puma & Tommie Sunshine - Take The Ride (Extended Mix) 4:42(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 08:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A670EC1BD8877E0953C1AB93B8CC86AD0B8D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091169   (943121) от 09.01.2017
+
+VA - About EDM Sweet Festival Elements (2016) [MP3|256-320 Kbps] <Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943121.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The 1975 - Somebody Else (Reed Streets RMX / Dirty / Cutdown) 3:48
+002. Tom Budin x WHTKD - Bad Vibe (Original Mix) 4:00
+003. Goldfish Ft. Diamond Thug - Deep Of The Night (Cutdown) 4:10
+004. Majestique - Moonlight (Short Edit) 3:02(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 08:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0911FD2C281EF3CA26D086988917A5AB6F176D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983252   (943109) от 06.02.2016
 
 VA - Bust A Move Vol.2 (2015) [MP3|320 кб/с] <Psychedelic, FullOn, Night>
@@ -687,64 +745,6 @@ VA - Beatport Bassline: Electro Sound Pack #17 (2020) [MP3|320 Kbps] <D&B, Bassl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECB631D9AD5995FE234A7E671083B29E8FB7F19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984466   (939016) от 09.02.2016
-
-VA - Chill House Diamonds Vol.1 (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tangogroove - My Chance - Tangogroove Red Mix
-02. Tony Moog - Game Now - Jazzhouse Mix
-03. The Loop - Galaxy Mercury - Grooveboy Deep Mix
-04. The Thream - Audio All - Original Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274237028DD286F0AD0DEC966F8E9EAA5402EF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984433   (939015) от 09.02.2016
-
-VA - Plimoot Longe: Dream Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939015.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Leo Dj - Doctor Jones - Original Mix
-002. The Cee Lounge - Sexy Soft - Original Mix
-003. Armando Gomez - Victoria Space - Original Mix
-004. Westend Playerz - Real Garage - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A642F958A7B6BC6F1C5479066ABE8FC333886A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

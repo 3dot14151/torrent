@@ -1,3 +1,61 @@
+###  Публикация: 1199918   (793892) от 23.01.2018
+
+Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Король фей
+02. Амстердам
+03. Мексика
+04. Бороды(   Читать дальше...   )Жанр: Pub Folk, Celtic Punk, Folk RockПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F492547E72796C9456EFF921B06F1F1D6DF02BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012450   (793746) от 01.05.2016
+
+Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contemporary Guitar Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Momentum
+02. Let Your Guitar Sing
+03. Celestial Dragon
+04. The Second Coming(   Читать дальше...   )Жанр: New Age, Contemporary Guitar InstrumentalПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00B1729E2B87E1451105AF3AC9436A242F6201B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012546   (793732) от 01.05.2016
 
 Ann Sweeten - Where Butterflies Dance (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
@@ -687,64 +745,6 @@ Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B081DFDF5B1E1B0212D643238099E64E1D0C2F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274187   (792250) от 08.01.2019
-
-Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears of the East (5:48)
- 02. Racing Against the Sunset (4:53)
- 03. The Approaching Night (6:40)
- 04. Darkness Falls (4:42)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC52A6863772248A7446855DF2D2A62C35195EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274846   (792238) от 08.01.2019
-
-Trent Reznor & Atticus Ross - Bird Box (2019) The Null Corporation [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Dark Ambient, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outside (12:42)
- 02. Undercurrents (04:03)
- 03. Looking Forwards And Backwards (09:00)
- 04. What Isn't Anymore (07:49)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Dark Ambient, ScoreПродолжительность: 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023655D2D13D5166E92EA7489F9ABA2E01D02D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

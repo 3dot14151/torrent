@@ -1,3 +1,147 @@
+###  Публикация: 1410796   (433752) от 22.09.2020
+
+VA - Sexy Deep Passion (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick Loveland; Aramha - 4Ever (Dyba Deep Club Mix)
+02. St. Tropez Deep Ensemble - Hey (Deep & Trumpet Mix)
+03. Silk Jander - Incoming Clouds (House Lovers Mix)
+04. Chris Santiago - Tales (Mondial Groove Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5086D9350332E57DADCA6833AE9539F1F4F197AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249570   (433596) от 24.09.2018
+
+Vėjopatis - Belaukiant Saules (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sielu Vainikai (08:44)
+ 02. Ledo Asara (07:50)
+ 03. Dievo Sodas (05:56)
+ 04. Plauku Stygomis (04:34)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Techno, AcidПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCFB5CFA382B587C072EF8BAB8A3321980DD045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063777   (432686) от 17.10.2016
+
+Rauschhaus - The End Of All Things (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of All Things [04:53]
+02. The End Of All Things (Franz Alice Stern remix) [05:48]
+03. Afraid Of Us [05:21]
+04. The Beginning Of Nothing [05:24]Жанр: Deep House, Tech HouseПродолжительность: 00:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC0CA14F8E310A6B96DC9F52054E1AE985B9E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165688   (432594) от 13.09.2017
+
+Laid Back - Fuck (2014) EP [FLAC|Lossless|WEB-DL|tracks] <House, Dub, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuck (The Kenneth Bager Experience) (5:06)
+ 02. Fuck (Dub) (6:20)
+ 03. Don't Step On The Grass (Remix) (7:15)Жанр: House, Dub, ElectronicПродолжительность: 00:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244B99B6266CE047D31220F6F40D81633682651A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063760   (432390) от 17.10.2016
+
+VA - James Warren Presents: Visceral 041 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Visceral 041 (Part 1 - continuous DJ mix by James Warren) [01:01:22]
+02. Robert Heel - Onondaga Cava (original mix) [05:10]
+03. Redux Saints - Rebirth (Doorly remix) [06:58]
+04. Matter & GMJ - Atoms (original mix) [07:33](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C95DBD2A01E87C32910833A3F24D986CA1B32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945922   (431575) от 11.10.2015
 
 Maribou State - Portraits (2015) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
@@ -602,149 +746,6 @@ Sonique - Hear My Cry (2000) [FLAC|Lossless]<Trance, Euro House, Dance>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251525   (417936) от 01.10.2018
-
-VA - Technoszene Funf (2018) Raumangst Rec [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenchord – Spirit Of The Jungle (07:58)
-02. Insane House – Ah Ah (06:42)
-03. 21 ROOM – Spring GroveЖанр: Techno, Tech HouseПродолжительность: 02:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFA9298951CFC306F9DF888CD61A25C35E91E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251264   (417847) от 01.10.2018
-
-VA - Mega Power Lifting 70S Hits Workout Compilation (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Mama - Get Down on It (Fitness Version)
-02. Don Pablo's Animals - Give Me the Night (Fitness Version)
-03. Thomas - Kung Fu Fighting (Fitness Version)
-04. Steve - Sir Duke (Fitness Version)(   Читать дальше...   )Жанр: House, Dance, DiscoПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4FB2F0642428225142A6D4BDE387E122D7E3C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180438   (417760) от 01.10.2018
-
-Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Electro, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fullness Of Emptyness (01:51)
- 02. Lektrovision (05:00)
- 03. Ransom For A Dead Man (04:13)
- 04. She Likes Dark Hair (06:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Electro/TechnoПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A528ADA72F8AB0E21B7F29FF4495E1FBE84B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947492   (417739) от 17.10.2015
-
-Faithless - 2.0 (Remixes & Hits) (2015) 2CD [FLAC|image+.cue]<House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insomnia
-02. Mass Destruction
-03. God Is A DJ
-04. Don't Leave(   Читать дальше...   )Жанр: House, TranceПродолжительность: 02:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECD843D096B4983D81DA6B087682166E581248C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065763   (417047) от 24.10.2016
-
-Quivver - Response (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Response (Original Mix) (07:13)
-02. Call (Original Mix) (07:20)
-03. What Am I Dreaming (Original Mix) (06:28)Жанр: Deep House, Tech HouseПродолжительность: 00:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1703A9F8F846CAB0E8A3CFE0514EA57670A2C094
 ```
 
 https://mybot314.ru/tekegram_catalog/

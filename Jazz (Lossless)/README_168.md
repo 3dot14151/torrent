@@ -1,3 +1,173 @@
+###  Публикация: 937269   (490276) от 14.09.2015
+
+Roberto Negro Trio invite Christophe Monniot - #1 Luna Di Wuxi & #2 Kimono (2015) 2CD /Tricollectif/[FLAC|tracks+.cue]<Avant-Garde Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490276.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Grace [08:23]
+02. Ogni Cosa e Illuminata [05:49]
+03. Deja Vu [06:38](   Читать дальше...   )Жанр: Avant-Garde Jazz, Modern CreativeПродолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BFBA969EE846C5EACE94F38829C90BBDF6B7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937316   (490275) от 14.09.2015
+
+Terumasa Hino - Live In Concert (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logical Mystery [23:43]
+02. In The Darkness [11:29]
+03. 'Round About Midnight [11:08]Жанр: Jazz Fusion, Post-BopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B30B8B0AB42A51D2F4ADC4C780E5F11B6E8F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937080   (490271) от 14.09.2015
+
+Leon Spencer - Louisiana Slim (1971) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louisiana Slim [10:16]
+02. Mercy Mercy Me [04:10]
+03. (They Long To Be) Close To You [05:32]
+04. Our Love Will Never Die [10:20](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34F35C484FEA04FA9CE54AD0F737431D5A55DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937073   (490270) от 14.09.2015
+
+John Patton - Understanding (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hummond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ding Dong [05:37]
+02. Congo Chant [09:13]
+03. Alfie's Theme [04:43]
+04. Soul Man [06:12](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hummond OrganПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCFE17743DE8B4D7298FCCF4269421CFDDA9B09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937058   (490267) от 14.09.2015
+
+Art Blakey And The Jazz Messengers - Album Of The Year (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheryl [05:24]
+02. Ms. B.C. [06:48]
+03. In Case You Missed It [08:54]
+04. Little Man [07:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6915FC633439521999410776B7549D9F7059F950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937293   (490263) от 14.09.2015
+
+McCoy Tyner - Fly With The Wind (1976) /2008, Concord/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFE82F4247321F85841F38BE122B3B8DA47FCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158761   (490256) от 17.08.2017
 
 Roger Manins - Trio (2010) Rattle Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -571,180 +741,6 @@ Ruby Braff And His Quartet - Live At The Regattabar (1993) 1994, Arbors Records 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08191ABD12AE3E6219CD5909234ED8367631995E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405015   (487393) от 28.08.2020
-
-Ruby Braff And The Flying Pizzarellis - C'est Magnifique! (2002) 2007, Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lulu's Back in Town [7:50]
-02. Was I to Blame for Falling in Love with You? [4:56]
-03. You're a Lucky Guy [9:47]
-04. When a Woman Loves a Man [6:04](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E34FD61E7C9FAEC63E5B87B6E51600FB2BCDF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566074   (486525) от 27.07.2022
-
-Ahmed Abdullah Quartet - Liquid Magic (1988) Silkheart [APE|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mayibue [7:37]
-02. Reflections On A Mystic [5:16]
-03. Ebony Queen [8:15]
-04. Mystery Of Two [3:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C61568F350E187DB886100E23F608886175AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244009   (486184) от 30.08.2018
-
-Tom Harrell Quintet - Open Air (1987) SteepleChase [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terrestris [10:21]
-02. The Touch of Your Lips [9:13]
-03. Tricotism [6:03]
-04. Lover [6:51](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542A8BD742E94A8CBD2B01174D8F6D811B08608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937814   (486165) от 16.09.2015
-
-Contrevent - Terre De Feu (1993) /CTV/[APE|image+.cue]<Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kilometre-Heure [03:58]
-02. Terre De Feu [07:16]
-03. Nutella [07:47]
-04. Le Miroir Des Yeux [07:22](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC45C80093D56C81ADCCDB6D92A9A6A49106244A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937802   (486160) от 16.09.2015
-
-Charlie Mariano - Innuendo (1993) /Lipstick Records/[FLAC|tracks+.cue]<Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innuendo [05:32]
-02. Innamorata [07:52]
-03. Side Dish [07:21]
-04. Dorothee [03:49](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583E62E139FCB75BE243B9EFB3EEB0DDB014C1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937828   (486157) от 16.09.2015
-
-Lou Donaldson Quartet - Forgotten Man (1981) /2015, Solid Records/[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confirmation [06:00]
-02. Wiskey Drinkin' Woman [05:35]
-03. This Is Happiness [03:45]
-04. Tracy [04:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C0D3CCA193D0EA4FE1FBCD9D95E24475F99760
 ```
 
 https://mybot314.ru/tekegram_catalog/

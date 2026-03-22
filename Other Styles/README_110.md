@@ -1,3 +1,154 @@
+###  Публикация: 145393   (448586) от 14.08.2022
+
+Александр Зацепин - Тайна третьей планеты (1981) [MP3|320 kb/s]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.   Main Title (2:16)
+2.   The Journey Begins (0:49)
+3.   Dr Verhovtsev (1:07)
+4.   No Diaries (1:08)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2555366D63286EA9E038C381C5B68EE6DAFF6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705472   (448585) от 30.09.2013
+
+Leo Rojas - Flying Heart (2012) [FLAC|Lossless|image + .cue] <New age, Instrumental, Native american, Panflute>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Song (3:38)
+02. Chariots Of Fire (3:40)
+03. Run (4:03)
+04. Angel (2:53)(   Читать дальше...   )Жанр: New age, Instrumental, Native american, PanfluteПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C785863776D82353F7D2E67FB971812B5F28AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247910   (448491) от 17.09.2018
+
+Rajendra Teredesai & BlueMonk - Samsara (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Himalayan Sunrise
+02. Sunshine Girl
+03. Darjeeling Dreams
+04. As Life Passes By, Pt. 1(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1FFF64B8A3D5E14D6F25166CD25744CCC7FAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163689   (448144) от 06.09.2017
+
+Vangelis Katsoulis - If Not Now When (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448144.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All The Blue Skies
+2. Zarrin
+2. Grand Delusions
+4. Liquidity(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BD186848BB6C4262AAC9FAA7B8B913719FD75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552150   (448049) от 26.09.2012
+
+Edward Shearmur - K-PAX / Планета Ка-Пэкс (2001) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448049.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grand Central (4:38)
+2. Good Morning Bess (2:47
+3. Taxi Ride (3:50)
+4. Constellation Lyra (2:41)
+5. Bluebird	 (3:52)
+6. 4th Of July (4:14)
+7. Prot Missing (2:30)
+8. Sarah (3:03)
+9. New Mexico (6:24)
+10. Powell's Return (1:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930E304F2AEDB95BA8BFADE2CD7D96A39FB9BC62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552567   (447914) от 26.09.2012
 
 Шедевры Этнической Музыки - Ритуальная Музыка Индейцев Центральной Америки (2004) [MP3|320 кб/с]<Native American, Ethnic>
@@ -617,163 +768,6 @@ VA - Friday the 13th / Пятница 13-е (2009) [MP3|192 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D35822575E6625DA1DD887CDD8A250F06A40600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181295   (441945) от 05.10.2014
-
-VA - 100 Instrumental - Hits (2008) 5CD [APE|Lossless]<Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_441945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у Вас испортилось настроение или на работе неудачи, послушайте один из этих 5-ти дисков. Эти инструментальные хиты на 100% вернут Вам душевный покой. В сборнике 100 Instrumental Hits, вас ждет целая сотня великолепных музыкальных композиций, современных и не очень, исполненных оркестрами в самых разных ритмах, от спокойной, душевной музыки, до весёлых, зажигательных, (   Читать дальше...   )CD1:
-01. Sun Of Jamaica / Orchester Enrico Scampo 			(04:16)
-02. Guantamera / The Fivetones & The Blue Stars 		(04:06)
-03. Rumba Gitana / Orchester Charles Parker 			(02:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:13:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553695   (441904) от 29.09.2012
-
-Jana Mashonee - American Indian Story (2006) [MP3|320 кб/с]<Native American Ethno, New Age, Pop, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441904.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Great Storm [1:15]
-2. The Journey [5:01]
-3. The New World [5:51]
-4. The Sacred Gifts Of Mother Earth [5:04]
-5. The Hunt [3:28]
-6. The First Celebration [2:40]
-7. The Spirit Of One [4:13]
-8. The Enlightened Time [4:57]
-9. The Medicine Woman's Vision [4:02]
-10. The Visitors [4:47]Жанр: Native American Ethno, New Age, Pop, FolkПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB331552E2BA227CA063328AE5795061E84ACF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553540   (441901) от 29.09.2012
-
-VAD - Заря (2011) [MP3|320 кб/с]<New Age, Ethnic , Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zarya
-02.  Kumushki
-03.  Vo Sadu Sadochke
-04.  Nu-Ka
-05.  Golub
-06.  Ti Ne Stoy
-07.  U Vorot
-08.  Na Gorke
-09.  Maslyanaya
-10.  Ti VospoyЖанр: New Age, Ethnic , FolkПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8978BAAA0A6722C5839F301629458037CDAC39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944550   (440382) от 07.10.2015
-
-Age Of Echoes - Beyond the Farthest Shore (2015) [MP3|320 кб/с]<New Age, Relax, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit of Adventure
-02. To the Ends of the Earth
-03. Mapping the Stars
-04. Hidden Paradise(   Читать дальше...   )Жанр: New Age, Relax, AmbientПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5693CB7BF5F2E526A10245B743D5A9CE93EE394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88648   (440343) от 29.09.2012
-
-Микаэл Таривердиев - 17 мгновений весны (1996) [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_440343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-На Цветочной улице
-02-Где-то далеко
-03-Эхо войны
-04-В чёрно-белом ритме(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1042435   (579416) от 12.08.2016
+
+Emly Starr - Emly Starr (1980) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock & Roll Woman (3:32)
+02. Music In The Air (3:15)
+03. Santiago Lover (6:21)
+04. I Need Help (3:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4D07DD413FB1AA176B970148F5796D2001BEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042505   (579410) от 12.08.2016
 
 VA - Disco Tape Vol 3 (2016) [MP3|320 Kbps] <Disco>
@@ -748,35 +777,6 @@ Krono - Krono (1979) LP [MP3|320 Kbps] <Electronic, Space Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE7C9E1B521E6725B17ADD1715A6B6B971752FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234635   (567896) от 07.07.2018
-
-Ken Laszlo - Best Of 1990-1998 (Maxi Singles & More) (2018) Compilation, Limited Edition [MP3|320 Kbps] <Disco, Dance-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Hey Guy ‘94 (05:34)
-02. Mary Ann (Thats The Lovely Mix) (05:43)
-03. Baby Call Me (Ken Hit Mix) (07:23)
-04. Happy Song (Happy Mix) (06:10)(   Читать дальше...   )Жанр: Disco, Dance-popПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD2242656AB353B70AC54881B059A5F1EA74D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

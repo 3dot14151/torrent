@@ -1,3 +1,124 @@
+###  Публикация: 1418939   (343945) от 26.10.2020
+
+Русский народный хор имени М. Е. Пятницкого - Русские народные песни (2006) 2 CD [FLAC|Lossless|tracks + .cue]<Русский народный фольклор>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молодцы-удальцы
+02. На березе ворон кряча
+03. Как уехал муж у поле
+04. Воробушка-воробей(   Читать дальше...   )Жанр: Русский народный фольклорПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C774EAF9AA4E85E7FCF8BDB7CCB2868B75B673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581284   (340333) от 26.11.2012
+
+Brian Crain - Sienna (2003) [MP3|320 кб/с]<Neoclassical, New age, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340333.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:09) 01. Song For Sienna
+(3:09) 02. Lavender Hills
+(4:58) 03. Crimson Sky
+(3:06) 04. The Secret Letter
+(4:22) 05. Eclipse Of The Moon
+(3:10) 06. Midnight Blue
+(3:44) 07. The Garden Gate
+(3:29) 08. At First Light
+(3:25) 09. Season Of Joy
+(4:01) 10. Tears In The Fountain(   Читать дальше...   )Жанр: Neoclassical, New age, PianoПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399019B70257A3C2F7FC8DE1B732A258748DE064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073735   (340226) от 18.11.2016
+
+Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und Orchester Nr. 5 Es-Dur, op. 73 (1982) [FLAC|Lossless|image + .cue] <Фортепиано>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340226.jpg" />
+</div>
+
+
+###  Подробнее
+
+I. Allegro (21:37)
+ II. Adagio un poco mosso - attaca (8:36)
+ III. Rondo. Allegro (12:11)Жанр: ФортепианоПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BFDB029A50405447D847DE943CF5663AFC6562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954714   (339850) от 08.11.2015
+
+Cherubini - Requiem (Christoph Spering & New Berlin Chamber Orchestra) (1994) [FLAC|image +.cue]<Classical, Classical Period, Requiem>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymne et march funbre, for chorus & orchestra (04:47)
+Requiem No.1 ( la mmoire de Louis XVI), for chorus & orchestra in C minor
+02. Introitus (06:09)
+03. Graduale (01:18)(   Читать дальше...   )Жанр: Classical, Classical Period, RequiemПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F2B7600F7997732A35B7A963B912ED181C7D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954701   (339830) от 08.11.2015
 
 Mozart - Piano Concertos nos.17 & 20 (Leif Ove Andsnes & Norwegian Chamber Orchestra) (2008) [FLAC|image +.cue]<Classical, Concerto, Classical Period>
@@ -622,122 +743,6 @@ Ravel - Complete Piano Works - (Begona Uriarte, Karl-Hermann Mrongovius) (Vol.1)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BAA21B9C7D7F45788DAD82BD4C7ADF55B7A9B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956242   (329323) от 15.11.2015
-
-Sviatoslav Richter - Tchaikovsky, Mussorgsky - Piano Works (1994) [FLAC|image +.cue]<Classical, Orchestral, Sonata, Classical Period, Piece>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata in G major, Op. 37
-01. Moderato e risoluto (11:28)
-02. Andante non troppo quasi moderato (10:04)
-03. Scherzo. Allegro giocoso (02:50)(   Читать дальше...   )Жанр: Classical, Orchestral, Sonata, Classical Period, PieceПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CACFE47CA204D7DFC12722902486A341B2CD335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956265   (329318) от 15.11.2015
-
-Mozart - Requiem (Jordi Savall) (2000) [FLAC|image +.cue]<Classical, Classical Period, Requiem>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maurerische Trauermusik, KV 477
-01. Ode funebre (1785) (05:23)
-Requiem in D minor, KV 626
-02. Requiem (06:45)(   Читать дальше...   )Жанр: Classical, Classical Period, RequiemПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3FDC66B04562EE9E427A43C56D669ED6B4D680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957462   (326660) от 18.11.2015
-
-Tchaikovsky, Scriabin - Piano Concertos (Solomon) (2002) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Romantic Period, Post-Romantic, 20th Century Period, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tchaikovski - Piano Concerto No. 1 in B flat minor, Op. 23
-01. Allegro non troppo e molto maetoso - Allegro con spirito (18:49)
-02. Andantino semplice - Prestissimo - Tempo 1 (06:58)
-03. Allegro con fuoco (06:47)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Romantic Period, Post-Romantic, 20th Century Period, ConcertoПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C16B7E2659B06FA8C92B9909E215CAF1C0A9101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957657   (326600) от 18.11.2015
-
-Schubert - Impromptus, Moments musicaux, Sonatas D960 & D664 (Wilhelm Kempff) (2CDs) (1998) [FLAC|image +.cue]<Classical, Romantic Period, Chamber Music, Recitals, Sonata, Impromptu, Musical ...
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Impromptus (4) for piano, D. 899 (Op. 90)
-01. No.1 in C minor Allegro molto moderato (10:03)
-02. No.2 in E flat Allegro (04:40)
-03. No.3 in G flat Andante (07:00)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, Impromptu, Musical MomentsПродолжительность: 02:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D2E77BBCDAD398109008801287A6A88E6C25AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

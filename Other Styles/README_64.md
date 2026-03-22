@@ -1,3 +1,119 @@
+###  Публикация: 1025882   (707939) от 13.06.2016
+
+Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way Of Sakayama (5:51)
+02. Free Tibet (6:38)
+03. Temple Lounge (4:52)
+04. Lhasabeats (6:00)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 04:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE566EB8E1827EF4B94C81E55BAD2E92DA64FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025666   (707843) от 13.06.2016
+
+Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Soundtrack, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [00:04:08]
+02. Code 44 [00:04:32]
+03. The Arrival [00:02:50]
+04. Future Noir [00:03:25](   Читать дальше...   )Жанр: Electronica, Soundtrack, New Age, Synthwave, ElectroПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BEC82D45E9E399BA21BE16792621463BE9C7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401575   (707521) от 11.08.2020
+
+The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breakaway (03:17)
+2. Jeepers Creepers (02:50)
+3. Piccolo Pete (02:58)
+4. The Very Thought of You (03:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03124F4B4561E290135534CBAB846C826C3A7777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 328145   (706993) от 11.08.2020
+
+VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armik - Sailing To Bimini (05:14)
+02. The Ventures - Blue Chateau (02:43)
+03. Hugo Strasser - Raindrops Keep Falling On My Head (02:30)
+04. Boris Zepyr - Fernando (04:25)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 03:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E66ABB2198EC3FA015AD9BA52933E092715E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131455   (706949) от 06.05.2017
 
 Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -628,122 +744,6 @@ VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6836328A4593F649DE0C8B36848E42129EC04EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132586   (701126) от 09.05.2017
-
-Timothy Wenzel - What We Hold Dear (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murmuration (feat. Josie Quick & Jordan Schug)
-02. What We Hold Dear (feat. Josie Quick & Jordan Schug)
-03. Appalachian Waters
-04. Ascension (feat. Jordan Schug)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC5CC93C49FD00E21A8175B2D8FCEEA12B8DC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132572   (701115) от 09.05.2017
-
-Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .cue] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Works I (3:18)
-02. Ancient Person Of My Heart (5:52)
-03. O'Ecclesia (3:35)
-04. Interlude I (1:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A76F53AEAE67879E5DD966EA714194E2B8E6BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132422   (700997) от 09.05.2017
-
-Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Origins of Murder Victim Jane Doe (01:33)
-02. Hide You in Ezekiel’s Blood (01:18)
-03. I Am the Chorus of Screams! (02:03)
-04. You Don’t Have to Hide (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926FF174363ACFAE1B1D390379C751C00094834B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132495   (700848) от 09.05.2017
-
-D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svoboda 5:51
-02. The Mountain Song (Pritouritze Planinata) 6:54
-03. Optaki 4:54
-04. Sebastien's Song 3:29(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A645B0E24C51365D53ED5F8240258C7A967D138
 ```
 
 https://mybot314.ru/tekegram_catalog/

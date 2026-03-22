@@ -1,3 +1,235 @@
+###  Публикация: 1328716   (359254) от 02.10.2019
+
+VA - Amber Arcades: October Rock Compilation (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atlas - Signal Of Hope
+002. Awakebutstillinbed - Interlude
+003. Earthless - Black Heaven
+004. Viagra Boys - Shrimp Shack(   Читать дальше...   )Жанр: RockПродолжительность: 10:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3112150C3F5D86875CF8436EF55AABF2CFF35FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255733   (359028) от 20.10.2018
+
+VA - Age Of Rebelion: Rock Revue (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359028.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Genesis - In Hiding
+002. I, The Lion - Escape
+003. Leader Of Down - Paradise Turned Into Dust
+004. Beartooth - Manipulation(   Читать дальше...   )Жанр: RockПродолжительность: 10:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B41727C77D852DCDB1D9068F83686E15A0105C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328955   (358757) от 02.10.2019
+
+The Beatles - Abbey Road De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Come Together (Anthology 3 Version) (03:41)
+02-Something (Studio Demo) (03:19)
+03-Maxwell's Silver Hammer (Take 12) (03:43)
+04-Oh! Darling (Take 4) (03:31)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AC83F739A49715C4892E77308100EAC864A492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071454   (358671) от 10.11.2016
+
+Ляпис Трубецкой - Лучшее за все годы (2016) [MP3|320 Kbps] <Rock, Ska, Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ау 3:53
+02.Ранетое сердце (Абы чо) 5:47
+03.Ты кинула 3:58
+04.В платье белом 5:00(   Читать дальше...   )Жанр: Rock, Ska, PunkПродолжительность: 03:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF124DB5259462334A9B14D302E6C25042C0F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178189   (357857) от 27.10.2017
+
+VA - Для Тех, Кто Помнит! Русский Рок Vol.6 от Ovvod7 (2017) [MP3|320 Kbps] <Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ДДТ - Что такое осень 4:57
+02.  Кузьмин Владимир - Когда я стану другим 4:09
+03.  Альфа - Воробей 4:19
+04.  Воскресение - Воскресение 6:50(   Читать дальше...   )Жанр: РокПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B15447E7AEBBB905502208D9ED046CC94768DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256503   (354136) от 22.10.2018
+
+VA - Postulates Of Babylon (2018) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Country Communion - Collide
+002. Bonfire - Power Train
+003. Cleõphüzz - Sandstorm
+004. Furious Zoo - All For Rock N' Roll(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 11:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B48A7E888984E2351AC2292D5F221B0FE7F7A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256622   (354027) от 22.10.2018
+
+Foreigner - A Night to Remember (2018) (Compilation) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Night to Remember
+02. Blinded By Science
+03. At War With The World
+04. Cold As Ice(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C4B332ECD68AAC918D7E386CFC68152C24EF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417482   (353428) от 22.10.2020
+
+T.Rex - Greatest Hits (2020) [MP3|320 Kbps] <Glam-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get It On (04:24)
+ 02. Solid Baby (02:40)
+ 03. Tame My Tiger (02:31)
+ 04. Metal Guru (02:30)(   Читать дальше...   )Жанр: Glam-RockПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BA959A6C9CF85E62DB498247CAB7581470A382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417510   (353247) от 22.10.2020
 
 VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
@@ -514,239 +746,6 @@ VA - Mark Knopfler & Dire Straits (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:255BD477ACCCDDEDD4D79B6428994F137B2C3693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955599   (333711) от 11.11.2015
-
-VA - Winter Rock (2015) [MP3|192-320 кб/с]<Rock, Hard Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Idol - Rebel Yell
-02. Wax Audio - Whole Lotta Sabbath
-03. Queen - We Will Rock You
-04. Led Zeppelin - Rock And Roll(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam RockПродолжительность: 02:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787148E0449E3E55D14ADB5F773C8B84F5474A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955676   (333705) от 11.11.2015
-
-VA - Всё это Рок-&-Ролл (2009) [MP3|192 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Монгол - Summertime
-02. Бригада С - Звезда микрорайона
-03. Високосный год - Лучшая песня о любви
-04. Константин Никольский - Мой друг художник и поэт(   Читать дальше...   )Жанр: RockПродолжительность: 04:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5BC73614D21CC5FF242D140C3DF38B0B8032E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579643   (333359) от 29.09.2022
-
-Eliza Neals - Compilation (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten Town
-02. Another Lifetime
-03. Hey, Take Your Pants Off
-04. Cold Cold Night(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5A9C782838859816C3D94084C0260ACA98CA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420402   (332418) от 01.11.2020
-
-VA - Music for You vol.14 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuclear Power Trio - A Clear and Present Rager (03:36)
- 02. Soen - Antagonist (06:07)
- 03. Pyramaze - Particle (04:34)
- 04. Soilwork - The Nothingness And The Devil ( (05:36)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF61CCACD868C280C8CB082C3EBCE6F3F0CCAE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331362   (331887) от 15.10.2019
-
-VA - 100 Rock Ballads Vol.2 (2019) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331887.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gary Moore - Nothing's The Same 5:07
-002. Whitesnake - Is This Love 4:41
-003. Lita Ford with Ozzy Osbourne - Close My Eyes Forever 4:46
-004. Skid Row - In A Darkened Room 3:55(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 08:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A165BB419FB1383769CE3C0333A8096CC27F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957962   (325630) от 19.11.2015
-
-VA - Covered By Slade (2015) [MP3|128 кб/с]<Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donnie Iris - Love is like a rock
-02. Slade - Love Is Like A Rock
-03. Chuck Berry - I'm a rocker
-04. Slade - Iґm A Rocker(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53552421B7052577A9D607C8ADE0A906E9FB979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507189   (320283) от 03.11.2018
-
-VA - Re:Aквариум (Трибьют) (2012-2013) (Lenta.ru - 135 треков, Kroogi.com - 194 трекa) [MP3|96-320 кб/с]<Rock>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320283.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Re:Аквариум" — трибьют-проект, посвящённый 40-летнему юбилею группы «Аквариум», организованный в 2012 году Lenta.ru и Kroogi.com при поддержке Нашего радио. Участие в проекте мог принять любой коллектив, приславший кавер-версию песни группы «Аквариум» на один из сайтов-организаторов.
-В проекте приняли многие известные коллективы, такие как Ленинград, Сплин, (   Читать дальше...   )01. Московский Синодальный Хор - Сокол (07:42) <320kbps>
-02. Мох - Миша Из Города Скрипящих Статуй (03:43) <320kbps>
-03. Вишня Алексей - Начальник Фарфоровой Башни (05:12) <320kbps>
-04. Чубыкин Олег - Немое Кино (02:39) <320kbps>(   Читать дальше...   )Жанр: RockПродолжительность: 20:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD77FFEF7F9D6D92A63BD837FE0E6340706AFD28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331390   (320222) от 17.10.2019
-
-VA - Жизнь и немного любви из русского рока-2 (2019) [MP3|320 Kbps] <Русский рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ДВУРЕЧЬЕ - Ветер в облаках.
-002. Квартет им. Достоевского - Наши глаза.
-003. Fort Royal - Не впускай зверя в дверь.
-004. Мегаполис и Ёлка - Посвящение Деннису Силку.(   Читать дальше...   )Жанр: Русский рокПродолжительность: 09:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E8E8A329CB8DF961B0B231092D684E719C9A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

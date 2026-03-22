@@ -1,239 +1,25 @@
-###  Публикация: 413611   (828941) от 05.05.2020
+###  Публикация: 1495980   (830939) от 13.10.2021
 
-AppMgr Pro III v5.01 (Lite Mod) [Ru/En] - Перенос приложения на карту памяти
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Android 2.2 появилась возможность перемещать установленные приложения на карту памяти. Это нам поможет освободить встроенную память телефона.Тип издания: ПираткаРелиз состоялся: 05.05.2020Разработчик: Sam LuПоддерживаемая ОС: Android 4.1Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DBE3C79ADED8BF1F192E4FB880AEE9AE06C375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381003   (828940) от 05.05.2020
-
-Call of Duty: Modern Warfare 2 - Campaign Remastered (2020) [Ru/Multi] (1.1.1.1279145) Repack xatab
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Call of Duty: Modern Warfare 2 была одним из ведущих блокбастеров 2009 года. Мы предлагаем вам повторно пройти эпическую кампанию из этой игры, воссозданную в режиме высокой четкости. Действие кампании начинается сразу же после драматических событий революционной игры Call of Duty 4: Modern Warfare, завоевавшей всемирное признание. Захватывающий и динамичный (   Читать дальше...   )Тип издания: RepackРазработчик: Infinity Ward, BeenoxЖанр: Action (Shooter), 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5ACD43A561A3EAA0444A9B402630E987C8D2668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212347   (828939) от 05.05.2020
-
-Игра престолов / Game of Thrones (2011-2019) BDRemux [H.264/1080p] (сезон 1-8, серии 1-73 из 73) AlexFilm, LostFilm, FoxLife, Ren-TV, Кравец, Jaskier, FocusStudio, NewStudio, FOX, AMS, OmskBird
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительная часть экранизирует черновой вариант последней книги Джорджа Р. Р. Мартина «Песнь Льда и Огня». В финале седьмого сезона, разрушив кусок великой Стены, армия Белых ходоков во главе с Королем Ночи направилась вглубь Вестероса, чтобы положить конец цивилизации. Получится у сильных мира Вестероса объединить усилия? Как проявит себя каждый из игроков? И (   Читать дальше...   )Производство: США, Великобритания / Home Box Office (HBO), Television 360, Grok! StudioЖанр: Фэнтези, Драма, ПриключенияРежиссер: Дэвид Наттер, Мигель Сапочник, Дэвид Бениофф, Д. Б. УайссАктеры: Питер Динклэйдж, Николай Костер-Вальдау, Лена Хиди, Кит Харингтон, Эмилия Кларк, Софи Тёрнер, Мэйси Уильямс, Лиам Каннингем, Натали Эммануэль, Альфи Аллен, Джон Брэдли, Айзек Хэмпстед-Райт, Гвендолин Кристи, Конлет Хилл, Рори Макканн, Джером Флинн, Кристофер Хивью, Джо Демпси, Джейкоб Андерсон, Ханна Мюррей, Иэн Глен, Кэрис ван ХаутенПеревод: Профессиональный (многоголосый закадровый) - AlexFilm
-Профессиональный (многоголосый закадровый) - LostFilm
-Профессиональный (многоголосый закадровый) - AMS
-Профессиональный (многоголосый закадровый) - FocusStudio (кроме 4 серии)(   Читать дальше...   )Субтитры: Русские (форсированные), русские (Amedia), русские (7kingdoms), русские (AlexFilm), английские, английские (SDH)Продолжительность: ~00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BCCDB3BD991AEEBC94EF3E49F2F7ABCDBE7077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772507   (828917) от 06.04.2014
-
-Несчастный случай / Accident (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интригующий и захватывающий фильм о соблазнении студентки университета после аварии, в результате которой она осталась жива, а любимый ее погиб. Рассказывает профессор, размышляющий над мертвым телом своего бывшего студента. Перед зрителем вырисовывается неуютный портрет академической жизни, окрашенной в цвета сексуального отчаяния на фоне внешне мирного и спокойного лета в Оксфорде.Жанр: Драма, КриминалРежиссер: Джозеф ЛоузиАктеры: Дирк Богард,Стенли Бейкер, Жаклин Сассар, Майкл Йорк, Вивьен Мерчант, Дэльфин Сейриг, Александр Нокс, Энн Фёрбэнк, Брайан Филан, Теренс РигбиПеревод: Многоголосый закадровыйПродолжительность: 01:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E827DBF0EAB3C76D7F93F9A519FE8F2B397D464A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774379   (828905) от 06.04.2014
-
-VA -The Very Best of While My Guitar Gently Weeps 2CD (2008) [FLAC|Lossless]<Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Who -  Who are You  (5:06)
-02.  Joe Walsh -  Life's Been Good  (4:39)
-03.  Stealers Wheel -  Stuck in the Middle With You  (3:23)
-04.  John Stewart -  Gold  (4:21)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EED22032DAD02AB65C7AE4839752944DDC1419C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774441   (828900) от 06.04.2014
-
-Гонка / Rush (2013) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828900.jpg" />
-</div>
-
-
-###  Подробнее
-
-70-е годы XX века. Золотое время «Формулы-1»: обтекаемые формы гоночных машин, брутальные на треке и ранимые в обычной жизни гонщики, сексуальные поклонницы, литры шампанского на финише для победителя… Два непримиримых соперника в истории гонок — обаятельный плейбой-англичанин Джеймс Хант и дисциплинированный перфекционист-австриец Ники Лауда — доводят себя до предела физической и психологической выносливости ради триумфа на трассе. Для них нет легких путей к победе и права на ошибку. Единственный промах гонщикам может стоить карьеры и даже жизни.Жанр: Cпорт, драма, биографияПродюсер: Эндрю Итон, Эрик Феллнер, Брайан ГрейзерВ ролях: Крис Хемсворт, Даниэль Брюль, Оливия Уайлд, Александра Мария Лара, Пьерфранческо Фавино, Дэвид Колдер, Натали Дормер, Стефен Мэнгэн, Кристиан МакКэй, Алистэр ПетриПеревод: Авторский (одноголосый закадровый) (Сербин)Язык субтитров: Русский, АнглийскийПродолжительность: 02:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ECD3765EA5DCCC238E8AF0937A752850A8934CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774325   (828899) от 06.04.2014
-
-В белом плену / Into the White (2012) BDRip [1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Норвегия, ШвецияЖанр: Боевик, Драма, Военный, ИсторияРежиссер: Петтер НессАктеры: Флориан Лукас, Дэвид Кросс, Стиг Хенрик Хофф, Локлен Нибор, Руперт Гринт, Ким Хёуген, Кнут Йонер, Мортен Фальдаас, Сондре Крогтофт Ларсен ...Перевод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CC5207D18B4C9E071CC2F125DCE7F60C4D7C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006299   (828898) от 11.04.2016
-
-Я. И. Перельман | Далекие миры (1919) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828898.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге известный популяризатор науки, Я. И. Перельман, даёт описание Солнечной системы. Приводятся интересные факты и сравнения. Книга написана живым и доступным языком, и будет интересна детям младшего и среднего школьного возраста.Жанр: История, астрономия, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62FF9AF7520E73361E36E2869DCED379D4B1D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004924   (828897) от 11.04.2016
-
-Clinton Shorter and VA - Контрабанда / Contraband (2012) [AAC|WEB-DL|256 Kbps]<Score>
+VA - Chill out Magnifique, Vol. 1 (2019) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828897.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - J Roddy Walston and the Business - Don't Break the Needle
-02 - Clinton Shorter - Contraband
-03 - Clinton Shorter - Raid
-04 - Eli - The Satisfier(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:57:57
+01. Maximus, Ensemble Ethnique - Mystery of the Seven Chakras (Original Mix) (3:07)
+02. Jasmon - River of My Heart (Original Mix) (5:04)
+03. Jane Maximova - Clouds (Original Mix) (5:49)
+04. Abey Brown - Calma (Original Mix) (6:27)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:06:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E81C477AE36B3FF4A283520E1DD81D737E4B3AEF
+magnet:?xt=urn:btih:9B1EAF7595F513A06F835B22F418077348F7BCFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006291   (828896) от 11.04.2016
+###  Публикация: 1497891   (830938) от 13.10.2021
 
-Mumble 1.2.15 + Portable [Multi/Ru]
+Röyksopp - Junior (2009) [AAC|~349 Kbps] <Electronic, Downtempo>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828896.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mumble - приложение для группового голосового общения по технологии VoIP. В основном эта программа создавалась для геймеров, хотя вы можете использовать Mumble и для бизнес-общения. Программа обеспечивает прекрасное качество звука благодаря тому, что не просто использует компрессию аудио-сигнала, но и предварительно обрабатывает его, удаляя шумы и повышая чистоту (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+01. Happy Up Here (2:44)
+02. The Girl and the Robot (4:29)
+03. Vision One (5:00)
+04. This Must Be It (4:42)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:56:41
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A71825F8BB7F7E83F30FE77B1A13B448F79E6942
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005404   (828895) от 11.04.2016
+###  Публикация: 1498559   (830937) от 13.10.2021
 
-Владимир Малик | Шёлковый шнурок (2016) [MP3]
+VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 2 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828895.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Шёлковый шнурок» — заключительная часть тетралогии
-«Тайный посол», первые две книги которой вышли на русском
-языке в 1973 году под общим названием «Посол Урус-Шайтана»,
-а третья — «Чёрный всадник» — в 1981 году.Арсен Звенигора и его друзья — донской казак Роман Воинов,русский стрелец Кузьма Рожков, поляк Мартын Спыхальский, воевода болгарских повстанцев-гайдуков (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 10:15:24
+01. Music Of The Earth - Afterglow (Longglow Edit) (5:37)
+02. Manyus Joan Eta - Sea Ballad (5:34)
+03. VAN - Others City (6:19)
+04. Ialaz - Interlude 2 (1:50)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:19:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD08ED21F57A301E7CD9A465847306EB0ABE94A6
+magnet:?xt=urn:btih:EF4B47141C76BBB68C816173DA727C91B9FFF18C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,27 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006343   (828894) от 11.04.2016
+###  Публикация: 1497390   (830936) от 13.10.2021
 
-Валерий Слезин | Россия — страна нормальных людей (2016) [FB2]
+VA - Buddhatronic - the Compilation, Vol. 2 (2017) [AAC|~307 Kbps] <Downtempo, Lounge, Chill Out>
 
->>Разное (категория книг)
->>Публицистика
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828894.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В последнее время мир сильно меняется. Однако, не все новое — лучшее. В своей новой книге В. Б. Слезин анализирует процессы, изменяющие лицо западной цивилизации и пытается соотнести их с тем, что происходит в России.
-
-Каковы же будут последствия глобализации для мира и стоит ли России во всем подражать Западу?Жанр: ПублицистикаФормат: FB2
+01. Artenovum - Blue Sun (Ambient Lounge Mix) (5:34)
+02. Pascheba - Nirvana (3:28)
+03. Buddhatronic - World of Grace (Mystic Voice Mix) (4:54)
+04. Artenovum - Francesca (Mystic Dream Mix) (4:55)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:49:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94BFE2A765C1828E53B44B14E755E82610CB1A9C
+magnet:?xt=urn:btih:39CD7D1456E62C3270DEC0321C309B96DD5806BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,26 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006203   (828893) от 11.04.2016
+###  Публикация: 1497392   (830935) от 13.10.2021
 
-Книжная серия | Иконы спорта [4 книги] (2014-2016) [FB2]
+VA - Buddhatronic - the Compilation, Vol. 3 (2018) [AAC|~320 Kbps] <Downtempo, Lounge, Chill Out>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828893.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иконы спорта - серия книг о спортивных знаменитостях.
-Какими качествами нужно обладать, чтобы стать "золотым мальчиком футбола"? Чем нужно пожертвовать, чтобы добиться такого успеха? Как достичь вершин, но остаться обычным человеком? Несмотря на многочисленные преграды и проблемы со здоровьем, Месси осуществил свою мечту, занимаясь любимым делом и работая (   Читать дальше...   )Жанр: Спорт, биографииФормат: FB2
+01. Jean Mare - Here We Go Again (Buddha Chillout Mix) (5:44)
+02. Artenovum - Eehee (Mystic Voices Enigmatic Mix) (4:51)
+03. Book of Dreams - Garden of Secret (Mystic Sphere Mix) (5:38)
+04. Buddhatronic - Granular Dreams (Send Me an Angel Mix) (4:34)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0E8CDF81AFE87F14E54A8F09AF44B459675C144
+magnet:?xt=urn:btih:199BF1785FF355E5370305E6F18979FBA23A0C8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005710   (828892) от 11.04.2016
+###  Публикация: 1495594   (830934) от 13.10.2021
 
-Ложь во спасение (2015) SATRip [H.264] (1-4 серии из 4)
+Dark the Suns - Suru Raivosi Sydämeni Pimeydessä (2021) [AAC|~339 Kbps] <Melodic Death, Gothic Metal>
 
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828892.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У следователя Олега Субботина есть любимая жена, двое детишек, уютный дом. Кажется, что под всем этим благополучием – крепкий фундамент на века. Может быть, именно поэтому Олег больше внимания отдаёт работе – а когда выясняется, что следствию может быть полезен бывший муж Ирины, без колебаний помогает ему выйти на свободу по УДО. С этого момента жизнь Субботиных (   Читать дальше...   )Производство: Россия, «Телемастер»,Студия "Простофильм"Жанр: Детектив, МелодрамаРежиссер: Андрей ВерещагинАктеры: Владимир Жеребцов, Анастасия Панина, Любава Грешнова, Елизавета Лотова, Александр Наумов, Василиса Немцова, Эдуард Айткулов, Алексей Тихонов, Олег Каменщиков, Алексей Матошин, Пётр РыковПродолжительность: ~ 00:44:00
+01. Spirit in the Dark (3:57)
+02. Everywhere (5:05)
+03. Suru Raivosi Sydämeni Pimeydessä (4:21)
+04. Hope in Our Hands (4:48)(   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57F2F1CC863FB470D6D7F1A6E8F365A19E3368FB
+magnet:?xt=urn:btih:BE9DAE09C37CE7AEE93B94F8A7445B7D86F4BD01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006202   (828890) от 11.04.2016
+###  Публикация: 1496271   (830933) от 13.10.2021
 
-Проекты - RocketStock - Staple [AEP]
+VA - Blueberry Café, Vol. 1 (2013) [AAC|~333 Kbps] <Downtempo, House, Jazzy>
 
->>Проекты
->>Презентации (проекты)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828890.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Staple - это лучший способ показать ваш продукт, услугу или бренд.
-Проект - коллаж состоит из 9 заполнителей для фото и видео, и финальный логотип с названием компании.
-В комплекте две версии. Горизонтальная (альбомная ориентация), слайды двигаются слева направо. И вертикальная. Слайды двигаются сверху вниз.
-Легко настроить все цвета, шрифты, и многое другое. Вы (   Читать дальше...   )Формат: AEP
+01. SoulAvenue - Stuck in a Dream (4:14)
+02. JULIAS MOON - Bay (2:47)
+03. Roberto Sol, Florito, Sandra Muhuri - Impress Me (4:46)
+04. Luis Hermandez - Summer Feeling (3:16)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:26:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D1E377EFB383BD84320E1C659FDC0B56BD0DE5C
+magnet:?xt=urn:btih:D4ABFC5AD24B8C82F35E0C54655697417A17B9B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005738   (828888) от 11.04.2016
+###  Публикация: 1497226   (830932) от 13.10.2021
 
-Медвежий Угол - Выступление на Грушинском (2014) HDCam [H.264/1080i]
+Chillhop Guitar - Spring from the soul (2021) [AAC|~295 Kbps] <Chill Out, Smooth Jazz, Downtempo>
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828888.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Студент казанского мединститута Михаил Вырин всё время, свободное от учёбы и дружеских пирушек, посвящал занятиям музыкой и чтению стихов любимых поэтов. Окончив институт, несколько лет работал санитарным врачом. Писал песни, создавая время от времени группу МЕДВЕЖИЙ УГОЛ, которая благополучно разваливалась. Когда работа стала мешать любимому делу, Михаил оставил (   Читать дальше...   )неизвестенЖанр: Folk RockПродолжительность: 00:40:42
+01. Montecristo (5:18)
+02. Lounge with my Valentine (7:39)
+03. Vinyl in the Clouds (3:13)
+04. Sunset Walk (4:49)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:21:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF4CFA8BFCBBD4F40DAF05479DE5F7C5141DD285
+magnet:?xt=urn:btih:7A4760D974747AD3D184565CC8603B73D716A172
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,25 +230,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006316   (828885) от 11.04.2016
+###  Публикация: 1497187   (830931) от 13.10.2021
 
-Теория заговора. Как убить государство (11.04.2016) SATRip
+VA - Luxury Lounge Sunset, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - Don't Want Your Love (3:06)
+02. Music Of The Earth - The Lofi Jazz Pattern (3:27)
+03. Five Seasons - Caminho De Amor (5:16)
+04. Green Pine River - Skyfall (D-Soriani Bossa Edit) (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A2BA959EB359FF0DCBD4E7F4B31D39259F65DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497138   (830930) от 13.10.2021
+
+VA - Magic Island of Chill Out, Vol. 2 (2021) [AAC|~322 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twins In Mind - Intro (1:24)
+02. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
+03. Tom Tom Club - Love to Love You Baby (Vavinchi Remix) (6:34)
+04. Miper - Relax (3:16)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A961DE343C345AFD62505AC18CC765F496B834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498524   (830929) от 13.10.2021
+
+VA - Fireplace Chill, Vol. 7 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feindrehstar - Love & Hoppiness Int. (Original Mix) (2:33)
+02. Slow World - Caravan (Original Mix) (4:58)
+03. Marc Hartman - Into the Stone (Original Mix) (4:16)
+04. Placid Larry - Blossoming (Original Mix) (2:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A87279C1D4867A855E2CEDCD498D0B8682F9852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496947   (830928) от 13.10.2021
+
+VA - Electronic Lounge Collection, Vol. 2 (2021) [AAC|~314 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Mars - Walking on the Street (Original Mix) (3:31)
+02. Florent Campana - Pentimento (Original Mix) (3:00)
+03. CaPa - To Be Thoughtful (Original Mix) (4:39)
+04. Hill Video - Loyal Cruise (Original Mix) (3:34)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62488073927E2DA482CBFE30DE453561D1CF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501632   (830927) от 13.10.2021
+
+VA - The Lounge Chill Out Chapter, Vol. 1 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Le Blanc - White Dish (4:37)
+02. Aerium, Me3dian - Warmte Nei Kjelt (1:17)
+03. Ignat Shamko - Strange Dream (4:23)
+04. Esona - Twisted Innocence (A Light Twist of Innocence Mix) (6:14)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249B29790D8E2B80DA5FC5FFF426FA517B6D976C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496298   (830926) от 13.10.2021
+
+VA - Blueberry Café, Vol. 8 (2021) [AAC|~316 Kbps] <Downtempo, House, Jazzy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M-Sol Project, Marga Sol - Another Night (5:36)
+02. Patiotic - Island Dreams (3:26)
+03. Monodeluxe - I Want To (6:42)
+04. Martin Hiska - Copa Copa (Beachhouse Remix) (5:29)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3520385D6811C4DA9D8E8BC4E85E0C935F23FF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497412   (830925) от 13.10.2021
+
+VA - Beautiful Metamorphosis, Vol. 2 (2021) [AAC|~306 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T2'n - Run In Noise (3:16)
+02. Balinese Meditation Ensemble - Silent Snow (4:49)
+03. Faith Baldwin - The Morning Light (4:48)
+04. Openzone Bar - Caribbean Nights (3:45)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E09FB4FC7B57849D7CA2AE6C1C35F3DA67AA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005835   (830924) от 10.04.2016
+
+Чудо техники (2016.04.10) SATRip
 
 >>Документалистика и Телепередачи
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828885.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Турецкое предательство, теракт в Париже, война в Сирии и на Украине - эти события случайны или кто-то намеренно провоцирует кризисы по всему миру? В России есть узкий круг экспертов, кто предсказал все это еще несколько лет назад. Тогда на них навешивали презрительный ярлык "конспирологов", а их прогнозы называли "теорией заговора". Но развитие (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 00:18:54
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85F18C36C7841F60A2316DA167217828BA1D91B3
+magnet:?xt=urn:btih:8D6DEFF66315D92F7A0425ECED3697E369F12BBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,25 +459,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006398   (828884) от 11.04.2016
+###  Публикация: 1005714   (830923) от 10.04.2016
 
-Журнал | PhotoCASA №2 (34) (март-апрель 2016) [PDF]
+Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 7 (1910) [DJVU]
 
->>Журналы
->>Хобби (журналы)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828884.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoCASA - красочный иллюстрированный журнал о фотографии как для профессионалов, так и для любителей. В каждом номере журнала - новинки фото и видео-техники, интервью с известными фотографами и знакомство с их работами, а также уроки по обработке фотографий, советы по съёмке и ещё много другой полезной информации.Жанр: Фотография, хоббиФормат: PDF
+Седьмой выпуск  содержит жизнеописания:  поэта А.В. Кольцова (1809-1841), великого ученого и поэта М.В. Ломоносова (1711-1765)  и  поэта И.З. Сурикова (1841-1880).  Всего было издано девять выпусков этой серии. Издание училищного  Совета при Святейшем  Синоде.Жанр: Жизнеописания, биографии и мемуарыФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE7E52FE0A7917486A604AB518F1764F4725A0A8
+magnet:?xt=urn:btih:0561014BBA6160D01BEB46E2F7DC186669991ADF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,25 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006303   (828882) от 11.04.2016
+###  Публикация: 1006027   (830922) от 10.04.2016
 
-Возлюбленные / Les etres chers (2015) DVDRip [Fr / Ru Sub]
+Jocelyn & Chris Arndt - Edges (2016) [MP3|320 кб/с] <Blues-Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828882.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трагическая смерть Гая стала шоком для семьи Леблан. В течение многих лет, истинная причина его смерти остается скрыта от некоторых членов семьи, в том числе и от его сына Давида. Давид, ничего не зная, начинает свою собственную жизнь со своей подругой Мари. Он с любовью воспитывает своих детей Лоуренс и Фредерика. Но глубоко внутри у него затаилась тоска...Производство: КанадаЖанр: ДрамаРежиссер: Энн ЭмонАктеры: Максим Годетт, Валери Кадьо, Микаель Гуэн, Луиз Туркот, Антуан Дерошер, Мари-Клод Герин, Оливье Обен ...Перевод: ОтсутствуетЯзык озвучки: ФранцузскийЯзык субтитров: РусскийПродолжительность: 01:42:23
+01. Shame (03:05)
+02. Too Much To Me (03:51)
+03. Where's The Rain (03:45)
+04. More Than I Say I Do (03:50)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E953B612DAE973D80D0740CE9CBC2BA6B45DCFF
+magnet:?xt=urn:btih:88B691A84F4AA474AB6D35EA24F35A94ACE0B4E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,25 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 653613   (828881) от 08.05.2013
+###  Публикация: 1005854   (830921) от 10.04.2016
 
-Рестлинг / WWE Monday Night RAW 06.05.2013 (Русская версия от 545TV) (2013) HDTVRip [H.264]
+VA - Automatic Express Promo Focus (Promotion) (2016) [MP3|192-320 кб/с]<Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828881.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1,041-й выпуск Monday Night RAWЖанр: СпортПеревод: Одноголосый закадровый, любительский- Олег МаныловПродолжительность: 02:14:44
+01. Martin Garrix And Tiesto - The Only Way Is Up (Original Mix) 04:52
+02. John Dahlback - Atlantis (Original Mix) 04:59
+03. Camelphat Feat. A.M.E. - Paradigm (The Cube Guys Remix) 06:14
+04. Jus Jack - Stargazing (Original Mix) 04:38(   Читать дальше...   )Жанр: Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical, Electro-R&B, UK GarageПродолжительность: 12:01:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FBA324B8BBF0ECF6B8085FF8F2280714B3EACA5
+magnet:?xt=urn:btih:0D8426B10B215AFBD17A72D69EA16D3B2689DEA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,159 +543,198 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006319   (828880) от 11.04.2016
+###  Публикация: 1005887   (830920) от 10.04.2016
 
-Александр Шорин, Вячеслав Зайцев и др. | Боги приходят из космоса (2015) [MP3]
+VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krewella - We Go Down (Darren Styles Remix) (05:00)
+02. Nicky Romero - Symphonica (Bare Remix) (03:54)
+03. The Bloody Beetroots & Greta Svabo Bech - Chronicles Of A Fallen Love (05:38)
+04. Alesso and Calvin Harris feat. Hurts - Under Control (04:16)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FAB4808355927072591B464748B6F99091099C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005814   (830919) от 10.04.2016
+
+VA - Lounge Balearic Relax Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830919.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Deep City - Maybe Rice - Deep Fashion Mix
+002. Vladi Strecker - De la Fuente (Springtime Mix)
+003. Area Code 51 - Teldrassil
+004. Cinematic - Brown Sugar (E-Wave Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419A7EA7D70D879C3B5F7DE0D149D848C01702DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005582   (830918) от 10.04.2016
+
+VA - Second Breath - Unknown Bands Vol.8 (2016) [MP3|64 - 320 кб/с] <Alt.Metal, Alt.Rock, Modern Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember My Name - Away From You (ft. Jose Urquiza)
+02. Ashes of Eagles - Break Away
+03. Fulc - Wasting
+04. Sobrio - Verbos(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Modern Hard RockПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFA711BAD9A392C756D2EAEDB2D6C890F6D1F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005466   (830917) от 10.04.2016
+
+VA - Happy Hardcore Top 20 (2016) [MP3|320 кб/с] <Hardcore, Rave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Paul - Rainbow In The Sky (DJ Pauls Forze Mix) 02:51
+02. Party Animals - Have You Ever Been Mellow 03:08
+03. Flamman & Abraxas Ft. MC Rem - Good To Go (Radio Mix) 03:35
+04. DJ Paul Elstak - The Promised Land  (Promised Radio Mix) 03:44(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C613C235D4D4A701D0A2ABB8741A3853B480DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005695   (830916) от 10.04.2016
+
+Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 5 (1910) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый  выпуск  содержит жизнеописания:  живописцев И.А. Акимова (1754-1814),  И.Н. Крамского  (1837-1887)  и основателя первой художественно-иконописной школы А.В. Ступина (1776-1861).    Всего было издано девять выпусков этой серии. Издание училищного  Совета при Святейшем  Синоде.Жанр: Жизнеописания, биографии и мемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6084AF93449D4E2BBCD8BF4D0E0018D3BBC3D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005905   (830915) от 10.04.2016
+
+Tiga - No Fantasy Required (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Fantasy Required (4:34)
+02. Make Me Fall In Love (5:41)
+03. 3 Rules (3:02)
+04. Having So Much Fun (2:57)(   Читать дальше...   )Жанр: Electronic, Techno, HouseПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796482E85EF7F987633E192AC214568577C0506C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005881   (830914) от 10.04.2016
+
+Александр Медведев | Налоговый адвокат вне закона (2014) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828880.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вниманию читателя предлагается версия происхождения религий и мифов. Авторы статьи предлагают точку зрения, подкрепленную, как им кажется, множеством фактов, что религия происходит в результате попытки объяснения образцов технологии в эпохи, когда развитие науки не позволяло даже помыслить подобных трактовок.
-Человек с радостью верит в чудо, впускает волшебство в (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:40:12
+Преуспевающий налоговый адвокат, состоявшийся как личность и как профессионал, принял очередной заказ - разобраться в претензиях налоговой инспекции к некоей организации. В результате он оказывается повлеченным в крупномасштабную международную финансовую аферу, и в его судьбе наступает неожиданный крутой поворот...
+Российская налоговая действительность
+Коррумпированные (   Читать дальше...   )Жанр: Экономический триллер, ДетективПродолжительность: 08:14:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98EDC2977A676D4C14CD65B92F590D11475E97FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006312   (828878) от 11.04.2016
-
-Оксана Осадчук | Азбука тренажерного зала для девушек (2010) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга основана на личном опыте автора посещения тренажерного зала и содержит ответы на наиболее распространенные вопросы девушек, в первый раз посетивших «качалку».
- После ее прочтения вы узнаете:
-Как правильно подобрать одежду для занятий на тренажерах;
-Как правильно тренироваться, чтобы получить желаемый результат и избежать травм;(   Читать дальше...   )Жанр: Спортивная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE32D9537BA9EBC1D4C10BBA774A7302C237169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653447   (828877) от 08.05.2013
-
-Пираты Карибского моря: Сундук мертвеца / Pirates of the Caribbean: Dead Man's Chest (2006) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вновь оказавшись в ирреальном мире, лихой капитан Джек Воробей неожиданно узнает, что является должником легендарного капитана «Летучего Голландца» Дэйви Джонса. Джек должен в кратчайшие сроки решить эту проблему, иначе ему грозит вечное проклятие и рабское существование после смерти. Вдобавок ко всему, срывается свадьба Уилла Тернера и Элизабет Суонн, которые вынуждены составить Джеку компанию в его злоключениях…Жанр: фэнтези, боевик, приключенияВ ролях: Джонни Депп, Орландо Блум, Кира Найтли, Джек Девенпорт, Билл Найти, Джонатан Прайс, Ли Аренберг, Маккензи Крук, Кевин МакНалли, Дэвид Бейли, Том Холландер, Стеллан Скарсгард, Наоми Харрис, Мартин Клеббэ, Дэвид Шофилд, Алекс Нортон, Лоурен Мехер, Jimmy Roussounis, Морэй Тредуэлл, Энтони Патрицио, Сан ШеллаПеревод: Русский дублированный (BD RUS), двухголосый закадровый (Гланц и Королева), одноголосый закадровый (А.Гаврилов), одноголосый закадровый (В.Королев)Продолжительность: 02:30:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006305   (828875) от 11.04.2016
-
-Картинки - Птичка колибри. 2048x1152 - 3544x1994 - 60 шт [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миниатюрные радужные птички колибри. Сборник из цветных фото 16:9 - 40 шт., а также пташки на чисто-черном и чисто-белом фоне - 20 шт.Формат: JPGРазрешение файлов: 2048x1152 - 3544x1994
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFCE1BBAEFA5C7B3240DB41042EA54BF2F12447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653836   (828874) от 08.05.2013
-
-Гонка 2 / Race 2 (2013) BDRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гонка продолжается и в нее вступают новые участники. На глазах у Ранвира убивают его возлюбленную Сонию. В поисках возмездия, Ранвир отправляется в Стамбул. Он знает, кто виновен в смерти Сонии, и завязывается новая смертельно-опасная интрига.Производство: ИндияЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Аббас Алибхай Бурмавалла, Мастан Алибхай БурмаваллаАктеры: Саиф Али Кхан, Дипика Падуконе, Джон Абрахам, Анил Капур, Жаклин Фернандес, Амиша Патель, Бипаша Басу, Раджеш Кхаттар, Адитья ПанчолиПеревод: Профессиональный многоголосый закадровыйПродолжительность: 02:25:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6458EB400D05B6C4ED2303F37E203D39F90B3594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006150   (828872) от 11.04.2016
-
-Дональд Гамильтон, Дэвид Джонсон | Дерево Джошуа. Группа ликвидации [Сборник] (1995) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционный сюжет о невинно осужденном человеке, вынужденом в одиночку противостоять облеченным властью преступникам, обречен на успех, если в роли жертвы выступает герой без страха и упрека, способный преодолеть любые трудности. Именно такой образ создает писатель Девид Джонсон в романе "Дерево Джошуа", и именно таким он предстает в исполнении Долфа Лундгрена (   Читать дальше...   )Жанр: БоевикФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45759CCA4F4185CD4A6C9483B455956935CF0FC0
+magnet:?xt=urn:btih:331D0F67E581709FC2537B2D1284CCD0106510A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

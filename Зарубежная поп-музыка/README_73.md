@@ -1,3 +1,119 @@
+###  Публикация: 1585869   (219551) от 24.10.2022
+
+VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almklausi - Wir machen mit bei der Rettung der Erde
+02. Tim Toupet feat. Lorenz Buffel - Pietro Lombaaadi
+03. Schafer Heinrich - Ich hatte heut schon Sex
+04. Biervampir - Biervampir(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:08:01 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FF8679A7B7346CDE6D6DA4AE5246DF286DFA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585865   (219533) от 24.10.2022
+
+VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julian Sommer - Dicht im Flieger
+02. Micha von der Rampe - Partyanimal
+03. Mickie Krause - Eine Woche wach
+04. HBZ - Gasteliste +1(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:43:41 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF6E45B6CD0BF7224AE2D7F4B4889980956D109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585866   (219523) от 24.10.2022
+
+VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Bier - Bierkapitan
+02. Tobee - Cordula Grun
+03. Micky Band Bruhl - Buenos Dias Matthias (Version 2021)
+04. Buddy - Ab in den Suden (Neuaufnahme)(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:32 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D60565BA627BAC8C4E75A82EDE1FE4F719F3BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585868   (219514) от 24.10.2022
+
+VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nancy Franck - Korken knallen
+02. Marc Koste - Open Air
+03. Die Eierheiligen - Feiereier
+04. Rick Arena Moses C. - Vorn an der Theke stehn(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 04:08:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33C92DC2E47016C9B2B1375CA21DE71FD24BFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585854   (219484) от 24.10.2022
 
 VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -627,122 +743,6 @@ VA - Best Christmas Songs (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F5F399A7827D40DA2E889BD8FC0BB7DBE6296C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270365   (214427) от 18.12.2018
-
-VA - Christmas Party 2018-2019 (Best of Dance, EDM, House and Electro) (2018) [MP3|320 Kbps] <Progressive, Groove, Bass House, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locodj - Limpa Boom (Original Mix) 3:07
-02. Geo Da Silva - Balkano Latino (Radio Edit) 2:54
-03. Turbotronic - Animal (Radio Edit) 3:12
-04. Flgtt - Por Que No 2k19 (Radio Edit) 3:26(   Читать дальше...   )Жанр: Progressive, Groove, Bass House, ElectroПродолжительность: 02:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D0A146C48CE3A0777FFACC61A80B2D6C0B9FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270216   (214308) от 18.12.2018
-
-VA - M6 Hits 2019 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214308.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Dadju - Jaloux [03:52]
-2. Kendji Girac - Tiago [02:57]
-3. Vegedream - Ramenez la coupe a la maison [03:54](   Читать дальше...   )Жанр: PopПродолжительность: 05:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE35FB7419F41DD63B460904B627E82F3BA3EC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630651   (211738) от 22.10.2022
-
-Zоряна - Play (2012) [FLAC|lossless|tracks + .cue] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Включаю iPlay (03:54)
-02. Кіно (03:17)
-03. Мохіто (03:12)
-04. Квітка (03:00)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C545CB92F319A9C66F50370EABDBDFCC45737FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639809   (211483) от 15.06.2023
-
-VA - 80s & 90s Party Hits (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backstreet Boys - I Want It That Way (3:33)
-02. Destiny's Child - Say My Name (4:27)
-03. Spin Doctors - Two Princes (4:15)
-04. Alice In Chains - Man in the Box (4:45)(   Читать дальше...   )Жанр: PopПродолжительность: 03:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40B077CA6E8D04E3B985DF5566CE0170208109F
 ```
 
 https://mybot314.ru/tekegram_catalog/

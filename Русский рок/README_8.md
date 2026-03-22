@@ -1,3 +1,119 @@
+###  Публикация: 1457700   (1024262) от 27.03.2021
+
+Аборт Мозга - Костыль (2005) Ремастер, 2021 [MP3|320 Kbps] <Hardcore Punk, Beatdown Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Костыль [00:02:01]
+02 - 100 Ложечек Кофе [00:03:23]
+03 - Грязь Мироздания [00:02:55]
+04 - Розовый Куст [00:03:04](   Читать дальше...   )Жанр: Hardcore Punk, Beatdown HardcoreПродолжительность: 00:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290F0CAE9653ACE421C0855CBC2F5AE82AF7BEA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457752   (1024217) от 27.03.2021
+
+Последнее Испытание - Последнее Испытание (2021) Classic Version [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ария Чародея (feat. Антон Круглов) (04:32)
+02. Зов бездны (feat. Хелависа) (02:17)
+03. Ссора братьев (feat. Антон Круглов, Роман Сусалев) (02:06)
+04. Молитва (feat. Елена Ханпира) (02:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD6795B6D7D7FF2E6F7ADEE87EA5AD39EFFDB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458611   (1023865) от 29.03.2021
+
+The Solarburst - 2 Albums, 1 Single (2017-2021) [MP3|320 Kbps] <Alternative, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский интернет проект из Брянска, играющий музыку вне жанровых рамок01. D.F. [00:03:40]
+02. It's Personal [00:03:29]
+03. Dreaming Out Loud [00:03:15]
+04. Even If [00:03:38](   Читать дальше...   )Жанр: Alternative, Post-Hardcore, ElectronicПродолжительность: 01:27:36 (3CD)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1073D4A9C1542C2594B2F3AB0F59727180EB2FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458493   (1023857) от 29.03.2021
+
+Эпоха - Молот ведьм (2012) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023857.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мо́лот ведьм» — второй студийный альбом российской хеви-метал группы «Эпоха», который вышел на лейбле Metalism Records 11 сентября 2012 года.01. Введение [03:15]
+02. Именем святой инквизиции [03:15]
+03. Обвинение и обоснование [01:09]
+04. Ведьм сжечь [03:58](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DEEEA2415C27A417B7EC6EA8EB4515B8741B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458587   (1023854) от 29.03.2021
 
 Дайте Два - Естественный альбом (2021) [MP3|320 Kbps] <Alternative>
@@ -625,119 +741,6 @@ Infornal FuckЪ - 7 Albums (2008-2021) [MP3|320 Kbps] <Heavy Folk Black Metal, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F226BE94106C94E1702F510F826A2B08D90EDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465499   (1019103) от 26.04.2021
-
-ДДТ (DDT) - В постели (2021) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019103.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В постелиЖанр: RockПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFC579B92F451C8E119626A92F51287D12FF004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465808   (1018978) от 27.04.2021
-
-Kruger - Аномалия (2021) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ховринский Призрак [00:06:35]
-02. Антихрист [00:04:21]
-03. Фарватер Смерти [00:04:18]
-04. Эмбрион Сатаны [00:05:50](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29904975C498ADFEDBE7E92606C757AE443C630E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466111   (1018834) от 28.04.2021
-
-Стёртые лица - 2 Albums (2018-2021) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Во мне [00:03:44]
-02. Лужи крови [00:06:29]
-03. 09.02. [00:06:17]
-04. Глаза [00:05:14](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 2CD, 01:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9E5EED52E66CDE1D70866E3F8D6B7B8264AB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466375   (1018458) от 30.04.2021
-
-Hyperomm - In My Own Spaceship (2021) [MP3|320 Kbps] <Melodic Metal, Modern Death>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket Scientist (1929) [00:05:03]
-02. Hope Springs Eternal (2150) [00:04:21]
-03. Close Your Eyes (2151) [00:04:53]
-04. E Pur Si Muove! (1633) [00:05:55](   Читать дальше...   )Жанр: Melodic Metal, Modern DeathПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E01CFFFD1F4A5BD6B43E57D8616F1998DD2699
 ```
 
 https://mybot314.ru/tekegram_catalog/

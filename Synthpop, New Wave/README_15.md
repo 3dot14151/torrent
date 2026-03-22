@@ -1,3 +1,32 @@
+###  Публикация: 1768638   (33031) от 25.12.2024
+
+Yuri Sosnin - Travel into Space (2024) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travel into Space (4:08)
+02. Amazing Space (4:52)
+03. Music of New Vibrations (4:09)
+04. Infinite Space (4:22)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9635FF40EE8A2D95B7F361BC1F988C645F08DD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586054   (31736) от 07.01.2025
 
 Didier Marouani & Space  - New Collection (2009) [MP3|320 кб/с]<Synthpop>

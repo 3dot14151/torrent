@@ -1,3 +1,32 @@
+###  Публикация: 1017468   (761105) от 17.05.2016
+
+Oz Noy - Twisted Blues Volume 2 (2014) [FLAC|Lossless|tracks] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Dig
+02. Rhumba Tumba
+03. Let Your Love Come Down
+04. Come Dance with Me(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2245DAF89996CF4DD941484B4339C7D55575DE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280497   (760631) от 03.02.2019
 
 McKinney's Cotton Pickers - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing>
@@ -715,39 +744,6 @@ Pony Poindexter - Pony's Express (1962) 2016, Sony Music [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC515F684AEDDA970E7F44E8ADCD7878807ECA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203667   (757951) от 28.05.2010
-
-Jimmy Scott - The Source (1970) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus
-02. On Broadway
-03. Our Day Will Come
-04.I Wish I Knew
-05. Unchained Melody
-06. Day by Day
-07. Sometimes I Feel Like a Motherless Child
-08. This Love of MineЖанр: Vocal JazzПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

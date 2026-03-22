@@ -1,3 +1,32 @@
+###  Публикация: 1211228   (777899) от 06.03.2018
+
+Oscar Pettiford - Vienna Blues: The Complete Session (1959) 1988, Black Lion [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cohn's Limit [04:29]
+02. The Gentle Art of Love [06:52]
+03. All the Things You Are [04:04]
+04. Stalag 414 [05:09](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78D95B416FEABBCE4808BD37DAB118DB06D9778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211223   (777898) от 06.03.2018
 
 Jimmy Rosenberg - Trio (2004) Hot Club Records [FLAC|Lossless|tracks + .cue] <Gypsy Jazz, Swing>
@@ -716,35 +745,6 @@ Lou Levy Trio - A Most Musical Fella (1956, 1957) 2016, Sony Music [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A643B35809656A90226E9C5298E2C82E2B79763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211902   (776900) от 09.03.2018
-
-The New Stan Getz Quartet featuring Astrud Gilberto - Getz Au Go Go (1964) 2007, Verve [FLAC|Lossless|tracks + .cue] <Cool, Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corcovado [02:52]
-02. It Might As Well Be Spring [04:29]
-03. Eu E Voce [02:33]
-04. Summertime [08:12](   Читать дальше...   )Жанр: Cool, Bossa Nova, Vocal JazzПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BC49B0504BA60EAE2F7F29038D4D1B81745E37
 ```
 
 https://mybot314.ru/tekegram_catalog/

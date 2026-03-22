@@ -1,3 +1,32 @@
+###  Публикация: 1208442   (779999) от 22.02.2018
+
+Harold Vick - Steppin' Out! (1963) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Miss Brooks [07:30]
+02. Trimmed In Blue [06:13]
+03. Laura [04:42]
+04. Dotty's Dream [06:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC02A82CE2D5145BE005BFB8DEC7934CCBEB22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208437   (779998) от 22.02.2018
 
 Bob Brookmeyer And Friends (1964) 2017, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
@@ -716,35 +745,6 @@ Hal Galper - Wild Bird (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD022D5C411F4FDBBDB68AF84E2E556B2F14BDAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211228   (777899) от 06.03.2018
-
-Oscar Pettiford - Vienna Blues: The Complete Session (1959) 1988, Black Lion [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cohn's Limit [04:29]
-02. The Gentle Art of Love [06:52]
-03. All the Things You Are [04:04]
-04. Stalag 414 [05:09](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78D95B416FEABBCE4808BD37DAB118DB06D9778
 ```
 
 https://mybot314.ru/tekegram_catalog/

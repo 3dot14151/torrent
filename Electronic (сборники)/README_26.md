@@ -1,3 +1,61 @@
+###  Публикация: 1093818   (932374) от 16.01.2017
+
+VA - Record Super Chart #470 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clean Bandit feat Sean Paul & Anne Marie - Rockabye (Denis First Remix)  4:08
+02.  Грибы - Копы (Vincent & Diaz Remix)  4:10
+03.  KSHMR & B3nte & Badjack - The Spook Returns  3:10
+04.  Alan Walker - Alone (DJ Amice Remix)  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1B51DE9D53731270AE0AC26521E8F28FAAF3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093794   (932265) от 16.01.2017
+
+VA - Beauty Inside Dreamland (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Frainbreeze & Lucid Blue - Light My Way (Original Mix)  5:43
+02.  David Gravell - Battlefront (Extended Mix)  5:23
+03.  Heatbeat - Aerys (Mark Sherry Remix)  3:35
+04.  Tycoos - We Will Meet Again (Original Mix)  5:55(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, ProgressiveПродолжительность: 06:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3562A11B9E04A2F66D9FD936B8C5D8D08FED9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094084   (930951) от 17.01.2017
 
 VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
@@ -685,64 +743,6 @@ VA - Beatport Progressive House: Electro Sound Pack #22 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BD8869721B74A4023CB0770F43C7B8E2E27D02A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366049   (925528) от 10.03.2020
-
-VA - Cosmic House (2020) [MP3|320 Kbps] <House, Future, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925528.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elphasoul - Pluto To Earth
-002. Djscifi - Hot Wired Tensions
-003. Mataio - The Darkness
-004. Frans Vander Hoek - Not Today(   Читать дальше...   )Жанр: House, Future, Progressive HouseПродолжительность: 09:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C645FA9F3DA7DF622212023E144B30CD29DBC703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366102   (924913) от 10.03.2020
-
-VA - Elite NME Dance Club (2020) [MP3|320 Kbps] <Dance, Pop, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924913.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J Gabriel - It Comes And Goes
-002. Mohjah - Zion Gates (Dub)
-003. Marcelo Diaz - Big Enough
-004. Dj Plur - I Turn To You (Radio Edit)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 11:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C5D326AB3BE3FC5B2CBD12E1D34AE70E50587A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

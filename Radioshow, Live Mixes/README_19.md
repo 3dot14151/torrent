@@ -1,3 +1,90 @@
+###  Публикация: 1672504   (169354) от 28.10.2023
+
+Markus Schulz - Global DJ Broadcast Afterdark (Euphoric Techno Mix) (2023-10-26) [MP3|320 Kbps] <Progressive House, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victor Ruiz - Pura Vida
+02. Novem Vivit vs. Josh Wink - Higher Generation of Consciousness (Markus Schulz Down the Rabbit Hole Mashup)
+03. Joris Turenhout - Lost Voices
+04. Zafer Atabey - Roots(   Читать дальше...   )Жанр: Progressive House, Techno, Melodic HouseПродолжительность: 04:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A6ED2803803C311DF6F492385EB1846C3C631C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672434   (169337) от 28.10.2023
+
+AXMO - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023-10-19) [MP3|320 Kbps] <Mainstage, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rihanna ft. Calvin Harris - We Found Love (AXMO Remix)
+02. Pitbull ft. Ne-Yo & Afrojack & Nayer - Give Me Everything (AXMO Remix)
+03. AXMO & Nanobii - Euro Fever
+04. ATC - Around The World (La La La La La) (AXMO Remix)(   Читать дальше...   )Жанр: Mainstage, Hard DanceПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B5731917B80D90C71E1D9B314C27EC1B5D633D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672837   (167219) от 30.10.2023
+
+Martin Garrix - Live @ IDEM, RAI, ADE (2023-10-20) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix & Third ≡ Party - Flashlights (Intro Edit) w/Martin Garrix ft. Khalid - Ocean (Acappella)
+02. Martin Garrix ft. Khalid - Ocean (DubVision Remix)
+03. Vluarr vs. David Guetta & Brooks - By Myself vs. Like I Do (Martin Garrix Mashup)
+04. Martin Garrix X JVKE & DubVision vs. Kx5 & Hayla & John Summit - Hero vs. Escape (DubVision (   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 02:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC25B7B65BDEDFD548BD4CB2DF54EA93341C21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345569   (166632) от 15.12.2019
 
 DJ KUBA & NEITAN - Yearmix 2019 2019-12-08 [MP3|320 Kbps] <Electro House, Progressive House>
@@ -655,93 +742,6 @@ VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B638F634703BBBD6BC584D28EE1EE91CAE3EEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679102   (134963) от 27.11.2023
-
-VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LSR/CITY ft. Annabel - House In The Streetlight (Tune Of The Week)
-02. UUFO & Ava Silver - Young Hearts
-03. David Broaders - Undertow (Progressive Pick)
-04. Armin van Buuren ft. Trevor Guthrie - This Is What It Feels Like (Armin van Buuren 2023 Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D53110A0DC2C8BD0BA37D762F0163A2A1B6789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679014   (134955) от 27.11.2023
-
-Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-11-03) [MP3|320 Kbps] <Progressive House, House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 01:03:04
-01. Kashovski - Code K
-02. ID - ID
-03. ID - ID(   Читать дальше...   )Жанр: Progressive House, House, Tech HouseПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E8D5A7B0D42074D99DB73D11E6E18ED01BD1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679427   (134281) от 29.11.2023
-
-Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023-10-19) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Let You Down (Nifra Remix)
-02. Nifra & Leo Reyes - Humanoids
-03. Tiësto ft. BT - Love Comes Again (Nifra 2023 Remix)
-04. Hardwell - GODD(   Читать дальше...   )Жанр: TranceПродолжительность: 00:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D4B5E712ABDC26F0B43EC651BF6B8E8A99DB5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 1531207   (724561) от 14.02.2022
+###  Публикация: 1022618   (729006) от 02.06.2016
 
-Научные сенсации. Продлить жизнь (2021) HDTVRip [H.264/720p-LQ]
+О. Донченко | Голубой винтик (1956) [FB2]
 
->>Документалистика и Телепередачи
->>
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724561.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 августа 1997 года француженка Жанна Луиза Кальман установила мировой рекорд по продолжительности жизни. Она умерла в возрасте 122 лет 5 месяцев и 14 дней. Но современные учёные уверены - достижение, которые мы сейчас считаем уникальным вскоре станет обыденностью. 120 лет - это средняя продолжительность жизни, которую население Земли сможет достичь уже в XXI веке.Производство: Россия / Единая Медиа ГруппаЖанр: ДокументальныйРежиссер: Александр КузнецовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:43:59
+Рассказы для детей старшего дошкольного возраста.Жанр: Детская прозаПеревод: А. Ф. КонФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:706F8DCF3D91B7CC2AD1A1DBB94A9A1491F10202
+magnet:?xt=urn:btih:0E8A39D821596C36EB86A7E107C2D3740A986076
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023493   (724560) от 05.06.2016
+###  Публикация: 1022684   (729005) от 02.06.2016
 
-Patricia Spero - Harpe et Relaxation (2014) [FLAC|Lossless|image + .cue] <Classical, Harp>
+Crimson Fire - Fireborn (2016) [MP3|320 кб/с] <Heavy Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724560.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nocturne No. 2 [00:03:10]
-02. Canon En Re [00:04:11]
-03. Clair De Lune [00:05:37]
-04. Lettre A Elise [00:03:08](   Читать дальше...   )Жанр: Classical, HarpПродолжительность: 00:52:15
+1. Awakening
+2. Take to the Skies
+3. Right off the Bat
+4. Young, Free, Lust(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4B6E001B977570781046B684B4C48A5A083B37C
+magnet:?xt=urn:btih:CA63A53D5CE48F12EDFE7321F3551884D03092C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,24 +53,388 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531177   (724559) от 14.02.2022
+###  Публикация: 1022491   (729004) от 02.06.2016
 
-Oliver Shanti & Friends - Medicine Man (compilation) (2022) [MP3|320 Kbps] <Native American, New Age, World>
+Право голоса. НАТО: переломный момент? (01.06.2016) SATRip
 
->>
->>
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_724559.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oliver Shanti - Sundancer (06:38)
-02. Oliver Shanti & Friends - Shaman (04:18)
-03. Oliver Shanti & Friends - Well Balanced (08:31)
-04. Oliver Shanti - Warrior (04:03)(   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 03:30:19
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Генеральный секретарь НАТО Йенс Столтенберг продолжает нагнетать обстановку перед предстоящим саммитом альянса, который пройдёт 8?9 июля в Варшаве. В интервью польскому радио Столтенберг заявил, что этот саммит станет переломным, и руководство блока примет "ключевые решения о том, как адаптироваться к новой ситуации в сфере безопасности".Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C2790C953F3757760B1EED8E15CA99C437B317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022506   (729003) от 02.06.2016
+
+Eternity's End - The Fire Within (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fire Within
+02. Demonblade
+03. The Hourglass
+04. Eagle Divine(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A78E1DCB5E60B739356D613B6EE91C281A9867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022496   (729002) от 02.06.2016
+
+Место встречи. Последняя Надежда Украины?! (01.06.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F93BB5548D5743EA39D2C2E93B1A22FA27161D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022353   (729001) от 02.06.2016
+
+VA - Sensual Steps: Relax Compilation (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729001.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maremare - That Beach Is Mine
+002. Diamans - Reach Heavens (Chillout Mix)
+003. Don Gorda Project - Sunbrella
+004. Seven24 - The Journey (Chris Wonderful Remix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9A059C1787C17CF9D49F0C64E46FDA668D86D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022498   (729000) от 02.06.2016
+
+Withem - The Unforgiving Road (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...Intro
+02. Exit
+03. In the Hands of a God
+04. The Pain I Collected(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C524C515D6E7CF02B2D3B0E7FCF73BFB01BDCCCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022622   (728999) от 02.06.2016
+
+Константин Носилов | Рассказы для детей (1914) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D50A99601A697B051B7B8CD2759CC129CC9BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022338   (728998) от 02.06.2016
+
+Таня Лебединская - Ты мною дорожишь (2001) [MP3|256 кб/с] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глашатаи любви
+02. Быть второй
+03. Шахерезада
+04. Ты мною дорожишь(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADCF30513A63FB868151C28F0CD9345B4FF2CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022485   (728997) от 02.06.2016
+
+VA - LUXEmusic Топ Май (2016) [MP3|128-320 кб/с] <House Music, Mash Up, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker - Faded (Alexx Slam Leo Burn ft. TPaul Sax Mix)
+02. Andrew Rai & Anton Liss ft. Cotry - Wonder (Original Mix)
+03. Andrew Rai x No Hopes feat. Veselina Popova - At Night (Original Mix)
+04. Andrey Exx & Troitski feat. Diva - Touch Me (No Hopes & Sharapoff Remix)(   Читать дальше...   )Жанр: House Music, Mash Up, PopПродолжительность: 02:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C856C9F8DA71A2818B4BB9E56E8B67DE7CBBBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022450   (728996) от 02.06.2016
+
+VirtualHostX 7.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728996.jpg" />
+</div>
+
+
+###  Подробнее
+
+VirtualHostX - приложение, которое помогает вам организовать виртуальный хостинг на вашем Mac. Это идеальное решение для Web-дизайнеров, которым необходимо работать сразу над несколькими проектами. С VirtualHostX вы можете легко создавать и управлять виртуальными хостами с помощью всего лишь нескольких щелчков мыши.
+
+После установки программы достаточно просто добавить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июня 2016Разработчик: Click On Ideas LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604EA4B39A5B05659E7F72EE88CEE07995F74A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021681   (728995) от 02.06.2016
+
+Deem Beat - Last Call (Mix) (2016) [MP3|320 кб/с] <Deep House, Tech House, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728995.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pax - Alive (Original Mix)
+2. Aki Bergen & Richter feat. Luben - If (Original Mix)
+3. Pauke Schaumburg - Exchange (Original Mix)
+4. Gundelach - Fjernsynet (Fur Coat Remix)(   Читать дальше...   )Жанр: Deep House, Tech House, ElectronicaПродолжительность: 1:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2490A9C3046B9DF5AFEC3EC9B00EEEF5BFDACBA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022507   (728994) от 02.06.2016
+
+Iron Savior - Titancraft (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <Speed Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Siege (Intro)
+02. Titancraft
+03. Way of the Blade
+04. Seize the Day(   Читать дальше...   )Жанр: Speed Metal, Power MetalПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1726C954D0ADC862E937A9BB4C5606F2E89A46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530514   (728993) от 11.02.2022
+
+Ben Nicky - Live @ Hellfire, Victoria Warehouse Manchester, United Kingdom (2022-02-05) [MP3|320 Kbps] <Trance, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred again.. & The Blessed Madonna - Marea (We've Lost Dancing) (Billy Gillies Rework)
+02. D-Block & S-te-Fan - Takin' Off (DJ Isaac Remix)
+03. Underworld & Ashley Bradbury vs. Chris Schweizer - Choose Control (Ben Nicky Mashup)
+04. Nutcase22 - Captain (Restricted Edit)(   Читать дальше...   )Жанр: Trance, Hard DanceПродолжительность: 00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBDD0B32AFD864995CDB526A2044F1457EFDFB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530419   (728992) от 11.02.2022
+
+Meganebu! | Клуб очкариков [2013, TV, 12 эп.] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они – не такие, как все, и таинственное устройство с дужками и стеклами для них вовсе не оптический инструмент, не модный аксессуар и даже не фетиш массовой культуры. Это - знак Пути, высокого предназначения и принадлежности к новому, совершенному человечеству! Именно так думает 17-летний Акира Сома, создавший в Гималайской технической школе «клуб очкариков», который (   Читать дальше...   )Производство: Студия Studio Deen / スタジオディーンЖанр: повседневность, комедияРежиссер: Ямамото СобиПеревод: Nika ElrikЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBF64719E19C674C00191CD1C70DCF8B4CDFE8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530475   (728991) от 11.02.2022
+
+Enigma - Voyageur (2003) [AAC|~314 Kbps] <Electronic, Abstract, Downtempo, Ambient>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From East to West (4:11)
+02. Voyageur (4:36)
+03. Incognito (4:23)
+04. Page of Cups (7:01)(   Читать дальше...   )Жанр: Electronic, Abstract, Downtempo, AmbientПродолжительность: 00:47:20
 
 ## Скачать торент
 ```bash
@@ -82,28 +446,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022948   (724558) от 05.06.2016
+###  Публикация: 1530587   (728990) от 11.02.2022
 
-Амалия Грин - Америка - Маруся (1994) [APE|Lossless|image + .cue] <Chanson>
+Побережье Бретани / La Bretagne cote mer (2020) HDTVRip [H.264] [FR / RU Sub]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724558.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Гуд бай, мой мальчик
-02. Золотая осень
-03. Америка - Маруся
-04. Седина(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:14
+Необузданная и таинственная Бретань обладает необыкновенной притягательной силой. Уютные порты, крошечные острова, обточенные ветрами скалы, загадочные менгиры... Все это вызывает восхищение туристов. Этот край с разнообразными пейзажами то радует нас тропическим зноем, то пугает буйством океана. Бретонская самобытность самоутверждается на красочных шумных фестивалях. (   Читать дальше...   )Производство: Франция, TV5MONDE Europe HDЖанр: документальный, история, путешествияРежиссер: Эрик БакосПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, Hiventy)Продолжительность: 00:51:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9B7A8B78EE2A474B451D36834588909309EC07B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,26 +472,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531198   (724557) от 14.02.2022
+###  Публикация: 1530561   (728989) от 11.02.2022
 
-Что они сделали с Соланж? / Cosa avete fatto a Solange? / Das Geheimnis der grunen Stecknadel (1972) BDRip [H.264]  [AVO]
+Hanne Boel - Compilation (2022) [MP3|320 Kbps] <Pop Rock, Pop Soul>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724557.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-31-й фильм кинокомпании Rialto по произведениям Эдгара Уоллеса, снятый совместно с итальянскими кинематографистами.
-На территории женского колледжа жестоко убиты несколько учениц. Полиция и преподаватели не способны вычислить убийцу и предотвратить дальнейшие покушения. Генри, один из учителей, у которого любовные отношения с одной из студенток, становится главным (   Читать дальше...   )Производство: b] Италия, Германия (ФРГ), Великобритания / Clodio Cinematografica, Italian International Film, Rialto Film, Rialto Film Preben-PhilipsenЖанр: Ужасы, Триллер, ДетективРежиссер: Массимо ДалламаноАктеры: Фабио Тести, Карин Бааль, Кристина Гальбо, Йоахим Фуксбергер, Гюнтер Штоль, Клаудия Бутенут, Камилль Китон, Мария Монти, Джанкарло Бадесси, Пилар КастельПеревод: Авторский, Владимир СонькинСубтитры: Английские (Full, SDH)Продолжительность: 01:46:43
+01. Landet
+02. Uden Forsvar
+03. Give Up
+04. Let's Go Out Tonight(   Читать дальше...   )Жанр: Pop Rock, Pop SoulПродолжительность: 01:46:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D05649DCF93BCB9221C98D751E76A7E433ADAF2
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +501,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023482   (724556) от 05.06.2016
+###  Публикация: 1530568   (728988) от 11.02.2022
 
-VA - Trip to the Sea Vol.2: Chill Lounge del Mar (2016) [MP3|320 кб/с] <Downtempo, Lounge, ChillOut, Easy Listening>
+В центре бури / Inside the Storm (2018-2022) WEBRip [H.264/1080p-LQ] (серии 1-11)
 
->>Electronic
->>Easy listening
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724556.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jazzy System - Space Cowboy (Guitar Chillout Mix)
-02. Jean Mare - To the Balearic and Back (Lounge Flight Mix)
-03. Velvet Dreamer - Sunset Chill
-04. Soundset City - Lounge Whispers (Cool Groove Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOut, Easy ListeningПродолжительность: 01:27:57
+Документальный сериал о взлетах и падениях крупнейших мировых компаний Lehman Brothers, Barings Bank, Kodak и Kingfisher Airlines, судьбоносные решения и роковые ошибки в мире их бизнеса. Используя архивы новостей, эксклюзивные интервью, видео и привлекательную графику, мы раскрываем новые подробности о личностях, экономических силах и решениях, связанных с крахом (   Читать дальше...   )Производство: США, Toggle FilmЖанр: Документальный, исследование, историяРежиссер: Лео ГиззиПеревод: многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A65401E0A116778D783EC07B9ACF64304C91FCB
+magnet:?xt=urn:btih:D5F8D2283DDCC06DAACA44D6A17A9193D439F04B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,26 +527,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531151   (724555) от 14.02.2022
+###  Публикация: 1530469   (728987) от 11.02.2022
 
-Disk Drill Enterprise 4.6.377 [Multi/Ru]
+Glitchmachines - Convex 1.3.1 VST (x64) Retail [En]
 
->>Архив торрентов
->>Архив 4Apple
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724555.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disk Drill Enterprise - самое популярное приложение для восстановления данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
-После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2022 508 Software, LLCПоддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+Convex — это процессор мультиэффектов, предназначенный для облегчения создания искаженных артефактов, синкопированных паттернов и искаженных цифровых текстур.
+На основе трех классических эффектов; Многорежимный фильтр, регулятор высоты тона и задержка, Convex генерирует динамические вариации входного сигнала путем перекрестного затухания между двумя экземплярами (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDFD763DB0F4DE13666B8C2209B674ECA8C4CC70
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,28 +554,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023496   (724554) от 05.06.2016
+###  Публикация: 1530483   (728986) от 11.02.2022
 
-Graham Bonnet - Back Row In The Stalls (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+Girish And The Chronicles - Hail To The Heroes (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724554.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Here Comes the Rain
-02. What's This 'Ere Then
-03. Private Eye
-04. Ghost Writer in My Eye(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:01:20
+01. Primeval Desire
+02. Children Of The Night
+03. I'm Not the Devil
+04. Love's Damnation(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:873461C367BA46A29CB108C91ABE3B22806E57C0
+magnet:?xt=urn:btih:E754FC543380EFAF725DD34B8E7CAE98231C6B15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,332 +583,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023620   (724553) от 05.06.2016
+###  Публикация: 1530592   (728985) от 11.02.2022
 
-Добров в эфире (05.06.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724553.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последний час уходящей недели известный российский журналист и политолог Андрей Добров расскажет о самом интересном в стране и в мире. Самые обсуждаемые события недели. Все, о чем говорили, спорили и писали. О том, что осталось за кадром. Как все было на самом деле. Неожиданные факты. Эксклюзивные съемки. Авторские репортажи. Главные ньюсмейкеры страны. Динамично. (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBF287FF2CD07564BA2CB04D83D6FFAE306BF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023219   (724552) от 05.06.2016
-
-Спортивная гимнастика. Чемпионат Европы-2016. Берн (Швейцария). Командное многоборье. Мужчины. Финал (28.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы-2016 в Швейцарии, это последний турнир такого масштаба в преддверии Олимпийских игр в Рио-де-Жанейро.
-Чемпионат Европы по спортивной гимнастике пройдет в швейцарском Берне с 26 мая по 5 июня.Телекомпания: Матч! Игра HDЖанр: СпортПродолжительность: 02:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCB37F6AA2DC1522195B10981714D502A1F6207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023332   (724551) от 05.06.2016
-
-Журнал | Библиотека журнала Похудей №7 Кабачковая диета (2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом практически на каждом огороде поспевают кабачки или цукини. Ну а если огорода не, можно отправиться в ближайший магазин и купить там этот непритязательный - а главное, недорогой - овощ и устроить себе праздник живота, причем без всякого вреда для фигуры!Жанр: Кулинария, диетическое питаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542349F9D815338783E9375C2535D16152FE5BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023538   (724550) от 05.06.2016
-
-НТВ-видение: Турецкая кухня. Часть вторая (2016.06.05) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724550.jpg" />
-</div>
-
-
-###  Подробнее
-
-В среднем, одну русско-турецкую войну от другой отделяла всего четверть века. Нынешнее перемирие – самое прочное, длится без малого сто лет. Какие перспективы у современных российско-турецких отношений? И что сейчас творится на турецкой внешнеполитической кухне? Об этом – в двухсерийном фильме Романа Соболя «Турецкая кухня» из цикла «НТВ-видение».Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF83893FF40B76B69015E4DE2A85CC4587169FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023463   (724549) от 05.06.2016
-
-Чудо техники (2016.06.05) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724549.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA94FBB10586191FA16C338916277586B1B043A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023477   (724548) от 05.06.2016
-
-Airbag - Disconnected (2016) [MP3|320 кб/с] <Progressive Rock, Neo-Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer (9:18)
-02. Broken (7:08)
-03. Slave (8:39)
-04. Sleepwalker (7:05)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgressiveПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B819C0F53C7B8C6601A0F7618075CBAA0BBAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023515   (724547) от 05.06.2016
-
-VA - 100% Proof Pop! Friction Hits (2016) [MP3|320 кб/с] <Gospel, Alternative, Country, Latin Urban, Synthpop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Flo Rida - That's What I Like (feat. Fitz) 03:16
-002. The Piano Guys - Kung Fu Piano: Cello Ascends 04:06
-003. Yandel - No Sales de Mi Mente (feat. Nicky Jam) 03:25
-004. Carrie Underwood - Choctaw County Affair 03:31(   Читать дальше...   )Жанр: Gospel, Alternative, Country, Latin Urban, SynthpopПродолжительность: 08:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397D6EC4C01FEFE0AC41A3CA46FDD4571BD5346C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023506   (724546) от 05.06.2016
-
-Death Angel - The Evil Divide (2016) Limited Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Moth
-02. Cause for Alarm
-03. Lost
-04. Father of Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2D0F26954736B4BD9862CBEA53AA4815A4EB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023231   (724545) от 05.06.2016
-
-Kyle Landry - 4 альбома (2009-2014) [MP3|196-320 kbps] <Solo piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Passion to Sorrow (07:33)
-02 - Lonely (04:40)
-03 - Cheerfulness (01:18)
-04 - Island of Dreams (06:19)(   Читать дальше...   )Жанр: Solo piano, New AgeПродолжительность: 04:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF126D80015DE1F03F025E152AC85AC35B390998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023320   (724544) от 05.06.2016
-
-Журнал | Библиотека журнала Похудей №9 Яблочная диета (2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых популярных вариантов разгрузочных дней - яблочный. Почему?
-Во-первых, этот фрукт доступен всем, да и цена его не так "кусается"...
-Во-вторых, яблоки привычны нам с детства, у него чудесная сочная мякоть и множество оттенков вкуса...
-В-третьих, в этих плодах содержится множество необходимых для организма витаминов и микроэлементов...Жанр: Кулинария, диетическое питаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6F7C4FAF0E46B2C3AFD8F8B05E735517C1CE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129085   (724543) от 27.04.2017
-
-1Password 6.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
-
-Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 апреля 2017Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C1B9B4E601D602A3A47ACECADC5DE27F90F0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023605   (724542) от 05.06.2016
-
-Zoon Politicon - Black In White (2016) 2CD [MP3|320 кб/с] <Electronic, Synth-pop>
+VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
 >>Electronic
->>Synthpop, New Wave
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724542.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После первых двух альбомов 1997 и 1998гг, группа берет перерыв - но они не разлучались и теперь вернулись, выпустив 03.06.2016 этот альбом!CD 1 - Black In White:
-01. Run Forever ( 6:06)
-02. Mercy ( 4:22)
-03. Moments (Album Version) ( 4:21)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:47:38
+01. In Credo – Siesta Del Sol (Laid Back Summer remastered Cut) (04:57)
+02. Cafe Americaine – Solitude Charmante (Level One remastered mix) (04:21)
+03. Miss Lopez – Jeso Creadu (Paraiso Verda mix) (05:32)
+04. Vladi Strecker – Over The Sea (Island Sounds Deluxe remastered mix) (07:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D86ED78716B9F58DD33EB16ECC8F80B8E5B1F29
+magnet:?xt=urn:btih:07FD5DA4A46F885A1547FCE9C387FC30DEEA2B72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,25 +612,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129051   (724541) от 27.04.2017
+###  Публикация: 1530414   (728984) от 11.02.2022
 
-Dash 4.0.3 [En]
+Эвальд Ильенков | О роли практики в познании (2022) [MP3, Павел Ермаков]
 
->>Архив торрентов
->>Архив 4Apple
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724541.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_728984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dash - удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных. Dash уже содержит более 150 пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну или просто внесите закладку на любую страницу. Каждый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.04.2017Разработчик: Bogdan PopescuПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Анлийский
+Труд создал всё человеческое в человеке. Автор предлагает читателю последовательно рассуждая прийти к этому выводу.Жанр: ПсихологияПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A056C5B024EE7B5E3872E45D094A06A97CE5843
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,28 +638,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023561   (724540) от 05.06.2016
+###  Публикация: 1530440   (728983) от 11.02.2022
 
-VA - Vamos A la Playa: Eivissa (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
+XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Канада - Германия. Мужчины  (10.02.2022) HDTVRip  [H.264/720p] [hand made 50fps]
 
->>Electronic
->>House
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724540.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Saalim - Snowfall Tribe Yin (Feelin' Alright) (Acos CoolKAs Remix) (7:50)
-02. Katzbatz - Chateau Brisanz (1983 Version) (6:22)
-03. Erdinc Erdogdu - Enjoy the Silence (5:02)
-04. Deepjack - Don't Look Back (Trav & Volta Remix) (7:48)(   Читать дальше...   )Производство: Eivissa RecordingsЖанр: Deep House, Nu DiscoПродолжительность: 02:13:30
+XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Хоккей. Групповой турнир. Канада - Германия. Мужчины (10.02.2022)Телекомпания: Матч! ИграЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BEC3B37BBA758B8267D0DE6F2DCD6BDC6D62C3C
+magnet:?xt=urn:btih:A1AC4A884EC2CAA3A07FFFE2829A316F0BC10CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,25 +664,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023348   (724539) от 05.06.2016
+###  Публикация: 1530581   (728982) от 11.02.2022
 
-Журнал | Библиотека журнала Похудей №8 Диета "Семь цветов" (2016) [PDF]
+Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэндэн: Легенда о восьми псах Востока [2013, TV, 26] BDRip 1080p 10-bit raw
 
->>Журналы
->>Кулинарные журналы
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724539.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Попробуйте свежим взглядом оценить свой рацион. Откройте кастрюльки и сковородки, загляните в холодильник. Если вас встречает безрадостная светло-бежевая гамма: картошка, макароны, майонез - хорошему настроению взяться просто неоткуда! А вот лишнему весу - наоборот. Стоит вспомнить про радугу!Жанр: Кулинария, диетическое питаниеФормат: PDF
+По легенде, от нежданного духовного союза демона-пса и принцессы земли Ава произошли восемь великих воинов. Каждого из них отличали три вещи: знак «ину», то есть «пес», в нареченном имени, родимое пятно в виде пиона и бусина четок с названием одной из конфуцианских добродетелей. По воле судьбы духовные братья могли родиться в разных семьях и стать врагами в бесконечных (   Читать дальше...   )Производство: Студия Studio Deen / スタジオディーンЖанр: приключения, комедия, мистикаРежиссер: Ямасаки ОсамуПеревод: Amanri (1-13); Chirito (14-26)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB155DA862704F92490E512BD45B8361FD6A7899
+magnet:?xt=urn:btih:EE8A47BB1E1B3FE46AF5669B4C1277C6DB6231BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,81 +690,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023531   (724538) от 05.06.2016
+###  Публикация: 1530409   (728981) от 11.02.2022
 
-Superbus - Sixtape (2016) [MP3|320 кб/с] <French Pop>
+Kotoura-san | Котоура [2013, TV, 12 эп. + 6SP] BDRip 720p 10-bit raw
 
->>Pop
->>Зарубежная поп-музыка
+>>Аниме с субтитрами
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724538.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (00:20)
-02. Strong & Beautiful (04:05)
-03. Soul Sister (03:45)
-04. On The River (03:47)(   Читать дальше...   )Жанр: French PopПродолжительность: 00:49:32
+Непохожим на других всегда живется тяжко – в этом на горьком опыте убедилась Харука Котоура, с детства слышащая чужие мысли. Быть рядом с человеком, для которого ты словно открытая книга – нелегкое испытание. Даже родная мать его не выдержала и сбежала, бросив «чудовище» на попечение деда. Легко предсказать реакцию окружающих, когда те узнавали, с кем их свела судьба. (   Читать дальше...   )Производство: Студия AICЖанр: комедия, романтика, драма, мистикаРежиссер: Ота МасахикоПеревод: General TAB; Kasumi; Schum; TassadarЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 6SP по 2 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A934043CD568EB9D2DF47D386F8ED98BD985D887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129069   (724537) от 27.04.2017
-
-Экстрасенсы ведут расследование (2017.04.22) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724537.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 марта в эфире ТНТ стартует новый сезон шоу «Экстрасенсы ведут расследования: Битва сильнейших», в котором лучшие ясновидящие страны помогают людям тогда, когда бессильны полиция и здравый смысл.
-В новом сезоне зрители увидят 18 историй, пропитанных мистикой, злым роком и черной магией. Экстрасенсы будут снимать проклятия с квартир и людей, прогонять призраков, (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3ADCA119B2DF6EDB921316947074A58C1BACB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023297   (724536) от 05.06.2016
-
-Алексей Коваленок | Трудный путь к себе (2014) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведь все - таки философия - это, далеко не в последнюю очередь, ЧЕЛОВЕКОВЕДЕНИЕ, это ВОПРОШАНИЕ О ЧЕЛОВЕКЕ, это попытка понять сущность и предназначение человека на этой земле, выявить смысл его жизни, его специфику среди всех остальных живых существ. Каждый крупный мыслитель , независимо от эпохи, так или иначе задавался всеми этими вопросами и оставил свои размышления (   Читать дальше...   )Жанр: ФилософияПродолжительность: 01:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422BED6099F08933283A8B7E7BA3DACD8B5DB3B9
+magnet:?xt=urn:btih:67F878E3A26B62C55FCD5D9225582CD75DF423E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

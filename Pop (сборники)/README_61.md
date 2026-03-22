@@ -1,3 +1,177 @@
+###  Публикация: 1296787   (608397) от 19.04.2019
+
+VA - This Merry Planet: Instrumental Disco Hits Vol.2 (2019) [MP3|320 Kbps] <Disco, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+
+01.Neil Cloud - Reflections (The good, the bad & the ugly) of my life & Finale (18:42)
+02.Astor And The Potentials - Give Me What I Want (Part II) (03:21)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 02:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF28AECA09F64B1BB017200F461030302227DBC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038179   (608373) от 27.07.2016
+
+VA - Europa Plus. Самые сливки дискотек №2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Chainsmokers Feat. Daya - Don't Let Me Down
+002. Reflex - Говори Со Мной
+003. Nickelback - She Keeps Me Up
+004. Miike Snow - The Heart Of Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F715DA73FAEF2436FDFBA4CA3EBC3C23AD8B8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545559   (607829) от 23.04.2022
+
+VA - National Pop Dance Music Vol.34 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микс-сборник популярной народной музыки с  наименованием "National Pop Dance Music" 34-го выпуска, скрасит ваши серые будни и подарит немного праздника. Треки лонгплея выделяются нестандартным подходом к исполнению, широкой гаммой национального колорита и великолепным настроением.001. Kevin Bock - Schoen Dass Es Bier Gibt
+002. Gordon & Doyle - Stand By Me
+003. Hannes Wader - Im Garten
+004. Angélique Kidjo - Choose Love(   Читать дальше...   )Жанр: Pop, Dance, Schlager, FolkПродолжительность: 08:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549D76D973C89057E185B2B1F682EC1419B4713B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545778   (607687) от 23.04.2022
+
+VA - Relax Mix (2022) [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SITHEA - Right My Wrongs (2:00)
+02. Rudimental, Major Lazer, Anne-Marie - Let Me Live - Banx & Ranx Remix (2:57)
+03. The Weeknd - A Lonely Night (3:40)
+04. Ed Sheeran - Afterglow (3:18)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C085758C8313016312EDD5E4C937B9503CF3B3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545564   (607460) от 23.04.2022
+
+VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите окунуться в ретро-атмосферу и на несколько десятков лет перенестись назад в прошлое? В этом вам прекрасно поможет подборка популярнейших песен 70-80х годов. Истерики фанаток и восторженные крики толпы. До отказа заполненные стадионы и концертные залы. Миллионы поклонников по всему миру. Беспрерывные гастроли и несмолкающие овации.001. Patsy Gallant - From New York To L.A.
+002. Soft Cell - Tainted Love
+003. Andrea True Connection - What's Your Name
+004. Siouxsie And The Banshees - The Staircase(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297032   (606687) от 20.04.2019
+
+VA - Magic Lights: European Pop Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606687.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pia Magnet - Ich Will Sex
+002. Flash And Thunder - Don't Get Tired
+003. Dj Kajjin Feat. Mimi - Take My Hand
+004. Soundstylers - Shake It Daby (Club Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD5D7EA57728B204DA1608FEB89204FC1C49AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038426   (606597) от 28.07.2016
 
 VA - Самые Популярные Новинки Года. Зарубежный Выпуск (2016) [MP3|256 Kbps] <Pop, Dance>
@@ -583,186 +757,6 @@ VA - De Top 100 Aller Tijden 1990 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04E5DB5EF5B6A34E8BD1DEFD1542CB5D804D74FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548211   (597900) от 03.05.2022
-
-VA - Dancing Pops (Vol.01) (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597900.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот весенний теплый день, когда снег давно уже сошёл с земли, а тепло наступает раньше назначенного срока, хотелось бы послушать такую музыку, которая была бы полной заряжена позитивом весеннего солнца. Именно такая музыка представляется вашему вниманию в позитивном сборнике под названием "Dancing Pops".001. Sam Feldt & Sam Fischer - Pick Me Up
-002. Kylie Minogue - Wow
-003. Don Diablo - Too Much To Ask
-004. Stephan Fya-Ya - U & Me(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B0383FB8706973DBE14D3C641D4A765220B4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039166   (597801) от 31.07.2016
-
-My Sister's Band - Collection (2016) [MP3|320 Kbps] <Pop Rock, Country Pop, Vocal Jazz>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лета ждать
-02. Яндекс
-03. Гагарина
-04. Помчали(   Читать дальше...   )Жанр: Pop Rock, Country Pop, Vocal JazzПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D14911D661F485B3D8CE5842816F1DEC4760A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039119   (597635) от 31.07.2016
-
-VA - Ballads for Lovers Vol.4 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything But The Girl - Missing
-02. George Michael - Praying For Time
-03. Robert Miles - Children
-04. Andru Donalds - Mishale(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39BB9A911F55E34535A95A1D238344D6DC1A46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039227   (597629) от 31.07.2016
-
-VA - German Top 100 Single Charts 08.08.2016 (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597629.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker -  Sing Me To Sleep 3:09
-002. Calvin Harris Feat. Rihanna -  This is What You Came for 3:42
-003. Robin Schulz feat. Akon -  Heatwave 3:07
-004. Alle Farben feat. YOUNOTUS -  Please Tell Rosie 2:53(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5814F2EA12E866547CA8241295BFADF90DC5DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039187   (597497) от 31.07.2016
-
-VA - Молодежный Сборник Хитов Русский (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Егор Крид - Мне Нравится
-002. Клава Кока - Май
-003. Валенсия - Отпускаю
-004. Юлианна Караулова - Внеорбитные(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4AE94DD8150CF1949C8BFEA2B0B31ACB680B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526715   (597248) от 24.07.2012
-
-VA - 100 хитов подряд 4 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597248.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Настя Крайнова - Стой Мой
-002. Mindy Gledhill Feat. Kaskade - Eyes
-003. Artik Pres. Asti - Стыцагерл
-004. Michel Telo - Ai Se Eu Te Pego
-005. St1m (Gagareen) - Космос
-006. Colby O'donis - Like Me
-007. Marc Anthony Feat. Pitbull - Rain Over Me
-008. Armin Van Buuren - We Are Here To Make Some Noise
-009. Karosa Feat. Kledia - Burning Passion
-010. Kondrashov - Answer (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C85E8D3C3878CA9EE55124E4CAB7D4E37AD33F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

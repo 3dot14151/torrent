@@ -1,3 +1,32 @@
+###  Публикация: 1374557   (871202) от 11.04.2020
+
+Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871202.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Kill the Kong
+2017 - Colossus
+2016 - Bring the Heat (Single)
+2017 - Ashes in the Wind (Single)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 6 CD, 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821C05446B88AE87133541432E2D2624937157C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375023   (869098) от 12.04.2020
 
 Dawn Of Winter - Pray For Doom (2018) [MP3|320 Kbps] <Doom Metal>
@@ -716,35 +745,6 @@ Artillery - Penalty By Perception (2016) Limited Edition [MP3|320 кб/с] <Thra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246D423C253F9DFC2E6606C6AB9E1E7129CD1C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376272   (860702) от 17.04.2020
-
-Vermicide Violence - The Praxis of Prophylaxis (2020) [MP3|320 Kbps] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exuberant Sputum [00:03:17]
-02. A Dyspneic Frenzy [00:02:58]
-03. Coronaviscerated (feat. Jared Dines) [00:03:38]
-04. West of the Nile [00:02:52](   Читать дальше...   )Производство: Chodezilla RecordsЖанр: DeathcoreПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2C62E2EF54AE8BEF7B88069AD52608011AB187
 ```
 
 https://mybot314.ru/tekegram_catalog/

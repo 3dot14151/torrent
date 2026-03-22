@@ -1,3 +1,55 @@
+###  Публикация: 1119834   (804790) от 29.03.2017
+
+Проекты - VideoHive - Logo Reveal - 19162943 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo Reveal - это отличное начало для вашего следующего корпоративного видео или видео-презентации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA628340A082A59704FD6C0DF43E449305B4B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119692   (804719) от 29.03.2017
+
+Проекты - VideoHive - Business Jet - 9647287 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Business Jet - В этом проекте в лучших ракурсах показан авиалайнер "Business Jet" с отображенными на нем логотипом и фирменными цветовыми линиями. Уважаемые пассажиры, пристегните ремни, мы взлетаем!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285501008D1D573F11EF8281F0C46EECADD0E141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119933   (804716) от 29.03.2017
 
 Проекты - VideoHive - Flat Boxes Logo Reveal - 13213456 [AEP]
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5D0CE7AA4CF21BB270CFD55C0607B6E847B3FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011170   (796714) от 27.04.2016
-
-Проекты - VideoHive - Shapes Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9434E20B3C53CA28D05F041FADFDE877006AF62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011233   (796676) от 27.04.2016
-
-Проекты - VideoHive - Modern Dark Logo - 6789830 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BD4E271AE3F3DBCA1C0A390D75C5FB020F38F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

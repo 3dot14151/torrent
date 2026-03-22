@@ -1,3 +1,57 @@
+###  Публикация: 1113006   (839298) от 10.03.2017
+
+Проекты - VideoHive - Elite Awards Pack - 19501318 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elite Awards Pack отлично подходит для церемонии награждений, элитных слайд-шоу, свадебных фильмов, истории любви, и других роскошных фильмов.
+Проект хорошо структурирован и имеет модульную структуру для быстрого редактирования.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A553DC3EDCA272B0A73A6F530410DED86941EDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379495   (838987) от 29.04.2020
+
+Проекты - VideoHive - Premium Award Pack - 21362418 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет проектов для After Effects "Premium Award Pack" включает в себя: вступление, слайд-шоу, нижняя треть. Включено полное видео-руководство.
+Сфера применения: свадебное видео, церемония награждения, модные показы, и т.д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAD905DAC2DD46D563FBC6F563F0CFBCE527BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379533   (838932) от 29.04.2020
 
 Проекты - VideoHive - Golden Awards Promo 2 - 19623729 [AEP]
@@ -623,58 +677,6 @@ Stylish Photo Openers - Logo Reveal -  стильный современный �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5260BC8AF1F29F38D8CA2B37559D28D8758EAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380896   (830960) от 04.05.2020
-
-Проекты - NNM-Club - Stop Corona Virus by Nataly11 - 1380896 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stop Corona Virus - шаблон After Effects, разработанный по мотивам Corona Virus (Five Simple Rules) и адаптированный для русского глаза.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C505DDBFD2039F5C2F70F9F4D892463B774AD1C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380597   (830959) от 04.05.2020
-
-Проекты - VideoHive - Corona Virus (Five Simple Rules) - 26203876 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corona Virus - проект на злободневную тему коронавируса.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE9049E04B91ED1A34CD197B083F22F28614C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

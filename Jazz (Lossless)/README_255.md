@@ -1,3 +1,177 @@
+###  Публикация: 1618595   (235399) от 12.03.2023
+
+Mal Waldron - The 1978 Solo Piano Concert (2022) 2CD, Tompkins Square [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen to You [7:35]
+02. Russian Melody [6:17]
+03. I Thought About You [9:41]
+04. Snake Out [7:25](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879E787E5DC4BCF8FCB69E62187AB2E4E31C09B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530683   (235398) от 12.02.2022
+
+Abdullah Ibrahim - Solotude (2021) Gearbox Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindiff [3:11]
+02. Trieste My Love [1:56]
+03. Nisa [2:25]
+04. Blue Bolero [2:09](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D371D16F9BEDEB46E7DF8FFE334E39264191F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460103   (235369) от 04.04.2021
+
+Chet Baker - As Time Goes By (1986) 2020, Solid Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You and the Night and the Music [5:31]
+02. As Time Goes By [6:53]
+03. My Melancholy Baby [7:02]
+04. I Am a Fool to Want You [8:43](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Vocal JazzПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DAC254FADC3A64788AC506C4480952F31FBC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636855   (235346) от 01.06.2023
+
+Pasquale Grasso - Be-Bop! (2022) Sony Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Night in Tunisia [5:58]
+02. Be-Bop [4:57]
+03. Ruby, My Dear [4:26]
+04. Shaw 'Nuff [4:02](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A883BACABB473D1E35DB668A3F64D01ED4CF451C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460245   (235324) от 04.04.2021
+
+Ben Tankard - Shine! (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Just Like Music
+02 - How Deep Is Your Love
+03 - Melodies from Heaven
+04 - Shudda-Sed-Sompin-Din (Vocal Mix)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2366ED267351C6F762CDC2A29DCCB8590BEB73DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641375   (235315) от 22.06.2023
+
+Jessica Williams - The Next Step (1993) Hep Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taking a Chance on Love [6:33]
+02. Stonewall Blues [5:26]
+03. Easter Parade [5:42]
+04. Bongo's Waltz [5:02](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0841BD9F9E27961CB2A12F49D80F8DF93FD6D754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637049   (235278) от 02.06.2023
 
 Albert Ayler Trio - Spiritual Unity (1964) 2005, ESP [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -571,177 +745,6 @@ Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00CF03A264A04767C576D83CF543BFC1A8FE3C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621341   (234753) от 24.03.2023
-
-Sarah Vaughan & Woody Herman - On The Radio: The 1963 'Live' Guard Sessions (2008) Acrobat Music [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction & 'Go With The National Guard' Jingle [1:49]
-02. Day In, Day Out [2:05]
-03. National Guard Promo & Conversation [1:08]
-04. Midnight Sun [4:38](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECDD0BA38768F8929939321F6D48317D2E9BCF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642384   (234736) от 27.06.2023
-
-Bob Albanese Trio With Ira Sullivan - One Way / Detour (2009) Zoho [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Minority [4:22]
-02. Yesterday's Gardenias [6:37]
-03. One Way/Detour [5:02]
-04. Morning Nocturn [5:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86BDD90A16324DDB64EE56E7559E4E3594FABD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639315   (234705) от 13.06.2023
-
-Nana Rashid - Music For Betty (2023) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poor Blue Betty (Rashid) - 3:57
-02. Goodbye My Love (Rashid-Frost) - 5:05
-03. Johnny Guitar (Young-Lee) - 4:01
-04. Mother, Father (Rashid-Jacobsen) - 5:26(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256CEB91A47DBEA6E237D263DF1486B1D3ACAD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633300   (234640) от 14.05.2023
-
-Danilo Perez - The Journey (1994) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Time Past
-The Capture (Perez)
-01. A. Morning - 1:02
-02. B. The Forest (Percussion) - 0:38(   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, Post-BopПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3446ABB38192E58DDA7C9F63B49EF7BEA868B22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621999   (234524) от 27.03.2023
-
-Benny Golson - Gettin' With It (1959) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baubles, Bangles, and Beads [6:19]
-02. April in Paris [5:09]
-03. Blue Streak [7:00]
-04. Tippin' on Thru [6:44](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813B72D299CE6FB824EA3598937092519A73F14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622156   (234502) от 27.03.2023
-
-Aberdeen - Held Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Brass Band, Jazz Fusion, Progressive Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing Eurydice (feat. Antonio Sánchez - drum set)Жанр: Brass Band, Jazz Fusion, Progressive RockПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACDC4FA058CBBB9839B67B1A0E6C8C1B707909C
 ```
 
 https://mybot314.ru/tekegram_catalog/

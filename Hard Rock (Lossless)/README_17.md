@@ -1,3 +1,90 @@
+###  Публикация: 1098077   (910782) от 29.01.2017
+
+Super Vintage - Welcome To Mojo Land (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southern Moon Rising (05:55)
+02. Delta Mud (04:35)
+03. Son Of Pain (04:42)
+04. Kiss Your Bad Feelings Goodbye (03:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C06B404BEA0B9DF82F22723B743B913DE12A1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368308   (910548) от 19.03.2020
+
+David Coverdale - Whitesnake - The Best Of Ballads: 40th Anniversary Collection (2019) 2CD [FLAC|Lossless|image + .cue] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Hole In The Sky
+02. Say You Love Me
+03. Only My Soul(   Читать дальше...   )Жанр: Hard-Rock |Продолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5251B532E84BB7B65580CEF621A56ABF87C53D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368524   (909232) от 20.03.2020
+
+Geisha - Youth Stand Tall (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U Got What It Takes (04:56)
+02. Claws Of Sin (04:54)
+03. Shock Rock School (04:36)
+04. Gangland Sector 21 (06:49)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9466E27909A82AEA8AF7C16C97C9D0EBB2E3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098651   (908501) от 30.01.2017
 
 Tommy Heart - Spirit Of Time (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -651,93 +738,6 @@ Gotthard - #13 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63F9ED91EDB64EE60F7E67C0C45807FC42A16A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101652   (894822) от 07.02.2017
-
-Degreed - Dead But Not Forgotten (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Scam [3:48]
- 02. Face The Fact [3:12]
- 03. Madness [4:00]
- 04. Shame On Me [3:41](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E84B5097C6E773E92C6A168D3002EC9BA8E0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101371   (894771) от 07.02.2017
-
-Apollo - Waterdevils (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution For The Brave [3:51]
- 02. Liberate Yourself [3:36]
- 03. Buried In A Flame [3:51]
- 04. Safe And Sound [3:47](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171CD83542A428762D80EEBDDDB9D422BAD544ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101729   (893143) от 08.02.2017
-
-Monkeyhead - Monkeyhead (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The One That Makes You Crazy 4:26
-02. Dragon Fly 4:23
-03. Guns Of July 3:56
-04. Temptation 4:31(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B14D1863D78B228D8454B3707F1773CA3E36EAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

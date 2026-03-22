@@ -1,3 +1,61 @@
+###  Публикация: 1706424   (113675) от 12.03.2024
+
+VA - Harmony in Hush: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - The Dream That Was Summer (Original Mix) (6:03)
+02. Michael E - Jhenna (Original Mix) (4:51)
+03. Marie Therese - Endless Time (Chillout Mix) (4:28)
+04. Florito - Saigon Morning (Original Mix) (4:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31D6533A50B1D21CFA57142A3C573FD43C500BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706500   (113560) от 13.03.2024
+
+VA - Tranquil Horizons: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - Matterhorn (Original Mix) (4:04)
+02. Prana Tones - Eastern Zen (Original Mix) (3:12)
+03. La Estación Del Mar - Punta Begona (Original Mix) (3:35)
+04. Velvet Dreamer - Mystic Traveller (Eskadet Remix) (6:01)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC8F69E86E063EECAAD169836094F556DF18493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708689   (113044) от 21.03.2024
 
 Orion & J.Shore - Brotherhood (2011) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
@@ -687,64 +745,6 @@ VA - Chill Out Vibes (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95DC4190D2F2E78A9F24C2939764C546772592BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721500   (110033) от 07.05.2024
-
-VA - Seaside Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup, Evamaria Linnet - Faces (3:32)
-02. Calmabohain - So Far Away (Sa Trinxa Edit) (4:45)
-03. Luis Hermandez - Todo el tiempo (4:00)
-04. Weber & Weber - Fly On Wings (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4412A1437D018D619375C91D3E7F5D97D84510A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721436   (110031) от 07.05.2024
-
-VA - Climax Chill Out Session, Pt. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike D'Abo - Reach out for Starlight (Syper Chill Mix, AL-Faris Re-Extended Mix) (5:02)
-02. Luke Mornay - The System F'ed Us Up (Kastilla Lounge Mix) (4:02)
-03. Project Blue Sun - Escape (7:35)
-04. Micro Mania - Emotional Scars (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2678C3CD65B92F0615F9B44453D0DA846773B50E
 ```
 
 https://mybot314.ru/tekegram_catalog/

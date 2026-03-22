@@ -1,31 +1,24 @@
-###  Публикация: 485276   (100013) от 19.04.2012
+###  Публикация: 1754678   (103714) от 11.10.2024
 
-Dotma - Sleep Paralyses (2011) [MP3|320 кб/с]<Power Metal, Gothic Metal>
+Chicago - John F. Kennedy Center For The Performing Arts, Washington D.C. (9/16/1971) (2024) (Live) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Rock, Classic Rock, Pop Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100013.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Legend Of Blackbird
- 02. Reborn
- 03. Silent Sunshine
- 04. Indian Fall
- 05. Whispering
- 06. The Cave
- 07. Kingdom Of The Sky
- 08. Memory Worth Dying For
-
-Группа Dotma была образована в 2005 году, в маленьком городе Hyvinkää, Финляндия. Идея создания музыкального коллектива, отражающего в своей лирике и музыке объединение печали и призрачной надежды, пришла в голову Lasse Nyman (гитара) и Harri Koskela (клавишные).(   Читать дальше...   )2011Жанр: Power Metal, Gothic MetalПродолжительность: 00:51:50
+01 - A Song for Richard and His Friends (Live at the John F. Kennedy Center for the Performing Arts, Washington D.C. 9/16/1971) [8:44]
+02 - Does Anybody Really Know What Time It Is? (Free Form Intro) (Live at the John F. Kennedy Center for the Performing Arts, Washington D.C. 9/16/1971) [5:24]
+03 - Does Anybody Really Know What Time It Is? (Live at the John F. Kennedy (   Читать дальше...   )Жанр: Jazz Rock, Classic Rock, Pop RockПродолжительность: 02:13:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73A977D28EC2933D51BB5FCCF2E9F7FE5C977960
+magnet:?xt=urn:btih:7156438E9609D6B44A4E46D49A571B9A67084E48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485013   (100011) от 19.04.2012
+###  Публикация: 1754641   (103713) от 11.10.2024
 
-Spectral - Gateway To Death (2012) [MP3|320 кб/с]<Black/Viking/Power Metal>
+Tove Lo - Queen Of The Clouds: X (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100011.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro 00:35
- 02. Lord Of Fire 05:05
- 03. Tank Attack 05:04
- 04. Forces Of Evil 05:35
- 05. Gateway To Death 05:27
- 06. Into Oblivion 04:46
- 07. Dark Traveller 03:55
- 08. Death Of A King 07:14
- 09. Curse Of The Black Sea 04:58
- 10. Mountain Of Madness 06:122012Жанр: Black/Viking/Power MetalПродолжительность: 00:48:50
+01 - THE X [0:08]
+02 - Jealousy (From the Vault) [3:45]
+03 - Write me off (super demo.mp4a) [3:35]
+04 - Talking Body (2014 Jax Jones Remix) [4:38](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:26:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CAA3A447726A40C83DF82F0C1134C3140C179E2
+magnet:?xt=urn:btih:3752D56B8D3FEC1A02CB10A9E1B52B8DCD2C8E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,34 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484841   (100010) от 19.04.2012
+###  Публикация: 1754627   (103712) от 11.10.2024
 
-VA - The LTD Chronicles mixed by 6th Borough Project (2012) [MP3|~245 кб/с (V0)]<House>
+Astral Magic - Those Who Came from the Stars (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic Rock, Space Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100010.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fantastic Man - Say What You Said
-02. Alex Agore - Promised You Love
-03. Nicholas - On the Ground
-04. Norm De Plume - Steady Teddy (Franc Spangler Remix)
-05. Deadly Sins - Sometimes
-06. Fantastic Man - Groove With You
-07. Alex Agore - Man Down (Tornado Wallace Remix)
-08. 6th Borough Project - When The Hate Is Gong
-09. Eddie C - Simple Song
-10. South West Seven - The Only One(   Читать дальше...   )2012Жанр: HouseПродолжительность: 01:03:50
+01. Intro: They Have Arrived (1:06)
+02. Over the Edge (3:53)
+03. Back to Earth (5:21)
+04. Stuck in the Mud (6:24)(   Читать дальше...   )Жанр: Psychedelic Rock, Space RockПродолжительность: 00:53:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:230AF305B037A26D382FDEC0158F67BE6CBF2C1B
+magnet:?xt=urn:btih:76769322AE39A1ABF0ADD5E7F0A2AD1F19BA35B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,28 +84,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485003   (100004) от 19.04.2012
+###  Публикация: 1754667   (103711) от 11.10.2024
 
-Uneven Structure - Februus (Limited Edition) (2011) [MP3|320 кб/с]<Experimental Progressive Math Metal>
+Тайное воссоединение / Uihyeongjae (2010) BDRip [H.264/720p] [MVO]
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100004.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc One:
- 01: Awaken (06:35)
- 02: Frost (06:00)
- 03: Hail (05:55)Жанр: Experimental Progressive Math MetalПродолжительность: 01:31:05
+Ли Хан гю, агент Национальной службы разведки Южной Кореи, выслеживает "Тень", убийцу из Северной Кореи, который охотится на изменников родины... Сон Джи вон, контактное лицо "Тени", отправляется с ним на очередную миссию, но операция проваливается и для шпионов с Севера, и для НСР. Сон Джи вона подозревают в предательстве и вынуждают скрыться, (   Читать дальше...   )Производство: Южная Корея, Showbox, Mediaplex, Rubicon Pictures, Michigan Venture CapitalЖанр: драма, боевик, триллерРежиссер: Хун ЯнгАктеры: Кан Хо Сон, Дон Вон Кан, Кук Хван Чон, Хи Сок Юн, Чан Сок Ко, Со Юн Ли, Ин Ги Чон, Кван Гю Ким, Чон У Чхве, Хёк Квон ПакПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:57:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97CF0AC6006FC0F7A3B576A12B14ADD8ACA84DAA
+magnet:?xt=urn:btih:31580A15103473B9701B1012DD2688BE29999C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,27 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484736   (100003) от 19.04.2012
+###  Публикация: 1754622   (103710) от 11.10.2024
 
-Mari! Mari! - Flamboyant Flares [EP] (2012) [MP3|320 кб/с]<Indie Rock/Brit-Pop/Indietronic>
+Грузовой лифт / Le monte-charge (1962) BDRip [H.264] [DVO]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100003.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Painfully Illuminated (3:14)
-02. Marina Wakes Up At 3 P.M. On Monday (3:17)
-03. Sea (2:49)2012Жанр: Indie Rock/Brit-Pop/IndietronicПродолжительность: 00:09:20
+Экранизация романа Фредерика Дара... Рождество. Робер Эрбин только что вышел из тюрьмы и приехал в родной город после семи лет отсутствия. Мать умерла четыре года назад, и он совершенно никому не нужен. Одинокий мужчина идёт в ресторан. За соседним столиком сидит женщина с очень печальной девочкой. Робер идёт за этой женщиной в кино... Встреча двух одиноких людей (   Читать дальше...   )Производство: Италия, Франция / Galatea Film, Marianne Productions S.A., Société Nouvelle des Établissements Gaumont (SNEG)Жанр: драма, триллерРежиссер: Марсель БлювальАктеры: Робер Оссейн, Леа Массари, Робер Дальбан, Морис Биро, Маг-Авриль, Андре Баден, Этьен Бьерри, Паскаль Джей, Клод Ферна, Пол Гэй, Жорж Жере, Анри Атталь, Джинн ПерезПеревод: любительский двухголосыйЯзык озвучки: русский, французскийСубтитры: русскиеПродолжительность: 01:26:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78A6814DD45E51823DF2839AB77B0A622A6EE706
+magnet:?xt=urn:btih:C3A85530A36ECB3AFCA7C1188BB3369EA00284EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,33 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484674   (100001) от 19.04.2012
+###  Публикация: 1754592   (103709) от 11.10.2024
 
-K-Lapso - Deadly Transformations (2012) [MP3|320 кб/с]<Psychedelic / Dark>
+Joe Bonamassa - Different Shades Of Blue - Overdrive (2014) Reissue, 2024, 10th Anniversary Edition [MP3|320 Kbps] <Blues Rock, Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100001.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Deadly Transformation 07:28
- 02 Mad Monks Reborn (Silent Horror Remix) 06:40
- 03 Ravenous 07:57
- 04 Stricken 07:15
- 05 Doomlord 06:45
- 06 Picha Tripla 08:14
- 07 Transcend To Darkness 06:30
- 08 Killer Night (Remix) 07:59
- 09 Plantriacomatic 07:252012Жанр: Psychedelic / DarkПродолжительность: 01:06:13
+01 - Hey Baby (New Rising Sun) (01:19)
+ 02 - Oh Beautiful! (05:29)
+ 03 - Love Ain't A Love Song (03:49)
+ 04 - Living On The Moon (03:21)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 01:05:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25F68184A04A23104B32B8CE9EEBE46385E3DC69
+magnet:?xt=urn:btih:C01D6A440D28993C3CF88A4D746C7CFC9907BF52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,25 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484989   (100000) от 19.04.2012
+###  Публикация: 1754693   (103708) от 11.10.2024
 
-Величайшие автомобили: Mustang / Great Cars: Mustang (2004) SATRip
+Pregnant Women Music Company - Pregnancy Routine (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100000.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mustang выпрыгнул на автомобильную сцену словно резвый пони в 1964 году. Он быстро вырос из многообещающего жеребенка в чистокровного скакуна. Затем на некоторое время он сбился с пути, но поклонники машины со всего мира объединились, чтобы их любимый пони выжил. Более 40-ка лет назад он вышел из стойла, но до сих пор уверенно скачет вперед.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+01. Yoga Vibe (3:13)
+02. Channels of Strength (3:13)
+03. Awakening the Weel (3:13)
+04. Ecstatic Contemplation (3:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24296562CC28753E6982C61649BA4B4E00DB1DD8
+magnet:?xt=urn:btih:4575CACA30614DD0AF0C60FC29986AF152619198
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,25 +194,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484982   (99999) от 19.04.2012
+###  Публикация: 1754557   (103707) от 11.10.2024
 
-Величайшие автомобили: Jeep / Great Cars: Jeep (2004) SATRip
+Досье на «Золотого гуся» / The File of the Golden Goose (1969) DVDRip [AVO]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99999.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Jeep-это легенда пробуждающая образ свободы. Это бесспорно американская машина, которая дала нам возможность следовать куда угодно. Ее корни уходят во времена Второй мировой войны, когда она служила на фронте. Создатели оригинального Jeep-а были бы весьма удивлены, увидев насколько он изменился и где находится сегодня. Jeep стал иконой Америки и частью истории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+Американский детектив Петер Новак послан в Британию выслеживать важного международного преступника фальшивомонетчика. Петер Новак и его коллега Томпсон начинают работать под прикрытием, чтобы разоблачить банду фальшивомонетчиков.Производство: Великобритания / Caralan Productions Ltd., Edward Small ProductionsЖанр: боевик, триллер, драма, криминалРежиссер: Сэм УонамейкерАктеры: Юл Бриннер, Чарльз Грей, Эдвард Вудворд, Джон Барри, Эдриенн Корри, Грэм Кроуден, Уолтер Готелл, Энтони Джейкобс, Айвор Дин, Хью МакДермотт и др.Перевод: Авторский (Н.Золотухин)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:41:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A2F7FE753111E52D6D84E3EE5660278E897B1B3
+magnet:?xt=urn:btih:A81182BA31945F991E4C5C24608333F3AC22702E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,25 +220,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485168   (99996) от 19.04.2012
+###  Публикация: 1754632   (103706) от 11.10.2024
 
-[Wallpapers] Wallpapers Fantasy №7 (Pavel)
+Грузовой лифт / Le monte-charge (1962) BDRip [H.264/720p] [DVO]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99996.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола 50 шт
+Экранизация романа Фредерика Дара... Рождество. Робер Эрбин только что вышел из тюрьмы и приехал в родной город после семи лет отсутствия. Мать умерла четыре года назад, и он совершенно никому не нужен. Одинокий мужчина идёт в ресторан. За соседним столиком сидит женщина с очень печальной девочкой. Робер идёт за этой женщиной в кино... Встреча двух одиноких людей (   Читать дальше...   )Производство: Италия, Франция / Galatea Film, Marianne Productions S.A., Société Nouvelle des Établissements Gaumont (SNEG)Жанр: драма, триллерРежиссер: Марсель БлювальАктеры: Робер Оссейн, Леа Массари, Робер Дальбан, Морис Биро, Маг-Авриль, Андре Баден, Этьен Бьерри, Паскаль Джей, Клод Ферна, Пол Гэй, Жорж Жере, Анри Атталь, Джинн ПерезПеревод: любительский двухголосыйЯзык озвучки: русский, французскийСубтитры: русскиеПродолжительность: 01:26:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:744E148B2DFDA3B17AA7ADA1E56EED5280D20229
+magnet:?xt=urn:btih:D0FA585BC7FB32073329820389284F7F3D9F7CF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,25 +246,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485200   (99991) от 19.04.2012
+###  Публикация: 1754580   (103705) от 11.10.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (20.04.12)
+Herbie Hancock / Lionel Hampton - Nightlife Late Night (2000) Direct Source Special Products [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99991.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Herbie Hancock - Live and Awake (3:57)
+02. Lionel Hampton - Jeepers Creepers (3:33)
+03. Herbie Hancock - Scoochie (5:17)
+04. Lionel Hampton - Birth of the Blues (4:34)(   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:35:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E56DB19EFDCC26AC9BBAE5B523917724291A0B2
+magnet:?xt=urn:btih:C3632A0381D25AC34BCF65061B774940818A9418
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,29 +275,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485227   (99989) от 19.04.2012
+###  Публикация: 1754582   (103704) от 11.10.2024
 
-[Wallpapers] Desktop Wallpapers №22
+Ted Heath And His Music - Fever (1965) 1985, London Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99989.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №22
-Название: Desktop Wallpapers №22
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Fever [3:37]
+02. More [2:29]
+03. Hello Dolly [4:23]
+04. Theme from 'A Summer Place' [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:37:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F68D6422484E47CB06574F8347EF1267654FC43E
+magnet:?xt=urn:btih:C871D26B99602C2A6EB25E1FBBB8B134EE0F23FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,25 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484986   (99987) от 19.04.2012
+###  Публикация: 1754585   (103703) от 11.10.2024
 
-Величайшие автомобили: Mini / Great Cars: Mini (2004) SATRip
+Joe Pass - True Virtuoso (2005) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99987.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MINI выглядит так же молодо как и в тот день, когда Сер Алек Исегонис сделал его первые наброски на скатерти в ресторане. За четыре десятилетия он стал иконой. Этот символ бунтарства и веселья появился в начале 60-х годов. Но путь MINI еще далек от завершения.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+01. Django [5:05]
+02. 'Round Midnight [3:39]
+03. Autumn Leaves [2:33]
+04. Satin Doll [5:51](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 01:01:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F34220884BAE50665924801DA56562058C6B6B35
+magnet:?xt=urn:btih:B66EA3BF73BDD7A8F48092B65B75460B18DE8D67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,29 +333,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485217   (99985) от 19.04.2012
+###  Публикация: 1754506   (103702) от 11.10.2024
 
-[Wallpapers] Desktop Wallpapers Pack
+Dragony - Hic Svnt Dracones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99985.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack
-Название: Desktop Wallpapers Pack
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. From The New World (1584) (1:21)
+02. Dreamchasers (4:52)
+03. Silver & Blood (5:36)
+04. Dragon Of The Sea (Sic Parvis Magna) (4:50)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60E87049D4EEEC29E3C573DE6B32DD9785D2180B
+magnet:?xt=urn:btih:C50626B203588ED8A69A992CECE2129112596C45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,27 +362,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484615   (99984) от 19.04.2012
+###  Публикация: 1754492   (103701) от 11.10.2024
 
-Psychotic Homicidal Dismemberment - Displaying Her Decapitated Corpse (2011) [MP3|320 кб/с]<Brutal Death / Goregrind>
+Cemetery Skyline - Nordic Gothic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extreme metal>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99984.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Displaying Her Decapitated Corpse 01:51
- 02. Cannibalize Living Flesh 01:55
- 03. Bleeding Pieces 02:07Жанр: Brutal Death / GoregrindПродолжительность: 00:29:17
+01. Torn Away (3:57)
+02. In Darkness (4:46)
+03. Violent Storm (4:08)
+04. Behind the Lie (5:02)(   Читать дальше...   )Жанр: Extreme metalПродолжительность: 00:48:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52ADB6587A6A0AF02563AA0DD3F8ABED8FB20A7A
+magnet:?xt=urn:btih:4CE1612160BD547BB54F27BC8AB8DD4DBD3CEB30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,25 +391,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484979   (99981) от 19.04.2012
+###  Публикация: 1754782   (103700) от 12.10.2024
 
-Величайшие автомобили: GT 40 / Great Cars: GT 40 (2004) SATRip
+VivaVideo Video Editor v9.21.1 Mod by MustHave [Ru/Multi]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99981.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 2004 году FORD выпустил потрясающую новую модель FORD GT. Ее создателей вдохновил FORD GT 40 60-х годов 20-го века, который был заказан Генри Фордом 2 для противостояния Ferrari и утверждения гоночного превосходства FORD-а. Брошенный вызов перерос в одно из захватывающих и дорогостоящих сражений на мировых гоночных трассах...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+VivaVideo - это простой в использовании видеоредактор и профессиональный редактор видео , который помогает вам легко записывать и показывать свою жизнь.Скачайте Viva Видеоредактор для монтаж и обработка видео с фото, музыкой и эффектами, делитесь ими на ютуба, Инстаграм, Тик Ток Профессиональный видеоредактор с эффектами и бесплатное программа для монтажа видео. (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 12.10.2024Разработчик: QuVideo Inc. Video Editor & Video Maker AppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3F7662C3F68301A8E979385FD5A1932E51F7CAE
+magnet:?xt=urn:btih:BA5E7AC0C39D8117FE702910C6AE8121223F340F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,34 +417,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484792   (99979) от 19.04.2012
+###  Публикация: 1754875   (103699) от 12.10.2024
 
-Bobina - Russia Goes Clubbing #188 (2012) [MP3|320 кб/с]<Progressive Trance>
+Журнал | Делаем сами №19 (568) (октябрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99979.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hour 1:
-01. Daniel Wanrooy feat. Blake Lewis - Stay In The Moment
-02. Ex-Driver & Satelite - See The Light (D-Mad remix)
-03. The Blizzard - Piercing the Fog
-04. Tomas Heredia - Silent Nights
-05. Chris Schweizer - Xeon
-06. Bobina - Diamond Hell (Wezz Devall remix)
-07. Sied van Riel - Tunnel Vision
-08. Andrew Rayel - Exponential
-09. RAM - RAMplify(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 01:57:06
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4792333634E693AF7863D00AB0299E15E412D737
+magnet:?xt=urn:btih:4DB2D90443889149E7B5C1589C734A61DAF7A9B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,25 +443,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484981   (99976) от 19.04.2012
+###  Публикация: 1754776   (103698) от 12.10.2024
 
-Величайшие автомобили: Jaguar / Great Cars: Jaguar (2004) SATRip
+VA - PornoStar Sessions Ibiza (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky House, Dance>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99976.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Jaguar - одна из знаменитых марок в мире, которая известна своими стильными, быстрыми и грациозными автомобилями. Она гремела по всему миру благодаря гоночным успехам 50-тых годов и машинам, сочетавшим уникальные технологии и выдающуюся скорость. Jaguar оставил неизгладимый след на автомобильном ландшафте.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+01. Crazibiza - Murder on the Dance Floor (House Mix) (4:35)
+02. Crazibiza - No Sunshine (House of Prayers Poolside Edit) (2:40)
+03. Crazibiza - Fresh (House of Prayers Poolside Edit) (4:44)
+04. Crazibiza - The Beginning (Original Mix) (4:40)(   Читать дальше...   )Жанр: Funky House, DanceПродолжительность: 03:36:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39FC8CC5D9143C75061778EB824EE9FBA945CE25
+magnet:?xt=urn:btih:1BEB626E7CF543229713B7873A09D800D5BE5A90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,25 +472,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485212   (99974) от 19.04.2012
+###  Публикация: 1754767   (103697) от 12.10.2024
 
-[Wallpapers] Girls Wallpapers Mix (20.04.12)
+PowerDirector – Video Editor v14.5.0 Mod by Balatan [Ru/Multi]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99974.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1440х900 - 3145х2040
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.10.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12994C838F98ECDAE5AC6B9633F4ABC581B4DF07
+magnet:?xt=urn:btih:97B65A71529A4A7372B9A37157E0D80762C8B474
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,25 +498,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484947   (99973) от 19.04.2012
+###  Публикация: 1754794   (103696) от 12.10.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (19.04.12)
+Большая ночь / Big Night (1996) BDRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99973.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3200x2000
+Примо ("первый") и Секондо ("второй") — братья, эмигрировавшие из Италии, чтобы открыть в США итальянский ресторан. Примо — вспыльчивый и талантливый повар, не желающий тратить свой талант на заурядные блюда, которые ожидают клиенты. Секондо старается поддерживать ресторан на плаву, хотя у них не так уж много посетителей, включая художника, который (   Читать дальше...   )Производство: США / Rysher Entertainment, A Timpano ProductionЖанр: драма, мелодрамаРежиссер: Кэмпбелл Скотт, Стэнли ТуччиАктеры: Стэнли Туччи, Тони Шэлоуб, Марк Энтони, Ларри Блок, Кэролайн Аарон, Андре Белградер, Минни Драйвер, Питер МакРобби, Изабелла Росселлини, Лив Шрайбер, Иэн ХолмПеревод: Двуголосый профессиональный (SDI Media)Язык озвучки: русский, английскийСубтитры: русский, английскийПродолжительность: 01:49:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC3851C8BD6C571706D28464FA47AF9050CFAA7A
+magnet:?xt=urn:btih:70A57D1A3ED63F8DD82ADCCC5EE4E5EF9E753840
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,25 +524,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484492   (99970) от 19.04.2012
+###  Публикация: 1754833   (103695) от 12.10.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (18.04.12)
+Olivia Newton-John - Olivia Newton-John's Greatest Hits (1982) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99970.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 3600x2400
+01. If Not For You (Remastered 2022) [00:02:53]
+02. Banks Of The Ohio (Remastered 2022) [00:03:18]
+03. Love Song (Remastered 2022) [00:03:46]
+04. Take Me Home Country Roads (Remastered 2022) [00:03:22](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:09:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:417F324EEA7F72B3D8A8655B8083C7A79165FBBB
+magnet:?xt=urn:btih:AEDB00A499E1B0D958B6EFC143F4DD2F7F7BCD25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,25 +553,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484948   (99968) от 19.04.2012
+###  Публикация: 1754874   (103694) от 12.10.2024
 
-[Wallpapers] Wallpapers Sexy Girls (19.04.12)
+Pet Shop Boys - Release (2002) 1st Holland Press [APE|Lossless|image + .cue] <SynthPop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99968.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1440х1080 - 5228х3456
+01. Home And Dry (4:21)
+02. I Get Along (5:50)
+03. Birthday Boy (6:27)
+04. London (3:47)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92518BE3490619F9A535D333980A1F5F89E640D3
+magnet:?xt=urn:btih:BC8BEE1E0F3C61EBBC47F40877A703B67D02D72D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,34 +582,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484676   (99966) от 19.04.2012
+###  Публикация: 1754804   (103693) от 12.10.2024
 
-VA - Freedom Festival 2011 Back To The Roots (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Full On>
+Rock Identifier - Stone ID v2.3.41 Mod by youarefinished [Ru/Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99966.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sun Project - Hey You 07:50
- 02. Sun Project - Epic Transition 07:46
- 03. Azax Syndrom - A Man On Acid (feat Bliss) 08:23
- 04. Vibe Tribe Spade - Music People 07:17
- 05. Absolum Lost and Found - Power Science 08:21
- 06. Ex Gen - Bankai 09:41
- 07. Space Tribe - Time Warp (remix) 09:01
- 08. Electric Universe - Boddisatva 08:25
- 09. Rinkadink - Tranzmachien 06:59
- 10. Skunk Tribe - Gods Equation 09:282012Жанр: Psychedelic / Full OnПродолжительность: 01:23:11
+Просто сделайте или загрузите фото камня, и Rock Identifier расскажет все за считанные секунды. Исследуйте свое геологическое окружение, узнавайте о различных породах и знакомьтесь с миром природы с помощью Rock Identifier!Тип издания: PremiumРелиз состоялся: 13.10.2024Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F295BCA861384B0F5352AC4351A5813E393B59E8
+magnet:?xt=urn:btih:4A0464A4A534EB99C7EF23A0ACC1230EDC6B3530
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,25 +608,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484941   (99964) от 19.04.2012
+###  Публикация: 1754866   (103692) от 12.10.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (19.04.12)
+Первый взвод / Западный фронт (1932) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99964.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+О перерастании первой мировой войны в войну Гражданскую.
+1914 год. Начало империалистической войны. На фронт отправляется первый взвод, сформированный в одном из белорусских городов. Солдаты еще не понимают социального смысла происходящих событий. Только некоторые из них, в том числе Макар Бобрик и Шапиро, резко осуждают войну. Демократические взгляды проявляет также (   Читать дальше...   )Производство: СССР / БелгоскиноЖанр: драма, военныйРежиссер: Владимир Корш-Саблин, Борис Бродянский, Давид ГутманАктеры: Федор Никитин, Михаил Царев, Галина Кравченко, Борис Бабочкин, Давид Гутман, Зинаида Рикоми, Леонид Кмит, Олег Жаков, Михаил Ростовцев, Яков МалютинПродолжительность: 01:23:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:950326F2F08360741F1C1519623FCC080C29E381
+magnet:?xt=urn:btih:9EEA7B84B6E9DB66BC380ADFF3AE6DD5DE672002
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,32 +635,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484740   (99960) от 19.04.2012
+###  Публикация: 1754871   (103691) от 12.10.2024
 
-VA - Trance Parade Vol.2 (17.04.2012) [MP3|320 кб/с]<Trance>
+Pet Shop Boys - Alternative (1995) 1st Holland Press [APE|Lossless|image + .cue] <SynthPop>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99960.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Trance Parade Vol.2 (17.04.2012)
-Год: 17.04.2012
-Жанр: Trance
-Продолжительность: 03:27:39Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-1.Robert, The Martinez Brothers--Dreaming About Paprica (Dave Joy Remix)
-2.DJ Shog--Jelousy (Vocal Mix)(   Читать дальше...   )
+01. It Must Be Obvious (4:25)
+02. We All Feel Better In The Dark (4:01)
+03. Bet She's Not Your Girlfriend (4:28)
+04. Losing My Mind (4:34)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 02:14:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D64CFC25903F489C7DD8BD0D244642BF5519D86
+magnet:?xt=urn:btih:CFCC5211D59B686B4B9A4F4C5E63653159AF1650
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,29 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 485109   (99958) от 19.04.2012
+###  Публикация: 1754898   (103690) от 12.10.2024
 
-[Wallpapers]Различная тематика
+Def Leppard - Live At The Leadmill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99958.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers]Различная тематика
-Название: Различная тематика
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200/2560х1600
-Расширение (тип) файлов: JpegВремя раздачи: до 5 скачавших
+01. Action (Live) (4:04)
+02. Fire It Up (Live) (3:50)
+03. Let It Go (Live) (6:08)
+04. Too Late for Love (Live) (5:23)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:03:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2246E38B1449DE84C2A4EDB381D767D337FADACA
+magnet:?xt=urn:btih:00E94FF76677F8DD98D5D73D5483615ECDD3F4F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -727,25 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484975   (99957) от 19.04.2012
+###  Публикация: 1754821   (103689) от 12.10.2024
 
-Величайшие автомобили: Cobra / Great Cars: Cobra (2004) SATRip
+Olivia Newton-John - If Not For You (1971) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99957.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Более сорока лет машины Керола Шелби поражают мир своей мощью и скоростью. Не важно был ли он за рулем или руководил гоночной командой - Шелби был обречен на победы. Не имело значения сколько машин он создал и сколько гонок он выиграл. Каждый раз главной его целью было сделать новый автомобиль еще лучше и быстрее.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+01. Me And Bobby McGee (Remastered 2022) [00:03:45]
+02. If (Remastered 2022) [00:02:26]
+03. Banks Of The Ohio (Remastered 2022) [00:03:15]
+04. In A Station (Remastered 2022) [00:03:07](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:26:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1308EB9AF5DFF8430C562080EC5C705DF9556E1C
+magnet:?xt=urn:btih:62FD470819F1D00B56FE8B545B1F7065C5363A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

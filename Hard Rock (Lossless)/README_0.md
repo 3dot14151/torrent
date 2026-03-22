@@ -1,3 +1,90 @@
+###  Публикация: 1840113   (1047000) от 03.12.2025
+
+Stryper - The Greatest Gift Of All (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1047000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Greatest Gift Of All t3:14
+02. Go Tell It On The Mountain 3:06
+03. Heaven Came (On Christamas Day) 4:07
+04. Little Drummer Boy 4:06(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3113FD62FA52344A0E937AEC8EF103AA239BCD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839542   (1046631) от 29.11.2025
+
+Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing With The Devil (04:30)
+ 02. Pictures Of The Dead (03:21)
+ 03. Saints And Sinners (03:10)
+ 04. Lift Up Your Soul (04:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0C28F82ADF2C656D18E8ABC2122B18C58719D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839396   (1046613) от 29.11.2025
+
+Buckcherry - Black Butterfly (2008) Deluxe, 2025, Endurance Music Group [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rescue Me [00:03:12]
+02. Tired Of You [00:03:07]
+03. Highway Star [00:04:26]
+04. Dreams [00:03:51](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D180CF4FBA91F48C78B3F09A2F809315FC166B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839410   (1046571) от 28.11.2025
 
 AC&DC - From Down Under (1980) 1990, Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
@@ -658,93 +745,6 @@ Sweet (до 1974 года The Sweet) — британская рок-групп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44DF9B66FF3C3379108F9C2BEC7215298CC463B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605381   (1044964) от 17.01.2023
-
-Epic Symphonic Rock - Epic Symphonic Rock (Live) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classical, Covers>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obertura (Live) (1:59)
-02. Iron Maiden I (Live) (5:58)
-03. Metallica I (Live) (7:24)
-04. Chop Suey (Live) (3:44)(   Читать дальше...   )Жанр: Hard Rock, Classical, CoversПродолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CBF45077BEBB4E661CA010AB529B6A767ADD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606177   (1044561) от 21.01.2023
-
-Lillasyster - Stormtrooper Boombox (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monster Truck [00:02:55]
-02. I Know You Better [00:03:01]
-03. Pretender [00:02:52]
-04. The Firestarter [00:03:23](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4F9DFA508F89BA77A24E5D35CBE57100B10870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606163   (1044540) от 21.01.2023
-
-Black Star Riders - Wrong Side of Paradise (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Side of Paradise (3:44)
-02. Hustle (3:27)
-03. Better Than Saturday Night (3:40)
-04. Riding Out the Storm (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082128214880006CEAE5A75062BFF994CC0E5A9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

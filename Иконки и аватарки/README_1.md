@@ -1,3 +1,57 @@
+###  Публикация: 1288439   (686115) от 16.03.2019
+
+Иконки - Dribbble - Prometheus Free Icon Set - 4045963 [EPS, SKETCH]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры в векторе.
+Автор: Taras Shypka (Ukraine, Dnipro)Формат: EPS, SKETCH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0635190BC46736C2F3569C457C47E437F3D8DC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288449   (685983) от 16.03.2019
+
+Иконки - MightyDeals - Web Design Icon Pack [PNG, SVG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры в векторе и растре, цветные и чёрно-белые, контурные и объёмные. Материал раздается с официальной документацией.
+Автор: FlaticonФормат: PNG, SVGРазрешение файлов: 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809DD8ECFABC9C0EE417E4B63D4C3ADCF923801A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288588   (685980) от 16.03.2019
 
 Иконки - WebdesignerDepot - 100 GRADIENT ICONS [PNG, EPS, SVG, AI]
@@ -638,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE0444FB4C11FD903EFC4CBC77CFB94DC6F3A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225694   (658502) от 17.05.2018
-
-Иконки - GraphicRiver - Social Media Icons Bundle - 13321643 [AI, EPS, PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иконки в векторе и не только с официальной документацией.
-Автор: Brandify Studio.Формат: AI, EPS, PNGРазрешение файлов: 133 x 256 - 256 x 290
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E96776A43FDF426D44D421713F412331E6D629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225760   (658499) от 17.05.2018
-
-Иконки - Creative Market - 1800 Minimal Icons - 849317 [PSD, EPS, AI, SVG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простые иконки.
-Автор:  Alexandru StoicaФормат: PSD, EPS, AI, SVG, SCETCH, PNGРазрешение файлов: 6 x 7 - 28 x 20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4609C978AD2C8AFC803694917EF5A733E60FD5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

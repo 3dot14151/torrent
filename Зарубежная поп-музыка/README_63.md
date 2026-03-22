@@ -1,3 +1,119 @@
+###  Публикация: 848544   (290102) от 08.12.2014
+
+Belinda Carlisle - The Collection (2014) [MP3|320 кб/с] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (We Want) The Same Thing
+02. Heaven Is a Place On Earth
+03. Live Your Life Be Free (Single Edit)
+04. Leave a Light On (7”)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4BD66BD73EA1F5C83684081A27B2C075656162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263102   (290039) от 18.11.2018
+
+VA - Ballermann Pisten Party 2019 (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Wackel - I Love Malle
+02. Almklausi & Specktakel - Mama Laudaaa (Après Ski Edition)
+03. Ikke Hüftgold & Honk! - Alle Blau (Bella Ciao)
+04. Gaudi Express - Cordula Grün(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F809705F2A993CA5E8A6337FCE4D0E1BBB580F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263111   (290020) от 18.11.2018
+
+VA - Die Schlagerparty - Best Of Discofox (2018) 2CD [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290020.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Beatrice Egli - Verliebt, Verlobt, Verflixt Nochmal
+02. Michael Wendler - Feuermelder (Remix)
+03. Anna-Maria Zimmermann - Scheiß Egal(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D832AB772B9120B8D84B595BF06EC3F8FA62F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262929   (289925) от 18.11.2018
+
+VA - Veronica #1 Car Hits (2018) 3CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_289925.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Robbie Williams - Let Me Entertain You
+02. Kensington - Do I Ever
+03. Rag'n'Bone Man - Human(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C9D2EE32C306E2D19A11D407337E7AF1B726F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335209   (289881) от 01.11.2019
 
 VA - Dance Anthems 2019.03 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
@@ -629,122 +745,6 @@ Blue - Colours (2015) [OGG|455-528 кб/с]<Pop, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949729EEDC87AF174943252DD6C89645FC055FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964369   (282417) от 11.12.2015
-
-Train - Christmas In Tahoe (2015) [OGG|448-506 кб/с]<Pop, Traditional Christmas Songs>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Christmas
-02. Christmas Must Be Tonight
-03. The River
-04. Christmas Island(   Читать дальше...   )Жанр: Pop, Traditional Christmas SongsПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C254E4D4021EF1AC631C64FF742A7FCD01192CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264329   (281158) от 23.11.2018
-
-VA - Time2Dance Best of '90s - '00s, (Vol. 1-2) 2CD (2018) [MP3|320 Kbps] <Europop, House, Techno, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Time2dance: Best of 90s - 00s, Vol.1:
-01. U.s.u.r.a. - Open Your Mind (Radio Mix)
-02. Alex Gaudino, Crystal Waters - Destination Calabria (Radio Edit)
-03. Aladino - Brothers in the Space (Grunge Happy Mix)(   Читать дальше...   )Жанр: Europop, House, Techno, ItalodanceПродолжительность: 04:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FEA094D4B20199E98692A10A68CC5903F78F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264386   (281088) от 23.11.2018
-
-Eros Ramazzotti - Vita Ce N'è (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281088.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Per Il Resto Tutto Bene
-2. Vita Ce N'è
-3. Vale Per Sempre
-4. Siamo(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7E13F7958C94E9F0444A9610143FD2CC65B9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187420   (280451) от 28.11.2017
-
-VA - The Pop Years 1980-1983 (2009) 4CD [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Light Orchestra - All Over the World (4:04)
-02. Hall & Oates - Kiss on My List (4:23)
-03. Tom Browne - Funkin' for Jamaica (3:28)
-04. Earth, Wind & Fire - Let Me Talk (4:10)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 05:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CD7579F4F7B5B7531E499FAE9DE7C49165DBCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1119024   (809462) от 27.03.2017
+
+VA - Отдыхаем с лучшими хитами. Звездная тусовочка выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктория Черенцова - Не Остыло Сердце 3:34
+002. Lady Gaga - Diamond Heart 3:31
+003. Натали Янковских - Ты Мой 3:34
+004. Betty Who - Human Touch 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5470EF665878E7789124EB34AB2644880A431E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119036   (809455) от 27.03.2017
 
 VA - 100-ка популярных весенних хитов выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -716,35 +745,6 @@ VA - Музыкальный подарок от Европы Плюс. Сбор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82BFFFDAED399C0AECEFB3902FC50B1A3733000C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121171   (800545) от 02.04.2017
-
-VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran – Shape of You
-002. Burak Yeter – Tuesday (feat. Danelle Sandoval)
-003. Kygo Selena Gomez – It Ain’t Me
-004. Jax Jones – You Don’t Know Me (feat. Raye)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E3F069607124EF6445328D864B97B8CBE76561
 ```
 
 https://mybot314.ru/tekegram_catalog/

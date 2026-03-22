@@ -1,3 +1,177 @@
+###  Публикация: 1424528   (228206) от 17.11.2020
+
+Duke Ellington - Festival Session (1959) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdido [4:39]
+02. Copout Extension [8:22]
+03. Duel Fuel - Part I [2:45]
+04. Duel Fuel - Part II [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2FB3FED75A90CC69AB2E131B6609E065D61727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268343   (228132) от 10.12.2018
+
+Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex [3:55]
+02. Beautiful Woman [4:37]
+03. The Jam with Albert [9:21]
+04. Elementary Guitar Solo No.5 [6:52](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B337278C6813F6A8E213CACB5C513429B841F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424531   (228091) от 17.11.2020
+
+Miles Davis - Workin' (1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Never Entered My Mind [5:24]
+02. Four [7:13]
+03. In Your Own Sweet Way [5:47]
+04. The Theme (take 1) [2:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3CAFE31AB1A3A640ADF739B250452F606B0858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583780   (228089) от 16.10.2022
+
+Eric Reed - For Such A Time As This (2020) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradox Peace [1:05]
+02. Western Rebellion [4:20]
+03. Thelonigus (For Thelonious Monk and Charles Mingus) [5:31]
+04. Stella by Starlight [3:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF18B36E4084FF2DACB3C932BECEB8BB894DDF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583632   (228081) от 16.10.2022
+
+Dick Wellstood - Live At The Sticky Wicket (1986) 2CD, 1997, Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228081.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lullaby of Birdland [4:18]
+02. How About You? [4:48]
+03. If Dreams Come True [4:43](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 02:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A94F7C0FAAD25BC35979C35A60C11A03AAA122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341909   (227690) от 30.11.2019
+
+Mildred Bailey - Smoke Dreams 1935 - 1939 (1999) Definitive Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Day Is Gone [3:33]
+02. A Porter's Love Song To A Chambermaid [3:17]
+03. Picture Me Without You [3:16]
+04. It All Begins And Ends With You [3:06](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE618562713412ACC538EFDFEE9EB4C41082B6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341910   (227685) от 30.11.2019
 
 Mildred Bailey - Band Vocalist, Vol. 2 1931 - 1934 (1994) The Old Masters [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Standards, Traditional Pop>
@@ -577,180 +751,6 @@ Nino Tempo - Purveyor of Balladry: The Best Of Nino Tempo On Atlantic (1990 - 19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED0F3BBEF50D098F24FA785D7AEBA9AC0AE47E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650214   (226058) от 02.08.2023
-
-George Wallington Quintet - The New York Scene (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Salah [5:27]
-02. Up Tohickon Creek [6:14]
-03. Graduation Day [4:56]
-04. Indian Summer [7:12](   Читать дальше...   )Жанр: BopПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23AD0B05047FE95D0803684D6762FC616B7D72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342187   (226029) от 01.12.2019
-
-Earl Hines - Four Classic Albums Plus 1954 - 1961 (2015) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226029.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Monday Date [2:12]
-02. Bill Bailey, Won't You Please Come Home [3:25]
-03. Do You Know What It Means To Miss New Orleans [2:01](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 02:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935E55BEE6BFE2DEDAB378B8407F87C01F4ADEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342375   (226020) от 01.12.2019
-
-Kurushimi - What Is Chaos? (2018) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Jazz, Jazzcore, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is Chaos? (9:19)
-02. C8H10N4O2 (1:03)
-03. Yuruyaka na shi no ma no kanbi naru mezame (4:56)
-04. Twelve Vacancies (1:08)(   Читать дальше...   )Производство: Art As CatharsisЖанр: Avantgarde Jazz, Jazzcore, Free Jazz, Progressive Jazz, Noise, Doom JazzПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54D6B7B8B4823095547C3D706B39DF06A6672E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650387   (226017) от 02.08.2023
-
-Hank Mobley - Four Classic Albums (1958 - 1961) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll Call1 [10:24]
-02. My Groove You Move [5:54]
-03. Take Your Pick [5:11]
-04. A Baptist Beat [8:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96502443CE3A07902A29A50D5FFCC870DBF05A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650097   (225972) от 02.08.2023
-
-Fats Navarro - Nostalgia (1946, 1947) 1991, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia [2:45]
-02. Barry's Bop [2:41]
-03. Be Bop Romp [2:38]
-04. Fats Blows [2:52](   Читать дальше...   )Жанр: BopПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54833EFAB0EA8DBAB1DE4AF07B9A0993F1D3380D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342273   (225948) от 01.12.2019
-
-Aging - Suitable For Night (2017) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Jazz Noir, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doused In The Moon (10:32)
-02. Suitable For Night (6:09)
-03. The Kiss of Wet Asphalt (7:50)
-04. Ballade pour ma Bête Noire (9:10)Производство: Tombed Visions - TV44Жанр: Doom Jazz, Jazz Noir, Experimental, AmbientПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCFCF1D0C9D91244F5AB198BFEE0466C671EC86
 ```
 
 https://mybot314.ru/tekegram_catalog/

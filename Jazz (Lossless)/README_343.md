@@ -1,3 +1,177 @@
+###  Публикация: 1771571   (71826) от 07.01.2025
+
+Enrico Pieranunzi & Bert Joris - Afterglow (2021) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siren's Lounge [4:24]
+02. Afterglow [3:31]
+03. Millie [3:18]
+04. Cradle Song for Mattia [2:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5188B8CA70F1A5FC22E324C24779F124C80E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771846   (71801) от 08.01.2025
+
+Enrico Pieranunzi & Marc Johnson - Yellow & Blue Suites (1990) 2008, Challenge Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je Ne Sais Quoi [8:35]
+02. I Hear a Rhapsody [10:00]
+03. I Should Care [8:35]
+04. Frame Line 1 [1:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3275B52B820C7B00767A44D57C2CFE7837B813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772582   (71744) от 12.01.2025
+
+David "Fathead" Newman - Four Classic Albums (1958 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Batista's Groove [7:27]
+02. Skylark [4:40]
+03. Night Of Nisan [7:59]
+04. Cousin Slim [7:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EB858AEB51F4BDB6A7D09242E1FCC13C08252A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772852   (71734) от 12.01.2025
+
+VA - Boogie Woogie & Blues Piano: Milestones of Legends (1920-e -1960-e) 10CD, 2017, The Intense Media [FLAC|Lossless|image + .cue] <Boogie Woogie, Stride, Piano Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Champion Jack Dupree - Gamblin' Man Blues [2:48]
+02. Champion Jack Dupree - Warehouse Man Blues [2:49]
+03. Champion Jack Dupree - Chain Gang Blues [2:32]
+04. Champion Jack Dupree - New Low Down Dog [3:00](   Читать дальше...   )Жанр: Boogie Woogie, Stride, Piano BluesПродолжительность: 11:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A100CE0B237B06CC462525A9718EB58614CE4BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773019   (71727) от 13.01.2025
+
+Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing in a Ring [3:41]
+02. Soft [6:49]
+03. Le Sue Ali [4:23]
+04. African Flowers [6:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AD7F990BDA1EB33AAE3987C271C475094236CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773187   (71725) от 14.01.2025
+
+Enrico Pieranunzi Trio - New Visions (2019) Storyville [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Visions 1 [3:25]
+02. Night Waltz [3:20]
+03. Anne Blomster Sang [6:47]
+04. You Know [6:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9582FFF17E0616D257CAEA256E4584AFA4FD6FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773180   (71724) от 14.01.2025
 
 Lowell Hopper - Never Too Late (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -571,180 +745,6 @@ John Simon Trio - Legacy (1986) 1996, Muse Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:963D063A9D514A46B460507D0E00D218EB152DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776306   (71303) от 31.01.2025
-
-Eddie Daniels - Blue Bossa (1972, 1973) 1996, Candid [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Bossa [3:23]
-02. Wistful Moment [4:16]
-03. Emily [3:29]
-04. Samia [3:43](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB7399076E3F1AE4626973375DF65F241FDB597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776304   (71299) от 31.01.2025
-
-Larry Coryell - Bolero & Scheherazade (1983) Philips [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scheherazade: 1. The Sea and Sindbad's Ship [6:53]
-02. Scheherazade: 2. The Story of the Kalender Prince [4:43]
-03. Scheherazade: 3. The Young Prince and the Young Princess [4:45]
-04. Scheherazade: 4. Festival at Baghdad - The Sea - The Shipwreck [6:14](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0AC94E39B98AFE0ED6231B2CC5974285A64DEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776498   (71241) от 01.02.2025
-
-The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blame It on My Youth [7:09]
-02. Fairytale Countryside [9:54]
-03. The Smile of the Snake [6:03]
-04. Third Avenue [8:21](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC761B06899A1F53C5C2A6D07BA471E86E551C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776481   (71240) от 01.02.2025
-
-Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossless|tracks + .cue] <Hard Bop, Poat-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Bass [9:21]
-02. Gypsy Jingle Jangle [4:41]
-03. Povo [12:14]
-04. Love Is a Many Splendored Thing [7:29](   Читать дальше...   )Жанр: Hard Bop, Poat-BopПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D800F211B9AE72187ED0555F1764E2B81E26779A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776489   (71238) от 01.02.2025
-
-The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone an' Git It Y'all [4:49]
-02. A Night at El Morocco (Easy As It Goes) [5:43]
-03. Right On, Right On [5:04]
-04. That's the Kind of Love I'm Talking About (For Cecile) [5:11](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD46B395B3E14C64DE8F8D6BD6EF906CAC4FD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776484   (71221) от 01.02.2025
-
-Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now's the Time [6:30]
-02. All the Things You Are [7:02]
-03. A Night in Tunisia [7:46]
-04. 'Round Midnight [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3206EDE920C4E0E5D983B8B7D664F497493FA4FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

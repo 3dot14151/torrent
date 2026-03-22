@@ -1,3 +1,177 @@
+###  Публикация: 1543615   (627588) от 12.04.2022
+
+Nazareth - Surviving The Law (2022) Scene [FLAC|Lossless|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Days [00:03:22]
+02. You Gotta Pass It Around [00:03:21]
+03. Runaway [00:03:33]
+04. Better Leave It Out [00:03:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D662C5AE0409FA427435EF8F2CDF16C455A6904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035594   (626712) от 17.07.2016
+
+The New Roses - Dead Man's Voice (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head Or Tails
+02. Thirsty
+03. Partner In Crime
+04. Dead Man's Voice(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78ED523DFB9A91379ECA08B760FB86A733EBE3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035454   (626704) от 17.07.2016
+
+Great White - The Essential Great White (2011) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Bitten, Twice Shy (5:19)
+02. Rock Me (8:21)
+03. Save Your Love (4:41)
+04. Keep Your Hands To Yourself (3:29)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 02:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7621A76408EBD2899AF48567621FB8F5B3AF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543746   (625948) от 13.04.2022
+
+Hot Hell Room - Kingdom Genesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Introduction
+02. Remembrance
+03. Twilight
+04. Isolated(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898D485AB47A556EEB0BCCBBA8B34F75CB18ECB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035817   (624722) от 18.07.2016
+
+Monster Truck - Sittin' Heavy (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Are You Not Rocking?
+02. Dont Tell Me How To Live
+03. Shes A Witch
+04. For The People(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136F021A07E7BFF28EB886A040ED4857697E6F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035618   (624719) от 18.07.2016
+
+Dare - Sacred Ground (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home (4:45)
+02. I'll Hear You Pray (4:20)
+03. Strength (4:17)
+04. Every Time We Say Goodbye (4:01)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1261A1471982470AFA8056256D8F1C45E2DFA569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035827   (624298) от 18.07.2016
 
 AC/DC - Rarities (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -571,180 +745,6 @@ Ronald (Ronnie) Romero (20.11.1981) - чилийский певец, автор 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A5098CD19D9976EB2B2249F213293E77A8A2D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146831   (612848) от 30.06.2017
-
-Deep Purple - In Concert '72 (1972) 2012 Mix, Reissued in 2014 [FLAC|Lossless|tracks + .cue] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (0:16)
-02. Highway Star (7:41)
-03. Strange Kind of Woman (9:32)
-04. Maybe I’m a Leo (5:35)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE073642C86B4E6A71B1CFE26764FCF3D52BA930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146845   (612722) от 30.06.2017
-
-Black Sabbath - The Dio Years (2007) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Neon Knights (3:52)
-02. Lady Evil (4:24)
-03. Heaven and Hell (6:58)
-04. Die Young (4:44)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 1:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E765C550940F0D6CE78739931B0138241273FAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037487   (612123) от 25.07.2016
-
-Gotthard - Domino Effect (LTD Tour Edition) (2007) 2CD Limited Edition [FLAC|Lossless|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Of Illusion    03:55
-02. Gone To Far    03:55
-03. Domino Effect    03:48
-04. Falling    03:35(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 01:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14C3144D5BC88C8B885C187CFDFCAB729142BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804861   (612089) от 14.07.2014
-
-Gillan - Double Trouble (1981) Remaster  /1996, Virgin Records/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Rip Your Spine Out (4:30)
-02. Restless (3:20)
-03. Men Of War (4:31)
-04. Sunbeam (4:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AD0B96ABFF52B2C1BE2565E44882A729B36A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545620   (611232) от 21.04.2022
-
-Nazareth - Surviving The Law (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Days
-02. You Gotta Pass It Around
-03. Runaway
-04. Better Leave It Out(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FC74FE7E27CB73E62EDC239AA09BEF6DEA964D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805150   (610286) от 15.07.2014
-
-Gillan - Magic (1982) Remaster /1988, Virgin Records/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's The Matter (3:31)
-02. Bluesy Blue Sea (4:53)
-03. Caught In A Trap (3:37)
-04. Long Gone (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF73B08FCC7FF7620282A0B9CDD5A5415F5E0542
 ```
 
 https://mybot314.ru/tekegram_catalog/

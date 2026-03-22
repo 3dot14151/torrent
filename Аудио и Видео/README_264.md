@@ -1,23 +1,428 @@
-###  Публикация: 1600481   (156950) от 27.12.2022
+###  Публикация: 1517816   (161692) от 17.12.2021
 
-Покерфейс / Poker Face (2022) WEB-DL [1080p] ATV
+VA - Zen Garden: Winter Vibes (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asteroid 385 - Luna Mariposa (2:47)
+02. rfr - Miami (5:05)
+03. Weed - Ace (4:27)
+04. Ravest Hard - Rhythm of Love (3:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0336CABA344CE317174F799E34075CF3A2723636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517840   (161650) от 17.12.2021
+
+Lian Ross - The Ballads (2021) [AAC|~325 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s up to You (Love Call Version) (3:50)
+02. Magic Moment (3:55)
+03. I Need You by My Side (4:05)
+04. Hurt (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455C0C6B75A2E0EA66A326D15A19E64C43FAA2EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517842   (161574) от 17.12.2021
+
+Noize MC - Выход в город (2021) [AAC|~325 Kbps] <Rap, Hip Hop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вояджер-1 (3:39)
+02. Выход в город (3:09)
+03. Миокард (3:03)
+04. Сельма Лагерлёф (4:35)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726A8E5B2494E51FAE1DEB803BC527B32887A81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517935   (161158) от 18.12.2021
+
+VA - Electronic Moon (The Chill Out Journey), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Hay - Night In (6:34)
+02. Salo Fernandez - Put Cream On (2:53)
+03. Eric Knight - Keep Control (New Fragrance Mix) (3:20)
+04. Blake Jerold - Mars Allow (6:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F501CCF91F4F05792C9DC41E09C1D69805EFEA9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517931   (161145) от 18.12.2021
+
+VA - Lounge Top 55 Deluxe, the Very Best of, Vol. 2 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asheni - Sweet Symphony (5:15)
+02. Jble - Hammock Style (6:15)
+03. Beatkonexion - Perfect Day (4:25)
+04. Tiny Tunes - Will You Catch Me (Twin Tunes Remix) (7:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE977949D18804B5F529D8D6BEC02AD5DA119F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517930   (161120) от 18.12.2021
+
+VA - Lounge Top 55 Deluxe, the Very Best of, Vol. 1 (2014) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqualise, Theo - Dimi Dimi Dimi (7:52)
+02. Andrew Wooden, AL-Faris - Café del Mar (6:13)
+03. But & Memo - Welcome to the Machine (Alexander Metzger Lounge Mix) (6:13)
+04. Nick Champell - Basic Course (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F602458D9520786B225A2CE3E7653BAF761E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517999   (161107) от 18.12.2021
+
+VA - Caravan 4 (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Organic House, Ethnic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stanisha, Cafe De Anatolia - Tiho (10:13)
+02. Omerar Nanda - Ehlen vs. Sehlen (6:58)
+03. Cosmos Shape, Kostas Chatzopoulos - Cinamon (7:20)
+04. Nikko Sunset, Dim Angelo - Deja Vu (4:31)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic House, EthnicПродолжительность: 02:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362863867CC0EFF9D3CECFBDE5FA2192C24D3B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518056   (161093) от 18.12.2021
+
+VA - The Sound Of Christmas Gifts '21 (2021) [AAC|~309 Kbps] <Deep House, Deep Techno, Ambient, Minimal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genning - Twilight (7:25)
+02. Pekoe - Deserted Island (8:33)
+03. Koett - Untitled (7:45)
+04. Deepkomplekt - Reimagine (7:08)(   Читать дальше...   )Жанр: Deep House, Deep Techno, Ambient, MinimalПродолжительность: 04:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E910C40B6A73C000E23906DA40844CBCA803690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518084   (161091) от 18.12.2021
+
+VA - Swing & Bass Compilation Album, Vol. 1 (2019) [AAC|~291 Kbps] <Drum & Bass, Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Skellington - No Diggity (3:48)
+02. Mista Trick, Fizzy Gillespie, Brazier - Don't Leave (Harlem Swing Riddim) (4:56)
+03. Phibes - Swingmatist (4:29)
+04. Captain Flatcap - These Boots (4:47)(   Читать дальше...   )Жанр: Drum & Bass, Electro SwingПродолжительность: 01:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F69B138F32B5056A1F137B36988756610BC2C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518087   (161076) от 18.12.2021
+
+VA - Swing & Bass Compilation Album, Vol. 3 (2021) [AAC|~308 Kbps] <Drum & Bass, Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chic - Everybody Dance (Mista Trick Remix) (4:52)
+02. Entita, Simple Souls - Souldier (4:31)
+03. Euphorics, Doc - Goocha (5:39)
+04. Booker T, The MG's - Green Onions (Hiphoppapotamus & Fizzy Gillespie Remix) (3:49)(   Читать дальше...   )Жанр: Drum & Bass, Electro SwingПродолжительность: 01:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83D38EFB63050069E1EFE7587070B55FB1B8B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517934   (161072) от 18.12.2021
+
+VA - Angel Voices, Vol. 2 (Enigmatic Chill and Mystic Tracks to Relax) (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Ensemble of Mystic Hours (5:00)
+02. Guardians of Secret - Eternal (Epic Voices Mix) (4:06)
+03. Buddhatronic - Back to the Beginning (4:18)
+04. Artenovum - Beyond The Sky (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D58ABC576968F11B8BF763EF8B2FE6887BA998D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518086   (161063) от 18.12.2021
+
+VA - Swing & Bass Compilation Album, Vol. 2 (2020) [AAC|~323 Kbps] <Drum & Bass, Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - The Chain (Dom James & Odylic Force Remix) (3:56)
+02. Ray Charles - Hallelujah I Love Her So (Dan de'Lion & Mista Trick Remix) (3:45)
+03. The Exciters - Blowing Up My Mind (Fizzy Gillespie Remix) (4:23)
+04. Skank Spinatra - Get Stacked (4:24)(   Читать дальше...   )Жанр: Drum & Bass, Electro SwingПродолжительность: 02:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28BEF3D8F1451BC29CA47019B81AF30DE648517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517932   (161040) от 18.12.2021
+
+VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - A Voyage to Nowhere (4:36)
+02. Mare et Monti - The Beauty of Things (4:01)
+03. Buddhatronic - Ambervox (4:01)
+04. Artenovum - An Angel Voice (Soundpleasures Mix) (5:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC27AC697BC3D4D09FB24D1BE25B206AE11D91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517924   (160991) от 18.12.2021
+
+Gregorian - Pure Chants (2021) [AAC|~318 Kbps] <New Age, Choir, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Little Welsh Home (2:21)
+02. Kyrie Victoria (2:23)
+03. Waiting for Life (2:58)
+04. Pie Jesu (Ft. Narcis) (3:56)(   Читать дальше...   )Жанр: New Age, Choir, AmbientПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEB9CD8911BF46570B56ACBB4C8E61DB022FF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600159   (158990) от 26.12.2022
+
+И тогда я ухожу / And Then I Go (2017) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156950.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Покер — опасная игра. И часто от нее зависят человеческие жизни. На одну, казалось бы, дружескую партию Джейк собрал в своем особняке друзей детства, чтобы наконец воздать каждому по заслугам. Но ставки мгновенно возрастают, когда на дом эксцентричного миллиардера нападают неизвестные. Теперь на кону не только богатства, но и собственные жизни. Но кто сможет сохранить (   Читать дальше...   )Производство: США / Alceon Entertainment Partners, Arclight Films, Catchlight StudiosЖанр: боевик, триллер, криминалРежиссер: Рассел КроуАктеры: Рассел Кроу, Лиам Хемсворт, RZA, Аден Янг, Стив Бастони, Дэниэл МакФерсон, Брук Сатчуэлл, Пол Тассоне, Мэтью Нэйбл, Бенедикт ХардиПеревод: Многоголосый профессиональныйСубтитры: Русские, английские
-Присутствует ненормативная лексикаПродолжительность: 01:34:40
+Эдвин и Флейк учатся в средней школе и являются объектами нападок и оскорблений. В какой-то момент проблемы с друзьями, в школе и семье начинают давить на них со всей силой, и желание сбросить с себя этот груз становится вопросом жизни и смерти.Производство: США / Lunacy Unlimited Productions, Two FlintsЖанр: драмаРежиссер: Винсент ГрэшоуАктеры: Арман Дарбо, Мелони Диас, Люси Шепард, Тони Хейл, Сойер Барт, Майк Рейс, Роберт Томпсон, Джастин Лонг, Мелани Лински, Кэннон ХиксПеревод: Авторский одноголосыйСубтитры: АнглийскиеПродолжительность: 01:38:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AC9149EDF40F0940E9204E4DE58F16335518150
+magnet:?xt=urn:btih:0F1C041B3AE72D0082189F1A05C97BA901E9337F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +430,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600292   (156853) от 27.12.2022
+###  Публикация: 967616   (158310) от 21.12.2015
 
-Жестокая ночь / Violent Night (2022) WEB-DL [1080p] ATV
+Новейший завет / Le tout nouveau testament (2015) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156853.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В канун Рождества преступники берут в заложники состоятельную семью, чтобы получить их деньги. Незадолго до этого захваченные родители подарили дочери рацию, по которой можно связаться с Сантой. Девочка вызывает подкрепление в его лице, чтобы проучить захватчиков.Производство: США / 87North, Québec Production Services Tax CreditЖанр: фэнтези, боевик, триллер, комедия, криминалРежиссер: Томми ВирколаАктеры: Дэвид Харбор, Джон Легуизамо, Алекс Хэсселл, Алексис Лодер, Кэм Жиганде, Эди Паттерсон, Беверли Д`Анджело, Александр Эллиот, Брендан Флетчер, Майк ДопудПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Английские
-Присутствует ненормативная лексикаПродолжительность: 01:51:45
+Да, Бог существует. Но он совсем не такой, каким мы его представляли. Он живет в Брюсселе, и у него есть не только сын, но и дочь. Она сбегает из дома и отправляется в наш мир искать приключения и испытывать терпение своего отца на прочность. Надолго ли его хватит?..Производство: Бельгия, Франция, ЛюксембургЖанр: КомедияРежиссер: Жако ван ДормельАктеры: Бенуа Пульворд, Катрин Денёв, Франсуа Дамиенс, Иоланда Моро, Пили Груан, Лаура Верлинден, Серж Ларивье, Дидье Де Нек, Марко Лоренцини, Ромен ЖеленПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:54:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A054C803CFA4B0B894FA98D3E91A802C9DA688B
+magnet:?xt=urn:btih:D88288EA84FE29D3F6CFF5F053E3E55E4BEE271F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,474 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194010   (156831) от 24.12.2017
+###  Публикация: 968065   (158185) от 22.12.2015
 
-Group | Stand Up Сезон 1 (2013) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 12:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2503AFF931B556F90AB09DF35501AAF300974C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270554   (156789) от 19.12.2018
-
-Несокрушимый  (2018) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156789.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе фильма реальная история уникального подвига экипажа танка «КВ-1». Приняв неравный бой, экипаж Семена Коновалова уничтожил 16 танков, 2 бронемашины и 8 автомашин с живой силой противника в районе хутора Нижнемитякин Тарасовского района Ростовской области. Это история не плакатных героев, а разбитных, веселых, очень разных парней, которые просто хотели жить, (   Читать дальше...   )Производство: РоссияЖанр: Военный, история, драмаРежиссер: Константин МаксимовАктеры: Андрей Чернышов, Владимир Епифанцев, Олег Фомин, Ольга Погодина, Сергей Горобченко, Николай Добрынин, Василий Седых, Владимир Кочетков, Дмитрий Золотухин, Олег ЧудницовПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682E26BA1E2E85D1BBCC2133B7B11CA46A351671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194018   (156723) от 24.12.2017
-
-Group | Stand Up Сезон 7 (2017) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 07:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE048C088DFCDB9D41A249F08B4601BDBFC860D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518347   (156356) от 19.12.2021
-
-VA - Toolroom Vaults Vol. 3 (2021) [AAC|~336 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doorly, Davos - 96 (Extended Mix) (6:50)
-02. Mark Knight - The Future (Extended Mix) (7:56)
-03. Tough Love, Man Without A Clue - Surrender (Extended Mix) (5:29)
-04. Saison - Harrow & Heathens (Extended Mix) (8:10)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0BD9BFFED9720410A6C8139ED999AA07D03AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518361   (156345) от 19.12.2021
-
-VA - Ibiza Let's Chill, Vol. 2 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inventors Of The Sun - Agua of Life (5:41)
-02. Lo Tide - Live a Little (3:49)
-03. Claas Reimer - Starlight (6:24)
-04. 351 Lake Shore Drive, Genius Jane - Brighter Than the Sun (7:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396A2DB8A80C8049E11DAB3424372BD485B5945B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518356   (156324) от 19.12.2021
-
-VA - Chillout & Lounge Music (2021) [AAC|~289 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duenec - Innuendo (5:46)
-02. Prandtl - Dissolved Rage (6:08)
-03. Random Classes - Sancerre Mode (5:52)
-04. Kaxamalka - Course of Life (5:41)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F3C4EE30B4881D7A99525B8FE9A90305884B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518359   (156315) от 19.12.2021
-
-VA - Ibiza Chill Vibes, Vol. 2 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Forever (4:57)
-02. Lazy Hammock - Deep Sunday Bliss (4:42)
-03. Smooth Deluxe, Nizam Kharda - Multani (3:57)
-04. Inventors Of The Sun - Es vedrà (5:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C023072EEA2A829C68DA6A491F0A01C1D981CF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433718   (156194) от 21.12.2020
-
-Гренландия / Greenland (2020) BDRip [720p] ATV [FRA Transfer]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания / STX Films, Anton, Thunder Road PicturesЖанр: БоевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0830BC232EA4EB60C52FA79E6B7A88760280F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518267   (156176) от 19.12.2021
-
-VA - Nu Urban Jazz 1 (2015) [AAC|~343 Kbps] <Jazz, Nu Jazz, Electronic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loop Therapy - Old Skool Joint (3:06)
-02. Clan Greco - Three Acid Free (5:05)
-03. Paolo Di Sabatino, Janek Gwizdala, Peter Erskine - Nature Boy (7:00)
-04. Afronauti - Toffee Blues (5:29)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EF8309C3FCB041F69010E6A2D241796C09FFF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518268   (156158) от 19.12.2021
-
-VA - Nu Urban Jazz 2 (2018) [AAC|~336 Kbps] <Jazz, Nu Jazz, Electronic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lo Greco Bros, Flow Bop - Groove for Valentine (5:14)
-02. Loop Therapy - prometheus’Theme (1:58)
-03. Soulstance - Waiting For the Sun (6:24)
-04. LTJ XPerience - Get On Freak (5:54)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4AAB874A73058D6FF5CAAA1F966D059F217CEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433529   (156149) от 21.12.2020
-
-Гренландия / Greenland (2020) BDRip [1080p] ATV3 [FRA Transfer]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания / STX Films, Anton, Thunder Road PicturesЖанр: БоевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02284DA0A9FF512D5857469475FA4B657FBC6E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518349   (156124) от 19.12.2021
-
-VA - Best Of Toolroom 2021 (2021) [AAC|~338 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KC Lights, Leo Stannard - Cold Light (Extended Mix) (5:23)
-02. Mark Knight, Beverley Knight, London Community Gospel Choir - Everything's Gonna Be Alright (Extended Mix) (6:10)
-03. Martin Ikin, Chenai - You (Extended Mix) (5:52)
-04. Leftwing : Kody - If You Wanna (Extended Mix) (5:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0043D5118B831BE791DF90D10B71EFB7DBE7A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518273   (156107) от 19.12.2021
-
-VA - Fabulous Lounge (The Most Wanted Lounge Grooves), Vol. 1 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Don't Want Your Love (Original Mix) (3:06)
-02. Living Room - The Blunt Session (Original Mix) (2:35)
-03. Taco-Town - Sì Sì (Original Mix) (5:02)
-04. Greg Knight - Circle of Clowns (Original Mix) (5:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE14E418A1A40BA1F9B05ABCB6EC8654F032DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518277   (156089) от 19.12.2021
-
-VA - Ultimate Christmas Soulful House (2021) [AAC|~335 Kbps] <Soulful House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stalker Studio - The Christmas Song (5:25)
-02. M-Swift, Vanessa Haynes - This Christmas (5:50)
-03. Papik, Dario Daneluz - Last Christmas (Francesco Cofano Remix) (6:12)
-04. Papik, Ely Bruna - All I Want For Christmas Is You (Francesco Cofano Remix) (5:28)(   Читать дальше...   )Жанр: Soulful House, Deep HouseПродолжительность: 01:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DA8425B36CB61B5080A9E8F9F497447E99AAB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518288   (156080) от 19.12.2021
-
-Purple Disco Machine - Glitterbox - Discotheque (2019) [AAC|~325 Kbps] <House, Nu-Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glitterbox (Discotheque/Purple Disco Day (Continuous Mix)) (1:10:26)
-02. Glitterbox (Discotheque/Purple Disco Night (Continuous Mix)) (1:11:45)
-03. Forrrce with No Commercial Interruptions - Keep On Dubbin' (5:04)
-04. Catz 'n Dogz, Egla Sirvydyta - Good Touch (Maurice Fulton Remix) (6:13)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 06:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F807B281F040E3DBF3317F884E7FA994E615E433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518269   (156076) от 19.12.2021
-
-VA - Nu Urban Jazz 3 (2021) [AAC|~319 Kbps] <Jazz, Nu Jazz, Electronic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P. A. Jeron, Peter De Girolamo - Blurred (2:22)
-02. DOUT.D - Miles So Sexy (2:12)
-03. Soulstance, Jazz 2 More - Winter Day (6:24)
-04. Soulstance, Maison Jaxx - A Man In New York (4:43)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, ElectronicПродолжительность: 02:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC70F8E2FED8C2BE0E9015A56BEDE4D187458704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853955   (156020) от 27.12.2014
-
-Теорема Зеро / The Zero Theorem (2013) BDRip [576p] iPad
+Новейший завет / Le tout nouveau testament (2015) WEB-DLRip [576p] iPad
 
 >>Аудио и Видео
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156020.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эксцентричный компьютерный гений Коэн Лет бьется над неразрешимой теоремой. Благодаря костюму для виртуальной реальности, изобретенному мальчиком Бобом, Лету удается совершить путешествие в скрытое пространство и узнать тайну своей души. Эту разгадку ищет не только он сам, но и таинственный Менеджмент, который правит всем миром посредством всевидящих устройств под названием ManCams.Жанр: Фантастика, триллер, драма, комедияРежиссер: Терри ГиллиамПродюсер: Николя Картье, Дин Занук, Марк БакунасАктеры: Кристоф Вальц, Гвендолин Кристи, Руперт Френд, Рэй Купер, Лили Коул, Дэвид Тьюлис, Санджив Бхаскар, Петер Стормаре, Бен Уишоу, Мелани ТьерриПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:38
+Да, Бог существует. Но он совсем не такой, каким мы его представляли. Он живет в Брюсселе, и у него есть не только сын, но и дочь. Она сбегает из дома и отправляется в наш мир искать приключения и испытывать терпение своего отца на прочность. Надолго ли его хватит?..Производство: Бельгия, Франция, ЛюксембургЖанр: КомедияРежиссер: Жако ван ДормельАктеры: Бенуа Пульворд, Катрин Денёв, Франсуа Дамиенс, Иоланда Моро, Пили Груан, Лаура Верлинден, Серж Ларивье, Дидье Де Нек, Марко Лоренцини, Ромен ЖеленПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:54:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D87304D90E9A5A9A1385FCC718E533A67AB6D7E4
+magnet:?xt=urn:btih:E0C09A1E27A9C12F13D260548B7BE0C7A7014869
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,112 +482,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518275   (156018) от 19.12.2021
+###  Публикация: 967946   (158127) от 22.12.2015
 
-VA - Planeta Mix Hits 2022: Winter Edition (2021) [AAC|~324 Kbps] <House, Dance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan F, Ya-Ya - U & Me (2:31)
-02. Geo Da Silva, Dani Corbalan - Amore Sincero (2:27)
-03. Deep Emotion - Ready To Let Go (2:21)
-04. Heaven & Alone - I Want To Be Alone (2:27)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5840BB998B392C3945CDCE11383CE867437ECB0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518278   (156004) от 19.12.2021
-
-VA - The Sound of Emotional Content Recordings 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stage Van H - Doxtoutheo (6:52)
-02. Glenn Molloy - Enemy (Nichols Remix) (5:44)
-03. The Loco - Fate 25 (Ricardo Piedra Remix) (8:10)
-04. Darren Bray - Discovering Truth (Aman Anand Remix) (7:54)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3D4841D3D2E51727D15A778FD67DA7550537AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518221   (155926) от 19.12.2021
-
-Группа Сентябрь - А счастье где же ты (2021) [AAC|~319 Kbps] <Pop, Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А счастье где же ты (3:38)
-02. Где же ты была (4:03)
-03. Унесите меня журавли (4:39)
-04. Осенний сон (4:52)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AC82A9AEDD482B6F18E2C79F069B143E2054C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853003   (155676) от 27.12.2014
-
-Страховщик / Automata (2014) BDRip [1080p] ATV
+Новейший завет / Le tout nouveau testament (2015) WEB-DL [720p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155676.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главным героем фильма — страховой агент компании по изготовлению роботов Жак Вокан, который обнаруживает, что изобретаемые роботы создаются не для эксплуатации, а для истребления.Жанр: Фантастика, триллерРежиссер: Габе ИбаньесПродюсер: Антонио Бандерас, Сандра Эрмида, Дэнни ЛернерАктеры: Антонио Бандерас, Биргитта Йорт Сёренсен, Мелани Гриффит, Дилан МакДермотт, Роберт Форстер, Тим МакИннерни, Энди Найман, Дэвид Райалл, Эндрю Тирнан, Криста КэмпбеллПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 01:49:54
+Да, Бог существует. Но он совсем не такой, каким мы его представляли. Он живет в Брюсселе, и у него есть не только сын, но и дочь. Она сбегает из дома и отправляется в наш мир искать приключения и испытывать терпение своего отца на прочность. Надолго ли его хватит?..Производство: Бельгия, Франция, ЛюксембургЖанр: КомедияРежиссер: Жако ван ДормельАктеры: Бенуа Пульворд, Катрин Денёв, Франсуа Дамиенс, Иоланда Моро, Пили Груан, Лаура Верлинден, Серж Ларивье, Дидье Де Нек, Марко Лоренцини, Ромен ЖеленПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:54:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:129C62448702A791ADDE503B5ADFD2E5202FBD7E
+magnet:?xt=urn:btih:0E1646A99938F86C01D8E27B318E18056A598463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +508,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518264   (155657) от 19.12.2021
+###  Публикация: 853353   (158116) от 26.12.2014
 
-Purple Disco Machine - Exotica (2021) [AAC|~335 Kbps] <Dance, Nu Disco>
+Аномалия / The Anomaly (2014) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155657.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Purple Disco Machine, Sahara Beck - Can't Get Enough (4:21)
-02. Purple Disco Machine, Lorenz Rhode - At The Disko (4:32)
-03. Purple Disco Machine, Moss Kena, The Knocks - Fireworks (3:20)
-04. Don't Stop (4:09)(   Читать дальше...   )Жанр: Dance, Nu DiscoПродолжительность: 01:01:44
+Райан Рив, как и любой солдат, всегда готов к любым поворотам судьбы. Этому не помешает ни отстранение от службы, ни тяжелое психологическое состояние – ведь ты солдат. Но даже профессионалам требуется собрать всю силу воли в кулак, чтобы вырваться из состояния, когда твоим сознанием кто-то управляет. Когда только мгновенные промежутки времени подконтрольны подсознанию, чтобы узнать правду, понять как собственная судьба связана с мальчиком Алексом, с которым оказываешься внутри темного движущегося фургона... (   Читать дальше...   )Жанр: Фантастика, боевик, триллерРежиссер: Ноэль КларкПродюсер: Ноэль Кларк, Джеймс Харрис, Марк ЛэйнАктеры: Ноэль Кларк, Иен Сомерхолдер, Брайан Кокс, Алексис Нэп, Люк Хемсворт, Ниал Грег Фултон, Майкл Биспинг, Али Кук, Арт Паркинсон, Рубен ДуброуПеревод: Профессиональный (дублированный) (R5)Язык субтитров: АнглийскийПродолжительность: 01:36:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:530B7EE40EA81114E2D11207D4FD8AC0C71E369F
+magnet:?xt=urn:btih:F580A3E1D9D13404A67168082E4D72F60EC26A75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,28 +534,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518266   (155639) от 19.12.2021
+###  Публикация: 1433251   (158038) от 20.12.2020
 
-Purple Disco Machine - Club Exotica (2021) [AAC|~343 Kbps] <House, Dance, Disco, Funk>
+Олег Таругин | Дорога домой (2020) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155639.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Purple Disco Machine, Sahara Beck - Can't Get Enough (Monte Remix) (6:40)
-02. Purple Disco Machine, Lorenz Rhode - At The Disko (Extended Mix) (6:32)
-03. Purple Disco Machine, Moss Kena, The Knocks - Fireworks (Club Dub Mix) (6:18)
-04. Don't Stop (Extended Mix) (6:27)(   Читать дальше...   )Жанр: House, Dance, Disco, FunkПродолжительность: 01:23:15
+Крохотный метеорит попадает в двигатель инопланетного космического рудовоза. Бортовой Искусственный Интеллект решает спасти экипаж корабля, спящий в криосне. Грузовой отсек отделен. Он врезается в атмосферу маленькой голубой планеты и взрывается… 30 июня 1908 года над сибирской тайгой, в районе реки Подкаменной Тунгуски. Капсула с экипажем благополучно опускается (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 12:02:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6615AE4F5785B1FFF82DF0FC68457CEA4302D81
+magnet:?xt=urn:btih:8209490C971D4E1C0328647F5F0ADEF2C0BF2ADE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,25 +560,155 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347013   (155549) от 21.12.2019
+###  Публикация: 853632   (158009) от 26.12.2014
 
-Зверь / Biseuteu (2019) WEB-DL [720p] ATV
+Аномалия / The Anomaly (2014) BDRip [1080p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155549.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Двум детективам, которые терпеть друг друга не могут, приходится действовать сообща, чтобы расследовать шокирующее убийство.Производство: Корея Южная, Next Entertainment World, Studio & NewЖанр: Детектив, боевик, криминал, триллерРежиссер: Ли Джон-хоАктеры: Ли Сон-мин, Ю Джэ-мён, Чон Хе-джин, Чхве Даниель, Ким Хо-джон, Ким Бён-чхун, Ан Щи-ха, Ли Сан-хи, Ким Хон-пха, Ок Ча-ёнПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:05:37
+Райан Рив, как и любой солдат, всегда готов к любым поворотам судьбы. Этому не помешает ни отстранение от службы, ни тяжелое психологическое состояние – ведь ты солдат. Но даже профессионалам требуется собрать всю силу воли в кулак, чтобы вырваться из состояния, когда твоим сознанием кто-то управляет. Когда только мгновенные промежутки времени подконтрольны подсознанию, чтобы узнать правду, понять как собственная судьба связана с мальчиком Алексом, с которым оказываешься внутри темного движущегося фургона... (   Читать дальше...   )Жанр: Фантастика, боевик, триллерРежиссер: Ноэль КларкПродюсер: Ноэль Кларк, Джеймс Харрис, Марк ЛэйнАктеры: Ноэль Кларк, Иен Сомерхолдер, Брайан Кокс, Алексис Нэп, Люк Хемсворт, Ниал Грег Фултон, Майкл Биспинг, Али Кук, Арт Паркинсон, Рубен ДуброуПеревод: Профессиональный (дублированный) (R5)Язык субтитров: АнглийскийПродолжительность: 01:36:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDDC7243CA1BF1DEBBDC400714D1611DDA40106E
+magnet:?xt=urn:btih:BA2EAD1BCE1628CD4688B68B1FC40C7587BBCB69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194011   (157281) от 24.12.2017
+
+Group | Stand Up Сезон 2 (2014) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 15:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F80A1465DD0325710739F12B13CB7AEBAC00FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194012   (157262) от 24.12.2017
+
+Group | Stand Up Сезон 3 (2015) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 08:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58995FD15DC5ABBCE3A75B9AADF0D2C3FD3B482C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194016   (157171) от 24.12.2017
+
+Group | Stand Up Сезон 6 (2017) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 06:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAE76FDC27F36541FB42503104808E343424CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194014   (157153) от 24.12.2017
+
+Group | Stand Up Сезон 5 (2016) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 07:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730345600A7285336CA353F96594EAAC08AB6FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194013   (157053) от 24.12.2017
+
+Group | Stand Up Сезон 4 (2016) [M4B|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Жанр: ЮморФормат: M4BПродолжительность: 07:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3807B0A39458ADFCEEBABA7A54B58710E55BCCE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

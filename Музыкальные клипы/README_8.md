@@ -1,3 +1,136 @@
+###  Публикация: 1350780   (908696) от 20.03.2020
+
+Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Videos at Ozzy Osbourne: (00:11:03)
+2019 Ozzy Osbourne - Under the Graveyard [1080p] 2020 (00:05:47)
+2019 Ozzy Osbourne & Post Malone - Take What You Want (Live Video) [1080p] 2019 (00:02:46)
+2020 Ozzy Osbourne - Straight to Hell [1080p] 2020 (00:03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782A59B121F5F3731DA24FB91E3C4C3EE33CDA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635880   (907830) от 27.03.2013
+
+Alisher - Money (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145F5471FA6A3BAE2A8371EF5339D757825FC697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635889   (907822) от 27.03.2013
+
+Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9F9FE7FBBF669BB785F4E3E9E1551BFE38D7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635882   (907713) от 27.03.2013
+
+Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D3C73FF636A416008265E8A671E8CA6A4ACA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635887   (907649) от 27.03.2013
+
+Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8224B7D5D11788926A0F46C398C70A6218080BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990276   (907446) от 27.02.2016
 
 VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016 + бонус) DVDRip,HDRip
@@ -555,142 +688,6 @@ Quest Pistols (Quest Pistols Show) - 12 Mysic Videos (2007-2011) WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5366F51C4D1F324BA860EDF6AD0107F8796E8D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366878   (901617) от 24.03.2020
-
-Лобода - Новый Рим (2020) Web-DL [Н.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Лобода́ (Лобода) - Новый РимПроизводство: Sound production LUKACHSOUNDЖанр: PopРежиссер: Alan BadoevАктеры: Светла́на Серге́евна Лобода́ (укр. Світла́на Сергі́ївна Лобода́)Солистка группы «ВИА Гра» в 2004 году.Продолжительность: 00:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0E812FB4C5E7140DD90243C17338BCA9446C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369174   (901535) от 24.03.2020
-
-Tommy Cash - 14 Music Videos (2014-2020) WEBRip [VP9/H.264/2160p/1080p/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tommy Cash  (TOMM¥ €A$H) - "Член" команды "Little Big Family".001 Little Big & Tommy Cash - Give Me Your Money
-002 Little Big feat. Tommy Cash - Give Me Your Money (Live Clip)
-003 Tommy Cash - Euroz Dollaz Yeniz
-004 Tommy Cash - Guez Whoz Bak(   Читать дальше...   )Жанр: Rave, Raprave, Hip-HopПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2DB46D3039B526E684B77C2352347A93773752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194817   (901445) от 30.03.2013
-
-Rammstein - Music Video (Клипография) (1995-2010) DVDRip, HQWEBRip
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипография группы Rammstein. Оригинальные дорожки были перекодированы из LPCM во FLAC. Дорожки АС3 и MP3 были заменены на FLAC. В большинстве клипов поля подрезаны до соотношения 16:9. Рипал сам, если что не так - пишите, учту на будущее ;). Приятного просмотра.01. Du Riechst So Gut '95   1995    00:04:00
-02. Rammstein       1996    00:04:28
-03. Seemann       1996    00:04:15
-04. Du Hast       1997    00:03:54(   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HarteПродолжительность: 00:03:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637292   (900704) от 31.03.2013
-
-Carly Rae Jepsen - Tonight I M Getting Over You (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50143599F5CCF2BB744FD0F178A9B98EBCED6E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637430   (898470) от 01.04.2013
-
-Les Enfoires - Attention Au Depart (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1F9F941406444605DD20AE4B8EFABA25E4D152
 ```
 
 https://mybot314.ru/tekegram_catalog/

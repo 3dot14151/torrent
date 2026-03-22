@@ -1,3 +1,177 @@
+###  Публикация: 1519711   (147134) от 25.12.2021
+
+Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Music Goes 'Round And Around [3:24]
+02. (If I Had) Rhythm In My Nursery Rhymes [2:44]
+03. Lovely Lady [3:10]
+04. Weary [3:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D32A41F970FA0E013D91CFE332F2E8D137D465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087174   (147114) от 27.12.2016
+
+Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thou Swell [04:51]
+ 02.I Wished On The Moon [04:17]
+ 03.Knee Deep [04:03]
+ 04.Fond Memories [04:22](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333781BD6D4EB5EF38FB8A781AD2F883D80BC9AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087345   (147109) от 27.12.2016
+
+Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Elephants In The Sky [06:03]
+ 02.Experiencing Change [06:01]
+ 03.Gesticulations [05:13]
+ 04.Entranced [06:03](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E1C095268DD3D00384CE18FA9027669AD6472A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087344   (147067) от 27.12.2016
+
+The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993) Remaster, 2015[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, West Coast Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thinking Of You [11:32]
+ 02.We'll Be Together Again [09:54]
+ 03.Star Eyes [10:34]
+ 04.I'll Remember April [10:11](   Читать дальше...   )Жанр: Mainstream Jazz, West Coast Jazz, Post-BopПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D9E7D09858A2EDED2830B644329FB6F096E625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087350   (147066) от 27.12.2016
+
+Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Opening [08:31]
+ 02.Melody For Laura [06:26]
+ 03.Theme For Elijah [05:25]
+ 04.Blues For Malcolm [12:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D79B72723D3798FE6DC9E6A10B0F4070236BD79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087123   (147059) от 27.12.2016
+
+Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Foxology [03:54]
+ 02.East Of The Sun [03:54]
+ 03.Felixin [04:12]
+ 04.General Riff [03:37](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E145FE4C7B457D836C9296E439D8FF3E49FE332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435133   (146707) от 27.12.2020
 
 Ella Fitzgerald & Duke Ellington - Ella & Duke At The Cote D'Azur (1966) 2CD, 1997, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
@@ -571,180 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272384   (144790) от 27.12.2018
-
-Harry James - The In Person And Hi-Fi Sound Of Harry James (1952 - 1955) 2CD, 2007, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144790.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ultra [4:38]
-02. Blues from 'An American in Paris' [4:10]
-03. Mam Bongo [3:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1344711316EA48EB0D81DCECFBC0318566583CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435471   (144737) от 28.12.2020
-
-Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E lucevan le stelle [3:52]
-02. Tosca: Extraits du 1er Acte [5:14]
-03. Tosca: Extraits du 3eme Acte [5:40]
-04. Tosca: Improvisation sur le 3eme Acte [4:48](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00288127ECC5564D8F3D4B0C02F1F7CAB95A11D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435487   (144728) от 28.12.2020
-
-Enrico Pieranunzi & Horns - Evans Remembered (2001) Via Veneto Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song from M.A.S.H. [4:23]
-02. Funkallero [5:30]
-03. Elsa [6:10]
-04. Prelude (For the Left Hand) [1:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13612E2ED709E83A8CCE57409CDBA406DABA0887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435500   (144449) от 28.12.2020
-
-Harry Allen - The Bloody Happy Song (2020) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Bloody Happy Song
-2.Sweet Little Things
-3.I Got Lost In His Arms
-4.Too Close For Comfort(   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFCE830E74A0DD4B5DF06DF8887840BA57A6C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194981   (144424) от 28.12.2017
-
-Stan Kenton - City Of Glass (1947 - 1953) 1995, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thermopylae [02:57]
-02. Everything Happens To Me [03:03]
-03. Incident In Jazz [03:29]
-04. House Of Strings [04:18](   Читать дальше...   )Жанр: Big Band, Third StreamПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E401A198837D2D1EF0DB8FCE9E83700564BD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195253   (144283) от 28.12.2017
-
-Billie Holiday - The Essential Brunswick Recordings (1935 - 1939) 3CD, 2014, Not Now Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144283.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. These Foolish Things [03:21]
-02. Easy To Love [03:13]
-03. I Cried For You [03:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902032F74C35991036CAE368C76E40873785900C
 ```
 
 https://mybot314.ru/tekegram_catalog/

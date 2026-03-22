@@ -1,3 +1,119 @@
+###  Публикация: 1304055   (567448) от 24.05.2019
+
+Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smashed Into Pieces (3:40)
+02. Smile In Your Sleep (3:16)
+03. American Dream (3:10)
+04. Bleeds No More (3:16)(   Читать дальше...   )Жанр: Rock, Post-HardcoreПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8371420F0F3FCD77789D0AEB8AE55E1333842919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234620   (565992) от 08.07.2018
+
+Masfel - Kinai Natha (Chinese Flu) (1994) [FLAC|Lossless|tracks + .cue] <Experimental rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Daráló I. / Grinder I. (5:47)
+2. Folyami Hajózás / River Navigation (5:49)
+3. Szamba / Samba (6:29)
+4. Daráló II. (7:19)(   Читать дальше...   )Жанр: Experimental rockПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A951B0853C63F2677C197089FB71B5AF6C8F32FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304089   (565272) от 25.05.2019
+
+Cate Le Bon - Reward (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miami (05:17)
+02. Daylight Matters (04:18)
+03. Home to You (05:27)
+04. Mother's Mother's Magazines (04:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BB34E34CCFD22C662709FF48D9E08281A48927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152348   (565219) от 23.07.2017
+
+Foster The People - Sacred Hearts Club (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pay the Man (03:54)
+ 02. Doing It for the Money (03:46)
+ 03. Sit Next to Me (04:03)
+ 04. SHC (04:08)(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, AlternativeПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00989DF586CE480EB4D84FE709E6392246FF7A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304233   (565122) от 25.05.2019
 
 Lewis Capaldi - Divinely Uninspired To A Hellish Extent (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -629,122 +745,6 @@ The Dangerous Summer - Mother Nature (2019) Hopeless Records [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFC0A4D345165F04B02D31F6DBE506CA2D16CBC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308662   (553781) от 15.06.2019
-
-Reptaliens - Valis (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise Sunset
-02. Venetian Blinds
-03. Shuggie 1
-04. Shuggie 2(   Читать дальше...   )Жанр: Indie Pop, Lo-FiПродолжительность: 00:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FDE0032ECCA1BE6FF3408878DACE4D3248FDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237034   (553276) от 22.07.2018
-
-Panic! At the Disco - Pray For The Wicked (2018) [FLAC|Lossless|tracks + .cue] <Alternative, pop rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Fuck a) Silver Lining (2:48)
-02. Say Amen (Saturday Night) (3:09)
-03. Hey Look Ma, I Made It (2:49)
-04. High Hopes (3:10)(   Читать дальше...   )Жанр: Alternative, pop rockПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F431041FB339B47964082FA77F6108A3A4958E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308974   (552881) от 17.06.2019
-
-Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corner Painter (04:31)
-02. Counterfeit (04:04)
-03. Hard To Be Alone (04:55)
-04. Haunted Love (06:27)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C7EE65592C1201FB62B3B318DB67A1DD6173CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237338   (552357) от 23.07.2018
-
-Bring Me The Horizon - 2004-2013 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traitors Never Play Hangman (3:37)
- 02. Pray For Plagues (4:22)
- 03. Diamond Aren't Forever (3:48)
- 04. The Sadness Will Never End (Feat. Sam Carter) (5:22)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1094B05668DBF6A6D72D9C4E2B5699690E2E3E8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

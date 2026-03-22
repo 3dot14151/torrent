@@ -1,3 +1,165 @@
+###  Публикация: 551023   (449938) от 25.09.2012
+
+The xx - Coexist (Japanese Version) (2012) [MP3|320 кб/с]<Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449938.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Angels
+2.Chained
+3.Fiction
+4.Try
+5.Reunion
+6.Sunset
+7.Missing
+8.Tides
+9.Unfold
+10.Swept Away(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569621   (449681) от 14.08.2022
+
+PreHistoric Animals - 3 Albums (2018-2022) [MP3|320 Kbps] <Alternative Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Empty Space [00:01:01]
+02. We Harvest The Souls Of The Brave [00:04:34]
+03. I Am The Chosen One (And I Like It) [00:06:10]
+04. Ghostfires [00:06:03](   Читать дальше...   )Жанр: Alternative Progressive RockПродолжительность: 3CD, 02:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E8CB823DF12DB19B5CE1A5333F4262E575D621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551842   (448764) от 26.09.2012
+
+Diapasаo - Opus 1 (2006) [MP3|320 кб/с]<Progressive rock, Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diapasão (8:08)
+02. Som do Brasil (1:57)
+03. Sonata (6:12)
+04. Do céu ao inferno (7:54)
+05. Fuga (2:04)
+06. Noite a la caipirinha (8:10)
+07. Rock espanhol (3:14)
+08. Jazz (5:32)
+09. Piccolo finale (0:59)Жанр: Progressive rock, Jazz-RockПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E92B6ADBF78C39A0B0FF494796C65461B9C769A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163730   (448545) от 06.09.2017
+
+The Bobby Fuller Four - I Fought the Law / KRLA King of the Wheels (1965) Remastered, 1990, Ace [MP3|320 Kbps] <Beat, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder Reef
+02. Wolfman
+03. She's My Girl
+04. King Of The Wheels(   Читать дальше...   )Жанр: Beat, Rock'n'RollПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3B5A1FB6716BD04D4D112C86ACB69F4C06D435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242974   (447705) от 07.10.2010
+
+The Beatles & The Rolling Stones - When Two Legends Collide [BOOTLEG] (1967) [MP3|128 kbps]<Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447705.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:36] 01.  - Sing This All Together
+[02:39] 02.  - Citadel (Instrumental)
+[02:21] 03.  - Shades Of Orange
+[03:46] 04.  - She's A Rainbow
+[02:48] 05.  - Ride On Baby
+[03:18] 06.  - Too Many Cooks
+[01:12] 07.  - That Place
+[01:37] 08.  - Ain't That Lovin You Baby
+[03:53] 09.  - Through The Lonely Nights
+[04:42] 10.  - Everybody Needs Somebody To Love(   Читать дальше...   )Жанр: Rock and RollПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 242863   (447628) от 07.10.2010
 
 Joe Satriani - The Very Best (2010) [MP3|320 kbps]<Рок / Guitar, Instrumental Rock>
@@ -624,163 +786,6 @@ Big & Rich - Hillbilly Jedi (2012) [MP3|320 кб/с]<Country Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DDF3AD6045072EB3013F988223045990899003F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553859   (441530) от 29.09.2012
-
-Alvin Lee - Still On The Road To Freedom (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still On The Road To Freedom
-02. Listen To Your Radio Station
-03. Midnight Creeper
-04. Save My Stuff
-05. I'm A Lucky Man
-06. Walk On, Walk Tall
-07. Blues Got Me So Bad
-08. Song Of The Red Rock Mountain
-09. Nice & Easy
-10. Back In 69(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDED31788E81E7AFB1B74E453277E761F059D4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553444   (441349) от 29.09.2012
-
-Tori Amos - Gold Dust (2012) [MP3|320 кб/с]<Alternative Rock, Piano Rock, Baroque Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flavor(from Abnormally Attracted to Sin; 2009)
-02. Yes, Anastasia(from Under the Pink; 1994)
-03. Jackie’s Strength(from From the Choirgirl Hotel; 1998)
-04. Cloud on My Tongue(from Under the Pink; 1994)
-05. Precious Things(from Little Earthquakes; 1992)
-06. Gold Dust(from Scarlet’s Walk; 2002)
-07. Star of Wonder(from Midwinter Graces; 2009)
-08. Winter(from Little Earthquakes; 1992)
-09. Flying Dutchman(from “China” single; 1992)
-10. Programmable Soda(from American Doll Posse; 2007)(   Читать дальше...   )Жанр: Alternative Rock, Piano Rock, Baroque PopПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077F3D59DB7120062498F3B89FB805D005DF6025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944386   (440506) от 07.10.2015
-
-Cold Chisel - The Perfect Crime (2015) Deluxe Edition [OGG| 456-523 кб/с]<Classic Rock, Pub Rock, Hard Rock, Rock and Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone For You
-02. The Backroom
-03. All Hell Broke Lucy
-04. The Perfect Crime(   Читать дальше...   )Жанр: Classic Rock, Pub Rock, Hard Rock, Rock and RollПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52975D163C2DBA70C176B8320A524254D651EF47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248897   (440176) от 21.09.2018
-
-Blitzen Trapper - Furr (2008) 10th Anniversary Deluxe Edition, 2018, Sub Pop [MP3|320 Kbps] <Folk Rock, Country Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepytime in the Western World (3:30)
- 02. Gold For Bread (2:47)
- 03. Furr (4:08)
- 04. God & Suicide (2:21)(   Читать дальше...   )Жанр: Folk Rock, Country Rock, Alternative RockПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E8B546503DDEE6A3E6F46409EF7CB9B97297EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248660   (440025) от 21.09.2018
-
-Hush - Aloud 'n' Live (1973) [MP3|320 Kbps] <Glam Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Us Home
-02. Three Blind Mice
-03. Make luv to You
-04. Honky Tonk Woman(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4DF27732E149DCCEDDC91F93F0AC94FF919C38
 ```
 
 https://mybot314.ru/tekegram_catalog/

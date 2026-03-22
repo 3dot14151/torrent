@@ -1,3 +1,139 @@
+###  Публикация: 957456   (326391) от 18.11.2015
+
+VA - Осенний марафон № 205 / Видеоклипы (Дискотека с размахом № 4) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Art Key - Делаю Больно (Премьера!) (00:03:13)
+02. De Hofnar X Goodluck - Back In The Day (Official Video) (00:02:47)
+03. Don't Wanna Be Your Lover - Vanessa White (Official Video) (00:03:11)
+04. Jessie J, Ariana Grande, Nicki Minaj - Bang Bang (Live At Capital Summertime Ball) (00:04:12)(   Читать дальше...   )Жанр: Pop, Dance, LatinoПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D04562870F5F5FE79DB8571FB0FC2C761DDB294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581633   (322590) от 28.11.2012
+
+Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCK
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2613A1C42AB58F0C88E7B7D4E8D5CDC0767CC3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581648   (322306) от 28.11.2012
+
+The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROСK
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488A9103583B16AC588906C86D094EA6E0E83AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958862   (321245) от 22.11.2015
+
+VA - Осенний марафон № 206: Дискотека с размахом № 5 (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (22.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ally - LoveSick (Official Video) (00:03:15)
+02. Amure - House Of The Sun (Official Video) (00:04:38)
+03. Stereolizza - Boys and Girls (Official Video) (00:03:22)
+04. BoA - Lookbook (Official Video) (00:02:36)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Soul, Dubstep, Chill OutПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1720F409AFA03C5C62D0975A6A3D43EEF27BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582097   (321147) от 29.11.2012
+
+Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R&B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3774D130F8598ABE88743B255B4F6E05A6CB732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582041   (321142) от 29.11.2012
 
 Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
@@ -552,148 +688,6 @@ The Best of...(vol.3) (2011) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E79372E7E699C7E8ED28B4B6DA3FFE1DE07209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585195   (305745) от 05.12.2012
-
-Slim - Шлягер (2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Hip-hopПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A239D5E543C2BDCBBD3132AC7925FB2DB31945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960911   (300795) от 01.12.2015
-
-VA - Осенний марафон № 208: Хиты с доставкой на дом (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (29.11.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Alessandra - Khalia (Official Video) (00:03:02)
-02. Amna ft. Robert Toma - In oglinda (Marc Rayen & Electric Pulse Remix) (VJ Tony Video Edit) (00:03:31)
-03. Cheryl Cole - Ghetto Baby (Official Video) (00:03:09)
-04. Chris Brown - Fine By Me (Official Video) (00:05:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, Country, Dubstep, Electronic, SynthpopПродолжительность: 01:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F586ED41D78789D10ED9FBB23D8242B0C62E480E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184467   (296941) от 19.11.2017
-
-Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Это 2я часть сборника. Смотрите слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-061 Бейбит Корган - Сок-сок
-062 Mysterions - Неге ундемедин
-063 Дастан Оразбеков - Сезим(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB81AC541393D0D626E66420C9DECE5AAAF8F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184757   (296750) от 19.11.2017
-
-Сборник клипов - Best Hits 80 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-058 Tina Turner - Simply The Best
-059 Sandra - Maria Magdalena
-060 Lisa Stansfield - All Around The World(   Читать дальше...   )Жанр: PopПродолжительность: 03:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF54D5903ED92CBD62018A2CE3F78EEBE8BC9C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961813   (296560) от 03.12.2015
-
-VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 27 ноября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе в основном использованы официальные видеоролики.01. Justin Bieber - Sorry (3:25)
-02. Justin Bieber - Love Yourself (4:32)
-03. Adele - Hello  (6:07)
-04. Justin Bieber - What Do You Mean  (4:58)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Top40Перевод: ОтсутствуетПродолжительность: 02:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED724C2BCD02ABD5B2496C60A778465B4FB2D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

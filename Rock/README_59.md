@@ -1,3 +1,153 @@
+###  Публикация: 1413557   (408432) от 04.10.2020
+
+Genesis - Radio Sessions 1970-1972 (2020) Live, Compilation [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shepherd (live) [00:04:01]
+02 - Pacidy (live) [00:05:37]
+03 - Let Us Now Make Love (live) [00:06:08]
+04 - Stagnation (live) [00:08:04](   Читать дальше...   )Жанр: Progressive RockФормат: CD, Compilation, Unofficial Release
+Качество файлов естественно (так как действо менестрелей проходило на радио и в давние стародавние времена) аховое, что и видно из спектров. Наличие такого рода качества звука в несжатом формате 44,1/16 прямо таки вызывает чувство отрешенности от мира живых...
+КонтораПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD6562AD12FCE5C13D2EB2B49E803F40863BD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067310   (408380) от 28.10.2016
+
+Albert Hammond - In Symphony (2016) [MP3|320 Kbps] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| It Never Rains In Southern California   (04:03) 
+  02| I'm A Train   (03:47) 
+  03| When I Need You   (04:40) 
+  04| Give A Little Love   (04:15) (   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4455E472A61D72C09BD22F36AEA106DF5D622976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559282   (408232) от 13.10.2012
+
+Lost in Kiev - Motions (2012) [MP3|320 кб/с]<Post-Rock / Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408232.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. > (01:36)
+2. A Mere Shift Of Origin (06:46)
+3. I'm Stuck (06:01)
+4. Hope, Fights & Disillusions (08:41)
+5. They're Coming (08:29)
+6. Under Close Surveillance (06:55)
+7. The Day I Ruined My Life (09:10)Жанр: Post-Rock / Post-MetalПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1E28DAD9CC11BD13CC33AB39B4B8D9C05B3E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413346   (407989) от 04.10.2020
+
+Slade - Cum On Feel The Hitz - The Best Of Slade (2020) Compilation [MP3|320 Kbps] <Glam, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cum On Feel The Noize [00:04:23]
+02 - Skweeze Me, Pleeze Me [00:04:27]
+03 - Mama Weer All Crazee Now [00:03:42]
+04 - Coz I Love You [00:03:23](   Читать дальше...   )Жанр: Glam, Hard RockПродолжительность: 1CD, 02:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0706AB9A9C85EC6CF71C1C6853490C13ED969E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533490   (407691) от 06.10.2018
+
+Freddie Mercury and Montserrat Caballe - Barcelona [Japanese Edition] (1988) [MP3|320 кб/с]<Rock, Pop, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407691.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Barcelona (5:39)
+ 2. La Japonaise (4:49)
+ 3. The Fallen Priest (5:46)
+ 4. Ensueno (4:21)(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2BFDDF029189F7CC6352BD7F769603D8E44E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413828   (407266) от 05.10.2020
 
 Trilogy - Here It Is (1980) Reissue CD, 2009, MALS [MP3|320 Kbps] <Electronic, Progressive Rock>
@@ -625,153 +775,6 @@ The Voice of Deep Purple - The Gillan Years (2017) 3CD [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75AD491651EEA2485BA74832A11ECE4C2579C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173558   (389773) от 12.10.2017
-
-Brett Benowitz - Burn to Glow (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamb (04:36)
-02. Out of Sight (04:16)
-03. The Rider (02:31)
-04. Meet the Ground (04:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A694B171FB6D954BE6D2A2313B0F04C17555200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173739   (389627) от 12.10.2017
-
-Robert Plant - Carry Fire (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The May Queen
-02. New World...
-03. Season's Song
-04. Dance With You Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D686E2F7A4AF8BB1238D30CEA43B1CCDD4893A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173936   (388972) от 13.10.2017
-
-VA - Wish You Were Here (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IT - The Path Of Least Resistance (11:54)
-02. Lunatic Soul - Anymore (04:38)
-03. Koyo - Now I Understand (04:13)
-04. Galahad - Weightless (05:36)(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47A514F492EDF1A91588BAAA37B4F81B5687D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571886   (388187) от 07.11.2012
-
-Larry And His Flask  - Hobo's Lament(EP)(2012) [MP3|320 kbps] <Folk Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.closed doors (02:34)
-02.big ride (03:38)
-03.my name is cancer (02:14)
-04.hobo's lament (04:20)
-05.swing (03:01)
-06.so long(03:30)Жанр: Folk Rock, AlternativeПродолжительность: 00:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C4D0CA87C929694AEC8247E01C65C27806CC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253114   (387904) от 07.10.2018
-
-Pulatova - Рой (2018) [MP3|320 Kbps] <Post-Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокалистка Flёur Ольга Пулатова представила первый альбом своего сольного проекта Pulatova: "Рой".1. Падение
-2. Сердце покоя
-3. Норадреналин
-4. Ящер(   Читать дальше...   )Жанр: Post-Rock, Indie RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EDB0449AFAA802D02B0560D0FB03C1D488FC97
 ```
 
 https://mybot314.ru/tekegram_catalog/

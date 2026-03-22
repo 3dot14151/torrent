@@ -1,3 +1,32 @@
+###  Публикация: 1387164   (792676) от 31.05.2020
+
+Cremation - In The Maelstrom Of Time (2017) [MP3|320 Kbps] <Death metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maelstrom (01:21)
+02. Collision Course (06:03)
+03. Jousting with the Psyche (06:13)
+04. Black Hole (06:50)(   Читать дальше...   )Жанр: Death metalПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF21C99E8105BD17C52143C7672A1254C07F8ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123220   (792530) от 07.04.2017
 
 Lento - Earthen (2007) [MP3|320 Kbps] <post-metal, instrumental, ambient>
@@ -716,35 +745,6 @@ Behemoth - Amen (2017) Promo CD [MP3|320 Kbps] <Black Metal, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6577BF58B6D787611819DD660EB1C2CB01D1AA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389285   (784591) от 10.06.2020
-
-BPMD - American Made (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wang Dang Sweet Poontang (03:35)
- 02. Toys in the Attic (03:20)
- 03. Evil (03:13)
- 04. Beer Drinkers & Hell Raisers (03:44)(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC1F38578D7306A2FDC2517BEF238ED4FB3AEE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
